@@ -1,59 +1,58 @@
-# 亚航CEO：当前航油危机比新冠疫情更严峻
+# 股价跌超10%！上市不足一年，绿茶集团二股东拟清仓离场
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-亚洲航空首席执行官托尼·费尔南德斯警告称，伊朗战争引发的全球航空燃油短缺对航空业的冲击比新冠疫情时期更为严重。 费尔南德斯在接受采访时表示，他曾以为自己在疫情期间已经经历了最糟糕的情况，但看到航空燃油价格上涨近三倍后，他认为这次的情况要严重得多。他补充说，某天醒来突然发现公司的核心成本飙升了三倍，这对他来说是一种全新的经历。 自2月底美伊冲突爆发以来，霍尔木兹海峡航运受阻，航空
+专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 上市不到一年，绿茶集团二股东拟清仓退出。 4月9日，休闲中式餐厅运营商绿茶集团（6831.HK）发布公告称，公司董事会收到公司主要股东Partners Group Gourmet House Limited（以下简称“Partners Gourmet”）通知，4月8日，Partners Gourmet宣布三项股份出售安排。配
 
 ## 正文
 
-亚洲航空首席执行官托尼·费尔南德斯警告称，伊朗战争引发的全球航空燃油短缺对航空业的冲击比新冠疫情时期更为严重。
+专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 上市不到一年，绿茶集团二股东拟清仓退出。
 
-费尔南德斯在接受采访时表示，他曾以为自己在疫情期间已经经历了最糟糕的情况，但看到航空燃油价格上涨近三倍后，他认为这次的情况要严重得多。
+4月9日，休闲中式餐厅运营商绿茶集团（6831.HK）发布公告称，公司董事会收到公司主要股东Partners Group Gourmet House Limited（以下简称“Partners Gourmet”）通知，4月8日，Partners Gourmet宣布三项股份出售安排。
 
-他补充说，某天醒来突然发现公司的核心成本飙升了三倍，这对他来说是一种全新的经历。
+配售事项及出售事项涉及的股份总数为1.06亿股，相当于公告日期已发行股份总数（不包括库存股份）的约15.96%。
 
-自2月底美伊冲突爆发以来，霍尔木兹海峡航运受阻，航空燃油供应降至有记录以来最低水平。
+截至4月9日收盘，绿茶集团（6831.HK）股价报7.92港元/股，跌10.71%。
 
-费尔南德斯指出，与其他地区的航空公司不同，亚洲航空业在此轮危机中显得尤为脆弱。
+具体来看，Partners Gourmet与摩根大通证券（亚太）有限公司及广发证券（香港）经纪有限公司（以下简称“配售代理”）订立大宗交易协议，配售代理同意以Partners Gourmet代理身份，按尽力基准促使承配人购买合共6004.4万股本公司普通股；Partners Gourmet同意向投资基金出售其持有的2304.84万股股份；Partners Gourmet同意与策略性企业买方订立买卖协议，以出售其持有的若干股份，出售所得款项总额不得超过3000万美元。
 
-由于燃油对冲比例普遍较低，亚洲航空公司必须直接承受油价飙升的冲击。
+公告指出，预计配售事项将于2026年4月13日完成。
 
-数据显示，仅5月份全球已有约1.3万架次航班被取消，减少近200万个座位。
+完成出售事项须待取得监管批准后才作实。
 
-美国廉航Spirit Airlines已于本周倒闭，费尔南德斯警告其他低成本运营商可能步其后尘。
+配售事项及出售事项完成后，Partners Gourmet将不再持有任何股份，并将不再为本公司股东。
 
 ## 相关推荐
 
-- 2026-06-29 16:16 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 16:10 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 16:11 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 16:15 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 16:04 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 15:57 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 16:02 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 16:19 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 16:12 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 16:10 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 16:18 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 16:12 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 16:06 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 16:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 16:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 16:15 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 16:25 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 16:01 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 16:00 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 16:25 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 16:16 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 16:12 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 16:15 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 16:03 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 16:15 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/26694701.shtml)
-- 2026-06-29 16:03 - [网友飞机上偶遇肖战](http://www.share.kurohicncr.top/Article/details/31118056175.shtml)
-- 2026-06-29 16:07 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/9812484.shtml)
-- 2026-06-29 16:09 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/622179895.shtml)
-- 2026-06-29 16:23 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/014059792.shtml)
-- 2026-06-29 16:16 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/8905435.shtml)
-- 2026-06-29 16:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/044511.shtml)
-- 2026-06-29 16:01 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/840968.shtml)
-- 2026-06-29 16:11 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/468116.shtml)
-- 2026-06-29 16:15 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/778191556.shtml)
-- 2026-06-29 16:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/199816713729.shtml)
-- 2026-06-29 16:19 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/5596951796.shtml)
-- 2026-06-29 16:03 - [105年初心滚烫](http://www.blog.minike.top/Article/details/29603295971.shtml)
-- 2026-06-29 16:15 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/76187612726.shtml)
-- 2026-06-29 16:15 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/282112.shtml)
+- 2026-06-29 16:24 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/26687790672.shtml)
+- 2026-06-29 16:15 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/45210.shtml)
+- 2026-06-29 16:15 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.minike.top/Article/details/22569397205.shtml)
+- 2026-06-29 16:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/555891456936.shtml)
+- 2026-06-29 16:26 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/30274563.shtml)
+- 2026-06-29 16:11 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/1747102407.shtml)
+- 2026-06-29 16:27 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/104398843.shtml)
+- 2026-06-29 16:02 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/922697804.shtml)
+- 2026-06-29 16:25 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/16627226864.shtml)
+- 2026-06-29 16:12 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/252010.shtml)
+- 2026-06-29 16:19 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/67966934727.shtml)
+- 2026-06-29 16:06 - [明星大侦探第四季](http://www.share.minike.top/Article/details/9744248.shtml)
+- 2026-06-29 16:11 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/06889.shtml)
+- 2026-06-29 16:20 - [博主：美航母沦为毒品集散窝点](http://www.blog.minike.top/Article/details/562733332846.shtml)
+- 2026-06-29 16:19 - [流金岁月](https://www.share.kurohicncr.top/Article/details/1277708.shtml)

@@ -1,56 +1,56 @@
-# 海内外信众齐聚“妈祖故里”湄洲岛共庆妈祖诞辰1066周年
+# 美中关系全国委员会副会长：“乒乓外交”的本质是让人们走到一起
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新社福建湄洲岛5月9日电 (叶秋云)5月9日(农历三月廿三)，海内外妈祖信众齐聚“妈祖故里”福建莆田湄洲岛，湄洲妈祖祖庙纪念妈祖诞辰1066周年大会暨春祭大典在此举行。来自法国、泰国、马来西亚等多个国家及港澳台地区的上万名信众参与了盛会。据了解，有近50家台湾妈祖文化机构参加了此次活动。台湾林氏宗亲总会总会长林晋章在受访时表示，台湾妈祖文化传承兴盛，多地妈祖宫庙举行绕境进香活
+中新社北京4月10日电(记者 曾玥)“很高兴能在这个契机到访，因为这次活动纪念的是美中关系的转折点。”美中关系全国委员会副会长白莉娟(Jan Berris)9日晚在北京接受中新社等媒体采访时如是说。 1971年，“乒乓外交”拉开了中美关系改善和发展的历史序幕。次年，中国乒乓球代表团访美，白莉娟作为接待方全程陪同，分别之际不舍落泪。1973年白莉娟首次访华时，不少中国人一眼认出她
 
 ## 正文
 
-中新社福建湄洲岛5月9日电 (叶秋云)5月9日(农历三月廿三)，海内外妈祖信众齐聚“妈祖故里”福建莆田湄洲岛，湄洲妈祖祖庙纪念妈祖诞辰1066周年大会暨春祭大典在此举行。
+中新社北京4月10日电(记者 曾玥)“很高兴能在这个契机到访，因为这次活动纪念的是美中关系的转折点。
 
-来自法国、泰国、马来西亚等多个国家及港澳台地区的上万名信众参与了盛会。
+”美中关系全国委员会副会长白莉娟(Jan Berris)9日晚在北京接受中新社等媒体采访时如是说。
 
-据了解，有近50家台湾妈祖文化机构参加了此次活动。
+1971年，“乒乓外交”拉开了中美关系改善和发展的历史序幕。
 
-台湾林氏宗亲总会总会长林晋章在受访时表示，台湾妈祖文化传承兴盛，多地妈祖宫庙举行绕境进香活动，吸引众多信众参与，年轻人占比颇高。
+次年，中国乒乓球代表团访美，白莉娟作为接待方全程陪同，分别之际不舍落泪。
 
-台湾各地香火鼎盛的妈祖宫庙，见证着两岸同根同源、血脉相连的不争事实。
+1973年白莉娟首次访华时，不少中国人一眼认出她是“那个哭的女士”。
 
-8日晚至9日凌晨，湄洲妈祖祖庙举行“守夜庆妈祖诞辰”活动。
+此后50多年间，她访华超过150次，“每次来中国，都能看到我第一次来时没有的新变化。
 
-9日零时许，大典进入高潮，钟鼓齐鸣，烟花绽放，海内外信众共同祈福，共庆妈祖诞辰。
+” 应中国人民对外友好协会邀请，白莉娟此次与多位“乒乓外交”亲历者来华出席中美“乒乓外交”55周年纪念大会。
 
-“‘回家’的路再远，也挡不住我们回来的脚步。
+在北京参访期间，他们与中方亲历者重逢，重温当年经历。
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 15:58 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 16:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 16:20 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 15:56 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 15:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 16:20 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 16:07 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 15:58 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 16:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 16:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 16:14 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 16:11 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 16:28 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 16:17 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 16:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 16:15 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 16:26 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 16:11 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 16:08 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/59648104200.shtml)
-- 2026-06-29 15:59 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/555431255.shtml)
-- 2026-06-29 15:56 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/952322.shtml)
-- 2026-06-29 15:58 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/29733354022.shtml)
-- 2026-06-29 15:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/47605.shtml)
-- 2026-06-29 16:10 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/407939930.shtml)
-- 2026-06-29 16:17 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/13061493956.shtml)
-- 2026-06-29 16:18 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/41213.shtml)
-- 2026-06-29 16:22 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/89552707018.shtml)
-- 2026-06-29 15:54 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/89841.shtml)
-- 2026-06-29 15:57 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/6713836.shtml)
-- 2026-06-29 16:15 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/8619473.shtml)
-- 2026-06-29 15:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/701246802.shtml)
-- 2026-06-29 16:04 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/39842835982.shtml)
-- 2026-06-29 16:20 - [李在镕：计划将光州作为芯片生产基地](http://www.share.kurohicncr.top/Article/details/152730416427.shtml)
+- 2026-06-29 16:25 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/4024644.shtml)
+- 2026-06-29 16:20 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/36430785.shtml)
+- 2026-06-29 16:04 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/965061.shtml)
+- 2026-06-29 16:01 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/068520871.shtml)
+- 2026-06-29 16:25 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/8919959.shtml)
+- 2026-06-29 16:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/6754808293.shtml)
+- 2026-06-29 16:22 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/872583549.shtml)
+- 2026-06-29 16:13 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/026986.shtml)
+- 2026-06-29 16:27 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.kurohicncr.top/Article/details/98264427.shtml)
+- 2026-06-29 16:19 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/62723762982.shtml)
+- 2026-06-29 16:16 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/83960.shtml)
+- 2026-06-29 16:09 - [BB大王横店拍戏](http://www.blog.minike.top/Article/details/18869127.shtml)
+- 2026-06-29 16:20 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/21698.shtml)
+- 2026-06-29 16:14 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/39932336410.shtml)
+- 2026-06-29 16:20 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/21545693.shtml)

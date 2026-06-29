@@ -1,59 +1,61 @@
-# 扬州江都聚焦绿色转型与源头守护：以生态“含绿量”提升发展“含金量”
+# 广东召开深海探测未来产业专家咨询会
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网扬州5月9日电 (徐珊珊 崔佳明) PM2.5年均浓度持续达到国家二级标准，长江江都段水质稳定保持Ⅱ类，珍稀鸟类彩鹮首次现身扬州……“十四五”以来，扬州市江都区以生态“含绿量”撬动发展“含金量”，交出一份厚重提气的生态答卷。5月9日，扬州江都区举行“聚焦‘绿色发展示范’，绘就生态文明新画卷”主题新闻发布会，江都生态环境局局长徐仕明在新闻发布会上亮出“成绩单”，并展望“十五
+中新网广州4月10日电(许青青 周可)为深入推进海洋强省建设，抢抓深海探测未来产业发展机遇，广东省自然资源厅4月9日在广州组织召开深海探测未来产业专家咨询会。16位专家齐聚一堂，以专业视角为广东深海探测产业高质量发展把脉定向、谋篇布局。会议指出，广东海洋经济总量连续31年全国第一，发展深海探测产业科研力量强大，产业基础扎实，拥有最具活力的企业主体。 会议强调，深海探测产业已被列
 
 ## 正文
 
-中新网扬州5月9日电 (徐珊珊 崔佳明) PM2.5年均浓度持续达到国家二级标准，长江江都段水质稳定保持Ⅱ类，珍稀鸟类彩鹮首次现身扬州……“十四五”以来，扬州市江都区以生态“含绿量”撬动发展“含金量”，交出一份厚重提气的生态答卷。
+中新网广州4月10日电(许青青 周可)为深入推进海洋强省建设，抢抓深海探测未来产业发展机遇，广东省自然资源厅4月9日在广州组织召开深海探测未来产业专家咨询会。
 
-5月9日，扬州江都区举行“聚焦‘绿色发展示范’，绘就生态文明新画卷”主题新闻发布会，江都生态环境局局长徐仕明在新闻发布会上亮出“成绩单”，并展望“十五五”绿色新篇。
+16位专家齐聚一堂，以专业视角为广东深海探测产业高质量发展把脉定向、谋篇布局。
 
-五年来，江都聚力治污攻坚。
+会议指出，广东海洋经济总量连续31年全国第一，发展深海探测产业科研力量强大，产业基础扎实，拥有最具活力的企业主体。
 
-累计实施大气治理重点项目859项、水污染防治工程140项。
+会议强调，深海探测产业已被列为广东省八大未来产业之一。
 
-12个国省考断面优Ⅲ比例达100%，优Ⅱ比例提升至83.3%；饮用水水源地水质达标率100%；建设用地安全利用率100%。
+发展深海探测产业是广东全面建设海洋强省、服务海洋强国战略的重要抓手，对抢占海洋科技制高点，培育海洋新质生产力，保障国家海洋安全与资源开发具有重要意义。
 
-芒稻河入选国家美丽河湖优秀案例。
+会上，来自自然资源部油气资源战略研究中心等11家单位的16位专家，围绕深海探测产业定义、范畴科学界定，广东培育发展深海探测未来产业的战略定位、发展方向、重点任务、重大平台、重大工程、支撑政策等方面积极建言献策，提出一系列专业性、前瞻性、可操作性强的意见建议。
 
-绿色转型同步提速。
+据悉，下一步广东省自然资源厅将全面梳理专家意见，进一步完善深海探测产业定义、发展路径和重点任务，加强顶层谋划，高质量培育和发展深海探测未来产业，为全面推进海洋强省建设提供有力支撑。
 
-江都严控“两高”项目，劝退否决36个不符政策项目，保障135个省市重大项目落地。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 16:12 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 16:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 16:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 16:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 16:14 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 16:14 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 15:58 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 15:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 16:19 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 15:57 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 16:06 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 16:22 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 16:24 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 16:18 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 16:21 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 16:11 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 16:23 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 16:27 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 16:17 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 16:00 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 16:20 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 16:16 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 16:20 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 16:21 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 16:19 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 16:00 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 16:09 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/868688.shtml)
-- 2026-06-29 16:05 - [乔家的儿女](http://www.share.minike.top/Article/details/109131370345.shtml)
-- 2026-06-29 16:07 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/059044162862.shtml)
-- 2026-06-29 15:54 - [扬名立万](https://www.blog.minike.top/Article/details/45215341.shtml)
-- 2026-06-29 16:05 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/3680560.shtml)
-- 2026-06-29 16:12 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/4076653.shtml)
-- 2026-06-29 16:21 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/27133208032.shtml)
-- 2026-06-29 15:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/77017510.shtml)
-- 2026-06-29 15:57 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/453014844018.shtml)
-- 2026-06-29 16:20 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/99601179.shtml)
-- 2026-06-29 16:07 - [《贺子珍》](http://www.blog.minike.top/Article/details/5575392.shtml)
-- 2026-06-29 16:18 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/379652122.shtml)
-- 2026-06-29 16:20 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/51813604516.shtml)
-- 2026-06-29 16:05 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/0587716158.shtml)
-- 2026-06-29 16:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/14781.shtml)
+- 2026-06-29 16:13 - [梅朗雄主张法国退出北约](https://www.share.kurohicncr.top/Article/details/1653421.shtml)
+- 2026-06-29 16:28 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/574864463.shtml)
+- 2026-06-29 16:07 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/915003.shtml)
+- 2026-06-29 16:21 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/77084684016.shtml)
+- 2026-06-29 16:04 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/619837552727.shtml)
+- 2026-06-29 16:25 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/459398.shtml)
+- 2026-06-29 16:03 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/12613.shtml)
+- 2026-06-29 16:15 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/66966.shtml)
+- 2026-06-29 16:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/0305355.shtml)
+- 2026-06-29 16:02 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/577282663.shtml)
+- 2026-06-29 16:07 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/43302236354.shtml)
+- 2026-06-29 16:11 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/70285.shtml)
+- 2026-06-29 16:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/97762.shtml)
+- 2026-06-29 16:10 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/322560097564.shtml)
+- 2026-06-29 16:20 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/9755955.shtml)

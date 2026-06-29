@@ -1,59 +1,59 @@
-# 高油价或成常态：华尔街开始兴起NACHO交易
+# 半导体产业链掀全线涨价潮 谁在买单？
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-财联社5月8日讯（编辑 马兰）随着美伊冲突的持续，市场越来越担忧霍尔木兹海峡的情况，一些交易员已经开始执行NACHO交易，即霍尔木兹绝无可能开放（Not A Chance Hormuz Open）。 市场怀疑美国总统特朗普关于重新开放霍尔木兹海峡的言论能否迅速解决问题。周三，特朗普表示，如果伊朗不同意和平协议，将遭到更大规模的轰炸。周四，美国和伊朗在霍尔木兹海峡交火，但特朗普随
+2026年以来，一场覆盖全产业链的半导体涨价潮正在加速蔓延，从上游存储芯片、模拟芯片、功率器件，到中游晶圆代工、封测，再到下游云计算、数据中心和消费电子产品，数十家国内外厂商密集发布涨价通知，部分品类涨幅超过100%。 综合行研机构和行业人士观点，本轮涨价并非单一周期性波动，而是AI算力需求爆发、上游原材料成本飙升与地缘局势扰动供应链等多重因素叠加的结果，涨价态势或将贯穿全年。
 
 ## 正文
 
-财联社5月8日讯（编辑 马兰）随着美伊冲突的持续，市场越来越担忧霍尔木兹海峡的情况，一些交易员已经开始执行NACHO交易，即霍尔木兹绝无可能开放（Not A Chance Hormuz Open）。
+2026年以来，一场覆盖全产业链的半导体涨价潮正在加速蔓延，从上游存储芯片、模拟芯片、功率器件，到中游晶圆代工、封测，再到下游云计算、数据中心和消费电子产品，数十家国内外厂商密集发布涨价通知，部分品类涨幅超过100%。
 
-市场怀疑美国总统特朗普关于重新开放霍尔木兹海峡的言论能否迅速解决问题。
+综合行研机构和行业人士观点，本轮涨价并非单一周期性波动，而是AI算力需求爆发、上游原材料成本飙升与地缘局势扰动供应链等多重因素叠加的结果，涨价态势或将贯穿全年。
 
-周三，特朗普表示，如果伊朗不同意和平协议，将遭到更大规模的轰炸。
+AI重塑供需格局 存储芯片是本轮涨价的“震中”。
 
-周四，美国和伊朗在霍尔木兹海峡交火，但特朗普随后又表示，这些袭击“只是轻轻地打个招呼”，停火仍持续。
+据市场研究机构集邦咨询数据，2026年一季度常规DRAM合约价涨幅从年初预估的55%至60%，一路上调至90%至95%；NAND Flash合约价涨幅也从33%至38%上调至55%至60%。
 
-eToro市场分析师Zavier Wong对媒体表示，市场正对快速解决问题失去希望。
+进入二季度，存储价格仍在上行，其中DRAM涨幅较一季度高点有所回落，NAND涨势则进一步扩大。
 
-过去每一条停火消息都会引发石油价格暴跌，但危机从未真正解决。
+集邦咨询预计一般型DRAM合约价将环比上涨58%至63%，NAND Flash合约价将环比上涨70%至75%。
 
-NACHO 的出现表明，油价上涨并非暂时的波动，而是当前市场环境的常态。
+值得注意的是，在清明假期前的部分渠道市场，DDR4和DDR5的内存条现货价格出现下调，这被解读为是存储开始回调的信号，但据21世纪经济报道记者了解，渠道市场的波动，并不扰动当前存储芯片持续紧缺和价格上行的宏观行情，当前存储芯片依然处在颇为紧俏的状态。
 
-虽然布伦特原油价格较4月底的高峰有所回落，自126美元/桶降至目前的100美元/桶左右，但仍比冲突前高出近40%。
+本轮存储芯片涨价的核心驱动力是AI数据中心建设带来的结构性供需失衡。
 
 ## 相关推荐
 
-- 2026-06-29 16:15 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 16:19 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 16:04 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 16:21 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 16:13 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 16:07 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 16:10 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 16:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 16:10 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 15:56 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 16:23 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 16:03 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 16:00 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 16:18 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 16:27 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 16:11 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 16:16 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 16:04 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 16:26 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 16:12 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 16:19 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 16:15 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 16:29 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 16:14 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 16:23 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 16:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:07 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/57353942.shtml)
-- 2026-06-29 16:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/0364163236.shtml)
-- 2026-06-29 16:15 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/300617189.shtml)
-- 2026-06-29 16:07 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/47285339.shtml)
-- 2026-06-29 15:55 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/7886666.shtml)
-- 2026-06-29 15:57 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/7348288.shtml)
-- 2026-06-29 15:55 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/277435.shtml)
-- 2026-06-29 16:10 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/95351759.shtml)
-- 2026-06-29 16:06 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/144117570884.shtml)
-- 2026-06-29 16:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/561218481641.shtml)
-- 2026-06-29 16:11 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/45321.shtml)
-- 2026-06-29 16:00 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/94555.shtml)
-- 2026-06-29 16:21 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/6448404.shtml)
-- 2026-06-29 16:03 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/240380569762.shtml)
-- 2026-06-29 16:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/17231.shtml)
+- 2026-06-29 16:08 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/716536.shtml)
+- 2026-06-29 16:17 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/13056945684.shtml)
+- 2026-06-29 16:20 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/11188801427.shtml)
+- 2026-06-29 16:16 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/271452.shtml)
+- 2026-06-29 16:04 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/5400581379.shtml)
+- 2026-06-29 16:01 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/56656313339.shtml)
+- 2026-06-29 16:07 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/331559311.shtml)
+- 2026-06-29 16:27 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/55979215773.shtml)
+- 2026-06-29 16:14 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/615382888663.shtml)
+- 2026-06-29 16:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/9038399649.shtml)
+- 2026-06-29 16:17 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/162058575697.shtml)
+- 2026-06-29 16:05 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/439994190.shtml)
+- 2026-06-29 16:00 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/8089491.shtml)
+- 2026-06-29 16:15 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/08443403988.shtml)
+- 2026-06-29 16:13 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/2444930.shtml)

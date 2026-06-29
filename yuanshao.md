@@ -1,57 +1,50 @@
-# 弗吉尼亚州最高法院否决选区重划提案 重挫民主党
+# 全国爱鼻日：孩子打鼾要重视 但也不要着急做手术
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-核心要点 弗吉尼亚州最高法院周五裁定废除该州近期通过的选区重划公投结果，对寄望借助新国会选区版图拿下多个席位的民主党造成沉重打击。 这项选区重划公投在 4 月末以 3 个百分点的支持率获得通过，当时被视为民主党一大胜利。原本若重新划区落地，民主党有望在 11 月中期选举前新增多达 4 个众议院席位。 此次裁决正值美国两党选区操纵博弈持续之际。最高法院一项关键判决削弱了《选举权法
+发布时间：2026年04月11日 20:23 来源：中国新闻网 4月11日是第26个全国爱鼻日，主题为“关爱鼻腔健康，畅享清新呼吸”。中国医科大学附属盛京医院第二耳鼻咽喉头颈外科鼻科病房副教授于晓峰提示，家中孩子张嘴睡觉、打呼噜，需要引起重视。建议家长不要急于为孩子进行手术治疗，可先采取药物干预。(记者 禹瑞斋) 责任编辑：【罗攀】
 
 ## 正文
 
-核心要点 弗吉尼亚州最高法院周五裁定废除该州近期通过的选区重划公投结果，对寄望借助新国会选区版图拿下多个席位的民主党造成沉重打击。
+发布时间：2026年04月11日 20:23 来源：中国新闻网 4月11日是第26个全国爱鼻日，主题为“关爱鼻腔健康，畅享清新呼吸”。
 
-这项选区重划公投在 4 月末以 3 个百分点的支持率获得通过，当时被视为民主党一大胜利。
+中国医科大学附属盛京医院第二耳鼻咽喉头颈外科鼻科病房副教授于晓峰提示，家中孩子张嘴睡觉、打呼噜，需要引起重视。
 
-原本若重新划区落地，民主党有望在 11 月中期选举前新增多达 4 个众议院席位。
+建议家长不要急于为孩子进行手术治疗，可先采取药物干预。
 
-此次裁决正值美国两党选区操纵博弈持续之际。
-
-最高法院一项关键判决削弱了《选举权法案》部分条款后，共和党主导的南部多州正着手重新划分众议院选区。
-
-弗吉尼亚州众议院议长、民主党人唐・斯科特发表声明称： “我们尊重法院裁决。
-
-但我们会继续捍卫民主体制，让最终决定权掌握在选民手中，而非政客手中。
-
-因为在弗吉尼亚州，权力永远属于人民。
+(记者 禹瑞斋) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 16:03 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 16:06 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 16:10 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 16:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 16:05 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 16:18 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 16:10 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 16:03 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 16:04 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 15:59 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 16:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 16:13 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 16:28 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 16:14 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 16:09 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 16:15 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 16:14 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 16:09 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 16:28 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 16:19 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 16:24 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 16:10 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/52037641540.shtml)
-- 2026-06-29 16:12 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/96061907248.shtml)
-- 2026-06-29 16:04 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/45896329.shtml)
-- 2026-06-29 16:12 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/9511357.shtml)
-- 2026-06-29 16:07 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/065656.shtml)
-- 2026-06-29 15:58 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/96185771.shtml)
-- 2026-06-29 16:07 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/318701.shtml)
-- 2026-06-29 16:02 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/708159.shtml)
-- 2026-06-29 16:13 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/0488446.shtml)
-- 2026-06-29 15:56 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/9043494.shtml)
-- 2026-06-29 16:09 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/5052684547.shtml)
-- 2026-06-29 16:03 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/3899913.shtml)
-- 2026-06-29 16:22 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.kurohicncr.top/Article/details/82314389.shtml)
-- 2026-06-29 15:58 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/3660551.shtml)
-- 2026-06-29 16:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/333022387.shtml)
+- 2026-06-29 16:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/0598177.shtml)
+- 2026-06-29 16:04 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/5201543051.shtml)
+- 2026-06-29 16:17 - [滾石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/049315.shtml)
+- 2026-06-29 16:24 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/787992.shtml)
+- 2026-06-29 16:16 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/934968.shtml)
+- 2026-06-29 16:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/60767801717.shtml)
+- 2026-06-29 16:05 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/08162128.shtml)
+- 2026-06-29 16:25 - [世界杯十大帅哥必吃榜](http://www.share.minike.top/Article/details/0355672.shtml)
+- 2026-06-29 16:03 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/144627445141.shtml)
+- 2026-06-29 16:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/102048.shtml)
+- 2026-06-29 16:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/002567214.shtml)
+- 2026-06-29 16:25 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/030774.shtml)
+- 2026-06-29 16:10 - [驻日美军航母沦为“毒窝”](http://www.blog.kurohicncr.top/Article/details/09979833888.shtml)
+- 2026-06-29 16:14 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/14738668.shtml)
+- 2026-06-29 16:18 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/86658896749.shtml)

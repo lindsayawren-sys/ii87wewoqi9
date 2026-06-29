@@ -1,53 +1,60 @@
-# 特朗普：俄乌停火可能持续超过3天
+# 杨德龙：中东冲突对资本市场影响日渐式微
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普表示，乌克兰与俄罗斯的停火可能会超过三天。 特朗普是在白宫发表上述讲话的。 他还补充称，如果停火时间能更长一些，“那将是件好事”。责任编辑：丁文武
+美联储3月会议决定继续保持利率不变，暂停降息。后期是否降息仍需观察油价表现：如果中东冲突能在4月份结束，下半年就有可能降息；如果拖到下半年才结束，油价持续居高不下，那么下半年降息的可能性也较小。5月份，现任美联储主席鲍威尔任期结束，市场将迎来新任美联储主席沃什。沃什被市场贴上的标签是“缩表加降息”。当前美国就业数据较差，降息预计只是时间问题，加息的可能性目前较低，但沃什有可能通
 
 ## 正文
 
-美国总统特朗普表示，乌克兰与俄罗斯的停火可能会超过三天。
+美联储3月会议决定继续保持利率不变，暂停降息。
 
-特朗普是在白宫发表上述讲话的。
+后期是否降息仍需观察油价表现：如果中东冲突能在4月份结束，下半年就有可能降息；如果拖到下半年才结束，油价持续居高不下，那么下半年降息的可能性也较小。
 
-他还补充称，如果停火时间能更长一些，“那将是件好事”。
+5月份，现任美联储主席鲍威尔任期结束，市场将迎来新任美联储主席沃什。
 
-责任编辑：丁文武
+沃什被市场贴上的标签是“缩表加降息”。
+
+当前美国就业数据较差，降息预计只是时间问题，加息的可能性目前较低，但沃什有可能通过缩表防止通胀预期再起，这将对美股形成一定影响。
+
+美国最高法院于2月20日裁定特朗普全球关税违法，大约1750亿美元的税收面临退款。
+
+此后，特朗普又宣布将对全球额外加征10%的进口关税，为期150天，后来又将关税上限提升至15%，但这属于临时性加征关税。
+
+美国最高法院裁定特朗普全球关税违法，标志着特朗普试图用关税逼迫他国就范的措施已经失效，这方面的不确定性将进一步消除，国际贸易秩序将逐步回归稳定状态，而不必再看特朗普的脸色。
 
 ## 相关推荐
 
-- 2026-06-29 15:57 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 16:11 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 16:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 16:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 16:21 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 16:15 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 15:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 15:58 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 16:05 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 16:01 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 15:54 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 16:23 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 15:58 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 16:13 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 16:22 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 16:19 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 16:28 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 16:18 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 16:24 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 16:05 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 16:15 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 16:20 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 16:25 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 16:28 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 16:27 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 16:27 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 16:06 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 16:09 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 16:16 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:22 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/150743.shtml)
-- 2026-06-29 16:23 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/9322094306.shtml)
-- 2026-06-29 16:12 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/330501672894.shtml)
-- 2026-06-29 15:58 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/047655466.shtml)
-- 2026-06-29 16:21 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/995396045.shtml)
-- 2026-06-29 16:03 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/010997936.shtml)
-- 2026-06-29 16:22 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/89287756795.shtml)
-- 2026-06-29 15:54 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/4691099.shtml)
-- 2026-06-29 16:06 - [广东一地发现极危植物新物种](https://www.share.kurohicncr.top/Article/details/630213.shtml)
-- 2026-06-29 16:00 - [BB大王横店拍戏](http://www.blog.kurohicncr.top/Article/details/74485896.shtml)
-- 2026-06-29 16:09 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/864449964.shtml)
-- 2026-06-29 15:58 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/2864310.shtml)
-- 2026-06-29 16:17 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/401100924543.shtml)
-- 2026-06-29 16:13 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/6244778.shtml)
-- 2026-06-29 16:19 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/57538569.shtml)
+- 2026-06-29 16:26 - [东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/8207997.shtml)
+- 2026-06-29 16:29 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/766804148268.shtml)
+- 2026-06-29 16:04 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/74534700.shtml)
+- 2026-06-29 16:18 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/4514327.shtml)
+- 2026-06-29 16:18 - [复盘曾沛慈浪姐夺冠之路](https://www.share.kurohicncr.top/Article/details/32282646.shtml)
+- 2026-06-29 16:12 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/591752972.shtml)
+- 2026-06-29 16:03 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/94777783306.shtml)
+- 2026-06-29 16:05 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/43770301.shtml)
+- 2026-06-29 16:11 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/44096828271.shtml)
+- 2026-06-29 16:14 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/7475956.shtml)
+- 2026-06-29 16:21 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/357734.shtml)
+- 2026-06-29 16:13 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/1714740020.shtml)
+- 2026-06-29 16:15 - [欧盟为什么越来越倾向贸易保护](http://www.share.kurohicncr.top/Article/details/9655115125.shtml)
+- 2026-06-29 16:25 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/108121438298.shtml)
+- 2026-06-29 16:06 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/88946788.shtml)

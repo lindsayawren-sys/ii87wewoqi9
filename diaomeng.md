@@ -1,59 +1,57 @@
-# 山高水远 忠诚作答——记独龙江边境派出所的戍边岁月
+# 终于启动，顶流券商ETF华宝（512000）冲高5.4%！历史首次，单季净利超百亿，中信证券领涨释放强信号
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-高黎贡山云雾翻涌，独龙江水奔腾不息。在云南贡山独龙族怒族自治县独龙江乡，有一支戍边队伍扎根于此七十四载，用青春与热血守护着115公里边境线，用坚守与担当温暖着独龙族群众，浇筑起一座座警民同心丰碑。独龙族，是我国人口较少民族之一，更是经历“一步跨千年”奇迹的民族。从昔日溜索惊险过江，到如今公路通达每一个村庄；从往昔刀耕火种的艰辛岁月，到整族脱贫的历史性转变——在此过程中，云南出入
+4月10日，券商板块久违发力，以规模近350亿元的顶流券商ETF（512000）为例，早盘场内价格涨幅摸高5.48%，带领沪指一度重返4000点上方，收盘上涨3.45%，收复20日线，全天成交额超20亿元，量价齐升。 个股集体走强，中证全指证券公司指数囊括的49只成份股涨幅中位数达2.11%。龙头券商携手猛攻，“券业一哥”中信证券绩后高调领涨，涨幅一度超9%；华泰证券、东方财富
 
 ## 正文
 
-高黎贡山云雾翻涌，独龙江水奔腾不息。
+4月10日，券商板块久违发力，以规模近350亿元的顶流券商ETF（512000）为例，早盘场内价格涨幅摸高5.48%，带领沪指一度重返4000点上方，收盘上涨3.45%，收复20日线，全天成交额超20亿元，量价齐升。
 
-在云南贡山独龙族怒族自治县独龙江乡，有一支戍边队伍扎根于此七十四载，用青春与热血守护着115公里边境线，用坚守与担当温暖着独龙族群众，浇筑起一座座警民同心丰碑。
+个股集体走强，中证全指证券公司指数囊括的49只成份股涨幅中位数达2.11%。
 
-独龙族，是我国人口较少民族之一，更是经历“一步跨千年”奇迹的民族。
+龙头券商携手猛攻，“券业一哥”中信证券绩后高调领涨，涨幅一度超9%；华泰证券、东方财富、国泰海通、广发证券等涨幅居前。
 
-从昔日溜索惊险过江，到如今公路通达每一个村庄；从往昔刀耕火种的艰辛岁月，到整族脱贫的历史性转变——在此过程中，云南出入境边防检查总站怒江边境管理支队独龙江边境派出所的民警们始终与独龙族群众肩并肩、心连心，风雨同舟，命运与共。
+业绩亮眼+估值筑底或为券商行情爆发的核心逻辑。
 
-从1952年的边防哨所，到如今的边境派出所，一代代戍边民警接力传承“扎根独龙江、一心为人民”的铮铮誓言，在绝壁峡谷间筑起坚不可摧的边境屏障，在深山村寨里结下血浓于水的警民深情，成为独龙江畔永不熄灭的“平安灯”、群众最可信赖的贴心人。
+2025年，上市券商整体盈利创下近年新高，中信证券最新发布的一季度业绩快报再为行业高增长的持续性注入强心针。
 
-“人民的需要，就是我们的责任！
+中信证券一季度实现营业收入231.55亿元，同比增长40.91%；归母净利润为102.16亿元，同比增长54.60%，为券商历史首次单季盈利超百亿！
 
-”如今，这群戍边人再次许下承诺。
+与此同时，券商板块的整体估值却深陷低位泥沼。
 
-青春许国守边关 心怀家国，前赴后继，一往无前。
+截至4月9日，证券公司指数市净率PB仅1.28倍，逼近历史底部区域，国泰海通、华泰证券、兴业证券、东方证券等大中型券商甚至沦为“破净”。
 
 ## 相关推荐
 
-- 2026-06-29 15:55 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 16:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 16:03 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 16:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 16:10 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 15:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 16:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 16:10 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 16:02 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 16:21 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 15:57 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 15:56 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 16:06 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 16:25 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 16:18 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 16:26 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 16:27 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 16:22 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 16:12 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 16:18 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 16:15 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 16:18 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 16:09 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 16:25 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/086241211664.shtml)
-- 2026-06-29 16:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/971443.shtml)
-- 2026-06-29 16:06 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/54337465.shtml)
-- 2026-06-29 15:55 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/789869185376.shtml)
-- 2026-06-29 16:22 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/14229.shtml)
-- 2026-06-29 16:15 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.kurohicncr.top/Article/details/58227358.shtml)
-- 2026-06-29 16:17 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/3340956.shtml)
-- 2026-06-29 16:17 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/936373618.shtml)
-- 2026-06-29 16:15 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/385360204.shtml)
-- 2026-06-29 16:03 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/9643697.shtml)
-- 2026-06-29 16:21 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/903349034.shtml)
-- 2026-06-29 16:05 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/739378127.shtml)
-- 2026-06-29 15:56 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/0358940888.shtml)
-- 2026-06-29 15:59 - [南昌市委书记调整](https://www.blog.kurohicncr.top/Article/details/4697042766.shtml)
-- 2026-06-29 16:16 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/3980263508.shtml)
+- 2026-06-29 16:09 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/33874757.shtml)
+- 2026-06-29 16:24 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/768183974.shtml)
+- 2026-06-29 16:22 - [抓特务票房破亿](http://www.blog.kurohicncr.top/Article/details/85176777.shtml)
+- 2026-06-29 16:27 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/65858.shtml)
+- 2026-06-29 16:06 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/90956299.shtml)
+- 2026-06-29 16:17 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/75839.shtml)
+- 2026-06-29 16:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/66694273.shtml)
+- 2026-06-29 16:02 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/93342.shtml)
+- 2026-06-29 16:20 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/9664543695.shtml)
+- 2026-06-29 16:04 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/97935794459.shtml)
+- 2026-06-29 16:00 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/90142798.shtml)
+- 2026-06-29 16:04 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/55347.shtml)
+- 2026-06-29 16:05 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/953322680847.shtml)
+- 2026-06-29 16:29 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.minike.top/Article/details/6498608425.shtml)
+- 2026-06-29 16:02 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/199097517.shtml)

@@ -1,58 +1,60 @@
-# 一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%
+# 90后“羊倌”当代表：把“一只羊”的文章做成“一片富”的事业
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月9日，中国黄金协会发布最新统计数据。数据显示，今年一季度我国黄金消费量303.292吨，同比增长4.41%。 值得注意的是，在总量微增的背后，黄金消费结构呈现显著分化：黄金首饰消费持续承压，金条及金币投资需求则大幅攀升，市场“冰火两重天”格局进一步加深。 具体来看，今年一季度，黄金首饰84.620吨，同
+把“一只羊”的文章做成“一片富”的事业—— 九〇后“羊倌”当代表(人大代表在基层) 养群羊，为啥还得配上职业经理人？一只羊，能细分成50多个部位销售？大山深处的围栏里，还要给羊做B超？ 在培育羊产业链的过程中，甘肃临夏回族自治州东乡族自治县伊菲种植养殖农民专业合作社理事长张忠山有着自己的思考。日常工作围着羊圈转，为了把产品卖出去，养殖基地、生产车间都是他的直播间，不时有小羊闯入
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+把“一只羊”的文章做成“一片富”的事业—— 九〇后“羊倌”当代表(人大代表在基层) 养群羊，为啥还得配上职业经理人？
 
-5月9日，中国黄金协会发布最新统计数据。
+一只羊，能细分成50多个部位销售？
 
-数据显示，今年一季度我国黄金消费量303.292吨，同比增长4.41%。
+大山深处的围栏里，还要给羊做B超？
 
-值得注意的是，在总量微增的背后，黄金消费结构呈现显著分化：黄金首饰消费持续承压，金条及金币投资需求则大幅攀升，市场“冰火两重天”格局进一步加深。
+在培育羊产业链的过程中，甘肃临夏回族自治州东乡族自治县伊菲种植养殖农民专业合作社理事长张忠山有着自己的思考。
 
-具体来看，今年一季度，黄金首饰84.620吨，同比下降37.10%；金条及金币202.062吨，同比增长46.40%；工业及其他用金16.610吨，同比下降7.43%。
+日常工作围着羊圈转，为了把产品卖出去，养殖基地、生产车间都是他的直播间，不时有小羊闯入镜头，网友亲切地称他为90后“羊倌”。
 
-中国黄金协会指出，受国际金价高位运行且大幅波动的影响，国内黄金首饰消费持续承压，黄金首饰消费量继续下滑。
+张忠山是土生土长的“东乡娃”，东乡是甘肃最后摘帽的8个深度贫困县之一，也是国家乡村振兴重点帮扶县。
 
-与此同时，黄金投资需求强劲，金条、金币成为市场热门投资品类，银行销售渠道金条销量大幅增长。
+“从小看着家家户户养羊，但过去每家最多也就养几十只羊。
 
-此外，高金价推高了工业企业用金成本，黄金的需求也随之出现一定程度的下降。
+”张忠山回忆，东乡群众做好“羊文章”，得打开更多路子。
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 16:16 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 16:10 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 16:11 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 15:58 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 16:12 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 16:10 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 16:10 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 15:54 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 16:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 16:03 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 15:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 16:07 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 16:16 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 16:21 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 16:14 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 16:20 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 16:08 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 16:14 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 16:07 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 16:14 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 16:00 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 16:23 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 16:21 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 16:02 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 16:14 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:23 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/745268277422.shtml)
-- 2026-06-29 16:17 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/3176430090.shtml)
-- 2026-06-29 16:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/62956322861.shtml)
-- 2026-06-29 16:08 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/34203837.shtml)
-- 2026-06-29 15:59 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/73742886600.shtml)
-- 2026-06-29 16:15 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/0772091.shtml)
-- 2026-06-29 15:55 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/712223916876.shtml)
-- 2026-06-29 15:54 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/24285131289.shtml)
-- 2026-06-29 15:56 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/7501685157.shtml)
-- 2026-06-29 16:15 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/495470.shtml)
-- 2026-06-29 15:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/27898936.shtml)
-- 2026-06-29 16:06 - [抓特务票房破亿](https://www.blog.kurohicncr.top/Article/details/44384.shtml)
-- 2026-06-29 16:21 - [绘画区你赢了](https://www.share.minike.top/Article/details/47544483.shtml)
-- 2026-06-29 15:57 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/339576.shtml)
-- 2026-06-29 16:23 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/70940616.shtml)
+- 2026-06-29 16:16 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/31744861429.shtml)
+- 2026-06-29 16:27 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/7739917.shtml)
+- 2026-06-29 16:05 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/47144530.shtml)
+- 2026-06-29 16:08 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/41177613949.shtml)
+- 2026-06-29 16:26 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/034865944.shtml)
+- 2026-06-29 16:11 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/25849160818.shtml)
+- 2026-06-29 16:03 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/796019.shtml)
+- 2026-06-29 16:26 - [7款商保创新药“转道”](http://www.blog.kurohicncr.top/Article/details/435009340644.shtml)
+- 2026-06-29 16:02 - [小娘惹](http://www.share.kurohicncr.top/Article/details/9506108305.shtml)
+- 2026-06-29 16:22 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/6789905099.shtml)
+- 2026-06-29 16:07 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/877468557.shtml)
+- 2026-06-29 16:17 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/002572933.shtml)
+- 2026-06-29 16:01 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/86564102.shtml)
+- 2026-06-29 16:17 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/8136359258.shtml)
+- 2026-06-29 16:06 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/445912612495.shtml)

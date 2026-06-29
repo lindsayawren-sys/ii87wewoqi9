@@ -1,61 +1,60 @@
-# 从商品首发到体验首发 沉浸式、策展式等首店亮相天津
+# 全国30余家专精特新企业齐聚天津 达成合作意向20余项
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-沉浸式、策展式等首店亮相天津—— 从商品首发到体验首发(中国消费向新而行·首发经济新变化) “十五五”规划纲要提出“积极推进首发经济”。近年来，首发经济蓬勃发展，成为大力提振消费的重要抓手，新业态新模式新场景不断涌现，规模与能级同步提升。今起，本版推出“中国消费向新而行·首发经济新变化”系列报道，聚焦4座城市消费市场向更高能级跃升的生动实践。 ——编者作为我国率先开展国际消费中
+中新网天津4月11日电 (江莹)为推动京津冀协同发展，助力天津工业母机产业链强链补链，为期两天的“聚链成群，智创未来——专精特新企业融入天津工业母机产业链精准对接活动”10日在天津市北辰区落下帷幕。来自北京、河北、江苏、浙江、江西等地的30余家专精特新企业代表齐聚津门，与当地重点企业深度对接，达成合作意向20余项。 据了解，此次达成的20余项合作意向，覆盖智能装备采购、工业软件
 
 ## 正文
 
-沉浸式、策展式等首店亮相天津—— 从商品首发到体验首发(中国消费向新而行·首发经济新变化) “十五五”规划纲要提出“积极推进首发经济”。
+中新网天津4月11日电 (江莹)为推动京津冀协同发展，助力天津工业母机产业链强链补链，为期两天的“聚链成群，智创未来——专精特新企业融入天津工业母机产业链精准对接活动”10日在天津市北辰区落下帷幕。
 
-近年来，首发经济蓬勃发展，成为大力提振消费的重要抓手，新业态新模式新场景不断涌现，规模与能级同步提升。
+来自北京、河北、江苏、浙江、江西等地的30余家专精特新企业代表齐聚津门，与当地重点企业深度对接，达成合作意向20余项。
 
-今起，本版推出“中国消费向新而行·首发经济新变化”系列报道，聚焦4座城市消费市场向更高能级跃升的生动实践。
+据了解，此次达成的20余项合作意向，覆盖智能装备采购、工业软件配套、产线智能化改造等领域，将有力推动该区域产业基础高级化、产业链现代化进程。
 
-——编者作为我国率先开展国际消费中心城市培育建设的5个城市之一，天津正加快发展首发经济。
+座谈会上，除了重点推介北辰区投资环境和工业母机产业发展情况外，北京互时科技股份有限公司、杭州海康威视数字技术股份有限公司等6家企业代表先后发言，分享了企业发展经验与产业链合作需求。
 
-从历史街区到现代商圈，从艺术院校到科技场馆，融合了文化、科技、艺术与本地特色的复合型首发生态加速形成。
+活动期间，各企业代表还实地走访汇点智能装备有限公司、建科智能装备制造股份有限公司、沃德传动股份有限公司和天津中车四方轨道车辆有限公司等企业，了解智能装备、工业减速机、轨道交通装备等领域技术成果。
 
-近日，记者走进天津，探访这座城市的首发经济如何从“卖商品”向“售体验”“营场景”“塑生态”深化拓展。
+中国电子技术标准研究所就数智化标准应用作专题分享。
 
-业态融合 销售终端转变为文化体验、产业联动的放大器 “五一”假期首日，位于天津市和平区五大道公园地下空间的中国国家地理探索中心天津站排起长队，由于超过接待人数上限，场馆不得不开启限流模式。
+与会企业代表围绕技术合作、供应链配套、市场拓展等议题深入交流，对接氛围热烈。
 
-8岁男孩卢侠羽来自浙江丽水，在“好奇心补给站”前领取并绑定专属手环，开始“山海探险之旅”。
+“此次对接活动精准务实，既展现出北辰扎实的制造业底蕴，也提供了清晰的合作切入点，期待持续深化对接。
 
 ## 相关推荐
 
-- 2026-06-29 16:14 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 15:55 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 16:13 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 15:55 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 16:14 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 16:05 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 16:17 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 16:09 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 16:22 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 16:12 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 16:19 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 15:59 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 16:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 15:59 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 16:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 16:05 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 16:17 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 16:29 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 16:01 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 16:03 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 16:14 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 16:00 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 16:21 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 16:09 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 16:29 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 16:00 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 16:14 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 16:12 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 16:17 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/4748437406.shtml)
-- 2026-06-29 16:06 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/60088.shtml)
-- 2026-06-29 16:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/176022.shtml)
-- 2026-06-29 16:21 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/877093.shtml)
-- 2026-06-29 15:56 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/2088765807.shtml)
-- 2026-06-29 16:23 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/2838647.shtml)
-- 2026-06-29 15:58 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/455352.shtml)
-- 2026-06-29 15:59 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/876717075.shtml)
-- 2026-06-29 15:55 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/87191879.shtml)
-- 2026-06-29 16:05 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/572342002374.shtml)
-- 2026-06-29 15:58 - [爸爸当家](https://www.blog.kurohicncr.top/Article/details/651662686401.shtml)
-- 2026-06-29 16:09 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/034152.shtml)
-- 2026-06-29 16:04 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/09694.shtml)
-- 2026-06-29 16:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/9356219.shtml)
-- 2026-06-29 15:54 - [第一炉香](http://www.share.minike.top/Article/details/286249854.shtml)
+- 2026-06-29 16:26 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/5769112350.shtml)
+- 2026-06-29 16:21 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/254134.shtml)
+- 2026-06-29 16:20 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/1425360246.shtml)
+- 2026-06-29 16:28 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/03992583.shtml)
+- 2026-06-29 16:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/207395.shtml)
+- 2026-06-29 16:01 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/11360321550.shtml)
+- 2026-06-29 16:02 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/63188519160.shtml)
+- 2026-06-29 16:17 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/159727221228.shtml)
+- 2026-06-29 16:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/2679131.shtml)
+- 2026-06-29 16:26 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/4135750.shtml)
+- 2026-06-29 16:03 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/04237583700.shtml)
+- 2026-06-29 16:26 - [BB大王横店拍戏](https://www.share.kurohicncr.top/Article/details/8096809.shtml)
+- 2026-06-29 16:17 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/041011687658.shtml)
+- 2026-06-29 16:05 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/001885393140.shtml)
+- 2026-06-29 16:28 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/43867.shtml)

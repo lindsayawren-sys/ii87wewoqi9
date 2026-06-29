@@ -1,57 +1,57 @@
-# 一年填上百张表？部分科研人员仍困在表格里
+# 我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-本文为《半月谈》2026年第8期内容 “十五五”规划纲要明确提出“一体推进教育科技人才发展”。然而，半月谈记者采访了解到，有的科研人员每年仍需填写各类报表数百份，大量精力消耗于非学术事务；有的为追求短平快效应，论文集中于热门领域，忽视原始创新；有的基础研究，因实施“工程化管理”而被迫中断或终止……科研领域的形式主义束缚亟待破除。 一年填上百张表，耗费大量科研时间 “我每天要申请
+记者今天(11日)从中国海油获悉，我国首个海上注碳增气技术示范应用项目——东方1-1气田二氧化碳捕集、利用与封存项目正式开工建设。全面投产后，每年可在海底地层封存超百万吨二氧化碳。 注碳增气技术全称二氧化碳强化天然气采收率技术，是将天然气开采过程中产出的二氧化碳“变废为宝”，通过捕集提纯后加压回注到含气地层，既实现封存，又成为驱动难采天然气采出的动力来源。 此次开工建设的海上注
 
 ## 正文
 
-本文为《半月谈》2026年第8期内容 “十五五”规划纲要明确提出“一体推进教育科技人才发展”。
+记者今天(11日)从中国海油获悉，我国首个海上注碳增气技术示范应用项目——东方1-1气田二氧化碳捕集、利用与封存项目正式开工建设。
 
-然而，半月谈记者采访了解到，有的科研人员每年仍需填写各类报表数百份，大量精力消耗于非学术事务；有的为追求短平快效应，论文集中于热门领域，忽视原始创新；有的基础研究，因实施“工程化管理”而被迫中断或终止……科研领域的形式主义束缚亟待破除。
+全面投产后，每年可在海底地层封存超百万吨二氧化碳。
 
-一年填上百张表，耗费大量科研时间 “我每天要申请的东西可多了，一年要填一百到两百个表。
+注碳增气技术全称二氧化碳强化天然气采收率技术，是将天然气开采过程中产出的二氧化碳“变废为宝”，通过捕集提纯后加压回注到含气地层，既实现封存，又成为驱动难采天然气采出的动力来源。
 
-”采访中，一位高校的“90后”海归教授向半月谈记者吐露了自己的困惑。
+此次开工建设的海上注碳增气技术示范应用项目，计划新建两座导管架平台，铺设一条海底管线，接入东方1-1气田现有生产设施。
 
-这名教授回国到学校的第一年，提交了安家费申请材料，第二年又被通知重新填写申请。
+中国海油海南公司海上注碳增气项目负责人 余法松：依托新建项目，我们将把原来部署在陆地处理厂的脱碳处理环节前移到平台，实现海上天然气开采“源头减碳”。
 
-“安家费第二年正常发就好，但还要再申请。
+跟传统工艺相比，该项目采用的脱碳技术具有设备集成度高、能耗低、回收烃类组分多等优点。
 
-”他无奈地说，作为科研人员，不少时间却要用来“填表”，甚至重复填写。
+东方1-1气田是我国首个海上自营气田，也是我国开发建设的首个海上富碳气田。
 
-为了应付填表要求，他不得不招了一名助理帮忙。
+自2003年建成投产以来，已累计生产天然气超500亿立方米。
 
 ## 相关推荐
 
-- 2026-06-29 16:10 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 16:05 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 15:54 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 16:22 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 16:21 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 16:11 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 16:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 16:08 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 16:04 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 16:07 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 16:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 16:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 16:21 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 16:16 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 16:07 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 16:22 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 16:23 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 16:19 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 16:24 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 16:03 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 16:17 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 16:21 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:12 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/9755329855.shtml)
-- 2026-06-29 16:11 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/119414.shtml)
-- 2026-06-29 16:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/0546944.shtml)
-- 2026-06-29 16:22 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/846411826.shtml)
-- 2026-06-29 16:18 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/5508559.shtml)
-- 2026-06-29 16:11 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/166051140214.shtml)
-- 2026-06-29 16:13 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/819605433.shtml)
-- 2026-06-29 16:10 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/781580423.shtml)
-- 2026-06-29 16:21 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/209805026.shtml)
-- 2026-06-29 16:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/2472562.shtml)
-- 2026-06-29 15:57 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/89924.shtml)
-- 2026-06-29 16:16 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/5711390.shtml)
-- 2026-06-29 16:18 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/09572433097.shtml)
-- 2026-06-29 15:57 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/58561839.shtml)
-- 2026-06-29 16:19 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/1336789.shtml)
+- 2026-06-29 16:18 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/034546029802.shtml)
+- 2026-06-29 16:07 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/29522025547.shtml)
+- 2026-06-29 16:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/9141020027.shtml)
+- 2026-06-29 16:15 - [T1 KC](http://www.blog.minike.top/Article/details/153652364.shtml)
+- 2026-06-29 16:09 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/910430546241.shtml)
+- 2026-06-29 16:20 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/5461127.shtml)
+- 2026-06-29 16:19 - [5万块的威力](http://www.blog.minike.top/Article/details/48605.shtml)
+- 2026-06-29 16:21 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/331626435.shtml)
+- 2026-06-29 16:19 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/33832803.shtml)
+- 2026-06-29 16:25 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/669488.shtml)
+- 2026-06-29 16:24 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/28827.shtml)
+- 2026-06-29 16:29 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/128446.shtml)
+- 2026-06-29 16:20 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/317567.shtml)
+- 2026-06-29 16:14 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/222193545.shtml)
+- 2026-06-29 16:01 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/1635367815.shtml)

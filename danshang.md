@@ -1,56 +1,58 @@
-# 【华创汽车】比亚迪：26Q1业绩符合预期，海外销量增长势头强劲
+# 中国第17批援尼泊尔医疗队赴甘达基省科尔马拉义诊
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-根据《证券期货投资者适当性管理办法》及配套指引，本资料仅面向华创证券客户中的金融机构专业投资者，请勿对本资料进行任何形式的转发。若您不是华创证券客户中的金融机构专业投资者，请勿订阅、接收或使用本资料中的信息。本资料难以设置访问权限，若给您造成不便，敬请谅解。感谢您的理解与配合。事项：公司发布2026年一季报，实现营收1502亿元，同比-12%，环比-37%；归母净利40.8亿元
+中新网加德满都4月12日电 (记者 崔楠)中国第17批援尼泊尔医疗队11日赴甘达基省科尔马拉义诊。 援尼医疗队在科尔马拉初级卫生中心设置诊疗点，提供多科室常规问诊、血压和血糖监测、心电图检查、超声检查及中医针灸等医疗服务。 当地华侨华人、中资企业项目尼泊尔籍职工及周边社区尼泊尔民众近百人接受义诊。 科尔马拉位于尼泊尔甘达基省南部，距离首都加德满都较远，当地医疗资源相对薄弱。中国
 
 ## 正文
 
-根据《证券期货投资者适当性管理办法》及配套指引，本资料仅面向华创证券客户中的金融机构专业投资者，请勿对本资料进行任何形式的转发。
+中新网加德满都4月12日电 (记者 崔楠)中国第17批援尼泊尔医疗队11日赴甘达基省科尔马拉义诊。
 
-若您不是华创证券客户中的金融机构专业投资者，请勿订阅、接收或使用本资料中的信息。
+援尼医疗队在科尔马拉初级卫生中心设置诊疗点，提供多科室常规问诊、血压和血糖监测、心电图检查、超声检查及中医针灸等医疗服务。
 
-本资料难以设置访问权限，若给您造成不便，敬请谅解。
+当地华侨华人、中资企业项目尼泊尔籍职工及周边社区尼泊尔民众近百人接受义诊。
 
-感谢您的理解与配合。
+科尔马拉位于尼泊尔甘达基省南部，距离首都加德满都较远，当地医疗资源相对薄弱。
 
-事项：公司发布2026年一季报，实现营收1502亿元，同比-12%，环比-37%；归母净利40.8亿元，同比-55%，环比-56%；扣非归母净利41.5亿元，同比-49%，环比-54%。
+中国第17批援尼泊尔医疗队队长黄晨在接受记者采访时说，此次义诊旨在践行“不畏艰苦、甘于奉献、救死扶伤、大爱无疆”的援外医疗精神。
 
-评论：26Q1归母净利40.8亿元，符合预期。
+黄晨提到，在完成定点医疗援助任务的同时，援尼医疗队将继续加强与当地卫生机构和社区的联动，深入尼泊尔基层卫生机构和偏远社区开展公益医疗帮扶。
 
-26Q1公司实现营收1,502亿元，同比-12%，环比-37%；毛利率18.8%，同比-1.3PP，环比+1.4PP；期间费用率16.2%，同比+2.5PP，环比+4.0PP。
-
-受汇兑亏损影响，26Q1财务费用21亿元，同比+40亿元；实现归母净利40.8亿元，同比-55%，环比-56%。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 15:54 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 15:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 16:21 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 16:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 16:07 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 16:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 16:21 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 16:03 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 16:16 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 16:15 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 16:12 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 16:02 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 16:06 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 16:29 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 16:07 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 16:23 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 16:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 16:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 16:07 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 16:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 16:15 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 16:21 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 16:26 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/13605126631.shtml)
-- 2026-06-29 16:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/390106180.shtml)
-- 2026-06-29 16:04 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/04120942.shtml)
-- 2026-06-29 16:10 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/4513342702.shtml)
-- 2026-06-29 16:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/45108.shtml)
-- 2026-06-29 16:06 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/215509.shtml)
-- 2026-06-29 15:58 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/33152167.shtml)
-- 2026-06-29 16:22 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/73076960.shtml)
-- 2026-06-29 16:12 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/06733.shtml)
-- 2026-06-29 15:57 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/706111119.shtml)
-- 2026-06-29 16:08 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/87400.shtml)
-- 2026-06-29 16:18 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/36567126.shtml)
-- 2026-06-29 16:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/4271539.shtml)
-- 2026-06-29 16:14 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/00054.shtml)
-- 2026-06-29 15:54 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/024870262519.shtml)
+- 2026-06-29 16:14 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/6436782.shtml)
+- 2026-06-29 16:27 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/74173.shtml)
+- 2026-06-29 16:07 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/7960385849.shtml)
+- 2026-06-29 16:01 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/4216355551.shtml)
+- 2026-06-29 16:23 - [新能源车能当外接空调用吗](https://www.share.minike.top/Article/details/7935139.shtml)
+- 2026-06-29 16:22 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/571739734.shtml)
+- 2026-06-29 16:00 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/57845196.shtml)
+- 2026-06-29 16:25 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/1113521.shtml)
+- 2026-06-29 16:01 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/27770073.shtml)
+- 2026-06-29 16:16 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/669254.shtml)
+- 2026-06-29 16:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/74421.shtml)
+- 2026-06-29 16:03 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/408882.shtml)
+- 2026-06-29 16:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/4029750561.shtml)
+- 2026-06-29 16:15 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/027020988.shtml)
+- 2026-06-29 16:13 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/43956.shtml)

@@ -1,56 +1,56 @@
-# 跨越海峡的牵挂藏在每一个瞬间 台青在母亲节真情告白：被妈妈宠爱特别幸福
+# 牛市旗手再启！中信证券一季报引爆券商板块，百亿净利背后三大增长引擎显效
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 17:45 来源：中国新闻网 有没有哪个瞬间，让你突然特别想妈妈？那些看似不经意的小事，其实都是她深深爱着你的证据。几位从台湾来大陆读书的年轻人，每次提起妈妈时，眼里总有光：“我的妈妈已经超越了‘强’”“被妈妈宠爱特别幸福”“听到妈妈的声音，隔着屏幕也觉得安心”……简单的话语里，藏着一份虽跨越海峡却从未断过的牵挂。无论相隔多远，妈妈的爱总能抵达
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：行家券业 牛市旗手再启！中信证券一季报引爆券商板块，百亿净利背后三大增长引擎显效 就在今天（2026年4月10日），A股市场迎来“牛市旗手”的强势爆发：中信证券一度逼近涨停，带动券商板块全线走强，市场交投情绪再度升温。此番大涨的核心催化剂，源于前一交易日晚间发布的2026年一季度业绩快报。亮眼的数据，
 
 ## 正文
 
-发布时间：2026年05月09日 17:45 来源：中国新闻网 有没有哪个瞬间，让你突然特别想妈妈？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-那些看似不经意的小事，其实都是她深深爱着你的证据。
+来源：行家券业 牛市旗手再启！
 
-几位从台湾来大陆读书的年轻人，每次提起妈妈时，眼里总有光：“我的妈妈已经超越了‘强’”“被妈妈宠爱特别幸福”“听到妈妈的声音，隔着屏幕也觉得安心”……简单的话语里，藏着一份虽跨越海峡却从未断过的牵挂。
+中信证券一季报引爆券商板块，百亿净利背后三大增长引擎显效 就在今天（2026年4月10日），A股市场迎来“牛市旗手”的强势爆发：中信证券一度逼近涨停，带动券商板块全线走强，市场交投情绪再度升温。
 
-无论相隔多远，妈妈的爱总能抵达我们心里最柔软的地方。
+此番大涨的核心催化剂，源于前一交易日晚间发布的2026年一季度业绩快报。
 
-这个母亲节，如果你不在她身边，别忘了打个电话，和妈妈说一声“我爱你，节日快乐”。
+亮眼的数据，不仅彰显“一哥”实力，更印证了行业基本面的持续改善。
 
-(策划：燕新台 采访/制作：实习生 金子于 张岩 中新网“燕新台”工作室出品) 责任编辑：【吉翔】
+百亿净利领跑，业绩高增超预期 4月10日，券商板块全面翻红。
+
+中信证券高开高走，一度逼近涨停。
+
+全天收报25.90元/股，较前一交易日24.15元/股上涨7.25%。
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 16:12 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 16:17 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 16:23 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 16:01 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 16:06 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 16:01 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 16:13 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 16:14 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 16:23 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 16:13 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 15:59 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 16:09 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 15:57 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 16:19 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 16:10 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 16:25 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 16:25 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 16:24 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 16:05 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 16:26 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 16:16 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 16:26 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 16:03 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/87919.shtml)
-- 2026-06-29 15:54 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/56182804927.shtml)
-- 2026-06-29 16:15 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/605900257134.shtml)
-- 2026-06-29 16:10 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/1499736680.shtml)
-- 2026-06-29 16:00 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/1161203.shtml)
-- 2026-06-29 16:02 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/61955666.shtml)
-- 2026-06-29 16:11 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/9694702.shtml)
-- 2026-06-29 16:07 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/20813.shtml)
-- 2026-06-29 16:21 - [NBA交易](http://www.blog.minike.top/Article/details/2213545124.shtml)
-- 2026-06-29 15:55 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/291947.shtml)
-- 2026-06-29 16:07 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/1187587.shtml)
-- 2026-06-29 16:10 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/3481442364.shtml)
-- 2026-06-29 16:08 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/7627006626.shtml)
-- 2026-06-29 16:22 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/87889762649.shtml)
-- 2026-06-29 16:23 - [葛军谈AI时代理科生出路](http://www.blog.kurohicncr.top/Article/details/5050175.shtml)
+- 2026-06-29 16:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/623935790485.shtml)
+- 2026-06-29 16:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/5784724.shtml)
+- 2026-06-29 16:05 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/0587387203.shtml)
+- 2026-06-29 16:29 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.kurohicncr.top/Article/details/54037085803.shtml)
+- 2026-06-29 16:28 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/8662322.shtml)
+- 2026-06-29 16:03 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/82536.shtml)
+- 2026-06-29 16:17 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/8360822557.shtml)
+- 2026-06-29 16:20 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/386702836.shtml)
+- 2026-06-29 16:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/19085.shtml)
+- 2026-06-29 16:07 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/394514444239.shtml)
+- 2026-06-29 16:25 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/346839502.shtml)
+- 2026-06-29 16:28 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/6788693.shtml)
+- 2026-06-29 16:04 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/005178911.shtml)
+- 2026-06-29 16:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/23616.shtml)
+- 2026-06-29 16:04 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/202450.shtml)

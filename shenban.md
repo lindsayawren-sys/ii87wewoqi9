@@ -1,56 +1,60 @@
-# 中国空天领域百余家单位联合倡议 共建千星规模“太空云”生态
+# 4月11日美股成交额前20：英伟达八连涨创两年来最长连涨纪录
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月9日电 (记者 孙自法)中国空天领域产学研界逾百家单位5月9日联合发布《共建“太空云”生态倡议书》，呼吁全国携手共建千星规模“太空云”生态，合力打造世界领先的天基信息服务系统，大幅提升天基资源智能化、体系化综合应用效能。 第二届空天信息技术大会当天在浙江桐乡开幕，中国科学院空天信息创新研究院(空天院)联合科研院所、航天企业、高校等百余家单位，在开幕式上共同发布了《
+周五美股成交额第1名英伟达收高2.63%，成交299.96亿美元。该股连续第八个交易日上涨，创两年来的最长连涨纪录。分析师指出，在经历数月的收益低迷后，英伟达股价再次反弹，并接近突破其窄幅交易区间，这应视为看涨信号。 英伟达一直是人工智能投资领域的核心标的，不过该股数月来一直在165美元至195美元之间徘徊。投资者仍在权衡主要云服务提供商能够将高额资本支出维持多久。目前的连涨行
 
 ## 正文
 
-中新网北京5月9日电 (记者 孙自法)中国空天领域产学研界逾百家单位5月9日联合发布《共建“太空云”生态倡议书》，呼吁全国携手共建千星规模“太空云”生态，合力打造世界领先的天基信息服务系统，大幅提升天基资源智能化、体系化综合应用效能。
+周五美股成交额第1名英伟达收高2.63%，成交299.96亿美元。
 
-第二届空天信息技术大会当天在浙江桐乡开幕，中国科学院空天信息创新研究院(空天院)联合科研院所、航天企业、高校等百余家单位，在开幕式上共同发布了《共建“太空云”生态倡议书》。
+该股连续第八个交易日上涨，创两年来的最长连涨纪录。
 
-“太空云”建设是系统性长期性开放性工程 倡议书核心内容包括四个方面：一是凝聚行业共识，共铸天基信息系统网云化发展理念。
+分析师指出，在经历数月的收益低迷后，英伟达股价再次反弹，并接近突破其窄幅交易区间，这应视为看涨信号。
 
-依托太空高速通信网络和“太空云”平台，有机整合各类太空资源，构建在轨一体化智能服务体系。
+英伟达一直是人工智能投资领域的核心标的，不过该股数月来一直在165美元至195美元之间徘徊。
 
-二是共建标准规范，联合制定统一的星间互联、载荷接口、数据产品、算力服务、系统安全等标准体系，构建开放、可扩展的“太空云”服务平台，打造开放兼容的“太空云”技术底座。
+投资者仍在权衡主要云服务提供商能够将高额资本支出维持多久。
 
-三是促进互联互通，鼓励卫星运营单位将卫星接入“太空云”，探索“即连即用，按需服务”的“太空云”运营模式，形成“共建、共享、共赢”的良好生态格局。
+目前的连涨行情尚未推动英伟达股价突破这一既定的交易区间。
 
-四是深化示范应用，聚焦重点行业和新兴产业，推动“太空云”生态建设成果快速落地，为国民经济高质量发展提供硬核支撑。
+第2名特斯拉收高0.98%，成交174.31亿美元。
 
-倡议书指出，当前中国高分辨率遥感卫星技术水平和在轨数量均达到国际领先，高通量通信卫星建设步入高速发展阶段，已成为支撑国家战略、服务行业发展的重要科技力量。
+4月10日，根据乘联会最新统计数据，2026年3月特斯拉国内新车销量超5.6万辆，环比增长47%，特斯拉Model Y成为国内乘用车销量冠军。
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 16:11 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 16:21 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 16:19 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 16:07 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 16:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 16:12 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 15:57 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 16:19 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 16:22 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 16:17 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 16:28 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 16:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 16:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 16:28 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 16:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 16:03 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 16:02 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 16:14 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 16:02 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 16:29 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 16:29 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 16:16 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 16:01 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/105288675.shtml)
-- 2026-06-29 16:17 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.kurohicncr.top/Article/details/482953520547.shtml)
-- 2026-06-29 16:07 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/2873190.shtml)
-- 2026-06-29 16:20 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/03603.shtml)
-- 2026-06-29 16:17 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/72846920283.shtml)
-- 2026-06-29 16:17 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/7088895219.shtml)
-- 2026-06-29 16:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/647827347.shtml)
-- 2026-06-29 16:13 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/24738230765.shtml)
-- 2026-06-29 16:23 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/224886954187.shtml)
-- 2026-06-29 16:06 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/3827468229.shtml)
-- 2026-06-29 15:59 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/583070614549.shtml)
-- 2026-06-29 16:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/99241.shtml)
-- 2026-06-29 16:18 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/509410251228.shtml)
-- 2026-06-29 15:59 - [起风了](https://www.blog.kurohicncr.top/Article/details/7779116.shtml)
-- 2026-06-29 16:10 - [东方风云榜](https://www.blog.minike.top/Article/details/389491233741.shtml)
+- 2026-06-29 16:18 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/663679.shtml)
+- 2026-06-29 16:22 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/15781195.shtml)
+- 2026-06-29 16:00 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/8611645.shtml)
+- 2026-06-29 16:14 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/141061755.shtml)
+- 2026-06-29 16:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/642759554652.shtml)
+- 2026-06-29 16:14 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/1093045100.shtml)
+- 2026-06-29 16:08 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/9803813702.shtml)
+- 2026-06-29 16:02 - [周生如故](https://www.share.kurohicncr.top/Article/details/0567915.shtml)
+- 2026-06-29 16:00 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/5071539158.shtml)
+- 2026-06-29 16:06 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/64914046565.shtml)
+- 2026-06-29 16:11 - [极限挑战第一季](https://www.share.minike.top/Article/details/350042.shtml)
+- 2026-06-29 16:08 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/287664002679.shtml)
+- 2026-06-29 16:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/5087841.shtml)
+- 2026-06-29 16:09 - [高市早苗口齿不清被质疑醉酒](http://www.share.kurohicncr.top/Article/details/2414957.shtml)
+- 2026-06-29 16:11 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/04301.shtml)

@@ -1,56 +1,56 @@
-# 报道：Anthropic拟新一轮融资，估值有望攀升至约9000亿美元
+# StarBridge:通胀预期升温压制贵金属走势
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-英国媒体援引消息人士报道，人工智能公司Anthropic正收到多家投资方的募资意向，计划新一轮融资规模高达500亿美元，本轮融资完成后，这家Claude大模型开发商的估值预计将达到约9000亿美元。 这家人工智能企业今年2月曾完成300亿美元融资，当时估值为3800亿美元。媒体称，此次潜在新一轮融资预计将在两个月内完成；若顺利落地，Anthropic的估值将超越OpenAI的8
+4月10日，贵金属市场在周四早盘表现偏弱，金银价格小幅回落，市场整体情绪趋于谨慎。StarBridge认为，在关键通胀数据公布前，投资者倾向于降低风险敞口，使黄金与白银短线承压。从盘面来看，黄金价格维持在约4770美元附近震荡，白银则回落至约74美元区域，整体波动幅度有限，反映出市场观望情绪较为浓厚。 即将公布的通胀数据成为市场关注焦点。数据显示，核心个人消费支出指数月率预计维
 
 ## 正文
 
-英国媒体援引消息人士报道，人工智能公司Anthropic正收到多家投资方的募资意向，计划新一轮融资规模高达500亿美元，本轮融资完成后，这家Claude大模型开发商的估值预计将达到约9000亿美元。
+4月10日，贵金属市场在周四早盘表现偏弱，金银价格小幅回落，市场整体情绪趋于谨慎。
 
-这家人工智能企业今年2月曾完成300亿美元融资，当时估值为3800亿美元。
+StarBridge认为，在关键通胀数据公布前，投资者倾向于降低风险敞口，使黄金与白银短线承压。
 
-媒体称，此次潜在新一轮融资预计将在两个月内完成；若顺利落地，Anthropic的估值将超越OpenAI的8520亿美元。
+从盘面来看，黄金价格维持在约4770美元附近震荡，白银则回落至约74美元区域，整体波动幅度有限，反映出市场观望情绪较为浓厚。
 
-ChatGPT开发商OpenAI已于今年3月完成1220亿美元的融资轮。
+即将公布的通胀数据成为市场关注焦点。
 
-Anthropic方面向英国媒体拒绝置评。
+数据显示，核心个人消费支出指数月率预计维持在约0.4%左右，与此前水平相当，而整体通胀年率大致维持在约2.8%左右，核心通胀则略低于此前水平，约在3%左右。
 
-责任编辑：何云
+StarBridge认为，这一组合意味着通胀虽未进一步上行，但仍明显高于政策目标区间，价格压力依然存在。
+
+在此背景下，市场对未来利率路径的预期变得更加复杂，贵金属作为无息资产的吸引力受到一定抑制。
+
+从政策层面来看，部分市场观点认为，持续的通胀压力可能促使央行维持较为谨慎的立场，甚至不排除在特定条件下重新收紧政策。
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 16:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 15:57 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 16:16 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 15:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 16:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 15:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 16:01 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 15:59 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 16:09 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 16:06 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 16:11 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 15:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 15:56 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 16:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 16:25 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 16:25 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 16:04 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 16:15 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 16:14 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 16:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 16:20 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 16:28 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 16:01 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/968037845.shtml)
-- 2026-06-29 16:09 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/640780615225.shtml)
-- 2026-06-29 16:09 - [葛军谈AI时代理科生出路](http://www.blog.kurohicncr.top/Article/details/7609961065.shtml)
-- 2026-06-29 15:59 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/0414404636.shtml)
-- 2026-06-29 16:06 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/19679.shtml)
-- 2026-06-29 16:19 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/002417136507.shtml)
-- 2026-06-29 16:00 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.kurohicncr.top/Article/details/66193034.shtml)
-- 2026-06-29 15:54 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/9637022136.shtml)
-- 2026-06-29 16:08 - [工作靠AI算不算职场作弊](http://www.share.minike.top/Article/details/9485925330.shtml)
-- 2026-06-29 16:09 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/720690.shtml)
-- 2026-06-29 15:58 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/470251340.shtml)
-- 2026-06-29 15:54 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/88592.shtml)
-- 2026-06-29 15:57 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/662587161.shtml)
-- 2026-06-29 16:01 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/093646487689.shtml)
-- 2026-06-29 16:04 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/62716.shtml)
+- 2026-06-29 16:18 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/491444500344.shtml)
+- 2026-06-29 16:22 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/477548981446.shtml)
+- 2026-06-29 16:13 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/4103454255.shtml)
+- 2026-06-29 16:16 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/126648.shtml)
+- 2026-06-29 16:04 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/883394509430.shtml)
+- 2026-06-29 16:09 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/442105333.shtml)
+- 2026-06-29 16:23 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/73403847.shtml)
+- 2026-06-29 16:25 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/360893.shtml)
+- 2026-06-29 16:14 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/519741951.shtml)
+- 2026-06-29 16:15 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/45321312494.shtml)
+- 2026-06-29 16:07 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/756120047.shtml)
+- 2026-06-29 16:17 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/525817589.shtml)
+- 2026-06-29 16:22 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/624475234.shtml)
+- 2026-06-29 16:00 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/57035572355.shtml)
+- 2026-06-29 16:10 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/6011951.shtml)

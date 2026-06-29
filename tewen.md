@@ -1,56 +1,45 @@
-# 市场监管总局完成企业变更登记等五项“一件事”政务服务改革
+# 阿联酋阿布扎比王储哈立德将访华
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-记者从今天(8日)的市场监管总局发布会获悉，目前，企业变更登记、注销登记、开办餐饮店、迁移登记和个转企等五项“一件事”政务服务改革均已完成。线下办事“只进一门”，线上办事“一网通办”，对持续优化营商环境、利企便民具有重要意义。自政务服务“高效办成一件事”改革实施以来，市场监管总局指导各地重构跨部门办理业务流程、打通业务系统、强化数据共享，打破层级、地域、部门、系统之间的屏障，着
+外交部发言人宣布： 应国务院总理李强邀请，阿联酋阿布扎比王储哈立德将于4月12日至14日对中国进行访问。 (外交部网站)
 
 ## 正文
 
-记者从今天(8日)的市场监管总局发布会获悉，目前，企业变更登记、注销登记、开办餐饮店、迁移登记和个转企等五项“一件事”政务服务改革均已完成。
+外交部发言人宣布： 应国务院总理李强邀请，阿联酋阿布扎比王储哈立德将于4月12日至14日对中国进行访问。
 
-线下办事“只进一门”，线上办事“一网通办”，对持续优化营商环境、利企便民具有重要意义。
-
-自政务服务“高效办成一件事”改革实施以来，市场监管总局指导各地重构跨部门办理业务流程、打通业务系统、强化数据共享，打破层级、地域、部门、系统之间的屏障，着力为经营主体提供环节更少、周期更短、流程更优、成本更低的服务。
-
-围绕数据赋能，推行企业信息变更“一次办”。
-
-以“数据流”牵引“业务流”，企业在市场监管部门依法办理变更登记后，市场监管部门依托“一网通办”等政务服务平台共享推送变更信息，公安、税务等部门接收信息后，对应完成公章刻制备案、税控设备变更发行等事项的信息变更，实现“一处变更、多处联动”。
-
-聚焦系统融合，推行企业注销“一网办”。
-
-整合公告发布、注销申请、信息采集、进度查询等功能，优化升级企业注销“一网服务”平台。
-
-打通部门业务系统，各有关部门通过平台实现“信息共享、同步指引”，同步办理营业执照、税务、社保、海关、银行账户、印章注销等业务，形成覆盖企业退出全环节的线上服务链。
+(外交部网站)
 
 ## 相关推荐
 
-- 2026-06-29 15:54 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 16:00 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 16:13 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 16:09 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 16:08 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 15:58 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 16:06 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 16:02 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 16:17 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 16:02 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 16:04 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 16:24 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 16:29 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 16:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 16:00 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 16:22 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 16:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 16:27 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 16:15 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 16:14 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 16:12 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/02738444644.shtml)
-- 2026-06-29 16:18 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/06059813.shtml)
-- 2026-06-29 16:00 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/9229439.shtml)
-- 2026-06-29 16:14 - [斛珠夫人](https://www.blog.minike.top/Article/details/42545753942.shtml)
-- 2026-06-29 16:22 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/65389322.shtml)
-- 2026-06-29 16:08 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/8328557.shtml)
-- 2026-06-29 16:06 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/618626620.shtml)
-- 2026-06-29 16:02 - [T1 KC](http://www.share.kurohicncr.top/Article/details/693008236708.shtml)
-- 2026-06-29 16:17 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/346674067.shtml)
-- 2026-06-29 16:01 - [博主：全球股市进入“AI极端共振”](https://www.share.minike.top/Article/details/384179.shtml)
-- 2026-06-29 16:19 - [世界杯上那些封神的门将](http://www.blog.minike.top/Article/details/3254745.shtml)
-- 2026-06-29 16:06 - [央视起底直播诈骗连环套](http://www.blog.kurohicncr.top/Article/details/447558182.shtml)
-- 2026-06-29 15:55 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/56906422.shtml)
-- 2026-06-29 16:01 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/313428653.shtml)
-- 2026-06-29 15:54 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/8492643457.shtml)
+- 2026-06-29 16:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/00697.shtml)
+- 2026-06-29 16:09 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/8508647.shtml)
+- 2026-06-29 16:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/97584492563.shtml)
+- 2026-06-29 16:19 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/58672476.shtml)
+- 2026-06-29 16:12 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/1848372.shtml)
+- 2026-06-29 16:02 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/3706115.shtml)
+- 2026-06-29 16:11 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/6740769390.shtml)
+- 2026-06-29 16:14 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/41728182.shtml)
+- 2026-06-29 16:18 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/00830646652.shtml)
+- 2026-06-29 16:09 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/0079344942.shtml)
+- 2026-06-29 16:22 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/415919170.shtml)
+- 2026-06-29 16:14 - [爸爸当家](http://www.blog.minike.top/Article/details/007074653.shtml)
+- 2026-06-29 16:09 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/82754497213.shtml)
+- 2026-06-29 16:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/55663428416.shtml)
+- 2026-06-29 16:25 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/68986.shtml)

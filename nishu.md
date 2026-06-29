@@ -1,58 +1,45 @@
-# 供应端支撑稳固 5月沥青价格表现或偏强
+# 新华图讯丨习近平总书记会见中国国民党主席郑丽文
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-卓创资讯分析师 张艳飞 ［导语］4月霍尔木兹海峡通行依旧不畅，国际油价高位波动且炼厂原料供应持续偏紧，沥青成本端及供应端支撑依旧偏强，沥青现货价格延续涨势。进入5月份，沥青排产进一步减少，供应端支撑稳固，沥青现货价格走势或相对偏强。 成本及供应双重利好沥青均价延续涨势 4月沥青均价在成本支撑及供应收紧的双重利好下延续上涨走势，全国沥青月度均价涨至4494元/吨，环比上涨310元
+中共中央总书记习近平4月10日上午在北京会见中国国民党主席郑丽文。 摄影：谢环驰 李响 燕雁 编辑：邓坚 毕晓洋 虞东升 郝昭
 
 ## 正文
 
-卓创资讯分析师 张艳飞 ［导语］4月霍尔木兹海峡通行依旧不畅，国际油价高位波动且炼厂原料供应持续偏紧，沥青成本端及供应端支撑依旧偏强，沥青现货价格延续涨势。
+中共中央总书记习近平4月10日上午在北京会见中国国民党主席郑丽文。
 
-进入5月份，沥青排产进一步减少，供应端支撑稳固，沥青现货价格走势或相对偏强。
-
-成本及供应双重利好沥青均价延续涨势 4月沥青均价在成本支撑及供应收紧的双重利好下延续上涨走势，全国沥青月度均价涨至4494元/吨，环比上涨310元/吨或7.41%。
-
-4月美伊停火但双方和谈延期，国际油价呈现高位宽幅波动走势，沥青成本支撑持续偏强。
-
-同时，霍尔木兹海峡通行依旧不畅，国内炼厂原料供应仍面临偏紧的状态，沥青开工负荷率继续下降导致沥青产量下滑。
-
-在供应收紧以及成本高位支撑下，全国沥青均价延续上涨走势。
-
-高价沥青抑制需求释放，项目开工推迟导致沥青刚性需求低迷，市场购销情绪谨慎。
-
-进入5月份，炼厂排产量进一步减少，叠加沥青社会库存同比明显偏低，沥青供应端支撑持续稳固，预计沥青现货价格将维持高位波动。
+摄影：谢环驰 李响 燕雁 编辑：邓坚 毕晓洋 虞东升 郝昭
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 15:55 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 16:00 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 15:57 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 16:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 16:17 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 16:18 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 16:18 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 15:59 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 16:16 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 16:00 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 15:57 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 16:19 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 16:17 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 16:00 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 16:11 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 16:26 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 16:23 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 16:16 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 16:20 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 16:01 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 16:28 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 16:08 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:21 - [BB大王横店拍戏](https://www.blog.minike.top/Article/details/54418875088.shtml)
-- 2026-06-29 16:01 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/9238196.shtml)
-- 2026-06-29 16:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/896298.shtml)
-- 2026-06-29 16:07 - [小娘惹](https://www.share.minike.top/Article/details/44248.shtml)
-- 2026-06-29 16:23 - [急先锋](https://www.blog.kurohicncr.top/Article/details/7004865800.shtml)
-- 2026-06-29 16:10 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/0347233.shtml)
-- 2026-06-29 16:08 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/70330696754.shtml)
-- 2026-06-29 16:15 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/1256877.shtml)
-- 2026-06-29 16:06 - [欧盟为什么越来越倾向贸易保护](https://www.blog.kurohicncr.top/Article/details/0867517.shtml)
-- 2026-06-29 15:55 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/15060.shtml)
-- 2026-06-29 15:57 - [上班主打一个薪尽自然凉](http://www.share.kurohicncr.top/Article/details/376712336966.shtml)
-- 2026-06-29 16:09 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/01499249.shtml)
-- 2026-06-29 16:13 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.minike.top/Article/details/76788.shtml)
-- 2026-06-29 16:24 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/671124996.shtml)
-- 2026-06-29 16:00 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/40349.shtml)
+- 2026-06-29 16:01 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/52905826.shtml)
+- 2026-06-29 16:27 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/57245233.shtml)
+- 2026-06-29 16:29 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/182198766519.shtml)
+- 2026-06-29 16:15 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/76398202540.shtml)
+- 2026-06-29 16:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/942519686867.shtml)
+- 2026-06-29 16:05 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/487123561.shtml)
+- 2026-06-29 16:27 - [BB大王横店拍戏](https://www.blog.minike.top/Article/details/3176052282.shtml)
+- 2026-06-29 16:15 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/598112851.shtml)
+- 2026-06-29 16:29 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/258570520.shtml)
+- 2026-06-29 16:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/18630937.shtml)
+- 2026-06-29 16:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/611548055.shtml)
+- 2026-06-29 16:24 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/35679.shtml)
+- 2026-06-29 16:14 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/40897560.shtml)
+- 2026-06-29 16:27 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/3230939.shtml)
+- 2026-06-29 16:01 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/6044929.shtml)

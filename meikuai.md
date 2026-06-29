@@ -1,59 +1,56 @@
-# 营收连降、亏损扩大、股东高比例质押，红豆股份前路恐难行？
+# 1900亿“医械茅”，净利润大降30%
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 《理财周刊》 2026年4月末，红豆股份（600400.SH）密集披露2025年财报与2026年一季度业绩，这份成绩单让市场对这家老牌男装企业的担忧进一步加剧。 数据显示，公司2025年营收大幅下滑、归母净利润亏损额同比翻倍，核心主业毛利率持续走低；2026年一季度虽短暂扭亏，但营收仍未止跌，盈利持续性存疑。叠加控股股东债务危机
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者丨杨坪 编辑丨郑世凤 江佩霞 张明艳 近日，中国医疗器械行业的“一哥”，迈瑞医疗在2025年遭遇了上市以来的首次年度营收下滑。 年报数据显示，迈瑞医疗全年实现营业收入332.82亿元，同比下降9.38%；归母净利润81.36亿元，同比下降30.28%；扣非归母净利润80.69亿元，同比下降29.48%。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 《理财周刊》 2026年4月末，红豆股份（600400.SH）密集披露2025年财报与2026年一季度业绩，这份成绩单让市场对这家老牌男装企业的担忧进一步加剧。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-数据显示，公司2025年营收大幅下滑、归母净利润亏损额同比翻倍，核心主业毛利率持续走低；2026年一季度虽短暂扭亏，但营收仍未止跌，盈利持续性存疑。
+作者丨杨坪 编辑丨郑世凤 江佩霞 张明艳 近日，中国医疗器械行业的“一哥”，迈瑞医疗在2025年遭遇了上市以来的首次年度营收下滑。
 
-叠加控股股东债务危机、公司治理违规、战略转型乏力等多重问题，红豆股份正陷入业绩与治理的双重困境，未来经营不确定性陡增。
+年报数据显示，迈瑞医疗全年实现营业收入332.82亿元，同比下降9.38%；归母净利润81.36亿元，同比下降30.28%；扣非归母净利润80.69亿元，同比下降29.48%。
 
-业绩持续恶化 核心盈利指标全线承压 2025年，红豆股份业绩迎来“至暗时刻”，核心财务指标全面恶化，经营压力从收入端传导至利润端，亏损幅度进一步扩大。
+公司传统的三大核心主业均受到不同程度影响，行业“以量补价”的逻辑正在弱化。
 
-从营收规模来看，2025年公司实现营业收入22.29亿元，同比2024年的27.91亿元下滑20.12%，营收规模连续两年萎缩。
+其中，体外诊断业务实现营业收入122.41亿元，同比下降9.41%；生命信息与支持业务实现营业收入98.37亿元，同比下降19.80%；医学影像实现营业收入57.17亿元，同比下降18.02%。
 
-分业务来看，核心服装业务收入21.5亿元，占总营收的96.5%，同比下滑幅度与整体营收基本持平，主业增长动能显著枯竭。
+拖累迈瑞医疗的主要是国内市场，其国内业务实现收入156.32亿元，同比下降22.97%。
 
-2026年一季度，营收下滑态势仍未逆转，当期实现营业收入6.86亿元，同比下降8.82%，虽降幅较2025年全年收窄，但仍未摆脱规模收缩的困境。
+公司在年报中指出，国内受DRG/DIP支付方式改革、试剂集中带量采购、检验结果互认、医疗服务价格治理等多重政策影响，行业进入调整收缩期，试剂用量和价格均出现了不同程度的下滑。
 
-利润端表现更为惨淡，2025年公司归母净利润亏损4.23亿元，扣非归母净利润亏损4.59亿元，较2024年-2.03亿元、-2.38亿元的亏损额近乎翻倍，创下近年亏损新高。
+截至4月10日收盘，迈瑞医疗报158.18元/股，最新市值1918亿。
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 16:23 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 16:15 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 16:05 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 15:57 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 16:10 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 16:12 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 16:00 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 15:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 16:18 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 16:11 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 15:56 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 15:57 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 16:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 16:16 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 16:05 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 16:02 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 16:16 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 16:29 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 16:19 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 16:14 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 16:17 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 16:09 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:07 - [我国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/70262561958.shtml)
-- 2026-06-29 15:57 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/5275966.shtml)
-- 2026-06-29 16:00 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/5944275.shtml)
-- 2026-06-29 16:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/69032.shtml)
-- 2026-06-29 16:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/264410.shtml)
-- 2026-06-29 15:56 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/07837735446.shtml)
-- 2026-06-29 16:04 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/611045178095.shtml)
-- 2026-06-29 16:03 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/8495569438.shtml)
-- 2026-06-29 15:55 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/81778393.shtml)
-- 2026-06-29 16:04 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/003492776.shtml)
-- 2026-06-29 15:59 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/842202365795.shtml)
-- 2026-06-29 16:03 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/42175.shtml)
-- 2026-06-29 16:16 - [AG冠军五人组轮换](http://www.blog.kurohicncr.top/Article/details/691062000.shtml)
-- 2026-06-29 16:02 - [女心理师](https://www.share.kurohicncr.top/Article/details/075012.shtml)
-- 2026-06-29 16:14 - [青春环游记第三季](https://www.blog.minike.top/Article/details/37956.shtml)
+- 2026-06-29 16:22 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/3655764.shtml)
+- 2026-06-29 16:03 - [T1 KC](https://www.share.kurohicncr.top/Article/details/2485717.shtml)
+- 2026-06-29 16:15 - [起风了](http://www.blog.minike.top/Article/details/451303.shtml)
+- 2026-06-29 16:20 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/56095.shtml)
+- 2026-06-29 16:03 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/27770348.shtml)
+- 2026-06-29 16:20 - [中国战机大片上新](http://www.blog.minike.top/Article/details/440374.shtml)
+- 2026-06-29 16:29 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/56412.shtml)
+- 2026-06-29 16:03 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/089959.shtml)
+- 2026-06-29 16:28 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/1743310.shtml)
+- 2026-06-29 16:05 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/472324125.shtml)
+- 2026-06-29 16:14 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/875567864110.shtml)
+- 2026-06-29 16:20 - [女心理师](http://www.blog.minike.top/Article/details/38116341869.shtml)
+- 2026-06-29 16:20 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/913567.shtml)
+- 2026-06-29 16:28 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/442722554452.shtml)
+- 2026-06-29 16:12 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/695348575789.shtml)

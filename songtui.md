@@ -1,56 +1,51 @@
-# 西北地区苜蓿生产技术交流会在新疆和田县举办
+# 旭辉控股集团3月合同销售金额约11.5亿元
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网新疆和田5月8日电 (胡嘉琛 阿卜力克木·依卜拉依木)西北地区苜蓿生产技术暨头茬收获与产销交流会7日在新疆和田县召开。百余名企业、科研机构和种植户代表参加会议，围绕苜蓿生产技术、机械化收割和产销对接等共话产业发展。 会议由新疆优质饲草产业技术体系主办。在主题报告环节，9位专家学者围绕盐碱地改良、苜蓿高效种植、病虫害绿色防控、全程机械化和金融支持等议题进行技术分享，并针对新
+旭辉控股集团（00884）发布公告，于2026年3月，集团取得（i）合同销售（连合营企业及联营公司的合同销售）金额约人民币11.5亿元及合同销售面积约10.71万平方米，（ii）合同销售均价约人民币1.22万元╱平方米，及（iii）公司股东权益应占合同销售金额约人民币7.4亿元。 于2026年1月至2月，集团取得（i）累计合同销售（连合营企业及联营公司的合同销售）金额约人民币2
 
 ## 正文
 
-中新网新疆和田5月8日电 (胡嘉琛 阿卜力克木·依卜拉依木)西北地区苜蓿生产技术暨头茬收获与产销交流会7日在新疆和田县召开。
+旭辉控股集团（00884）发布公告，于2026年3月，集团取得（i）合同销售（连合营企业及联营公司的合同销售）金额约人民币11.5亿元及合同销售面积约10.71万平方米，（ii）合同销售均价约人民币1.22万元╱平方米，及（iii）公司股东权益应占合同销售金额约人民币7.4亿元。
 
-百余名企业、科研机构和种植户代表参加会议，围绕苜蓿生产技术、机械化收割和产销对接等共话产业发展。
+于2026年1月至2月，集团取得（i）累计合同销售（连合营企业及联营公司的合同销售）金额约人民币24.1亿元及合同销售面积约23.28万平方米，（ii）合同销售均价约人民币1.13万元╱平方米，及（iii）公司股东权益应占合同销售金额约人民币13.0亿元。
 
-会议由新疆优质饲草产业技术体系主办。
-
-在主题报告环节，9位专家学者围绕盐碱地改良、苜蓿高效种植、病虫害绿色防控、全程机械化和金融支持等议题进行技术分享，并针对新疆和田地区盐碱地提出适配方案。
-
-和田地区土地广阔、光热资源充足、降雨少、灌溉技术日趋成熟，具有发展苜蓿产业的自然条件和技术基础。
-
-与会专家建议继续推广示范技术，强化上下游协作，推动标准化基地建设和市场对接，促进苜蓿产业向规模化、可持续方向发展，为畜牧业发展提供稳定保障。
-
-新疆农业农村厅饲料饲草处副处长佟光来称，随着畜牧业规模化、标准化推进，市场对优质苜蓿需求持续增长。
-
-要加快提升产能、完善产销衔接，通过良种推广、节水灌溉、绿色防控和机械化装备，提高供给能力和产品质量。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:58 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 16:20 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 16:15 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 15:56 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 16:01 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 15:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 16:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 16:01 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 16:00 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 16:08 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 16:24 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 16:26 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 16:03 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 16:25 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 16:09 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 16:04 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 16:17 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 16:05 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 16:04 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 16:13 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 16:03 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 16:04 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 16:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 16:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 16:07 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/969980412.shtml)
-- 2026-06-29 16:08 - [世界杯上那些封神的门将](http://www.blog.kurohicncr.top/Article/details/02931940.shtml)
-- 2026-06-29 15:56 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/936443728.shtml)
-- 2026-06-29 16:08 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/89422903192.shtml)
-- 2026-06-29 16:06 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/26790708729.shtml)
-- 2026-06-29 16:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/33619140.shtml)
-- 2026-06-29 15:59 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/2000584.shtml)
-- 2026-06-29 16:13 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/99223.shtml)
-- 2026-06-29 16:15 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/097002.shtml)
-- 2026-06-29 16:16 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/73544909189.shtml)
-- 2026-06-29 16:17 - [中国战机大片上新](http://www.share.minike.top/Article/details/6101817220.shtml)
-- 2026-06-29 16:13 - [一见倾心](http://www.share.minike.top/Article/details/8490105972.shtml)
-- 2026-06-29 16:07 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/528867840.shtml)
-- 2026-06-29 16:00 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/966511.shtml)
-- 2026-06-29 16:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/935193723548.shtml)
+- 2026-06-29 16:24 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/517669.shtml)
+- 2026-06-29 16:20 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/8193586.shtml)
+- 2026-06-29 16:28 - [流金岁月](https://www.share.kurohicncr.top/Article/details/27489.shtml)
+- 2026-06-29 16:14 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/6682641874.shtml)
+- 2026-06-29 16:08 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.kurohicncr.top/Article/details/700826796.shtml)
+- 2026-06-29 16:08 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/2833740347.shtml)
+- 2026-06-29 16:00 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/9627218819.shtml)
+- 2026-06-29 16:12 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/44737946020.shtml)
+- 2026-06-29 16:13 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/39369491949.shtml)
+- 2026-06-29 16:06 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/674827.shtml)
+- 2026-06-29 16:19 - [急先锋](https://www.blog.minike.top/Article/details/953873435650.shtml)
+- 2026-06-29 16:22 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/0451275.shtml)
+- 2026-06-29 16:20 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/4227131.shtml)
+- 2026-06-29 16:16 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/5764897842.shtml)
+- 2026-06-29 16:12 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/2718575369.shtml)

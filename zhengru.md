@@ -1,59 +1,61 @@
-# 马士基警告：伊朗冲突的经济冲击将持续数月
+# 强制员工自费买礼物？海底捞致歉：基本属实，已沟通赔偿
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-航运巨头马士基警告称，伊朗战争引发的石油冲击正大幅推高运营成本，每月额外增加约5亿美元开支，其经济影响将持续数月之久。 马士基首席执行官文森特·克莱尔表示，成本上涨主要源于燃油价格飙升和船舶保险费用增加。公司正寻求将这些成本完全转嫁给客户，并相信在接下来的几个季度能够继续维持这一策略。尽管如此，马士基仍维持了全年业绩指引，预计全球集装箱市场增长2%至4%。 然而，这家被视为全球
+4月11日，近日有自称在海底捞工作6年的员工发布长文称，其在海底捞北京某门店长期遭受的违规管理。“但凡出现顾客投诉，不分缘由，强制要求员工自费500元购买礼物作为处罚，多次违规罚款，无任何合规依据。” 此外，其还指控海底捞门店存在管理粗暴、辱骂员工、克扣工资、侵犯隐私、恶意阻挠调店逼迫离职等问题。 4月11日，海底捞发布《关于“海底捞伙伴因顾客投诉被强制自费买礼物事件”的说明》
 
 ## 正文
 
-航运巨头马士基警告称，伊朗战争引发的石油冲击正大幅推高运营成本，每月额外增加约5亿美元开支，其经济影响将持续数月之久。
+4月11日，近日有自称在海底捞工作6年的员工发布长文称，其在海底捞北京某门店长期遭受的违规管理。
 
-马士基首席执行官文森特·克莱尔表示，成本上涨主要源于燃油价格飙升和船舶保险费用增加。
+“但凡出现顾客投诉，不分缘由，强制要求员工自费500元购买礼物作为处罚，多次违规罚款，无任何合规依据。
 
-公司正寻求将这些成本完全转嫁给客户，并相信在接下来的几个季度能够继续维持这一策略。
+” 此外，其还指控海底捞门店存在管理粗暴、辱骂员工、克扣工资、侵犯隐私、恶意阻挠调店逼迫离职等问题。
 
-尽管如此，马士基仍维持了全年业绩指引，预计全球集装箱市场增长2%至4%。
+4月11日，海底捞发布《关于“海底捞伙伴因顾客投诉被强制自费买礼物事件”的说明》。
 
-然而，这家被视为全球贸易风向标的公司也坦言，2026年全球集装箱需求前景高度不确定。
+海底捞称，“4月8号一9号，公司对该伙伴反馈问题进行核查，并于9号确认该伙伴反映情况基本属实。
 
-上波斯湾地区在2025年约占全球集装箱贸易的6%，能源价格高涨和该地区的贸易限制对增长势头构成显著下行风险。
+4月10号，公司与该伙伴探讨了赔偿事宜。
 
-克莱尔指出，需求在过去数年是市场的强劲支撑，预计第二季度将保持韧性，但下半年走势难以预测，很大程度上取决于战争持续时间及能源成本。
+” 海底捞表示，“我们在这里郑重承诺一定依法对该伙伴进行赔偿，并当面或按照该伙伴的意愿通过其他渠道致以诚挚的歉意。
 
-他还透露，公司仍有船只被困在波斯湾，由于霍尔木兹海峡大部分区域布满水雷，在航行条件改善前将不会冒险通过。
+由于我们担心在其它门店存在类似情况，在4月10号早上10点，我们通知一千多家门店进行内部排查，相关排查工作仍在持续进行中，一旦发现类似情况，我们一定依法妥善处理。
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 16:16 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 16:04 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 16:05 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 16:04 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 16:09 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 16:21 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 16:05 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 16:02 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 16:02 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 16:16 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 16:15 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 16:00 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 16:03 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 16:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 16:22 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 16:09 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 16:17 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 16:21 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 16:15 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 16:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 16:01 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 16:25 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 16:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 16:04 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 16:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 16:00 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 16:23 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/2351824324.shtml)
-- 2026-06-29 16:15 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/59008053468.shtml)
-- 2026-06-29 16:08 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/22716.shtml)
-- 2026-06-29 15:58 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/18655.shtml)
-- 2026-06-29 16:21 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/0319366.shtml)
-- 2026-06-29 16:08 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/4463558.shtml)
-- 2026-06-29 16:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/5857055707.shtml)
-- 2026-06-29 15:59 - [发反科学内容为何会有200万粉丝](https://www.share.minike.top/Article/details/4372684016.shtml)
-- 2026-06-29 15:54 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/028676583155.shtml)
-- 2026-06-29 16:21 - [小鹏MONAL03预售定档7月2日](https://www.blog.kurohicncr.top/Article/details/0176762952.shtml)
-- 2026-06-29 16:05 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/08015145012.shtml)
-- 2026-06-29 16:17 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/0444534551.shtml)
-- 2026-06-29 16:14 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/33902708.shtml)
-- 2026-06-29 16:22 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/16584941737.shtml)
-- 2026-06-29 16:04 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/274592108014.shtml)
+- 2026-06-29 16:21 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/25582.shtml)
+- 2026-06-29 16:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/397588081.shtml)
+- 2026-06-29 16:19 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/07168191.shtml)
+- 2026-06-29 16:22 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/756609.shtml)
+- 2026-06-29 16:26 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/51917.shtml)
+- 2026-06-29 16:00 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/719758.shtml)
+- 2026-06-29 16:19 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/5697401.shtml)
+- 2026-06-29 16:00 - [东方风云榜红毯](https://www.share.minike.top/Article/details/8606213.shtml)
+- 2026-06-29 16:19 - [啊啊啊](http://www.blog.minike.top/Article/details/77297370.shtml)
+- 2026-06-29 16:24 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/4531616556.shtml)
+- 2026-06-29 16:21 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/583370353.shtml)
+- 2026-06-29 16:24 - [BB大王横店拍戏](https://www.blog.minike.top/Article/details/78769.shtml)
+- 2026-06-29 16:08 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/283971.shtml)
+- 2026-06-29 16:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/643062682818.shtml)
+- 2026-06-29 16:00 - [起风了](http://www.blog.kurohicncr.top/Article/details/052213.shtml)

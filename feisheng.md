@@ -1,61 +1,59 @@
-# 母亲节活动文案引发争议 OPPO致歉
+# 天马车载杨圣洁：座舱空间多元化发展，屏幕也需要相应升级
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电(记者 左雨晴) 5月8日，OPPO发布的母亲节活动文案引发网友争议。其争议文案内容为：我妈有两个“老公”，一个是我爸，另一个一年见两回。跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。有网友认为，该文案价值观不正确；也有网友表示，文案内容只是“玩梗”。记者注意到，8日下午该文案已被删除。 同日，OPPO发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 天马车载显示事业部产品副总经理杨圣洁表示，随着座舱空间的多元化，屏幕也需要相应地升级，满足新的标准和需求。 针对这一点，他提出了一个参考标准，称之为“五星好评”，主要涵盖五个方面：首先，安全
 
 ## 正文
 
-中新网北京5月8日电(记者 左雨晴) 5月8日，OPPO发布的母亲节活动文案引发网友争议。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-其争议文案内容为：我妈有两个“老公”，一个是我爸，另一个一年见两回。
+天马车载显示事业部产品副总经理杨圣洁表示，随着座舱空间的多元化，屏幕也需要相应地升级，满足新的标准和需求。
 
-跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。
+针对这一点，他提出了一个参考标准，称之为“五星好评”，主要涵盖五个方面：首先，安全肯定是底线，要不断丰富安全的含义，持续强化安全保障；其次是可靠，可靠与安全相伴相生，要确保安全能够长期落地；再者是好用，这是用户最直接的感知，要追求操作顺滑、体验丰富；然后是个性，契合当下千人千面的时代，通过屏幕为座舱增添个性化特性；最后是健康，我们越来越以人为本，健康也是座舱体验的重要组成部分。
 
-有网友认为，该文案价值观不正确；也有网友表示，文案内容只是“玩梗”。
+首先是安全部分，他表示，从应用角度来说，全景抬头显示、电子侧后视镜等，都能有效减少驾驶盲区，减少驾驶员低头操作的频率，而屏幕正是这些应用中的核心部分。
 
-记者注意到，8日下午该文案已被删除。
+另外，在功能上，我们要做到“该看屏幕时看屏幕，该集成时集成”，通过驾驶员监控摄像头感知驾驶员状态变化，同时在主驾区域屏蔽无关内容，不影响副驾驶使用，再配合环境自适应功能，全方位助力驾驶安全。
 
-同日，OPPO发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示歉意。
+关于可靠这一星，他指出，首先要适应车载极端环境，包括高强度随机震动、宽温环境等；其次，我们追求车载屏幕能够在车内稳定使用10到15年，无论屏幕尺寸多大、功能多集成，都要保证长期稳定运行。
 
-OPPO表示，其创作初衷是希望打破刻板印象，呈现更多元、更立体的当代母亲形象：母亲可以热爱马拉松，可以沉浸文字创作，也可以拥有自己的追星爱好。
+好用这一点，他表示，用户的直接感知最为明显。
 
-OPPO已第一时间下架全部相关物料，并将认真倾听各方批评，全面审查内容审核机制，确保此类问题不再发生。
+比如，我们希望驾驶员能清晰看清屏幕内容，后座乘客看电影能拥有舒适体验，这就要求我们提升画质，中控屏要达到3K标准，后排屏幕甚至要达到8K，画质媲美旗舰手机，同时操作要足够顺滑，带来极佳的使用体验。
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 15:54 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 16:22 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 16:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 16:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 15:58 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 16:03 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 16:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 16:06 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 16:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 15:56 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 16:21 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 16:03 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 16:14 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 16:05 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 16:21 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 16:05 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 16:07 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 16:29 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 16:13 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 16:18 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 16:29 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 16:19 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 16:25 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 16:03 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 16:20 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 16:05 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 16:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/9138321.shtml)
-- 2026-06-29 15:59 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/5236911412.shtml)
-- 2026-06-29 16:09 - [光与夜之恋](http://www.blog.minike.top/Article/details/14967.shtml)
-- 2026-06-29 16:12 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/49385836.shtml)
-- 2026-06-29 16:02 - [南非老帅布罗斯的梦没能做完](https://www.share.kurohicncr.top/Article/details/4910022.shtml)
-- 2026-06-29 16:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/64585.shtml)
-- 2026-06-29 16:20 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/9049800286.shtml)
-- 2026-06-29 16:13 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/424222019244.shtml)
-- 2026-06-29 16:22 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/79753220.shtml)
-- 2026-06-29 16:07 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/57970669497.shtml)
-- 2026-06-29 16:05 - [世界杯看到肖战了](http://www.share.minike.top/Article/details/73956306514.shtml)
-- 2026-06-29 15:54 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/7136325.shtml)
-- 2026-06-29 16:14 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/846687307232.shtml)
-- 2026-06-29 16:19 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/98035023992.shtml)
-- 2026-06-29 16:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/741961.shtml)
+- 2026-06-29 16:19 - [吴建豪老婆](http://www.blog.minike.top/Article/details/6378079133.shtml)
+- 2026-06-29 16:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/96470942.shtml)
+- 2026-06-29 16:12 - [急先锋](http://www.blog.kurohicncr.top/Article/details/6505480.shtml)
+- 2026-06-29 16:27 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/61177.shtml)
+- 2026-06-29 16:05 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/4409008100.shtml)
+- 2026-06-29 16:04 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/232722646.shtml)
+- 2026-06-29 16:19 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/6471526373.shtml)
+- 2026-06-29 16:27 - [天道](https://www.share.kurohicncr.top/Article/details/65167181.shtml)
+- 2026-06-29 16:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/429674353.shtml)
+- 2026-06-29 16:21 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/0852275.shtml)
+- 2026-06-29 16:27 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/18057.shtml)
+- 2026-06-29 16:15 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/589593.shtml)
+- 2026-06-29 16:18 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/4146336282.shtml)
+- 2026-06-29 16:20 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/88693189123.shtml)
+- 2026-06-29 16:12 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/16260880.shtml)

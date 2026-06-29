@@ -1,60 +1,57 @@
-# 河南周口：小麦灌浆管护忙
+# 欧盟拟将ChatGPT纳入《数字服务法案》严格监管
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-排队3小时打卡1分钟！现在的旅行，只是为了发朋友圈？中新网评：享界S9零重力座椅事件，给车企和用户都提了个醒大模型收费，先过“值不值”这一关今年开分最高的国产电影，每一件道具都是华侨的情书一年填上百张表？部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？它们又是如何做到的？友情提醒！最近真的不要穿这种颜色的衣服出
+据德国《商报》4月10日援引欧盟委员会消息人士报道，欧盟委员会计划将OpenAI及其聊天机器人ChatGPT纳入《数字服务法案》的管辖范围，并将其归类为“超大型在线搜索引擎”，从而面临更严格的监管。 监管门槛：用户数量远超阈值 《数字服务法案》是欧盟针对大型互联网平台的一项重要法规，旨在确保平台更快删除非法内容、方便用户举报此类内容，并加强对青少年的保护。 该法案对“超大型在线
 
 ## 正文
 
-排队3小时打卡1分钟！
+据德国《商报》4月10日援引欧盟委员会消息人士报道，欧盟委员会计划将OpenAI及其聊天机器人ChatGPT纳入《数字服务法案》的管辖范围，并将其归类为“超大型在线搜索引擎”，从而面临更严格的监管。
 
-现在的旅行，只是为了发朋友圈？
+监管门槛：用户数量远超阈值 《数字服务法案》是欧盟针对大型互联网平台的一项重要法规，旨在确保平台更快删除非法内容、方便用户举报此类内容，并加强对青少年的保护。
 
-中新网评：享界S9零重力座椅事件，给车企和用户都提了个醒大模型收费，先过“值不值”这一关今年开分最高的国产电影，每一件道具都是华侨的情书一年填上百张表？
+该法案对“超大型在线平台”或“超大型在线搜索引擎”设定了额外的合规要求，其认定门槛为在欧盟境内月活跃用户超过4500万。
 
-部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？
+OpenAI此前公布的数据显示，截至2025年9月底的六个月内，ChatGPT搜索功能在欧盟的平均月活跃用户约为1.204亿，远超监管门槛。
 
-它们又是如何做到的？
+正是基于这一数据，欧盟委员会正在推进将其纳入严格监管框架的进程。
 
-友情提醒！
+监管程序：正在进行最终评估 报道称，欧盟委员会发言人告诉《商报》，目前正在审查可用的用户数据。
 
-最近真的不要穿这种颜色的衣服出门卖家因恶意退货多“拉黑”整个街道 律师：商家不能歧视性拒售人这一辈子，一定要去一趟万里茶道第一关！
+根据欧盟委员会此前在2月份的声明，关于ChatGPT是否被指定的最终决定预计将在2026年第一季度作出。
 
-美科技巨头集体投身AI军备竞赛海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小学春秋假夹娃娃成瘾？
+欧盟委员会技术主权专员 Henna Virkkunen 曾表示，指定的过程不仅依赖于对服务功能的定量和定性评估，还会参考成员国立场的协商结果。
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 15:56 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 16:10 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 16:00 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 16:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 16:15 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 16:04 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 16:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 15:59 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 16:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 16:03 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 16:12 - [光与夜之恋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 15:59 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 15:56 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 16:01 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 16:11 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 16:16 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 16:10 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 16:22 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 16:19 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 16:00 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 16:11 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 16:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 16:25 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 16:19 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/419220063768.shtml)
-- 2026-06-29 16:20 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/789498.shtml)
-- 2026-06-29 16:08 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/81141.shtml)
-- 2026-06-29 16:19 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/2083621101.shtml)
-- 2026-06-29 16:04 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/4842397.shtml)
-- 2026-06-29 16:19 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/586396912.shtml)
-- 2026-06-29 16:02 - [小鹏MONAL03预售定档7月2日](https://www.blog.kurohicncr.top/Article/details/27172254889.shtml)
-- 2026-06-29 16:00 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/22548140.shtml)
-- 2026-06-29 15:56 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/107069.shtml)
-- 2026-06-29 15:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/8313964.shtml)
-- 2026-06-29 16:08 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/0417312.shtml)
-- 2026-06-29 16:20 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/9828013.shtml)
-- 2026-06-29 16:17 - [7款商保创新药“转道”](http://www.blog.kurohicncr.top/Article/details/90342931189.shtml)
-- 2026-06-29 16:22 - [T1 KC](http://www.blog.minike.top/Article/details/20659529.shtml)
-- 2026-06-29 16:20 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/5278251200.shtml)
+- 2026-06-29 16:08 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/096082502190.shtml)
+- 2026-06-29 16:15 - [周生如故](https://www.share.minike.top/Article/details/153335383149.shtml)
+- 2026-06-29 16:20 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/1640376.shtml)
+- 2026-06-29 16:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/871023817.shtml)
+- 2026-06-29 16:19 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/00829719190.shtml)
+- 2026-06-29 16:02 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/4417099407.shtml)
+- 2026-06-29 16:09 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/319809855645.shtml)
+- 2026-06-29 16:21 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/142313695731.shtml)
+- 2026-06-29 16:22 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/73824.shtml)
+- 2026-06-29 16:09 - [女心理师](http://www.blog.minike.top/Article/details/31420161.shtml)
+- 2026-06-29 16:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/75346685951.shtml)
+- 2026-06-29 16:21 - [青春环游记第三季](http://www.blog.minike.top/Article/details/56511068547.shtml)
+- 2026-06-29 16:20 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/0386622601.shtml)
+- 2026-06-29 16:22 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/59359.shtml)
+- 2026-06-29 16:19 - [未成年少女长期吸毒导致卧床不起](http://www.blog.minike.top/Article/details/289456253.shtml)

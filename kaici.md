@@ -1,57 +1,50 @@
-# 德国3月出口超预期 工业产值意外下滑
+# 博泰车联与上海交大订立战略合作框架协议
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-德国官方周五公布数据显示，受欧洲市场需求增长拉动，德国 3 月出口意外走高；但工业产值未如预期增长反而回落，主要受能源产量下滑拖累。 德国联邦统计局表示，3 月德国出口环比上涨 0.5%，其中对欧盟其他成员国出口发货量增长 3.4%。路透社调查的分析师此前预期出口将下滑 1.7%。 联邦统计局周四已公布德国 3 月工业订单增速高于预期，VP 银行经济学家托马斯・吉策尔称：“利好
+博泰车联（02889）发布公告，为整合公司智能汽车产业优势与上海交通大学人工智能操作系统研究院（上海交大）计算技术科研实力，共同推动开源鸿蒙具身智能创新、转化与落地，公司与上海交大于2026年4月10日订立战略合作框架协议。双方将通过“产学研用”深度融合，共同推动基于开源鸿蒙（OpenHarmony）的具身智能领域创新突破，构建全自主可控的具身智能创新生态。责任编辑：卢昱君
 
 ## 正文
 
-德国官方周五公布数据显示，受欧洲市场需求增长拉动，德国 3 月出口意外走高；但工业产值未如预期增长反而回落，主要受能源产量下滑拖累。
+博泰车联（02889）发布公告，为整合公司智能汽车产业优势与上海交通大学人工智能操作系统研究院（上海交大）计算技术科研实力，共同推动开源鸿蒙具身智能创新、转化与落地，公司与上海交大于2026年4月10日订立战略合作框架协议。
 
-德国联邦统计局表示，3 月德国出口环比上涨 0.5%，其中对欧盟其他成员国出口发货量增长 3.4%。
+双方将通过“产学研用”深度融合，共同推动基于开源鸿蒙（OpenHarmony）的具身智能领域创新突破，构建全自主可控的具身智能创新生态。
 
-路透社调查的分析师此前预期出口将下滑 1.7%。
-
-联邦统计局周四已公布德国 3 月工业订单增速高于预期，VP 银行经济学家托马斯・吉策尔称：“利好经济数据仍在接连出炉。
-
-” 伊朗战事拖累工业产出 他补充道，新增工业订单回暖，使得此次公布的工业产值环比下滑 0.7% 的表现尚可接受。
-
-市场分析师此前原本预期工业产值环比增长 0.5%。
-
-统计局将工业产值下滑归因于能源产量下降以及机械设备制造业产出走低。
-
-吉策尔表示：“旺盛的新增订单预计将在未来数月提振工业生产，进而带动出口增长。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:02 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 16:12 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 16:11 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 16:13 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 16:06 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 16:06 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 15:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 16:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 15:59 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 16:19 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 16:22 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 16:18 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 16:03 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 16:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 16:20 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 16:23 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 16:09 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 16:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 16:02 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 16:21 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 16:03 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 16:08 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 16:02 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 16:22 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 16:25 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:01 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/04541572.shtml)
-- 2026-06-29 16:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/99488800839.shtml)
-- 2026-06-29 16:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/141427087534.shtml)
-- 2026-06-29 16:10 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/60928090268.shtml)
-- 2026-06-29 16:17 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/044592583.shtml)
-- 2026-06-29 15:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/839488051661.shtml)
-- 2026-06-29 16:02 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.kurohicncr.top/Article/details/1704243868.shtml)
-- 2026-06-29 16:19 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/701348233.shtml)
-- 2026-06-29 16:04 - [中国空间站为什么要升级扩容](https://www.blog.minike.top/Article/details/323439371057.shtml)
-- 2026-06-29 16:11 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/720973690.shtml)
-- 2026-06-29 15:58 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/783266649941.shtml)
-- 2026-06-29 15:57 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/98429.shtml)
-- 2026-06-29 16:01 - [扬名立万](https://www.blog.minike.top/Article/details/3926854.shtml)
-- 2026-06-29 16:01 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/66849658.shtml)
-- 2026-06-29 16:07 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/679603723.shtml)
+- 2026-06-29 16:07 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/540813434.shtml)
+- 2026-06-29 16:01 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/0101415527.shtml)
+- 2026-06-29 16:23 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/6202605.shtml)
+- 2026-06-29 16:15 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/941556767602.shtml)
+- 2026-06-29 16:00 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/09835162.shtml)
+- 2026-06-29 16:17 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/2314795740.shtml)
+- 2026-06-29 16:18 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/247754118289.shtml)
+- 2026-06-29 16:13 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/471021952.shtml)
+- 2026-06-29 16:13 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/57831105.shtml)
+- 2026-06-29 16:18 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/9947788845.shtml)
+- 2026-06-29 16:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/463690.shtml)
+- 2026-06-29 16:16 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/1377729661.shtml)
+- 2026-06-29 16:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/653586907.shtml)
+- 2026-06-29 16:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/309968825.shtml)
+- 2026-06-29 16:17 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/122890.shtml)

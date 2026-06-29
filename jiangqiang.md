@@ -1,61 +1,56 @@
-# 财政部组织开展公共数据资源治理成本归集试点工作
+# 长江有色：10日铜价上涨 今日整体交投乏善可陈
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月7日电 (记者 赵建华)财政部近日发布《关于开展公共数据资源治理成本归集试点工作的通知》，决定在北京市、河北省、辽宁省、上海市、浙江省、安徽省、福建省、青岛市、重庆市、四川省等地区组织开展行政事业单位公共数据资源治理成本归集试点工作。试点工作自通知印发之日起启动。2026年7月31日前，各省级财政部门选择试点单位，完成工作部署。2026年12月31日前，各试点单位
+4月10日铜期货市场动态：今日沪期铜高开上扬；主力月2605合约开盘价报97820元/吨，最高98750元/吨，最低97720元/吨，昨结97880元/吨，今日收盘价报98440元/吨，涨560元，涨幅0.57%。沪铜主力2605合约全天成交量71304手减少8202手，持仓量174447手减少387手。亚盘时段，伦铜宽幅震荡，北京时间15：08最新报价12710美元/吨，涨1
 
 ## 正文
 
-中新网北京5月7日电 (记者 赵建华)财政部近日发布《关于开展公共数据资源治理成本归集试点工作的通知》，决定在北京市、河北省、辽宁省、上海市、浙江省、安徽省、福建省、青岛市、重庆市、四川省等地区组织开展行政事业单位公共数据资源治理成本归集试点工作。
+4月10日铜期货市场动态：今日沪期铜高开上扬；主力月2605合约开盘价报97820元/吨，最高98750元/吨，最低97720元/吨，昨结97880元/吨，今日收盘价报98440元/吨，涨560元，涨幅0.57%。
 
-试点工作自通知印发之日起启动。
+沪铜主力2605合约全天成交量71304手减少8202手，持仓量174447手减少387手。
 
-2026年7月31日前，各省级财政部门选择试点单位，完成工作部署。
+亚盘时段，伦铜宽幅震荡，北京时间15：08最新报价12710美元/吨，涨14.5美元/吨，涨幅0.11%。
 
-2026年12月31日前，各试点单位做好准备工作。
+长江铜业网铜价格统计：今日国内现货铜价格上涨，长江现货1#铜价报98450元/吨，涨730元，升水180-升水220，涨20元；长江综合1#铜价报98395元/吨，涨730元，升水90-升水200，涨20元；广东现货1#铜价报98410元/吨，涨730元，升水60-升水260，涨20元；上海地区1#铜价报98320元/吨，涨720元，升水30-升水110，涨10元。
 
-2027年1月至6月，各试点单位进行成本归集。
+长江铜市分析： 宏观层面，美伊达成停火协议，市场避险情绪显著缓解，全球风险资产迎来反弹，亚洲股市领涨，有望录得自2022年11月以来的最大单周涨幅。
 
-2027年9月30日前，各试点地区完成试点任务，形成总结材料。
+然而，通胀阴云并未散去。
 
-根据《公共数据资源登记管理暂行办法》，公共数据资源是指各级党政机关、企事业单位依法履职或提供公共服务过程中产生的具有利用价值的数据集合。
+调查显示，受地缘冲突推高油价及关税效应影响，美国3月CPI预计将环比大增0.9%，创近四年之最，同比亦将升至3.3%。
 
-通知中的公共数据资源是指由试点单位管理的、符合上述定义的原始数据以及对原始数据进行加工处理形成的数据产品或服务。
+相比之下，国内经济数据释放暖意：3月PPI同比在时隔11个月后重归正增长，录得0.5%，环比上涨1.0%，显示国内工业品需求回暖；CPI虽因节后季节性因素环比下降0.7%，但同比仍保持1.0%的温和上涨。
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 15:55 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 16:21 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 16:11 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 15:55 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 16:11 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 16:14 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 16:05 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 16:02 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 16:23 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 15:56 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 15:58 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 16:04 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 15:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 15:56 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 16:16 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 16:25 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 16:00 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 16:22 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 16:04 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 16:29 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 16:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 16:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 16:23 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 16:23 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/997141.shtml)
-- 2026-06-29 16:21 - [84岁英国教授成中国网红](http://www.blog.kurohicncr.top/Article/details/590541838398.shtml)
-- 2026-06-29 16:02 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/69211576076.shtml)
-- 2026-06-29 16:22 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/179306.shtml)
-- 2026-06-29 15:54 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/42501565.shtml)
-- 2026-06-29 16:18 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/012209859.shtml)
-- 2026-06-29 16:09 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/84570.shtml)
-- 2026-06-29 16:16 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/53328064215.shtml)
-- 2026-06-29 16:15 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/142596160.shtml)
-- 2026-06-29 15:54 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/83543533943.shtml)
-- 2026-06-29 16:11 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/03470419956.shtml)
-- 2026-06-29 15:54 - [一见倾心](http://www.share.kurohicncr.top/Article/details/5169946.shtml)
-- 2026-06-29 16:02 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/57113800.shtml)
-- 2026-06-29 16:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/895106289.shtml)
-- 2026-06-29 16:07 - [天道](http://www.share.kurohicncr.top/Article/details/85087.shtml)
+- 2026-06-29 16:29 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/347665498.shtml)
+- 2026-06-29 16:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/2441579.shtml)
+- 2026-06-29 16:16 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/86327.shtml)
+- 2026-06-29 16:28 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/41468786.shtml)
+- 2026-06-29 16:23 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/1267162424.shtml)
+- 2026-06-29 16:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/496456.shtml)
+- 2026-06-29 16:04 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/3023331.shtml)
+- 2026-06-29 16:28 - [周生如故](http://www.blog.minike.top/Article/details/08934420.shtml)
+- 2026-06-29 16:05 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/4632532344.shtml)
+- 2026-06-29 16:12 - [和周杰伦在演唱会合唱了](https://www.blog.minike.top/Article/details/01180.shtml)
+- 2026-06-29 16:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/643760.shtml)
+- 2026-06-29 16:17 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/91841450409.shtml)
+- 2026-06-29 16:26 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/04535412298.shtml)
+- 2026-06-29 16:11 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/560832.shtml)
+- 2026-06-29 16:19 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/5401227130.shtml)

@@ -1,59 +1,58 @@
-# 应李书福邀请，董明珠正式出任“极氪品质体验官”
+# 云南省农村信用社网点校招“限高”？要求男185cm女175cm，须持有国家二级及以上运动员证
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-近日，吉利控股集团董事长李书福一行到访并参观珠海格力电器总部。活动现场，李书福邀请董明珠正式出任“极氪品质体验官”，并颁发聘书。 吉利表示，作为极氪009光辉车主，董明珠多次公开为极氪品质点赞，并高度认可焕新极氪009全栈900V高压架构的强劲动力。 今年3月，董明珠正式成为极氪009光辉车主，李书福亲自为其交车，双方围绕中国高端制造展开热烈探讨。期间，董明珠特意邀请李书福访问
+4月10日金融一线消息，“银行网点招人要求男185cm女175cm”话题登上微博热搜，引发网友热议。 金融一线查询发现，云南省农村信用社2026年校园招聘岗位表显示，昆明官渡农村合作银行此次招聘包含“营业网点员工01”“营业网点员工02”“营业网点员工03”三个岗位共计22名营业网点员工。除年龄、学历等报名要求外，“营业网点员工03”岗位还要求“须持有国家二级及以上运动员证，须
 
 ## 正文
 
-近日，吉利控股集团董事长李书福一行到访并参观珠海格力电器总部。
+4月10日金融一线消息，“银行网点招人要求男185cm女175cm”话题登上微博热搜，引发网友热议。
 
-活动现场，李书福邀请董明珠正式出任“极氪品质体验官”，并颁发聘书。
+金融一线查询发现，云南省农村信用社2026年校园招聘岗位表显示，昆明官渡农村合作银行此次招聘包含“营业网点员工01”“营业网点员工02”“营业网点员工03”三个岗位共计22名营业网点员工。
 
-吉利表示，作为极氪009光辉车主，董明珠多次公开为极氪品质点赞，并高度认可焕新极氪009全栈900V高压架构的强劲动力。
+除年龄、学历等报名要求外，“营业网点员工03”岗位还要求“须持有国家二级及以上运动员证，须通过体能测试；在篮球或排球或足球项目上具备较强的专业能力与竞技水平，擅长篮球或排球运动，男性身高185cm及以上，女性身高175cm及以上。
 
-今年3月，董明珠正式成为极氪009光辉车主，李书福亲自为其交车，双方围绕中国高端制造展开热烈探讨。
+” 值得注意的是，包含上述招聘限制的并非仅有一家网点。
 
-期间，董明珠特意邀请李书福访问珠海格力总部。
+安宁市农村信用合作联社、曲靖市麒麟区农村信用合作联社、曲靖市马龙区农村信用合作联社、玉溪市江川区农村信用合作联社，以及云南玉溪红塔农村商业银行等多个岗位均有上述报名要求。
 
-此次到访，李书福一行参观了格力科技生态展厅，董明珠分享企业发展历程。
+对此，有网友表示上述招聘条件过于严苛，“可以组建篮球队了”。
 
-在对话中，李书福表示：“品牌源自于品质，品牌源自于人品，我们一定要尊重人。
-
-一个企业发展，要对内部员工尊重，对同行尊重，对行业自律尊重，以及对合规、法律等各方面尊重，最重要的是，我们要对用户尊重，对市场要尊重。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 16:14 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 16:01 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 16:10 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 16:19 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 16:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 16:13 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 15:54 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 16:11 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 16:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 16:00 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 16:06 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 16:06 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 16:15 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 16:23 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 16:03 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 16:14 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 16:15 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 16:05 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 16:24 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 16:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 16:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 16:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 16:13 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 16:16 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 16:26 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 16:30 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 16:26 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:18 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/19211.shtml)
-- 2026-06-29 16:19 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/6261860.shtml)
-- 2026-06-29 15:54 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/4130481006.shtml)
-- 2026-06-29 16:01 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/501362273179.shtml)
-- 2026-06-29 16:09 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/9098283.shtml)
-- 2026-06-29 16:08 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/9831026141.shtml)
-- 2026-06-29 16:16 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/156377391.shtml)
-- 2026-06-29 15:58 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/05562.shtml)
-- 2026-06-29 16:15 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/85206558530.shtml)
-- 2026-06-29 16:07 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/573308921.shtml)
-- 2026-06-29 16:21 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/12720572452.shtml)
-- 2026-06-29 16:19 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/9146545.shtml)
-- 2026-06-29 15:55 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/371042649480.shtml)
-- 2026-06-29 16:07 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/476822061.shtml)
-- 2026-06-29 16:13 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/057818438.shtml)
+- 2026-06-29 16:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/7116570404.shtml)
+- 2026-06-29 16:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/542744213.shtml)
+- 2026-06-29 16:26 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/8731500535.shtml)
+- 2026-06-29 16:24 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/14692454084.shtml)
+- 2026-06-29 16:22 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/11922.shtml)
+- 2026-06-29 16:17 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/83863744.shtml)
+- 2026-06-29 16:01 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/57418533.shtml)
+- 2026-06-29 16:05 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/4985044.shtml)
+- 2026-06-29 16:22 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/2384406.shtml)
+- 2026-06-29 16:03 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/1986079.shtml)
+- 2026-06-29 16:02 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/7709049045.shtml)
+- 2026-06-29 16:19 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/03563992.shtml)
+- 2026-06-29 16:18 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/45800050.shtml)
+- 2026-06-29 16:07 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/075306963024.shtml)
+- 2026-06-29 16:00 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/504826441078.shtml)

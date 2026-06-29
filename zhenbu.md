@@ -1,58 +1,61 @@
-# 资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元
+# 白宫紧急警告员工：不得在伊朗战争期间押注预测市场
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-每经记者|李蕾 每经编辑|赵云 《每日经济新闻》记者获悉，来自第三方机构ETFGI的数据显示，今年3月全球ETF规模新增1744.2亿美元，推动一季度净流入规模创下6264.2亿美元历史新高。截至今年一季度末，全球ETF总规模达到20.08万亿美元。 而据美国投资公司协会（ICI），不同于全球市场的增长，今年3月美国ETF资产规模缩水6616.8亿美元，环比降低4.7%，最新规
+汇通财经APP讯——3月23日，美国总统特朗普突然宣布暂停对伊朗的军事打击行动，次日白宫便迅速向全体工作人员发出警告，要求不得利用职务之便在期货或预测市场上进行精准押注。 据知情人士透露，这封警告邮件由白宫管理办公室于3月24日发送给全体工作人员。就在这一政策突然转变大约15分钟前，期货市场出现了一波异常的巨额交易。 根据市场数据，在不到两分钟的时间内，价值超过7.6亿美元的石
 
 ## 正文
 
-每经记者|李蕾 每经编辑|赵云 《每日经济新闻》记者获悉，来自第三方机构ETFGI的数据显示，今年3月全球ETF规模新增1744.2亿美元，推动一季度净流入规模创下6264.2亿美元历史新高。
+汇通财经APP讯——3月23日，美国总统特朗普突然宣布暂停对伊朗的军事打击行动，次日白宫便迅速向全体工作人员发出警告，要求不得利用职务之便在期货或预测市场上进行精准押注。
 
-截至今年一季度末，全球ETF总规模达到20.08万亿美元。
+据知情人士透露，这封警告邮件由白宫管理办公室于3月24日发送给全体工作人员。
 
-而据美国投资公司协会（ICI），不同于全球市场的增长，今年3月美国ETF资产规模缩水6616.8亿美元，环比降低4.7%，最新规模为13.55万亿美元。
+就在这一政策突然转变大约15分钟前，期货市场出现了一波异常的巨额交易。
 
-在欧洲市场，3月欧洲ETF行业净流入136.2亿美元，带动今年一季度净流入规模达到1287.1亿美元。
+根据市场数据，在不到两分钟的时间内，价值超过7.6亿美元的石油期货合约完成成交。
 
-截至一季度末，欧洲ETF行业资产管理规模达3.29万亿美元，较今年2月末的3.53万亿美元历史高点有所回落。
+此外，预测平台Polymarket上的三个账户准确押中了这一周伊朗停火的时机，获利超过60万美元。
 
-下面我们就对这几个市场的ETF表现进行详细梳理。
+包括许多民主党人在内的批评者随即推测，可能有人提前掌握了政策变动信息并借此牟利。
 
-来自ETFGI的数据显示，截至今年一季度末，全球ETF总规模为20.08万亿美元，低于今年2月创下的21.24万亿美元历史高点。
+白宫确认警告邮件真实性并回应质疑 白宫已证实这封警告邮件的真实性。
 
-仅在3月，全球ETF净流入规模就达到1744.2亿美元，连续第82个月实现资金净流入。
+特朗普的发言人戴维斯·英格尔（Davis Ingle）表示：“唯一能指引特朗普总统的特殊利益，永远只会是美国人民的最大利益。
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 16:03 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 16:23 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 16:17 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 16:12 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 16:21 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 16:15 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 16:02 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 15:59 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 16:20 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 16:17 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 16:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 16:27 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 16:20 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 16:14 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 16:26 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 16:13 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 16:15 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 16:11 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 16:09 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 16:13 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 16:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 16:15 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 16:06 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 16:29 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 16:23 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 16:17 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:22 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/83645.shtml)
-- 2026-06-29 16:13 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/037829.shtml)
-- 2026-06-29 15:56 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/4601989624.shtml)
-- 2026-06-29 16:22 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/89732988.shtml)
-- 2026-06-29 15:57 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/439920.shtml)
-- 2026-06-29 16:22 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/1380889087.shtml)
-- 2026-06-29 16:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/2940011.shtml)
-- 2026-06-29 16:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/88310881216.shtml)
-- 2026-06-29 16:13 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/55318865.shtml)
-- 2026-06-29 16:07 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/376619.shtml)
-- 2026-06-29 16:07 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/140487084213.shtml)
-- 2026-06-29 16:12 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/04733043150.shtml)
-- 2026-06-29 16:07 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/036276.shtml)
-- 2026-06-29 16:04 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/675953807660.shtml)
-- 2026-06-29 16:12 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/2527593986.shtml)
+- 2026-06-29 16:16 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/210450047676.shtml)
+- 2026-06-29 16:16 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/818588219492.shtml)
+- 2026-06-29 16:00 - [扬名立万](https://www.share.minike.top/Article/details/7503909030.shtml)
+- 2026-06-29 16:04 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/2106260155.shtml)
+- 2026-06-29 16:25 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/632993393.shtml)
+- 2026-06-29 16:19 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/49907433953.shtml)
+- 2026-06-29 16:24 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/9278004.shtml)
+- 2026-06-29 16:24 - [医院大厅放钢琴是形式主义吗](https://www.blog.kurohicncr.top/Article/details/7861148.shtml)
+- 2026-06-29 16:04 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/30875573.shtml)
+- 2026-06-29 16:02 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/94881835282.shtml)
+- 2026-06-29 16:20 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/4363707.shtml)
+- 2026-06-29 16:04 - [欧盟为什么越来越倾向贸易保护](http://www.share.kurohicncr.top/Article/details/933996.shtml)
+- 2026-06-29 16:15 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/634337.shtml)
+- 2026-06-29 16:19 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/25755423414.shtml)
+- 2026-06-29 16:24 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/50639761.shtml)

@@ -1,61 +1,60 @@
-# 俄国防部称乌军违反停火安排 对乌军实施对等打击
+# C4 Therapeutics与罗氏扩大合作，达成逾10亿美元新癌症药物协议
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科5月8日电 俄罗斯国防部8日通报说，乌克兰方面违反临时停火安排，俄军对乌军阵地和无人机发射点实施报复式打击。受无人机袭击影响，俄南部13座机场暂停运行。 俄国防部当天在社交媒体上发文表示，根据俄罗斯总统、俄联邦武装力量最高统帅普京的决定，在庆祝卫国战争胜利日81周年之际，自5月8日零时起至10日前，在特别军事行动区内所有俄军部队停止作战行动。尽管已宣布停火，乌克兰武
+C4 Therapeutics（CCCC.O）周四（4月9日）宣布，已与瑞士制药巨头罗氏（ROPC.S）签署一项新的合作协议，共同研发新型癌症药物，交易总价值有望超过10亿美元。 协议核心内容 此次合作将聚焦于一种新兴的癌症疗法——降解剂-抗体偶联物。该技术结合了抗体-药物偶联物与靶向蛋白质降解技术，旨在利用降解剂的催化效率和特异性，以及抗体的精准递送能力，开发新型抗癌疗法。
 
 ## 正文
 
-中新社莫斯科5月8日电 俄罗斯国防部8日通报说，乌克兰方面违反临时停火安排，俄军对乌军阵地和无人机发射点实施报复式打击。
+C4 Therapeutics（CCCC.O）周四（4月9日）宣布，已与瑞士制药巨头罗氏（ROPC.S）签署一项新的合作协议，共同研发新型癌症药物，交易总价值有望超过10亿美元。
 
-受无人机袭击影响，俄南部13座机场暂停运行。
+协议核心内容 此次合作将聚焦于一种新兴的癌症疗法——降解剂-抗体偶联物。
 
-俄国防部当天在社交媒体上发文表示，根据俄罗斯总统、俄联邦武装力量最高统帅普京的决定，在庆祝卫国战争胜利日81周年之际，自5月8日零时起至10日前，在特别军事行动区内所有俄军部队停止作战行动。
+该技术结合了抗体-药物偶联物与靶向蛋白质降解技术，旨在利用降解剂的催化效率和特异性，以及抗体的精准递送能力，开发新型抗癌疗法。
 
-尽管已宣布停火，乌克兰武装部队仍继续使用无人机和火炮袭击俄军阵地以及别尔哥罗德州和库尔斯克州边境地区的民用目标。
+根据协议，双方将就两个未公开的肿瘤靶点开发DAC药物，并保留增加第三个靶点的选择权。
 
-通报称，俄方共记录到1630起乌方违反停火的事件。
+具体分工如下： C4 Therapeutics：利用其专有的TORPEDO平台设计具有payload特性的降解剂候选分子。
 
-俄军予以对等回应，对乌军多管火箭炮、火炮和迫击炮阵地实施回击，并打击了乌军无人机的控制和发射地点。
+罗氏：负责筛选和设计抗体，将抗体与降解剂payload进行偶联，并主导后续的临床前研究、临床开发及商业化推广。
 
-另据俄国防部最新消息，莫斯科时间7时至14时，俄军防空系统在包括莫斯科地区在内的俄境内击落了145架乌克兰无人机。
+财务条款 C4 Therapeutics将获得2000万美元的预付款。
 
-俄交通部当天在社交媒体上表示，因乌克兰无人机袭击了位于顿河畔罗斯托夫的航空交通管理中心大楼，俄南部13个机场暂停运行。
+若罗氏行使增加第三个靶点的选择权，C4T还将获得额外付款。
 
 ## 相关推荐
 
-- 2026-06-29 16:23 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 16:08 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 16:03 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 16:00 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 16:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 16:13 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 16:13 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 16:03 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 16:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 16:22 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 16:19 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 16:11 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 16:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 16:11 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 16:07 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 16:27 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 16:22 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 16:16 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 16:25 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 16:26 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 16:21 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 16:27 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 16:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 16:23 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 16:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 16:00 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 16:04 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 16:22 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 16:08 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/015323905459.shtml)
-- 2026-06-29 16:08 - [网警提醒4类高考查分陷阱考生速看](https://www.share.kurohicncr.top/Article/details/25908251.shtml)
-- 2026-06-29 16:00 - [T1 KC](http://www.share.kurohicncr.top/Article/details/468816726531.shtml)
-- 2026-06-29 16:00 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/241993356.shtml)
-- 2026-06-29 16:23 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/35450928.shtml)
-- 2026-06-29 16:19 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/59058.shtml)
-- 2026-06-29 16:09 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/57957748596.shtml)
-- 2026-06-29 16:01 - [第一炉香](https://www.blog.minike.top/Article/details/91888.shtml)
-- 2026-06-29 15:54 - [永远有话聊的原因](https://www.share.kurohicncr.top/Article/details/475520536.shtml)
-- 2026-06-29 16:01 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/83178673250.shtml)
-- 2026-06-29 16:14 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/31842287918.shtml)
-- 2026-06-29 16:09 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/317206161.shtml)
-- 2026-06-29 16:23 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/5577187927.shtml)
-- 2026-06-29 15:58 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/61046761.shtml)
-- 2026-06-29 16:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/59674386.shtml)
+- 2026-06-29 16:08 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/82988762.shtml)
+- 2026-06-29 16:11 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/6356078643.shtml)
+- 2026-06-29 16:19 - [人形机器人](http://www.share.minike.top/Article/details/8245134935.shtml)
+- 2026-06-29 16:04 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/6026722886.shtml)
+- 2026-06-29 16:15 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/2623723.shtml)
+- 2026-06-29 16:17 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/748342041882.shtml)
+- 2026-06-29 16:12 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/93055546630.shtml)
+- 2026-06-29 16:30 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/802472792.shtml)
+- 2026-06-29 16:20 - [第一炉香](http://www.blog.minike.top/Article/details/765829677475.shtml)
+- 2026-06-29 16:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/8487143.shtml)
+- 2026-06-29 16:07 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/88029.shtml)
+- 2026-06-29 16:04 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/315973.shtml)
+- 2026-06-29 16:19 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/5836771.shtml)
+- 2026-06-29 16:26 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/309185.shtml)
+- 2026-06-29 16:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/9507273.shtml)

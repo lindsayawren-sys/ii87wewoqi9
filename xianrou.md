@@ -1,56 +1,55 @@
-# 2026年“国际茶日”中国主场活动即将启幕 邀中外嘉宾共话发展
+# 美中航空遗产基金会主席：日本应为自己的战争罪行向中国道歉
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月9日电(记者 杨陈)茶香袅袅迎盛会。2026年国际茶日中国主场活动将于5月21日在南宁启幕，一场集文化展示、科技创新与国际合作于一体的茶界盛会即将呈现。 2019年，联合国宣布将每年5月21日设立为“国际茶日”。作为中国重要的产茶区之一，广西近年来加快构建以六堡茶、茉莉花茶、早春茶为代表的现代茶产业体系，产业发展态势良好。当前，广西茶园面积稳定在170万亩左右，年
+发布时间：2026年04月10日 11:33 来源：中国新闻网 如何看待日本一些历史教科书刻意淡化、否定、美化自身侵略历史，误导日本民众尤其是年轻一代的历史认知？美中航空遗产基金会主席杰夫·格林4月9日晚在接受中新社记者专访时表示，日本应该学习德国，深刻反思自身的战争罪责。“德国人知道有多少人因为他们的所作所为而死，并对此感到羞愧。”他以德国的战后反思为例，认为当前的日本政府应
 
 ## 正文
 
-中新网南宁5月9日电(记者 杨陈)茶香袅袅迎盛会。
+发布时间：2026年04月10日 11:33 来源：中国新闻网 如何看待日本一些历史教科书刻意淡化、否定、美化自身侵略历史，误导日本民众尤其是年轻一代的历史认知？
 
-2026年国际茶日中国主场活动将于5月21日在南宁启幕，一场集文化展示、科技创新与国际合作于一体的茶界盛会即将呈现。
+美中航空遗产基金会主席杰夫·格林4月9日晚在接受中新社记者专访时表示，日本应该学习德国，深刻反思自身的战争罪责。
 
-2019年，联合国宣布将每年5月21日设立为“国际茶日”。
+“德国人知道有多少人因为他们的所作所为而死，并对此感到羞愧。
 
-作为中国重要的产茶区之一，广西近年来加快构建以六堡茶、茉莉花茶、早春茶为代表的现代茶产业体系，产业发展态势良好。
+”他以德国的战后反思为例，认为当前的日本政府应该要有正视历史、承认罪责的正确态度，“他们需要向中国正式道歉。
 
-当前，广西茶园面积稳定在170万亩左右，年产量近14万吨，全产业链综合产值突破700亿元，连续7年位居全国前十。
+”格林说。
 
-据介绍，本次2026年国际茶日中国主场活动由广西壮族自治区人民政府主办，以“丝路茶香 共智共享”为主题，突出人工智能赋能茶产业高质量发展的时代主线，采取“主会场引领、分会场联动、线上线下融合”的方式开展。
+据介绍，成立于1998年的美中航空遗产基金会长期致力于在中美两国传播飞虎队故事，纪念两国人民在二战期间的友好合作，增进理解和友谊。
 
-主场活动将于5月21日在南宁举行，包括重要嘉宾致辞、启动仪式、成果展示、主题发言等内容。
-
-5月20日至22日，配套活动将在南宁、桂林、梧州同步展开，涵盖乡村工匠制茶技艺竞赛、“世界共饮一杯茶”丝路茶会、“国际茶日·茉莉跨界趣享会”、第十六届“桂林经典·恭城油茶”文化活动周等特色活动。
+(记者 迟瀚宇 刘梦青 制作 侯诗蕊） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 16:20 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 16:07 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 16:07 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 16:00 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 16:08 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 16:23 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 16:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 16:05 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 16:13 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 15:58 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 16:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 16:26 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 16:09 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 16:23 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 16:08 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 16:17 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 16:12 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 16:29 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 16:27 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 16:00 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 16:23 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.minike.top/Article/details/7480474314.shtml)
-- 2026-06-29 15:55 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/0231644899.shtml)
-- 2026-06-29 16:15 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/409840.shtml)
-- 2026-06-29 15:54 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.kurohicncr.top/Article/details/690414.shtml)
-- 2026-06-29 15:57 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/31041448.shtml)
-- 2026-06-29 16:21 - [起风了](http://www.share.kurohicncr.top/Article/details/793381523905.shtml)
-- 2026-06-29 16:05 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/375979.shtml)
-- 2026-06-29 15:58 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/32738.shtml)
-- 2026-06-29 16:11 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/042055200.shtml)
-- 2026-06-29 16:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/200655073.shtml)
-- 2026-06-29 16:05 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/38014.shtml)
-- 2026-06-29 16:15 - [中国战机大片上新](https://www.share.minike.top/Article/details/3735924668.shtml)
-- 2026-06-29 16:12 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/6991911.shtml)
-- 2026-06-29 16:06 - [斗破苍穹](https://www.share.minike.top/Article/details/964917864.shtml)
-- 2026-06-29 16:05 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/427188777225.shtml)
+- 2026-06-29 16:12 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/581809819461.shtml)
+- 2026-06-29 16:08 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/308647359568.shtml)
+- 2026-06-29 16:24 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/4687500.shtml)
+- 2026-06-29 16:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/42714440422.shtml)
+- 2026-06-29 16:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/13373743469.shtml)
+- 2026-06-29 16:21 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/72364189795.shtml)
+- 2026-06-29 16:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/121012110073.shtml)
+- 2026-06-29 16:21 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/67983854789.shtml)
+- 2026-06-29 16:17 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/83156.shtml)
+- 2026-06-29 16:10 - [勇敢的心第二部](https://www.share.minike.top/Article/details/3138197022.shtml)
+- 2026-06-29 16:25 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/593059545.shtml)
+- 2026-06-29 16:24 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/304425818284.shtml)
+- 2026-06-29 16:18 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/92828210.shtml)
+- 2026-06-29 16:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/6231223.shtml)
+- 2026-06-29 16:07 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/00236167.shtml)

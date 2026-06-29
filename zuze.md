@@ -1,59 +1,61 @@
-# 三花智控:目前上市公司暂无收购特斯拉、英伟达的想法
+# 金观平：投资于人不是“政绩秀”
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-5月6日消息，有投资者向三花智控提问，请问贵公司有没有收购特斯拉的想法？在人工智能时代有没有跟上浪潮收购英伟达这种高新技术公司的想法？对于这些国际先进科技公司有没有没披露的持股？ 公司回答表示，1）目前上市公司暂无收购特斯拉、英伟达的想法。2）据了解，上市公司没有相关公司的未披露持股。感谢您的关注！责任编辑：郭栩彤
+育儿补贴加力提效、城乡居民基础养老金标准继续提高、长护险从试点阶段迈向全面建制阶段、职称评审迎来重大调整……在当前的发展任务清单上，群众关心的领域就是政策发力的方向，成为“投资于人”的生动注脚。谈到投资，以前多见的是“投资于物”，修路架桥、盖楼建厂、更新设备，效果立竿见影，极大助力了我国经济快速发展。步入高质量发展阶段，随着人口结构变化、外部环境趋紧，物质资本投入的边际效益递减
 
 ## 正文
 
-5月6日消息，有投资者向三花智控提问，请问贵公司有没有收购特斯拉的想法？
+育儿补贴加力提效、城乡居民基础养老金标准继续提高、长护险从试点阶段迈向全面建制阶段、职称评审迎来重大调整……在当前的发展任务清单上，群众关心的领域就是政策发力的方向，成为“投资于人”的生动注脚。
 
-在人工智能时代有没有跟上浪潮收购英伟达这种高新技术公司的想法？
+谈到投资，以前多见的是“投资于物”，修路架桥、盖楼建厂、更新设备，效果立竿见影，极大助力了我国经济快速发展。
 
-对于这些国际先进科技公司有没有没披露的持股？
+步入高质量发展阶段，随着人口结构变化、外部环境趋紧，物质资本投入的边际效益递减，发展动能更多依赖于创新驱动、效率提升和产业竞争。
 
-公司回答表示，1）目前上市公司暂无收购特斯拉、英伟达的想法。
+这一切的核心支撑在于“人”。
 
-2）据了解，上市公司没有相关公司的未披露持股。
+“十四五”以来，我国民生领域支出持续增长，正是为了将人力资源转化为可持续增值的人力资本，将人口红利转化为人才红利。
 
-感谢您的关注！
+从偏向于“投资于物”，转向“投资于物”和“投资于人”紧密结合，不是账本科目的微调，而是发展动能与发展逻辑的重构。
 
-责任编辑：郭栩彤
+其核心在于全生命周期的人力资本培育——从教育筑基、医疗护航到养老托底，无论哪一项都是慢变量，都需要系统性投入。
+
+这绝非简单的民生保障，而是关乎国家竞争力、社会凝聚力与发展可持续性的战略抉择。
 
 ## 相关推荐
 
-- 2026-06-29 16:23 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 16:02 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 16:01 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 15:55 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 16:15 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 16:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 16:02 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 15:57 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 15:57 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 16:09 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 16:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 16:19 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 16:06 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 16:12 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 15:57 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 16:00 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 16:29 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 16:21 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 16:10 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 16:12 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 16:17 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 16:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 16:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 16:00 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 16:13 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 16:14 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 16:06 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 16:28 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 16:12 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 16:10 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:13 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/28697944.shtml)
-- 2026-06-29 16:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/67695132.shtml)
-- 2026-06-29 16:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/56518576211.shtml)
-- 2026-06-29 16:12 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/26730.shtml)
-- 2026-06-29 15:54 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/9357153.shtml)
-- 2026-06-29 16:18 - [博主：全球股市进入“AI极端共振”](https://www.share.kurohicncr.top/Article/details/69106617335.shtml)
-- 2026-06-29 16:15 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/624945.shtml)
-- 2026-06-29 15:59 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/90238.shtml)
-- 2026-06-29 15:57 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/59180298.shtml)
-- 2026-06-29 16:03 - [众星恭喜吴建豪](http://www.blog.minike.top/Article/details/804101881287.shtml)
-- 2026-06-29 16:19 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/626691371979.shtml)
-- 2026-06-29 16:21 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/1552003.shtml)
-- 2026-06-29 16:01 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/80748165920.shtml)
-- 2026-06-29 16:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/00592166483.shtml)
-- 2026-06-29 16:08 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/334305208774.shtml)
+- 2026-06-29 16:15 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/7970826678.shtml)
+- 2026-06-29 16:24 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/17051031998.shtml)
+- 2026-06-29 16:00 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/143165988.shtml)
+- 2026-06-29 16:00 - [勇敢的心第二部](https://www.share.minike.top/Article/details/26199429.shtml)
+- 2026-06-29 16:19 - [爱很美味](https://www.blog.minike.top/Article/details/22075598.shtml)
+- 2026-06-29 16:29 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/20475.shtml)
+- 2026-06-29 16:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/1585867.shtml)
+- 2026-06-29 16:28 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/81223314.shtml)
+- 2026-06-29 16:11 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/959867556.shtml)
+- 2026-06-29 16:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/403772.shtml)
+- 2026-06-29 16:25 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/82429568.shtml)
+- 2026-06-29 16:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/1804137.shtml)
+- 2026-06-29 16:18 - [请回答王牌2019](http://www.share.minike.top/Article/details/164196471118.shtml)
+- 2026-06-29 16:06 - [当我回母校教书](https://www.blog.minike.top/Article/details/957137166448.shtml)
+- 2026-06-29 16:04 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/79557650.shtml)

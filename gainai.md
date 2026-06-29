@@ -1,58 +1,56 @@
-# 一个昔日国家级贫困县的脱贫经验为何赢得多国官员点赞？
+# 第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新社石家庄5月9日电 (记者 郭超凯)“此次我们亲眼看到，今日的行唐在推动高质量发展过程中，既展现现代化建设成果，也保留和融入当地文化特色。”老挝外交部党委委员、监察司司长西苏潘·乔班达翁8日在参观完河北省石家庄市行唐县后，由衷为这里的脱贫经验点赞。“人民至上——政党的使命和担当”中外政党专题对话8日在行唐县举行，来自20多个国家的政党、议会、政府代表等约180人与会。与会人
+中新网上海4月12日电 (记者 缪璐)2026年第八届上海合作组织(以下简称“上合组织”)国家国际象棋团体赛11日在上海青浦正式收官。由世界冠军丁立人、世界棋后居文君、世界团体冠军成员余泱漪领衔的中国一队，在决赛中力克卫冕冠军俄罗斯队，夺得本届赛事冠军。 本届比赛共有来自12个国家的13支队伍参赛，俄罗斯、哈萨克斯坦、吉尔吉斯斯坦等国的顶尖棋手悉数登场，东道主中国则派出两支高水
 
 ## 正文
 
-中新社石家庄5月9日电 (记者 郭超凯)“此次我们亲眼看到，今日的行唐在推动高质量发展过程中，既展现现代化建设成果，也保留和融入当地文化特色。
+中新网上海4月12日电 (记者 缪璐)2026年第八届上海合作组织(以下简称“上合组织”)国家国际象棋团体赛11日在上海青浦正式收官。
 
-”老挝外交部党委委员、监察司司长西苏潘·乔班达翁8日在参观完河北省石家庄市行唐县后，由衷为这里的脱贫经验点赞。
+由世界冠军丁立人、世界棋后居文君、世界团体冠军成员余泱漪领衔的中国一队，在决赛中力克卫冕冠军俄罗斯队，夺得本届赛事冠军。
 
-“人民至上——政党的使命和担当”中外政党专题对话8日在行唐县举行，来自20多个国家的政党、议会、政府代表等约180人与会。
+本届比赛共有来自12个国家的13支队伍参赛，俄罗斯、哈萨克斯坦、吉尔吉斯斯坦等国的顶尖棋手悉数登场，东道主中国则派出两支高水平队伍应战。
 
-与会人士在会前参观多家行唐企业，实地了解当地脱贫经验。
+其中，中国一队由世界冠军丁立人、世界棋后居文君、奥赛冠军余泱漪组成。
 
-一个曾经的国家级贫困县，为何能赢得多国官员点赞？
+本次比赛采用快棋形式，时限为每方15分钟，每步棋加10秒。
 
-答案藏在行唐这些年的蜕变之中。
+此前的半决赛中，中国一队和俄罗斯队分别战胜白俄罗斯队与蒙古国队，会师冠亚军决赛。
 
-行唐县素有“五山二坡三分田”之称，2011年贫困发生率达24.5%。
+当天的决赛中，中国一队与上届冠军俄罗斯队杀得难解难分，最终中国一队凭借突然死亡加赛惊险胜出，获得冠军，俄罗斯队获得亚军。
 
-行唐县于2019年正式脱贫摘帽，2020年实现贫困村和贫困人口“双清零”目标。
+三四名决赛中，蒙古国队战胜白俄罗斯队，获得季军，白俄罗斯队位列第四。
 
 ## 相关推荐
 
-- 2026-06-29 16:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 16:09 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 16:07 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 15:54 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 16:20 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 16:07 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 15:57 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 16:19 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 16:10 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 16:05 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 16:00 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 16:22 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 16:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 16:03 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 16:12 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 16:28 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 16:01 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 16:09 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 16:28 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 16:19 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 16:10 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 16:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [毒液2](https://www.share.minike.top/Article/details/120984.shtml)
-- 2026-06-29 16:14 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/654876469.shtml)
-- 2026-06-29 16:13 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/40636447.shtml)
-- 2026-06-29 16:10 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/0812185934.shtml)
-- 2026-06-29 16:12 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/77307655.shtml)
-- 2026-06-29 16:08 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/18045.shtml)
-- 2026-06-29 15:56 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/63973.shtml)
-- 2026-06-29 15:59 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/79892820675.shtml)
-- 2026-06-29 16:18 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/980028311788.shtml)
-- 2026-06-29 16:11 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/8267846042.shtml)
-- 2026-06-29 16:07 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/329690327456.shtml)
-- 2026-06-29 16:22 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/37120085343.shtml)
-- 2026-06-29 16:21 - [女心理师](https://www.blog.kurohicncr.top/Article/details/450314.shtml)
-- 2026-06-29 16:16 - [挪威王储妃长子2次强奸被判4年](http://www.blog.minike.top/Article/details/15023.shtml)
-- 2026-06-29 16:20 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/17373.shtml)
+- 2026-06-29 16:06 - [中国战机大片上新](https://www.blog.minike.top/Article/details/981719004398.shtml)
+- 2026-06-29 16:05 - [哈兰德之歌火到国外](https://www.blog.minike.top/Article/details/14050972167.shtml)
+- 2026-06-29 16:15 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/32395712.shtml)
+- 2026-06-29 16:28 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/973789894790.shtml)
+- 2026-06-29 16:13 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/81770.shtml)
+- 2026-06-29 16:00 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/397527308459.shtml)
+- 2026-06-29 16:03 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/11518119.shtml)
+- 2026-06-29 16:14 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/1963295938.shtml)
+- 2026-06-29 16:05 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/0250703632.shtml)
+- 2026-06-29 16:24 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/233981474.shtml)
+- 2026-06-29 16:05 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/19756370411.shtml)
+- 2026-06-29 16:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/28386.shtml)
+- 2026-06-29 16:00 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/962207407.shtml)
+- 2026-06-29 16:27 - [波兰创该国高温纪录](https://www.share.kurohicncr.top/Article/details/93630785455.shtml)
+- 2026-06-29 16:20 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/0754034.shtml)

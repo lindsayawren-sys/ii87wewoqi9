@@ -1,53 +1,60 @@
-# 花旗：农夫山泉目标价升至59.20港元 给予“买入”评级
+# 光大期货：4月10日农产品日报
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，根据对今年首季行业营运的实地调研结果更新农夫山泉（09633）的预测模型，继续预期公司今年的茶饮销售将跑赢其他类别，预计包装水、茶饮、功能饮料及果汁销售分别同比增长9%、22%、15%及15%。该行给予农夫山泉“买入”评级，目标价由58.5港元上调至59.2港元。 该行预期，集团整体销售同比增长16%所带来的正面营运杠杆，预计今年纯利同比增长13%，对2026及
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周四，CBOT大豆小幅收高，受到豆粕和豆油价格走强以及玉米和小麦之间的跨市场价差支撑。美豆粕和美豆油均上涨。市场人士预期美豆出口需求将改善。美国农业部出口销售报告显示，截至4月2日，美豆单周净销售增加29.54万吨，较之前减少16%，较四周均值34%，处于市场预期下限。USDA 4月供需报告将
 
 ## 正文
 
-花旗发布研报称，根据对今年首季行业营运的实地调研结果更新农夫山泉（09633）的预测模型，继续预期公司今年的茶饮销售将跑赢其他类别，预计包装水、茶饮、功能饮料及果汁销售分别同比增长9%、22%、15%及15%。
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周四，CBOT大豆小幅收高，受到豆粕和豆油价格走强以及玉米和小麦之间的跨市场价差支撑。
 
-该行给予农夫山泉“买入”评级，目标价由58.5港元上调至59.2港元。
+美豆粕和美豆油均上涨。
 
-该行预期，集团整体销售同比增长16%所带来的正面营运杠杆，预计今年纯利同比增长13%，对2026及2027财年的纯利预测大致维持不变。
+市场人士预期美豆出口需求将改善。
 
-责任编辑：卢昱君
+美国农业部出口销售报告显示，截至4月2日，美豆单周净销售增加29.54万吨，较之前减少16%，较四周均值34%，处于市场预期下限。
+
+USDA 4月供需报告将美豆出口下调至15.4亿蒲，较上月减少3500万蒲式耳，同时将美豆压榨量上调相同数量至26.1亿蒲。
+
+同时美国农业部维持对巴西和阿根廷大豆产量预估。
+
+布宜诺斯艾利斯谷物交易所表示，阿根廷近期的降雨有助于改善该国晚播大豆的生长状况。
+
+国内方面，蛋白粕止跌，价格跟随进口成本上涨。
 
 ## 相关推荐
 
-- 2026-06-29 16:20 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 16:16 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 16:12 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 16:02 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 15:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 16:15 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 16:12 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 16:21 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 16:21 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 15:55 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 16:08 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 16:08 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 15:59 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 16:04 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 16:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 16:15 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 16:25 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 16:04 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 16:23 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 16:10 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 16:04 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 16:06 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 16:24 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 16:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 16:04 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 16:23 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 16:11 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 16:27 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 16:07 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:05 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/1949238638.shtml)
-- 2026-06-29 16:14 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/577102754.shtml)
-- 2026-06-29 16:23 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/3152087.shtml)
-- 2026-06-29 15:57 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/0580059.shtml)
-- 2026-06-29 16:20 - [梅朗雄主张法国退出北约](https://www.blog.minike.top/Article/details/170655721624.shtml)
-- 2026-06-29 16:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/20696890209.shtml)
-- 2026-06-29 16:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/20873584244.shtml)
-- 2026-06-29 16:09 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/344637.shtml)
-- 2026-06-29 16:15 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/8930987387.shtml)
-- 2026-06-29 16:01 - [金刚川](https://www.blog.kurohicncr.top/Article/details/625945.shtml)
-- 2026-06-29 15:57 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/521566193761.shtml)
-- 2026-06-29 16:12 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/06441790.shtml)
-- 2026-06-29 16:15 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/957744.shtml)
-- 2026-06-29 16:19 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/709779955.shtml)
-- 2026-06-29 16:15 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/216954219554.shtml)
+- 2026-06-29 16:20 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/483538760.shtml)
+- 2026-06-29 16:07 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/02154964.shtml)
+- 2026-06-29 16:17 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/93263463.shtml)
+- 2026-06-29 16:15 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/572566257045.shtml)
+- 2026-06-29 16:08 - [小鹏MONAL03预售定档7月2日](https://www.blog.kurohicncr.top/Article/details/754041288.shtml)
+- 2026-06-29 16:15 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/72368.shtml)
+- 2026-06-29 16:23 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/230133.shtml)
+- 2026-06-29 16:01 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/28668448.shtml)
+- 2026-06-29 16:09 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/10856.shtml)
+- 2026-06-29 16:20 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/73617981.shtml)
+- 2026-06-29 16:16 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/592221.shtml)
+- 2026-06-29 16:08 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/186974202.shtml)
+- 2026-06-29 16:25 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/097359.shtml)
+- 2026-06-29 16:17 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/787355421.shtml)
+- 2026-06-29 16:07 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/263633.shtml)

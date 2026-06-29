@@ -1,57 +1,58 @@
-# 剧集年报｜欢瑞世纪信披违规再遭立案 隐瞒财政部行政处罚长达5个月 会计差错更正后2022年由盈转亏
+# 地缘冲突加速能源转型步伐
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 作者：渚 根据云合数据统计，2025年的长剧市场仍处于深度调整期，用户注意力分散与头部剧集流量收缩令行业整体承压。2025年1-11月国产剧拍摄备案公示剧目总量为956部，同比减少60部；总集数则降至2.4万集，同比减少19%；部均25集，较2024年缩减4集/部。全年共上新长剧624部，同比减少3
+当地时间4月9日至10日，维也纳国际能源与气候论坛在奥地利维也纳举行。来自各国政府、国际组织、行业企业、金融机构等各方的代表呼吁加快能源转型、推动绿色工业化、增强气候韧性并促进共同繁荣。总台记者在会议现场观察到，在全球不确定性加剧、能源危机持续的背景下，能源安全问题成为许多国家关注的焦点，地缘冲突或许正在加速能源转型步伐。 维也纳国际能源与气候论坛现场 近期中东战事引发的能源危
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 作者：渚 根据云合数据统计，2025年的长剧市场仍处于深度调整期，用户注意力分散与头部剧集流量收缩令行业整体承压。
+当地时间4月9日至10日，维也纳国际能源与气候论坛在奥地利维也纳举行。
 
-2025年1-11月国产剧拍摄备案公示剧目总量为956部，同比减少60部；总集数则降至2.4万集，同比减少19%；部均25集，较2024年缩减4集/部。
+来自各国政府、国际组织、行业企业、金融机构等各方的代表呼吁加快能源转型、推动绿色工业化、增强气候韧性并促进共同繁荣。
 
-全年共上新长剧624部，同比减少31部；上新长剧霸屏榜TOP20正片有效播放296亿，同比缩减20%。
+总台记者在会议现场观察到，在全球不确定性加剧、能源危机持续的背景下，能源安全问题成为许多国家关注的焦点，地缘冲突或许正在加速能源转型步伐。
 
-反观短剧市场，2025年重点网络微短剧规划备案3182部（横屏+竖屏），同比增长20%；获得发行许可网络微短剧691部（横屏+竖屏），同比增长15%。
+维也纳国际能源与气候论坛现场 近期中东战事引发的能源危机扰乱全球能源供应，给许多国家，特别是发展中国家带来严峻挑战。
 
-视频平台上新短剧527部（横屏，单集时长3-20分钟），同比增长31%。
+在本次论坛上，“能源安全”成为高频词。
 
-集数时长≥16分钟、总时长≥360分钟的部数占比均增加一成。
+不少与会代表表示，在不确定性上升的背景下，“安全优先”正重新回到各国能源政策的核心位置。
 
-2025上新短剧公开累计分账票房5.74亿（截至2026.1.21，共100部公开），同比增长42%。
+联合国工业发展组织总干事穆勒在开幕式上表示，地缘政治动荡导致能源、食品等价格上涨，对发展中国家冲击最大，但这些国家也有潜力成为清洁能源出口国。
 
-《朱雀堂》以4500万刷新行业票房纪录，但仍有8成短剧票房未过百万，行业马太效应加剧。
+奥地利外长迈因尔-赖辛格在致辞中表示，能源关乎国家安全，必须加速向可持续、安全且可负担的能源过渡。
 
 ## 相关推荐
 
-- 2026-06-29 16:23 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 16:04 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 16:10 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 16:18 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 16:08 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 16:00 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 16:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 16:10 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 16:07 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 16:04 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 16:05 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 16:11 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 16:25 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 16:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 16:14 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 16:22 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 16:13 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 16:11 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 16:05 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 16:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 16:14 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 16:21 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 16:17 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/6829013920.shtml)
-- 2026-06-29 16:15 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/9800253845.shtml)
-- 2026-06-29 16:08 - [84岁英国教授成中国网红](http://www.share.minike.top/Article/details/48487.shtml)
-- 2026-06-29 16:07 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/2710394770.shtml)
-- 2026-06-29 15:54 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/546521349789.shtml)
-- 2026-06-29 16:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/0643593825.shtml)
-- 2026-06-29 16:11 - [抓特务票房破亿](http://www.blog.minike.top/Article/details/697262110975.shtml)
-- 2026-06-29 16:20 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/77283773.shtml)
-- 2026-06-29 16:15 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/314906554977.shtml)
-- 2026-06-29 15:56 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/1482692001.shtml)
-- 2026-06-29 16:17 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/28459205407.shtml)
-- 2026-06-29 16:05 - [女心理师](https://www.share.minike.top/Article/details/989656779031.shtml)
-- 2026-06-29 16:06 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/74744430253.shtml)
-- 2026-06-29 16:15 - [崔韩率还以为韩娱来新人了](http://www.blog.minike.top/Article/details/63791514947.shtml)
-- 2026-06-29 15:56 - [速度与激情9](https://www.share.minike.top/Article/details/970226.shtml)
+- 2026-06-29 16:28 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/399753.shtml)
+- 2026-06-29 16:29 - [女心理师](https://www.blog.minike.top/Article/details/1944505.shtml)
+- 2026-06-29 16:27 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/649954371.shtml)
+- 2026-06-29 16:04 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/118960452.shtml)
+- 2026-06-29 16:07 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/674130.shtml)
+- 2026-06-29 16:15 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/3014018255.shtml)
+- 2026-06-29 16:07 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/3295065.shtml)
+- 2026-06-29 16:24 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/370508696.shtml)
+- 2026-06-29 16:04 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/288337091500.shtml)
+- 2026-06-29 16:24 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/0556440069.shtml)
+- 2026-06-29 16:24 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/004309.shtml)
+- 2026-06-29 16:26 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/721783437.shtml)
+- 2026-06-29 16:03 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/5421101.shtml)
+- 2026-06-29 16:03 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/564327626564.shtml)
+- 2026-06-29 16:06 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/967674854.shtml)

@@ -1,49 +1,47 @@
-# 浙江证监局：对杭州观奕私募基金管理有限公司采取出具警示函措施
+# 美国载人绕月飞船返回舱即将进入大气层
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 5月9日，浙江证监局网站发布关于对杭州观奕私募基金管理有限公司采取出具警示函措施的决定。经查，该公司在开展私募基金业务中存在以下行为：管理的部分基金由非公司员工参与资金募集及投资管理；管理的部分基金投资者适当性材料存在瑕疵；管理的部分基金未按照合伙协议约定履行信息披露义务、未按照合伙协议约定召开合伙人会议。 根据相关规定，浙江证
+新华社快讯：执行美国“阿耳忒弥斯2号”载人绕月飞行任务的“猎户座”飞船于美东时间10日晚成功完成服务舱与返回舱分离，返回舱即将进入大气层。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 5月9日，浙江证监局网站发布关于对杭州观奕私募基金管理有限公司采取出具警示函措施的决定。
-
-经查，该公司在开展私募基金业务中存在以下行为：管理的部分基金由非公司员工参与资金募集及投资管理；管理的部分基金投资者适当性材料存在瑕疵；管理的部分基金未按照合伙协议约定履行信息披露义务、未按照合伙协议约定召开合伙人会议。
-
-根据相关规定，浙江证监局决定对该公司采取出具警示函的监督管理措施，并记入证券期货市场诚信档案。
-
-责任编辑：石秀珍 SF183
+新华社快讯：执行美国“阿耳忒弥斯2号”载人绕月飞行任务的“猎户座”飞船于美东时间10日晚成功完成服务舱与返回舱分离，返回舱即将进入大气层。
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 15:55 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 15:55 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 16:12 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 15:57 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 16:19 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 16:18 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 16:17 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 16:06 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 16:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 16:13 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 16:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 16:19 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 16:14 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 16:06 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 16:26 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 16:04 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 16:07 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 16:22 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 16:13 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 16:07 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 16:20 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 16:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 16:18 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 16:01 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 16:04 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/445994036.shtml)
-- 2026-06-29 16:02 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/0561315202.shtml)
-- 2026-06-29 16:19 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/934055.shtml)
-- 2026-06-29 15:58 - [行程万里不忘初心](https://www.share.minike.top/Article/details/7715538333.shtml)
-- 2026-06-29 16:13 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/244237731.shtml)
-- 2026-06-29 16:23 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/794768645.shtml)
-- 2026-06-29 15:58 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.minike.top/Article/details/25709.shtml)
-- 2026-06-29 16:01 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/24398122466.shtml)
-- 2026-06-29 15:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/81494.shtml)
-- 2026-06-29 16:04 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/99824256020.shtml)
-- 2026-06-29 16:02 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/083385.shtml)
-- 2026-06-29 16:04 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/532507810926.shtml)
-- 2026-06-29 15:59 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/0188854749.shtml)
-- 2026-06-29 16:19 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/34685.shtml)
-- 2026-06-29 15:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/1357750.shtml)
+- 2026-06-29 16:10 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/78049185.shtml)
+- 2026-06-29 16:14 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/03848763783.shtml)
+- 2026-06-29 16:07 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/84029325458.shtml)
+- 2026-06-29 16:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/2394254377.shtml)
+- 2026-06-29 16:27 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/225990.shtml)
+- 2026-06-29 16:23 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/723836353562.shtml)
+- 2026-06-29 16:29 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/870406847369.shtml)
+- 2026-06-29 16:27 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/461256963.shtml)
+- 2026-06-29 16:00 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/4877945.shtml)
+- 2026-06-29 16:23 - [吴建豪老婆](http://www.share.minike.top/Article/details/45671.shtml)
+- 2026-06-29 16:02 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/7125565208.shtml)
+- 2026-06-29 16:26 - [新一代影后杨紫](https://www.share.minike.top/Article/details/2779374758.shtml)
+- 2026-06-29 16:13 - [急先锋](http://www.share.kurohicncr.top/Article/details/40976.shtml)
+- 2026-06-29 16:03 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/99972282760.shtml)
+- 2026-06-29 16:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/165890037.shtml)

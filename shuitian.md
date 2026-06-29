@@ -1,52 +1,57 @@
-# 美军方：美驱逐舰遭袭后对伊朗军事设施实施打击
+# 安克创新年营收首破300亿，存货压身致现金流骤降82.49%
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网5月8日电 美国中央司令部7日发布声明表示，美国海军多艘导弹驱逐舰当天在穿越霍尔木兹海峡驶向阿曼湾之际，拦截了伊朗发起的“无端袭击”，并随即采取“自卫反击”行动。 声明称，当“特拉克斯顿”号、“拉斐尔·佩拉尔塔”号和“梅森”号三艘军舰穿越这一国际海上通道时，伊朗军队发射了多枚导弹，出动了无人机及小型船只进行攻击。美方所有军事资产均未被击中。 声明表示，美国中央司令部消除了
+界面新闻记者 | 宋佳楠 规模与现金流的背离，正在成为消费电子出海龙头最现实的考验。 4月9日晚，安克创新发布2025年全年财报，其营收首次突破300亿元大关，达到305.14亿元，同比增长23.49%；归母净利润25.45亿元，同比增长20.37%，营收与利润双双创下历史新高。但公司经营活动产生的现金流量净额仅4.81亿元，较上年同期的27.45亿元大幅下滑82.49%。 从
 
 ## 正文
 
-中新网5月8日电 美国中央司令部7日发布声明表示，美国海军多艘导弹驱逐舰当天在穿越霍尔木兹海峡驶向阿曼湾之际，拦截了伊朗发起的“无端袭击”，并随即采取“自卫反击”行动。
+界面新闻记者 | 宋佳楠 规模与现金流的背离，正在成为消费电子出海龙头最现实的考验。
 
-声明称，当“特拉克斯顿”号、“拉斐尔·佩拉尔塔”号和“梅森”号三艘军舰穿越这一国际海上通道时，伊朗军队发射了多枚导弹，出动了无人机及小型船只进行攻击。
+4月9日晚，安克创新发布2025年全年财报，其营收首次突破300亿元大关，达到305.14亿元，同比增长23.49%；归母净利润25.45亿元，同比增长20.37%，营收与利润双双创下历史新高。
 
-美方所有军事资产均未被击中。
+但公司经营活动产生的现金流量净额仅4.81亿元，较上年同期的27.45亿元大幅下滑82.49%。
 
-声明表示，美国中央司令部消除了来袭威胁，并对负责袭击美军的伊朗军事设施实施了打击，其中包括导弹与无人机发射阵地、指挥控制中心，以及情报、监视与侦察枢纽。
+从财报来看，安克创新现金流骤减的核心原因在于存货规模激增与备货策略调整。
 
-声明称，美国中央司令部无意寻求局势升级，但已做好部署，随时准备保卫美军人员及装备。
+为应对海外旺季需求、关税政策变化与供应链波动，该公司加大备货力度，年末存货达49.97亿元，较年初32.34亿元增长54.53%，大量资金沉淀在库存环节。
+
+叠加应收账款18.73亿元，较年初增长13.20%，以及产品召回、物流与薪酬支出增加，共同导致经营性现金流大幅承压。
+
+这种“增收增利不增现金流”的状态，短期内将加剧资金周转压力，提升财务成本，若库存周转效率未能及时改善，可能影响后续研发投入与扩张节奏，给财务稳健性带来一定挑战。
+
+具体到各项业务来看，充电储能类产品仍是安克创新的基本盘，全年实现收入154.02亿元，同比增长21.59%，占总营收比重达50.47%。
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 15:55 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 15:54 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 15:57 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 16:20 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 16:19 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 16:16 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 16:04 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 16:04 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 16:16 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 15:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 16:21 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 16:04 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 16:28 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 16:15 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 16:16 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 16:07 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 16:18 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 16:00 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 16:11 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 16:26 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 16:21 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 16:29 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/3769672.shtml)
-- 2026-06-29 15:58 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/6058990.shtml)
-- 2026-06-29 16:17 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/0665024.shtml)
-- 2026-06-29 15:54 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/72653749461.shtml)
-- 2026-06-29 15:57 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/158262.shtml)
-- 2026-06-29 16:22 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/54906978.shtml)
-- 2026-06-29 16:03 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/5137024.shtml)
-- 2026-06-29 16:03 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/342047299256.shtml)
-- 2026-06-29 16:10 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/183134860109.shtml)
-- 2026-06-29 16:16 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/89712945583.shtml)
-- 2026-06-29 16:15 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/897136095.shtml)
-- 2026-06-29 15:54 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/230844577.shtml)
-- 2026-06-29 16:01 - [12所大学更正招生目录](http://www.share.minike.top/Article/details/90868551976.shtml)
-- 2026-06-29 15:56 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/19781.shtml)
-- 2026-06-29 16:18 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/522068502.shtml)
+- 2026-06-29 16:11 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/083174.shtml)
+- 2026-06-29 16:04 - [T1 KC](http://www.share.kurohicncr.top/Article/details/82832.shtml)
+- 2026-06-29 16:27 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.minike.top/Article/details/364540982.shtml)
+- 2026-06-29 16:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/59050429583.shtml)
+- 2026-06-29 16:09 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/546006007.shtml)
+- 2026-06-29 16:20 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/83038785648.shtml)
+- 2026-06-29 16:10 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/385637063.shtml)
+- 2026-06-29 16:15 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/31342336.shtml)
+- 2026-06-29 16:09 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/8638969.shtml)
+- 2026-06-29 16:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/82421586284.shtml)
+- 2026-06-29 16:29 - [智界V9成为高端圈层共同选择](http://www.blog.minike.top/Article/details/072152.shtml)
+- 2026-06-29 16:05 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/25445.shtml)
+- 2026-06-29 16:17 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/42956280716.shtml)
+- 2026-06-29 16:16 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/460669552.shtml)
+- 2026-06-29 16:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/961151042352.shtml)

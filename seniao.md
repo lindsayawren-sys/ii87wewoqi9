@@ -1,47 +1,56 @@
-# 大美边疆看我家丨云南弥渡：初夏如约 紫韵满城
+# 下周影响市场重要资讯前瞻：国家统计局将公布一系列重磅数据，人形机器人半程马拉松即将开跑
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 14:55 来源：中国新闻网 近日，五月的云南弥渡，蓝花楹如约而至，以漫天的温柔与梦幻，晕染出一场绚烂的花事。一路繁花相送，满目皆是浪漫的诗行。(来源：弥渡县融媒体中心 作者：鞠强 王玺涵） 责任编辑：【魏聪聪】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！国家统计局将公布一系列重磅数据；广交会、消博会等活动下周举办，人形机器人半程马拉松即将开跑；近700亿元市值限售股将解禁，光通信测试仪器龙头企业上市。 【重磅新闻】 国家统计局公布一系列重磅数据 4月16日，国家统计局将发布一季度国民经济运行数据。包括商品住宅销售价格指数月度报告、国民经济运行情况、规模以上
 
 ## 正文
 
-发布时间：2026年05月08日 14:55 来源：中国新闻网 近日，五月的云南弥渡，蓝花楹如约而至，以漫天的温柔与梦幻，晕染出一场绚烂的花事。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-一路繁花相送，满目皆是浪漫的诗行。
+国家统计局将公布一系列重磅数据；广交会、消博会等活动下周举办，人形机器人半程马拉松即将开跑；近700亿元市值限售股将解禁，光通信测试仪器龙头企业上市。
 
-(来源：弥渡县融媒体中心 作者：鞠强 王玺涵） 责任编辑：【魏聪聪】
+【重磅新闻】 国家统计局公布一系列重磅数据 4月16日，国家统计局将发布一季度国民经济运行数据。
+
+包括商品住宅销售价格指数月度报告、国民经济运行情况、规模以上工业生产月度报告、固定资产投资（不含农户）月度报告、房地产开发和销售情况月度报告、社会消费品零售总额月度报告、能源生产情况月度报告、全国居民收支情况季度报告、全国工业产能利用率季度报告。
+
+百度智能云AI算力产品涨价 百度智能云将从4月18日零点起涨价，其中AI算力相关产品服务上调约5%-30%；并行文件存储等上调约30%。
+
+【重磅会议】 IMF/世界银行春季会议 IMF和世界银行将在华盛顿于4月13日-18日召开春季会议，发布《世界经济展望》报告，讨论全球经济复苏、债务可持续性、数字货币监管等议题。
+
+第六届中国国际消费品博览会 第六届消博会将于4月13日至18日在海南举行。
+
+据介绍，本届消博会展览面积达14.3万平方米，较上届增加了1.3万平方米，届时，将有来自60多个国家和地区的超过3400个品牌参展，国际展品占比达65%。
 
 ## 相关推荐
 
-- 2026-06-29 16:16 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 15:57 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 16:16 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 16:10 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 16:14 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 16:17 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 15:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 16:08 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 15:58 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 15:54 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 15:58 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 16:01 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 16:14 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 16:28 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 16:00 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 16:27 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 16:27 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 16:06 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 16:05 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 16:02 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 16:03 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/8467471708.shtml)
-- 2026-06-29 16:11 - [东方风云榜](https://www.share.minike.top/Article/details/921766.shtml)
-- 2026-06-29 16:18 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/702279557111.shtml)
-- 2026-06-29 16:16 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/537534044.shtml)
-- 2026-06-29 15:57 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/88504108.shtml)
-- 2026-06-29 16:23 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/97913859.shtml)
-- 2026-06-29 16:06 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/61321438.shtml)
-- 2026-06-29 16:23 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/776579574.shtml)
-- 2026-06-29 15:59 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/0964673.shtml)
-- 2026-06-29 16:20 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/830309.shtml)
-- 2026-06-29 16:10 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/5421801.shtml)
-- 2026-06-29 16:01 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/15347.shtml)
-- 2026-06-29 15:54 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/8856689.shtml)
-- 2026-06-29 16:05 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/99408944.shtml)
-- 2026-06-29 16:13 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/4973567087.shtml)
+- 2026-06-29 16:27 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/2784556.shtml)
+- 2026-06-29 16:17 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/974441312864.shtml)
+- 2026-06-29 16:19 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/03940.shtml)
+- 2026-06-29 16:22 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/2608316.shtml)
+- 2026-06-29 16:13 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/50630641499.shtml)
+- 2026-06-29 16:07 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/5377637913.shtml)
+- 2026-06-29 16:19 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/33263965253.shtml)
+- 2026-06-29 16:26 - [东方风云榜](http://www.blog.minike.top/Article/details/136310877.shtml)
+- 2026-06-29 16:27 - [女心理师](http://www.blog.kurohicncr.top/Article/details/26371315.shtml)
+- 2026-06-29 16:01 - [中国战机大片上新](https://www.blog.minike.top/Article/details/27302807.shtml)
+- 2026-06-29 16:11 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/849304765422.shtml)
+- 2026-06-29 16:24 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/948699.shtml)
+- 2026-06-29 16:29 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/0435996.shtml)
+- 2026-06-29 16:16 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/10790158739.shtml)
+- 2026-06-29 16:28 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.kurohicncr.top/Article/details/5329896.shtml)

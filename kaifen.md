@@ -1,56 +1,59 @@
-# 中国银行协助伊斯兰开发银行发行10亿美元伊斯兰债券
+# 苹果折叠屏手机试产进展顺利，今年有望带动全球折叠屏手机销量达2800万台
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-来源：中国银行 5月7日，中国银行作为联席主承销商和联席簿记管理人，成功协助伊斯兰开发银行（Islamic Development Bank，以下简称“IsDB”）发行2026年首笔10亿美元伊斯兰债券。该笔债券发行期限5年，票面利率4.227%。 伊斯兰债券（Sukuk）是符合国际伊斯兰金融合规要求的特色融资工具，广泛应用于多边开发机构中长期低成本融资。此次发行在全球市场获得
+4月9日，澎湃新闻记者从产业链求证获悉，苹果首款折叠屏手机试产顺利，并没有出现大问题，应该也不会导致延后发布。“整个折叠屏方案之前都论证了好几年了，苹果在外观上都是非常保守的，采用都是成熟的方案，没有什么大问题。”这位产业链人士表示。 4月7日，有日媒报道，苹果首款折叠屏iPhone在工程测试阶段遭遇技术挫折，可能导致量产及出货时间表延迟。 不过，长期跟踪苹果的彭博社记者马克·
 
 ## 正文
 
-来源：中国银行 5月7日，中国银行作为联席主承销商和联席簿记管理人，成功协助伊斯兰开发银行（Islamic Development Bank，以下简称“IsDB”）发行2026年首笔10亿美元伊斯兰债券。
+4月9日，澎湃新闻记者从产业链求证获悉，苹果首款折叠屏手机试产顺利，并没有出现大问题，应该也不会导致延后发布。
 
-该笔债券发行期限5年，票面利率4.227%。
+“整个折叠屏方案之前都论证了好几年了，苹果在外观上都是非常保守的，采用都是成熟的方案，没有什么大问题。
 
-伊斯兰债券（Sukuk）是符合国际伊斯兰金融合规要求的特色融资工具，广泛应用于多边开发机构中长期低成本融资。
+”这位产业链人士表示。
 
-此次发行在全球市场获得广泛关注，中国银行依托全球化优势，通过境内外协同的强大合力，助力该订单峰值突破28亿美元，充分体现了国际投资者对中国银行债券承销能力的高度认可。
+4月7日，有日媒报道，苹果首款折叠屏iPhone在工程测试阶段遭遇技术挫折，可能导致量产及出货时间表延迟。
 
-长期以来，中国银行凭借全球布局优势及在跨境债券市场的领先优势与专业能力，服务多边开发机构债务融资需求，协助亚洲基础设施投资银行、新开发银行等多家国际开发机构发行债券。
+不过，长期跟踪苹果的彭博社记者马克·古尔曼随后就报道称，苹果首款折叠屏iPhone仍将按原计划于今年晚些时候的常规iPhone发布周期内推出，即9月秋季发布会上与新一代的iPhone 18 Pro系列同步推出，并在同一时间上市销售，通常是发布后一周。
 
-同时，依托广泛的境内外债券承分销网络，积极参与各类主体多币种债券发行，债务资本市场业务品牌影响力不断增强。
+媒体报道也引发了投行机构的关注。
 
-中国银行将继续发挥全球化优势、综合化特色，深耕跨境债务资本市场业务，助力高质量共建“一带一路”，持续促进金融市场双向开放，为国际金融合作与可持续发展注入源源不断强劲动力。
+摩根士丹利分析师埃里克·伍德林在给客户的一份报告中写道：“截至目前，我们并未发现可折叠iPhone的发布计划有任何延迟。
 
-责任编辑：曹睿潼
+今天早些时候，一家iPhone零部件供应商告诉我们，他们尚未看到任何针对可折叠iPhone的订单调整。
 
 ## 相关推荐
 
-- 2026-06-29 16:16 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 15:59 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 16:02 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 16:19 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 16:00 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 16:07 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 16:19 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 16:01 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 16:15 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 16:05 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 16:23 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 16:14 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 16:27 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 16:08 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 16:25 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 16:04 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 16:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 16:16 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 16:21 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 16:10 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 16:22 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 16:08 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 16:16 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:06 - [把古诗里的动作换成加班](http://www.share.minike.top/Article/details/407010893.shtml)
-- 2026-06-29 16:08 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/438896698.shtml)
-- 2026-06-29 15:54 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/20782.shtml)
-- 2026-06-29 16:12 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/9612697.shtml)
-- 2026-06-29 16:21 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/798988988614.shtml)
-- 2026-06-29 16:05 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/54244051.shtml)
-- 2026-06-29 16:21 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/755944954337.shtml)
-- 2026-06-29 16:04 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/10096.shtml)
-- 2026-06-29 16:22 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/070950.shtml)
-- 2026-06-29 16:16 - [扫黑风暴](http://www.blog.minike.top/Article/details/172719.shtml)
-- 2026-06-29 16:15 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/5421661.shtml)
-- 2026-06-29 16:23 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/5232729.shtml)
-- 2026-06-29 15:58 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/5144497.shtml)
-- 2026-06-29 16:19 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/112744222.shtml)
-- 2026-06-29 15:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/40173524272.shtml)
+- 2026-06-29 16:19 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/5864355.shtml)
+- 2026-06-29 16:04 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/848399.shtml)
+- 2026-06-29 16:18 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/44071615370.shtml)
+- 2026-06-29 16:09 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/59425480266.shtml)
+- 2026-06-29 16:04 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/631450045.shtml)
+- 2026-06-29 16:14 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/977602979464.shtml)
+- 2026-06-29 16:04 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/2171398.shtml)
+- 2026-06-29 16:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/223057.shtml)
+- 2026-06-29 16:00 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/5414742.shtml)
+- 2026-06-29 16:26 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/25230519.shtml)
+- 2026-06-29 16:08 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/0543099.shtml)
+- 2026-06-29 16:28 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/0306308567.shtml)
+- 2026-06-29 16:04 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/011866331012.shtml)
+- 2026-06-29 16:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/9168950487.shtml)
+- 2026-06-29 16:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/75129.shtml)

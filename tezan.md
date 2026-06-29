@@ -1,57 +1,48 @@
-# 锂电正极材料上市公司业绩分化加剧
+# 特朗普称伊朗在允许石油通过霍尔木兹海峡一事上表现糟糕
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本报记者 李万晨曦 Wind资讯数据显示，目前，A股锂电正极材料板块的26家企业均已披露2025年年报。其中，10家企业净利润同比正增长，8家企业减亏，3家扭亏为盈，5家企业净利润下滑。整体来看，行业迎来复苏拐点。 “A股26家锂电正极材料企业中，合计超八成经营边际改善，但同时仍有5家企业净利润同比下滑，中
+美国总统特朗普在Truth Social上发帖称，“伊朗在允许石油通过霍尔木兹海峡方面做得非常糟糕，有些人甚至会说很不光彩。” 特朗普：“这不是我们之间的协议。” 注：特朗普看好达成协议 但就霍尔木兹海峡过路费施压伊朗。责任编辑：陈钰嘉
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国总统特朗普在Truth Social上发帖称，“伊朗在允许石油通过霍尔木兹海峡方面做得非常糟糕，有些人甚至会说很不光彩。
 
-本报记者 李万晨曦 Wind资讯数据显示，目前，A股锂电正极材料板块的26家企业均已披露2025年年报。
+” 特朗普：“这不是我们之间的协议。
 
-其中，10家企业净利润同比正增长，8家企业减亏，3家扭亏为盈，5家企业净利润下滑。
+” 注：特朗普看好达成协议 但就霍尔木兹海峡过路费施压伊朗。
 
-整体来看，行业迎来复苏拐点。
-
-“A股26家锂电正极材料企业中，合计超八成经营边际改善，但同时仍有5家企业净利润同比下滑，中小厂商经营承压。
-
-2025年锂电正极材料行业迎来结构性复苏拐点，强弱显著分化。
-
-”国际智能运载科技协会秘书长、黄河科技学院客座教授张翔在接受《证券日报》记者采访时表示。
-
-行业迎结构性复苏拐点 锂电正极材料主要包括磷酸铁锂、三元、钴酸锂、锰酸锂四大传统品类，其中，磷酸铁锂、三元是行业两大主流路线。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 16:19 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 16:23 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 15:59 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 16:15 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 16:05 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 15:55 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 16:20 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 16:01 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 16:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 16:21 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 16:00 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 16:10 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 16:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 16:03 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 16:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 16:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 16:26 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 16:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 16:16 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 16:06 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 16:04 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/3152607.shtml)
-- 2026-06-29 15:58 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/90333432.shtml)
-- 2026-06-29 16:05 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/021598648.shtml)
-- 2026-06-29 16:19 - [第一炉香](https://www.share.kurohicncr.top/Article/details/930920478663.shtml)
-- 2026-06-29 16:04 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/00483358.shtml)
-- 2026-06-29 15:57 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/581118.shtml)
-- 2026-06-29 16:08 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/3936885745.shtml)
-- 2026-06-29 16:02 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/7900180178.shtml)
-- 2026-06-29 16:01 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/565311642417.shtml)
-- 2026-06-29 16:06 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/9876281526.shtml)
-- 2026-06-29 16:02 - [沙丘](https://www.share.kurohicncr.top/Article/details/227014184.shtml)
-- 2026-06-29 16:18 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/323166253988.shtml)
-- 2026-06-29 16:05 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/956733376.shtml)
-- 2026-06-29 16:16 - [媒体：网络测评不能只剩“生意”](https://www.share.kurohicncr.top/Article/details/9185012197.shtml)
-- 2026-06-29 16:06 - [斗破苍穹](https://www.share.minike.top/Article/details/4198753244.shtml)
+- 2026-06-29 16:18 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/857737.shtml)
+- 2026-06-29 16:24 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/16138.shtml)
+- 2026-06-29 16:21 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/6138370881.shtml)
+- 2026-06-29 16:18 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/8134859.shtml)
+- 2026-06-29 16:06 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/08699989816.shtml)
+- 2026-06-29 16:29 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/176779.shtml)
+- 2026-06-29 16:20 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/88368.shtml)
+- 2026-06-29 16:17 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/6272259.shtml)
+- 2026-06-29 16:10 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/859842.shtml)
+- 2026-06-29 16:12 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/433737.shtml)
+- 2026-06-29 16:02 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/038865911.shtml)
+- 2026-06-29 16:08 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/57516.shtml)
+- 2026-06-29 16:27 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/0330108150.shtml)
+- 2026-06-29 16:26 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/974532758242.shtml)
+- 2026-06-29 16:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/43635409.shtml)

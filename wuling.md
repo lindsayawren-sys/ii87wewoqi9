@@ -1,56 +1,56 @@
-# “共同迈向更具韧性和可持续的未来”——访孟加拉国总理财政与规划事务顾问提图米尔
+# 荷兰籍华人寻根十三载终圆梦
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-“发展是解决全球性挑战的‘金钥匙’。”孟加拉国总理财政与规划事务顾问提图米尔近日在接受本报记者专访时表示，全球发展倡议旨在建立互惠的伙伴关系，为全球发展遇到的突出问题提供解决方案，“这具有重要时代价值和实践意义”。当前国际形势变乱交织，地区冲突此起彼伏，发展赤字持续扩大，气候变化、数字鸿沟、能源安全等问题不断加剧。“全球可持续发展目标整体进展缓慢。我们希望看到中国持续发挥引领作
+中新网福建长泰4月9日电 (郑晓梅 戴李雯 马欣怡)“你们的祖籍地，就在戴墘村。”近日，在福建省漳州市长泰区戴氏宗祠内，当长泰戴氏理事会秘书戴国荣说出这句话时，50岁的荷兰籍华人Swanny(中文名“戴萱香”)眼眶里打转已久的泪水终于滚落下来。 为了这句话，她等了十三年。戴萱香回忆道，清朝末年，约1880年，她的祖先从长泰戴墘村出发，远渡重洋前往印尼，后又辗转迁居荷兰。六代人，
 
 ## 正文
 
-“发展是解决全球性挑战的‘金钥匙’。
+中新网福建长泰4月9日电 (郑晓梅 戴李雯 马欣怡)“你们的祖籍地，就在戴墘村。
 
-”孟加拉国总理财政与规划事务顾问提图米尔近日在接受本报记者专访时表示，全球发展倡议旨在建立互惠的伙伴关系，为全球发展遇到的突出问题提供解决方案，“这具有重要时代价值和实践意义”。
+”近日，在福建省漳州市长泰区戴氏宗祠内，当长泰戴氏理事会秘书戴国荣说出这句话时，50岁的荷兰籍华人Swanny(中文名“戴萱香”)眼眶里打转已久的泪水终于滚落下来。
 
-当前国际形势变乱交织，地区冲突此起彼伏，发展赤字持续扩大，气候变化、数字鸿沟、能源安全等问题不断加剧。
+为了这句话，她等了十三年。
 
-“全球可持续发展目标整体进展缓慢。
+戴萱香回忆道，清朝末年，约1880年，她的祖先从长泰戴墘村出发，远渡重洋前往印尼，后又辗转迁居荷兰。
 
-我们希望看到中国持续发挥引领作用，为推动南南合作凝聚合力。
+六代人，一百多年，故乡的名字在长辈们口中，渐渐模糊成了“长泰”二字。
 
-”提图米尔表示，全球发展倡议的重要价值在当下更加凸显——发展筹资、气候变化和绿色发展、数字时代互联互通等八大重点合作领域，为各国促进包容及可持续增长提供了全面框架；倡议坚持的发展优先、以人民为中心等思想，为加快落实联合国2030年可持续发展议程发挥着重要支持作用。
+2013年，戴萱香下定决心，要找回这条断了百年的根。
 
-提图米尔特别指出，“日前在北京举行的全球共享发展行动论坛第三届高级别会议恰逢其时，为全球发展事业增添了动力。
+此后的十几年里，她执着地在浩如烟海的资料中探寻线索。
 
-” 提图米尔表示，近年来，依托中国先进的基础设施建设技术与经验，两国合作的一些项目大幅提升了孟加拉国互联互通水平。
+2018年，她的表哥曾专程来到长泰区戴墘村，翻遍族谱，却未能找到疑似祖先“戴彊”(音译)的名字。
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 16:07 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 16:20 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 16:11 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 16:07 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 16:10 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 16:08 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 16:00 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 16:01 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 16:20 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 16:16 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 16:19 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 16:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 16:05 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 16:22 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 16:15 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 16:17 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 16:09 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 16:12 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 16:03 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:12 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/32916581868.shtml)
-- 2026-06-29 15:57 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/6914231717.shtml)
-- 2026-06-29 16:16 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/4302442.shtml)
-- 2026-06-29 16:21 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/86651183.shtml)
-- 2026-06-29 16:05 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.kurohicncr.top/Article/details/0390167752.shtml)
-- 2026-06-29 16:22 - [新能源车能当外接空调用吗](http://www.blog.minike.top/Article/details/37514705.shtml)
-- 2026-06-29 16:23 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/69034516.shtml)
-- 2026-06-29 16:10 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/77734190.shtml)
-- 2026-06-29 16:17 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/017327111.shtml)
-- 2026-06-29 16:11 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/2568463511.shtml)
-- 2026-06-29 16:08 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/70250.shtml)
-- 2026-06-29 16:03 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/59868.shtml)
-- 2026-06-29 16:10 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/55647560.shtml)
-- 2026-06-29 16:11 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/83887359603.shtml)
-- 2026-06-29 16:03 - [梅朗雄主张法国退出北约](https://www.blog.minike.top/Article/details/74084839698.shtml)
+- 2026-06-29 16:05 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/2211611.shtml)
+- 2026-06-29 16:23 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/695766.shtml)
+- 2026-06-29 16:12 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.kurohicncr.top/Article/details/6696099.shtml)
+- 2026-06-29 16:16 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/20075.shtml)
+- 2026-06-29 16:13 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/53596658293.shtml)
+- 2026-06-29 16:19 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/150878514.shtml)
+- 2026-06-29 16:16 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/411260616.shtml)
+- 2026-06-29 16:26 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/031496.shtml)
+- 2026-06-29 16:18 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/1740359.shtml)
+- 2026-06-29 16:27 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/89825.shtml)
+- 2026-06-29 16:11 - [金牌调解](https://www.share.kurohicncr.top/Article/details/5878742364.shtml)
+- 2026-06-29 16:04 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/615751.shtml)
+- 2026-06-29 16:15 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/80061490515.shtml)
+- 2026-06-29 16:28 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/2826373989.shtml)
+- 2026-06-29 16:10 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/824108233.shtml)

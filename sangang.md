@@ -1,58 +1,57 @@
-# 俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动
+# 中国篮协正在核查篮坛新秀年龄存疑一事
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网大连5月8日电 (记者 杨毅)俄罗斯远东国立渔业技术大学“帕拉达”号风帆训练舰7日靠泊大连港，舰上157名实习学员抵达大连，开启为期四天的中俄航海科教互通、海事文化联谊交流活动。 “帕拉达”号是全球大型三桅钢制风帆训练舰，1989年于波兰建成服役，隶属于俄罗斯远东国立渔业技术大学。该舰总长108.6米，排水量约2300吨，配备26面风帆，最大航速18.8节，主要承担俄罗斯
+新华社北京4月11日电(记者王镜宇、曹奕博)针对11日网上爆出的U18中国男篮球员李沂泽年龄存疑的问题，中国篮协已经关注并展开调查。 中国篮协相关人士说：“中国篮球协会已经注意到这个事情，目前正联合有关部门开展核查工作。协会将本着严肃认真、实事求是的态度进行处理，相关调查和处理结果将及时向社会公众公布。” 11日，多家网络媒体、自媒体爆料称，国青球员李沂泽的外貌与一名参加过国内
 
 ## 正文
 
-中新网大连5月8日电 (记者 杨毅)俄罗斯远东国立渔业技术大学“帕拉达”号风帆训练舰7日靠泊大连港，舰上157名实习学员抵达大连，开启为期四天的中俄航海科教互通、海事文化联谊交流活动。
+新华社北京4月11日电(记者王镜宇、曹奕博)针对11日网上爆出的U18中国男篮球员李沂泽年龄存疑的问题，中国篮协已经关注并展开调查。
 
-“帕拉达”号是全球大型三桅钢制风帆训练舰，1989年于波兰建成服役，隶属于俄罗斯远东国立渔业技术大学。
+中国篮协相关人士说：“中国篮球协会已经注意到这个事情，目前正联合有关部门开展核查工作。
 
-该舰总长108.6米，排水量约2300吨，配备26面风帆，最大航速18.8节，主要承担俄罗斯海事专业学员远洋实训任务。
+协会将本着严肃认真、实事求是的态度进行处理，相关调查和处理结果将及时向社会公众公布。
 
-本次到访大连，是该舰第三次驶入中国口岸开展友好交流，是中俄海事科教双向互通的重要契机。
+” 11日，多家网络媒体、自媒体爆料称，国青球员李沂泽的外貌与一名参加过国内青少年赛事的名叫张涵泊的球员高度相似，疑似是同一个人。
 
-在为期四天的访港期间，“帕拉达”号实习学员将与大连海洋大学、大连东软信息学院师生开展系列研学互动与文化交流活动，进一步深化中俄海事科教合作，增进两国青年海事人才的文化互通与友谊联结。
+在代表国青队参赛以及代表湖北队参加2024年首届全国青少年三大球运动会时，李沂泽注册的出生日期是2008年3月27日。
 
-舰船抵港后，大连出入境边防检查站即刻启动快捷通关勤务模式，实现船舶“靠港即办、即办即通”，大幅压缩通关时长，高效便捷的边检服务，为中俄院校研学交流、舰船开放参观、文化联谊等系列活动预留充足时间，全力赋能涉外海事文化交流。
-
-(完)
+而张涵泊在代表湖北青年男篮参加2022年U17青少年篮球联赛时的注册出生日期为2006年3月19日。
 
 ## 相关推荐
 
-- 2026-06-29 16:03 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 16:21 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 16:23 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 16:17 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 16:02 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 16:14 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 16:01 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 16:07 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 16:10 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 16:00 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 15:55 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 15:59 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 16:21 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 16:03 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 16:14 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 16:03 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 16:12 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 16:27 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 16:19 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 16:23 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 16:28 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 16:15 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 16:25 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 16:27 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 16:21 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 16:18 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 16:03 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 16:21 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 16:07 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [吴建豪老婆](http://www.blog.minike.top/Article/details/0239292249.shtml)
-- 2026-06-29 16:10 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.kurohicncr.top/Article/details/375575.shtml)
-- 2026-06-29 16:10 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.minike.top/Article/details/1504807.shtml)
-- 2026-06-29 16:22 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/519461400.shtml)
-- 2026-06-29 15:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/090436104.shtml)
-- 2026-06-29 16:09 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/18651.shtml)
-- 2026-06-29 16:20 - [光与夜之恋](https://www.share.minike.top/Article/details/51818004.shtml)
-- 2026-06-29 16:08 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/0654528.shtml)
-- 2026-06-29 16:11 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/386054.shtml)
-- 2026-06-29 16:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/6904924521.shtml)
-- 2026-06-29 15:55 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.minike.top/Article/details/6122887.shtml)
-- 2026-06-29 15:58 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/029209.shtml)
-- 2026-06-29 16:07 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/64315.shtml)
-- 2026-06-29 16:05 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/5328574.shtml)
-- 2026-06-29 16:19 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/0412675.shtml)
+- 2026-06-29 16:12 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/22019670.shtml)
+- 2026-06-29 16:18 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/05880.shtml)
+- 2026-06-29 16:18 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/65012.shtml)
+- 2026-06-29 16:28 - [逃狱兄弟](https://www.share.minike.top/Article/details/44602806.shtml)
+- 2026-06-29 16:11 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/998022.shtml)
+- 2026-06-29 16:09 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/392054.shtml)
+- 2026-06-29 16:17 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.kurohicncr.top/Article/details/320409081406.shtml)
+- 2026-06-29 16:18 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/5139404526.shtml)
+- 2026-06-29 16:25 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/59848768.shtml)
+- 2026-06-29 16:18 - [毒液2](https://www.blog.kurohicncr.top/Article/details/38983380747.shtml)
+- 2026-06-29 16:15 - [天道](http://www.blog.minike.top/Article/details/23084022.shtml)
+- 2026-06-29 16:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/29765437.shtml)
+- 2026-06-29 16:19 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/13438110.shtml)
+- 2026-06-29 16:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/45986875323.shtml)
+- 2026-06-29 16:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/40838.shtml)

@@ -1,60 +1,59 @@
-# 宁夏西夏区教育发展联盟大会举行 深化厅校企地协同共育共赢
+# 2026中国留学论坛“留学中国·融通世界”交流活动举行
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网银川5月8日电 (记者 李佩珊)5月8日，2026年宁夏银川市西夏区教育发展联盟大会在宁夏财经职业技术学院开幕。会上正式启动“厅-校-企-地”协同发展机制、宁夏高校法律援助志愿服务联盟及市域产教联合体项目。 本届大会以“产教融合·智创新城”为主题，采用“1+4+X”办会模式，同步开展大学生专场招聘会、创新创业路演、科技成果体验及多场行业专题座谈，并举行院士专家产业行活动，
+中新网北京4月12日电 由中国(教育部)留学服务中心主办的2026中国留学论坛(CSAF)“留学中国·融通世界”交流活动4月10日在北京举行。 中国教育部国际合作与交流司二级巡视员席茹、英国前任教育部大学、科学、研究与创新事务大臣乔·约翰逊和来自中国、英国、意大利、德国、印尼、澳大利亚等国家的高校、驻华机构及企业的200余位代表、嘉宾出席。 席茹在致辞中表示，中国政府高度重视来
 
 ## 正文
 
-中新网银川5月8日电 (记者 李佩珊)5月8日，2026年宁夏银川市西夏区教育发展联盟大会在宁夏财经职业技术学院开幕。
+中新网北京4月12日电 由中国(教育部)留学服务中心主办的2026中国留学论坛(CSAF)“留学中国·融通世界”交流活动4月10日在北京举行。
 
-会上正式启动“厅-校-企-地”协同发展机制、宁夏高校法律援助志愿服务联盟及市域产教联合体项目。
+中国教育部国际合作与交流司二级巡视员席茹、英国前任教育部大学、科学、研究与创新事务大臣乔·约翰逊和来自中国、英国、意大利、德国、印尼、澳大利亚等国家的高校、驻华机构及企业的200余位代表、嘉宾出席。
 
-本届大会以“产教融合·智创新城”为主题，采用“1+4+X”办会模式，同步开展大学生专场招聘会、创新创业路演、科技成果体验及多场行业专题座谈，并举行院士专家产业行活动，全方位深化政校企地务实联动。
+席茹在致辞中表示，中国政府高度重视来华留学工作，将以提高培养质量为根本，以提升规模和层次为基础，以优化管理服务水平为依托，持续扩大高水平教育对外开放，加强“留学中国”品牌和能力建设，为建成具有全球影响力的重要教育中心助力。
 
-现场集中发布政策清单、需求清单、资源清单，分批开展合作项目签约，覆盖产教园区建设、校企人才共育、产学研协同创新等重点内容。
+乔·约翰逊表示，今年1月，中英游学领航计划正式启动，为中英教育未来强劲、可持续的双向交流与合作注入了动力。
 
-大会完成会旗交接，明确2027年联盟大会由宁夏大学新华学院承办。
+今年6月，来自英国约克大学、伯明翰大学、爱丁堡大学等9所高校的300余名师生将赴中国6所城市的10所知名大学开启学习旅程。
 
-中国科学院专家围绕装备制造、葡萄酒等特色产业，分享产学研融合发展思路。
+相信英国学生会从这一高质量且有保障的的国际交流典范项目中受益。
 
-西夏区教育发展联盟自2019年成立以来，深耕科教融汇、产教协同发展，已累计落地860项校企地合作项目，240项产学研成果实现转化应用，建成启用123个工程技术研究中心，西夏区实现人才总量突破8万人，校地联动、产业赋能、人才集聚效应持续凸显。
+交流讨论环节，中外嘉宾围绕留学品牌建设、跨境人才培养创新实践、国际化人才需求等议题展开深入研讨。
 
-本次活动梳理形成政策139项、合作需求690条、优质资源117条，涵盖人才引育、技术攻关、实训合作、成果转化等事项。
+在“全球留学教育新格局下的国家品牌建设策略”专题中，嘉宾们围绕国家品牌战略定位、资源整合及数字化背景下的发展挑战进行深入交流。
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 16:04 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 16:17 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 16:22 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 16:06 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 16:01 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 16:17 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 16:04 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 16:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 16:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 16:21 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 16:07 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 16:04 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 16:07 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-29 16:28 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 16:11 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 16:18 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 16:01 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 16:14 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 16:01 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 16:07 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 16:05 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 16:15 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 16:10 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 16:09 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 16:28 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 16:17 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:56 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/613401.shtml)
-- 2026-06-29 16:16 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/013452.shtml)
-- 2026-06-29 16:15 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/77479.shtml)
-- 2026-06-29 16:01 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/983998.shtml)
-- 2026-06-29 16:21 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/34856.shtml)
-- 2026-06-29 15:58 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/67704.shtml)
-- 2026-06-29 16:12 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/2205666.shtml)
-- 2026-06-29 16:02 - [恋与深空发放补偿未得到玩家认可](http://www.blog.minike.top/Article/details/14643947737.shtml)
-- 2026-06-29 16:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/405453.shtml)
-- 2026-06-29 16:17 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/57287172.shtml)
-- 2026-06-29 15:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/81384255.shtml)
-- 2026-06-29 16:20 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/28089.shtml)
-- 2026-06-29 16:08 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/386965.shtml)
-- 2026-06-29 16:13 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/422467010431.shtml)
-- 2026-06-29 16:03 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/837068779896.shtml)
+- 2026-06-29 16:00 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/02326038.shtml)
+- 2026-06-29 16:02 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/26013916413.shtml)
+- 2026-06-29 16:10 - [新一代影后杨紫](http://www.share.minike.top/Article/details/73232.shtml)
+- 2026-06-29 16:09 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/167978665.shtml)
+- 2026-06-29 16:00 - [送你一朵小红花](http://www.share.minike.top/Article/details/713167582.shtml)
+- 2026-06-29 16:29 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/38223.shtml)
+- 2026-06-29 16:06 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/1303183.shtml)
+- 2026-06-29 16:16 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/600365152.shtml)
+- 2026-06-29 16:22 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.minike.top/Article/details/5225639008.shtml)
+- 2026-06-29 16:03 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/74608.shtml)
+- 2026-06-29 16:24 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/64585079.shtml)
+- 2026-06-29 16:17 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/4740976871.shtml)
+- 2026-06-29 16:28 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/443883.shtml)
+- 2026-06-29 16:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/266701.shtml)
+- 2026-06-29 16:16 - [一生一世](https://www.blog.minike.top/Article/details/420001011127.shtml)

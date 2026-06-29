@@ -1,53 +1,44 @@
-# 阿联酋绞尽脑汁卖原油 4月安排多艘油轮通过霍尔木兹海峡
+# 诺亚控股于4月9日斥资24.24万美元回购12.12万股
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-专题：内外利好共振 A股5月有望再攀新高 据报道，根据业界消息人士与航运数据显示，为避免遭到伊朗袭击，阿联酋及买家近期关闭船舶定位追踪系统，安排多艘装载原油的油轮驶过霍尔木兹海峡，试图运出因中东冲突而在海湾地区积压的石油。 尽管这些出货量仅为美以对伊朗开战前阿联酋日常出口量的一小部分，但显示出该产油国与买家为了释放原油销售而愿意承担的风险。 据三名消息人士、Kpler的船舶追踪
+诺亚控股（06686）发布公告，于2026年4月9日斥资24.24万美元回购12.12万股。责任编辑：卢昱君
 
 ## 正文
 
-专题：内外利好共振 A股5月有望再攀新高 据报道，根据业界消息人士与航运数据显示，为避免遭到伊朗袭击，阿联酋及买家近期关闭船舶定位追踪系统，安排多艘装载原油的油轮驶过霍尔木兹海峡，试图运出因中东冲突而在海湾地区积压的石油。
+诺亚控股（06686）发布公告，于2026年4月9日斥资24.24万美元回购12.12万股。
 
-尽管这些出货量仅为美以对伊朗开战前阿联酋日常出口量的一小部分，但显示出该产油国与买家为了释放原油销售而愿意承担的风险。
-
-据三名消息人士、Kpler的船舶追踪数据以及SynMax的卫星数据分析显示，阿联酋的阿布扎比国家石油公司（ADNOC）在4月成功利用四艘油轮，从海湾地区的终端出口了至少400万桶的上扎库姆原油和200万桶达斯原油。
-
-这些原油货物的去向包括：透过船对船（STS）转卸至另一艘油轮，之后再运往东南亚一家炼油厂；卸入阿曼的储油设施；直接航行前往韩国的炼油厂。
-
-上述三名消息人士中，其中一人对事件有直接了解，另两人熟悉ADNOC的运作。
-
-责任编辑：王永生
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 16:12 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 16:20 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 16:10 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 16:12 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 16:03 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 16:22 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 16:02 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 16:01 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 15:59 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 16:08 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 16:00 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 16:17 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 16:02 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 16:14 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 16:13 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 16:02 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-29 16:25 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 16:05 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 16:01 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 16:00 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/64180.shtml)
-- 2026-06-29 15:59 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/1274342.shtml)
-- 2026-06-29 16:19 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/78562.shtml)
-- 2026-06-29 15:55 - [复盘曾沛慈浪姐夺冠之路](https://www.share.minike.top/Article/details/12397.shtml)
-- 2026-06-29 15:54 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/3221254377.shtml)
-- 2026-06-29 15:58 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/12443904887.shtml)
-- 2026-06-29 16:06 - [金刚川](http://www.blog.minike.top/Article/details/511383822.shtml)
-- 2026-06-29 15:58 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/499614132780.shtml)
-- 2026-06-29 16:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/1700169833.shtml)
-- 2026-06-29 15:56 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/808342614404.shtml)
-- 2026-06-29 16:04 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/23952770.shtml)
-- 2026-06-29 16:08 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/40421.shtml)
-- 2026-06-29 16:00 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/38989468662.shtml)
-- 2026-06-29 16:02 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/539428121.shtml)
-- 2026-06-29 16:10 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/65678419582.shtml)
+- 2026-06-29 16:26 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/4684439308.shtml)
+- 2026-06-29 16:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/7610412.shtml)
+- 2026-06-29 16:21 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/0679104.shtml)
+- 2026-06-29 16:05 - [千与千寻](http://www.share.minike.top/Article/details/96171362.shtml)
+- 2026-06-29 16:00 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/10010363386.shtml)
+- 2026-06-29 16:05 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/902428.shtml)
+- 2026-06-29 16:09 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/6357350378.shtml)
+- 2026-06-29 16:09 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/096859.shtml)
+- 2026-06-29 16:19 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/39089.shtml)
+- 2026-06-29 16:07 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/369153.shtml)
+- 2026-06-29 16:19 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/3062231872.shtml)
+- 2026-06-29 16:06 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/51637834.shtml)
+- 2026-06-29 16:19 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/02292309.shtml)
+- 2026-06-29 16:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/55614199.shtml)
+- 2026-06-29 16:24 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/51117019.shtml)

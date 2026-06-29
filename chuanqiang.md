@@ -1,59 +1,59 @@
-# 天祥集团拒绝EQT上调后的121亿美元收购要约
+# 宇通集团李高鹏：支持自动驾驶，但大客车不应该搞无人驾驶
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-天祥集团表示，正考虑出售或分拆旗下能源与基础设施业务部门 天祥集团正式拒绝瑞典收购集团 EQT 提出的121 亿美元优化版收购方案，认为该报价严重低估公司价值；同时集团仍在推进战略评估，考虑分拆剥离能源与基础设施业务板块。 这家全球检测、检验与认证服务机构，拒绝了 EQT 于周二提出的修订要约：每股现金对价 58 英镑，对应企业整体估值 89.3 亿英镑（折合 121 亿美元）
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。宇通集团新能源研究院院长李高鹏出席并演讲。 李高鹏谈到，新能源汽车是国家战略，目的是降低排放、解决能源安全。在客车领域的推广情况和节能减排贡献方面，新能源汽车也是新质生产力在汽车产业中的重要表
 
 ## 正文
 
-天祥集团表示，正考虑出售或分拆旗下能源与基础设施业务部门 天祥集团正式拒绝瑞典收购集团 EQT 提出的121 亿美元优化版收购方案，认为该报价严重低估公司价值；同时集团仍在推进战略评估，考虑分拆剥离能源与基础设施业务板块。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-这家全球检测、检验与认证服务机构，拒绝了 EQT 于周二提出的修订要约：每股现金对价 58 英镑，对应企业整体估值 89.3 亿英镑（折合 121 亿美元）。
+宇通集团新能源研究院院长李高鹏出席并演讲。
 
-早在上月，EQT 已将收购报价从此前每股 51.50 英镑，上调至每股 54 英镑。
+李高鹏谈到，新能源汽车是国家战略，目的是降低排放、解决能源安全。
 
-天祥集团周五表示，董事会一致且明确做出拒绝决议。
+在客车领域的推广情况和节能减排贡献方面，新能源汽车也是新质生产力在汽车产业中的重要表现。
 
-公司认为，该收购要约显著低估自身内在价值，且附带多项交易条件，存在重大落地执行风险。
+随着汽车与电子、人工智能、通信等领域的加快融合，电动化、智能化升级已成为全球新一轮产业竞争高地。
 
-集团仍在推进战略评估，拟将能源与基础设施业务从天祥检测认证主体中出售或分拆独立。
+其中，他指出，客车相对于整个汽车产业占比不大，但发展非常有特色。
 
-目前天祥已优先启动该业务的出售流程，并表示已收到多家潜在收购方的积极意向。
+回顾客车发展历程，大致经历了艰难起步期、稳步发展期、快速成长期、努力追赶期和崛起超越期。
 
-责任编辑：郭明煜
+“从快速成长期开始，中国客车进入快速发展阶段，在产品技术创新上做出了很多特色，满足了当时中国高速公路快速发展的需求。
 
 ## 相关推荐
 
-- 2026-06-29 16:15 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 15:56 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 16:05 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 16:23 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 16:10 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 15:56 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 16:20 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 15:55 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 16:05 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 16:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 16:03 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 16:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 16:19 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 16:29 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 16:16 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 16:11 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 16:02 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 16:14 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 16:03 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 16:11 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 16:29 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 16:02 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 16:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 16:05 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 16:22 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 16:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:10 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/65873321.shtml)
-- 2026-06-29 16:16 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/60930539433.shtml)
-- 2026-06-29 16:20 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/961395061.shtml)
-- 2026-06-29 16:14 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/271660007439.shtml)
-- 2026-06-29 16:20 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/207652.shtml)
-- 2026-06-29 16:12 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/43361.shtml)
-- 2026-06-29 16:16 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/7786185.shtml)
-- 2026-06-29 15:57 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/51980.shtml)
-- 2026-06-29 16:13 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/96973670.shtml)
-- 2026-06-29 16:13 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/57149474395.shtml)
-- 2026-06-29 15:58 - [疑似吴建豪老婆正脸照](https://www.share.kurohicncr.top/Article/details/14840320.shtml)
-- 2026-06-29 15:58 - [沙丘](http://www.share.minike.top/Article/details/1161820.shtml)
-- 2026-06-29 16:00 - [7款商保创新药“转道”](http://www.blog.kurohicncr.top/Article/details/132602527.shtml)
-- 2026-06-29 16:00 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/52821427.shtml)
-- 2026-06-29 16:13 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/62153933809.shtml)
+- 2026-06-29 16:04 - [央视起底直播诈骗连环套](https://www.blog.minike.top/Article/details/739386.shtml)
+- 2026-06-29 16:25 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/229392067.shtml)
+- 2026-06-29 16:15 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/234767252.shtml)
+- 2026-06-29 16:26 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/210510.shtml)
+- 2026-06-29 16:29 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/432398999440.shtml)
+- 2026-06-29 16:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/887049.shtml)
+- 2026-06-29 16:24 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/7603515.shtml)
+- 2026-06-29 16:18 - [明星大侦探第一季](http://www.share.minike.top/Article/details/51334455.shtml)
+- 2026-06-29 16:10 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/63207692083.shtml)
+- 2026-06-29 16:27 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/55654.shtml)
+- 2026-06-29 16:16 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.kurohicncr.top/Article/details/72196860.shtml)
+- 2026-06-29 16:09 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/026812992086.shtml)
+- 2026-06-29 16:17 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/974927309688.shtml)
+- 2026-06-29 16:13 - [南非老帅布罗斯的梦没能做完](https://www.blog.minike.top/Article/details/2519110.shtml)
+- 2026-06-29 16:16 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/1192467.shtml)

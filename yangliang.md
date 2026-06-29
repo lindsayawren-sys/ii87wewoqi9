@@ -1,57 +1,47 @@
-# 吃得少动得多体重却不减？可能是“湿胖”
+# 伊朗媒体称以军停止袭击黎巴嫩首都贝鲁特
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-明明吃得不多，想减体重却纹丝不动；哪怕喝点水，感觉都在长肉；运动一身汗，肚子还是软塌塌的……减肥没成功，人先累垮，睡不好，月经紊乱，血脂还莫名其妙升高了……湖南中医药大学第二附属医院(湖南省中医院)治未病中心主任、主任医师熊暑霖表示，近期减重门诊收治多例减肥者不成功的病例，根源在于他们的身体长期处于“湿堵”状态，中医把这类肥胖称为“湿胖”。湿胖是怎么来的、有哪些表现？如何进行祛
+新华社德黑兰4月10日电 伊朗媒体援引一位伊方高级安全消息人士的话报道说，由于伊朗的坚持和施压，以军被迫停止了对黎巴嫩首都贝鲁特的袭击。
 
 ## 正文
 
-明明吃得不多，想减体重却纹丝不动；哪怕喝点水，感觉都在长肉；运动一身汗，肚子还是软塌塌的……减肥没成功，人先累垮，睡不好，月经紊乱，血脂还莫名其妙升高了……湖南中医药大学第二附属医院(湖南省中医院)治未病中心主任、主任医师熊暑霖表示，近期减重门诊收治多例减肥者不成功的病例，根源在于他们的身体长期处于“湿堵”状态，中医把这类肥胖称为“湿胖”。
-
-湿胖是怎么来的、有哪些表现？
-
-如何进行祛湿调理？
-
-熊暑霖进行了具体指导。
-
-吃得不多却减不下来，缺乏体质调理 29岁的林女士，身高165厘米，体重78.8公斤，体重指数BMI达28.9。
-
-此前她尝试过节食和运动减肥，但效果并不明显，还经常感到疲劳、身体沉重，大便长期不成形，睡眠质量也较差。
-
-经湖南中医药大学第二附属医院治未病中心减重门诊医生辨证后，她被诊断为“脾虚湿阻型肥胖”。
-
-针对林女士的情况，医生为其制定了中西医结合的个体化调理方案：中药调理以健脾益气、化湿利水为主要方向，辨证配伍中药；配合穴位埋线、隔药艾灸等中医外治，帮助调节代谢功能；饮食上给出清淡饮食、七分饱的建议，适当食用薏米山药粥、荷叶陈皮茶等；同时督促林女士每周进行3次快走或慢跑的运动，每次运动30至60分钟。
+新华社德黑兰4月10日电 伊朗媒体援引一位伊方高级安全消息人士的话报道说，由于伊朗的坚持和施压，以军被迫停止了对黎巴嫩首都贝鲁特的袭击。
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 16:02 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 16:10 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 16:10 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 16:18 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 15:55 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 15:55 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 16:11 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 16:12 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 16:06 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 15:57 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 16:28 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 16:26 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 16:27 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 16:23 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 16:16 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 16:11 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 16:14 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 16:24 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 16:07 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 16:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 16:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 16:25 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 16:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 16:14 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 16:04 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/280755591978.shtml)
-- 2026-06-29 16:05 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/73615004127.shtml)
-- 2026-06-29 15:57 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/53727983049.shtml)
-- 2026-06-29 16:19 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/42980.shtml)
-- 2026-06-29 16:17 - [天道](http://www.blog.minike.top/Article/details/284746356.shtml)
-- 2026-06-29 16:13 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/441095.shtml)
-- 2026-06-29 16:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/0439018.shtml)
-- 2026-06-29 16:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/402940901.shtml)
-- 2026-06-29 16:04 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/635637506.shtml)
-- 2026-06-29 16:13 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/519189101.shtml)
-- 2026-06-29 15:55 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/6782686.shtml)
-- 2026-06-29 15:57 - [一见倾心](http://www.blog.minike.top/Article/details/9153762.shtml)
-- 2026-06-29 16:17 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/23339386.shtml)
-- 2026-06-29 16:06 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/859309.shtml)
-- 2026-06-29 16:15 - [工作靠AI算不算职场作弊](https://www.blog.minike.top/Article/details/19101563075.shtml)
+- 2026-06-29 16:01 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/764024010.shtml)
+- 2026-06-29 16:22 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/394606442.shtml)
+- 2026-06-29 16:19 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/37094.shtml)
+- 2026-06-29 16:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/514514900.shtml)
+- 2026-06-29 16:14 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/9878837.shtml)
+- 2026-06-29 16:07 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/517905.shtml)
+- 2026-06-29 16:04 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/36012.shtml)
+- 2026-06-29 16:03 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/463447.shtml)
+- 2026-06-29 16:28 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/6185109.shtml)
+- 2026-06-29 16:28 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/65017672648.shtml)
+- 2026-06-29 16:10 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.kurohicncr.top/Article/details/528996.shtml)
+- 2026-06-29 16:25 - [女心理师](https://www.share.minike.top/Article/details/42044483.shtml)
+- 2026-06-29 16:18 - [德国VS巴拉圭前瞻](http://www.share.kurohicncr.top/Article/details/56563577552.shtml)
+- 2026-06-29 16:14 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/85672399031.shtml)
+- 2026-06-29 16:04 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/455085.shtml)

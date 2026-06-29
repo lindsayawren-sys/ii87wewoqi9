@@ -1,61 +1,48 @@
-# 美国债市：和平预期降温和油价反弹推动国债下跌
+# 挚达科技获纳入恒生综合指数成份股及纳入深港通及沪港通港股通股票名单
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-美国国债收盘接近日内低点，由于市场对美国和伊朗能否达成止战协议的担忧情绪再度升温，原油价格反弹。受有关伊朗军队在阿巴斯港附近交火的报道影响，油价在尾盘上涨。早些时候报道称，美国正考虑恢复在霍尔木兹海峡的护航行动。 纽约时间下午3点刚过，美国国债收益率处于日内高位，全线收益率上涨4个基点至6个基点，呈现熊市趋平走势，带动2s10s和5s30s利差日内分别收窄0.8个基点和1个基点
+挚达科技（02650）发布公告，公司H股已自2026年3月9日起获恒生指数有限公司纳入恒生综合指数成份股；及将自2026年4月10日起分别获纳入深港通及沪港通港股通的合资格股票名单。 H股获纳入恒生综合指数、深港通及沪港通合资格证券代表资本市场对公司表现及价值的高度认同，让中国内地合资格投资者可以分别透过深圳证券交易所及上海证券交易所直接投资于香港联合交易所有限公司上市的H股。
 
 ## 正文
 
-美国国债收盘接近日内低点，由于市场对美国和伊朗能否达成止战协议的担忧情绪再度升温，原油价格反弹。
+挚达科技（02650）发布公告，公司H股已自2026年3月9日起获恒生指数有限公司纳入恒生综合指数成份股；及将自2026年4月10日起分别获纳入深港通及沪港通港股通的合资格股票名单。
 
-受有关伊朗军队在阿巴斯港附近交火的报道影响，油价在尾盘上涨。
+H股获纳入恒生综合指数、深港通及沪港通合资格证券代表资本市场对公司表现及价值的高度认同，让中国内地合资格投资者可以分别透过深圳证券交易所及上海证券交易所直接投资于香港联合交易所有限公司上市的H股。
 
-早些时候报道称，美国正考虑恢复在霍尔木兹海峡的护航行动。
+预期是次纳入将进一步扩大公司的投资者基础，并有望增加H股的交易流通量。
 
-纽约时间下午3点刚过，美国国债收益率处于日内高位，全线收益率上涨4个基点至6个基点，呈现熊市趋平走势，带动2s10s和5s30s利差日内分别收窄0.8个基点和1个基点。
-
-美国10年期国债收益率交投在4.395%附近，日内上涨近5个基点。
-
-由于市场对重新开放霍尔木兹海峡的担忧加剧，WTI原油期货在尾盘回升至接近盘中高点，日内上涨近2%。
-
-美股早盘的涨幅也悉数回吐，标普500指数在收盘前下跌约0.5%。
-
-当日其他方面，5月联邦基金利率期货在午后交易时段出现一些大额买盘。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:23 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 16:04 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 16:03 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 16:16 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 16:05 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 16:06 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 16:09 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 15:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 16:08 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 16:01 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 16:22 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 15:56 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 16:20 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 15:59 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 16:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 16:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 16:10 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 16:13 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 16:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 16:18 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 16:12 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 16:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 16:03 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 16:12 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 16:01 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/15509.shtml)
-- 2026-06-29 16:22 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/8746800.shtml)
-- 2026-06-29 16:15 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/30542094480.shtml)
-- 2026-06-29 16:08 - [网友飞机上偶遇肖战](https://www.share.minike.top/Article/details/0335946836.shtml)
-- 2026-06-29 16:06 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/202951274.shtml)
-- 2026-06-29 16:15 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/19219714.shtml)
-- 2026-06-29 16:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/76668773.shtml)
-- 2026-06-29 16:00 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/8995757787.shtml)
-- 2026-06-29 15:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/3769114.shtml)
-- 2026-06-29 15:57 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/401399716.shtml)
-- 2026-06-29 16:04 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/689726073.shtml)
-- 2026-06-29 15:54 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/51149015.shtml)
-- 2026-06-29 16:19 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/22575244732.shtml)
-- 2026-06-29 16:13 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/71690.shtml)
-- 2026-06-29 16:17 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/29984.shtml)
+- 2026-06-29 16:25 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/473747729301.shtml)
+- 2026-06-29 16:19 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/38614156799.shtml)
+- 2026-06-29 16:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/691573.shtml)
+- 2026-06-29 16:24 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/21189.shtml)
+- 2026-06-29 16:12 - [沙丘](https://www.share.minike.top/Article/details/114511112.shtml)
+- 2026-06-29 16:07 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/7359447.shtml)
+- 2026-06-29 16:25 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/712995.shtml)
+- 2026-06-29 16:24 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/49588.shtml)
+- 2026-06-29 16:00 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/010617103.shtml)
+- 2026-06-29 16:24 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/365507160360.shtml)
+- 2026-06-29 16:11 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/91371349.shtml)
+- 2026-06-29 16:29 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/08178582080.shtml)
+- 2026-06-29 16:13 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/72075.shtml)
+- 2026-06-29 16:05 - [天道](http://www.blog.kurohicncr.top/Article/details/727754116.shtml)
+- 2026-06-29 16:10 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/998399692.shtml)

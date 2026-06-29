@@ -1,56 +1,56 @@
-# 话剧《国士》在渝巡演 渝沪民建共悟先贤伟力
+# 沙特石油设施遭袭击引发恐慌情绪影响 油价上涨 霍尔木兹海峡几近陷入停滞
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月8日电 (毕奇闻 刘相琳)记者8日从民建重庆市委会获悉，为庆祝民建重庆、上海地方组织成立八十周年，民建重庆市委员会携手民建上海市委员会，在重庆大学虎溪校区大剧场连续举办大型原创话剧《国士》重庆专场观演活动。在渝3场展演累计吸引近3000名民建会员和社会人士观看。 据介绍，话剧《国士》由上海戏剧学院、民建上海市委员会共同出品，民建重庆市委员会、重庆大学联合出品，以“
+周五，受沙特阿拉伯石油供应的紧张局势和霍尔木兹海峡的油轮运输基本陷入停滞的影响，油价上涨。 不过，由于美伊之间的两周停火协议令市场紧张情绪有所缓解，油价本周仍有望收跌；以色列方面释放出外交缓和信号，表示已准备好尽快与黎巴嫩开启直接谈判。 截至格林尼治标准时间06：04，布伦特原油期货上涨96美分，涨幅1%，报每桶96.88美元；美国西德克萨斯轻质原油期货上涨78美分，涨幅0.8
 
 ## 正文
 
-中新网重庆5月8日电 (毕奇闻 刘相琳)记者8日从民建重庆市委会获悉，为庆祝民建重庆、上海地方组织成立八十周年，民建重庆市委员会携手民建上海市委员会，在重庆大学虎溪校区大剧场连续举办大型原创话剧《国士》重庆专场观演活动。
+周五，受沙特阿拉伯石油供应的紧张局势和霍尔木兹海峡的油轮运输基本陷入停滞的影响，油价上涨。
 
-在渝3场展演累计吸引近3000名民建会员和社会人士观看。
+不过，由于美伊之间的两周停火协议令市场紧张情绪有所缓解，油价本周仍有望收跌；以色列方面释放出外交缓和信号，表示已准备好尽快与黎巴嫩开启直接谈判。
 
-据介绍，话剧《国士》由上海戏剧学院、民建上海市委员会共同出品，民建重庆市委员会、重庆大学联合出品，以“黄炎培三别上海”为主线，展现了黄炎培先生跨越半个世纪的奋斗历程，清晰勾勒出他兴职教、赴延安、创民建的人生轨迹，用一生回答了“为何而立、为谁而行”，最终找到了“跟共产党走，走社会主义道路”的光明之路。
+截至格林尼治标准时间06：04，布伦特原油期货上涨96美分，涨幅1%，报每桶96.88美元；美国西德克萨斯轻质原油期货上涨78美分，涨幅0.80%，报每桶98.65美元。
 
-民建中央副主席、上海市委员会主委解冬在开演仪式上表示，“窑洞对”的历史之问至今烛照当下，与党同心、爱国为民、精诚合作、敬业奉献的多党合作优良传统，是先贤留给后人的宝贵精神财富。
+本周以来，两大原油期货均已累计下跌约11%，创下2025年6月以来最大单周跌幅，当时美以对伊朗的空袭行动暂停。
 
-希望广大民建会员在回望波澜壮阔的岁月中凝聚团结奋进的力量，以“国士”为榜样，在新征程中奋力谱写民建事业发展新篇章。
+沙特能源部一位官方消息人士称，沙特能源设施遭袭导致该国石油日产能减少约60万桶，东西输油管道输油量每日减少约70万桶。
 
-民建重庆市委员会专职副主委刘伟表示，重庆民建会员将从《国士》中汲取黄炎培先生“一分精神全为国，一寸光阴全为民”的赤子情怀，把对先贤的怀念与敬仰，转化为履职尽责、服务发展的实际行动。
+澳新银行分析师在周五的报告中称，该消息加剧了市场对石油供应进一步中断的担忧。
 
-两地民建将以此次活动为纽带，持续深化渝沪两地民建组织的沟通交流，携手推动民建事业薪火相传、再谱新篇。
+尽管已达成停火协议，周四霍尔木兹海峡的船舶通行量仍远低于正常水平的10%，原因是伊朗通过警告船只驶入其领海的方式宣示控制权。
 
-演出现场，舞台光影流转、场景移步换景，瞬间将观众拉回风云激荡的峥嵘岁月。
+美伊周二在巴基斯坦的斡旋下达成为期两周的停火，但协议宣布后仍有冲突发生。
 
 ## 相关推荐
 
-- 2026-06-29 16:13 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 16:12 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 16:08 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 15:54 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 16:09 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 16:08 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 16:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 16:00 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 16:06 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 16:01 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 16:25 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 16:28 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 16:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 16:27 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 16:24 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 16:11 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 16:20 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 16:13 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 16:03 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 16:14 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [恋与深空失控领地](https://www.share.minike.top/Article/details/19813324.shtml)
-- 2026-06-29 16:06 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/89620411.shtml)
-- 2026-06-29 16:02 - [金牌调解](http://www.share.kurohicncr.top/Article/details/50212787695.shtml)
-- 2026-06-29 16:04 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/41219.shtml)
-- 2026-06-29 16:03 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/01182122479.shtml)
-- 2026-06-29 16:14 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/741854.shtml)
-- 2026-06-29 16:12 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/4618364.shtml)
-- 2026-06-29 16:22 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/596739.shtml)
-- 2026-06-29 16:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/6371446.shtml)
-- 2026-06-29 16:02 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/488378.shtml)
-- 2026-06-29 15:56 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/701174.shtml)
-- 2026-06-29 15:54 - [扬名立万](https://www.share.minike.top/Article/details/5497929162.shtml)
-- 2026-06-29 16:14 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/761688.shtml)
-- 2026-06-29 16:23 - [恋与深空 731](https://www.share.minike.top/Article/details/882842202463.shtml)
-- 2026-06-29 16:17 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/391017505.shtml)
+- 2026-06-29 16:23 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/40976359569.shtml)
+- 2026-06-29 16:10 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/52865443910.shtml)
+- 2026-06-29 16:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/482466051143.shtml)
+- 2026-06-29 16:15 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/485343547.shtml)
+- 2026-06-29 16:04 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/679957.shtml)
+- 2026-06-29 16:11 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/655241.shtml)
+- 2026-06-29 16:26 - [金刚川](http://www.share.kurohicncr.top/Article/details/89159.shtml)
+- 2026-06-29 16:03 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/399158325626.shtml)
+- 2026-06-29 16:09 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/64488.shtml)
+- 2026-06-29 16:04 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/413203725623.shtml)
+- 2026-06-29 16:10 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/23222192.shtml)
+- 2026-06-29 16:29 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/3935442.shtml)
+- 2026-06-29 16:28 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/51891168698.shtml)
+- 2026-06-29 16:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/38347.shtml)
+- 2026-06-29 16:03 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/43025887.shtml)

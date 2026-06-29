@@ -1,60 +1,46 @@
-# 元成股份（603388）、卓朗科技（600225）投资者索赔均再提交法院立案
+# 3·15晚会曝光“万能神药”涉事企业被吊销营业执照并罚200万元
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-2026年5月7日，上海久诚律师事务所股票索赔律师许峰代理的元成股份（603388）虚假陈述投资者索赔案再向法院提交一次立案。 许峰律师代理的元成股份投资者索赔案此前已向法院提交立案，目前律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2026年1月9日，元成股份公告收到证监会浙江监管局下发的《行政处罚决定书》，经查明，元成股份、祝昌
+总台报道有反馈丨3·15晚会曝光“万能神药”涉事企业被吊销营业执照并罚200万元 记者从天津市市场监管部门了解到，被总台3·15晚会曝光的灏麟(天津)生物科技有限公司因涉嫌虚假宣传，近日被天津市市场监管部门罚款200万，并被吊销营业执照。 行政处罚决定书显示，经核查，当事人所提供的证据材料无法证明其销售的“轻”系列产品具有宣传所述的功效，属于对所售商品功能进行虚假的商业宣传，该
 
 ## 正文
 
-2026年5月7日，上海久诚律师事务所股票索赔律师许峰代理的元成股份（603388）虚假陈述投资者索赔案再向法院提交一次立案。
+总台报道有反馈丨3·15晚会曝光“万能神药”涉事企业被吊销营业执照并罚200万元 记者从天津市市场监管部门了解到，被总台3·15晚会曝光的灏麟(天津)生物科技有限公司因涉嫌虚假宣传，近日被天津市市场监管部门罚款200万，并被吊销营业执照。
 
-许峰律师代理的元成股份投资者索赔案此前已向法院提交立案，目前律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+行政处罚决定书显示，经核查，当事人所提供的证据材料无法证明其销售的“轻”系列产品具有宣传所述的功效，属于对所售商品功能进行虚假的商业宣传，该行为对消费者和其他经营者的购买决策产生实质性影响，依法应当认定为虚假宣传违法行为。
 
-（许峰律师专栏） 2026年1月9日，元成股份公告收到证监会浙江监管局下发的《行政处罚决定书》，经查明，元成股份、祝昌人违法事实如下： 1、元成股份2020年至2022年年报存在虚假记载 （一）通过虚增越龙山项目成本和产值，虚增公司2020年至2022年年报营业收入和利润总额 （二）未及时将淮阴项目价审差异入账处理，虚增公司2022年年报营业收入和利润总额 2、元成股份2022年非公开发行股票文件编造重大虚假内容（事项三） 许峰律师认为，综合相关违法事实，在2021年4月15日到2024年1月31日之间买入元成股份股票，并在2024年1月31日之后卖出或继续持有股票的投资者，可发起索赔。
-
-（元成股份维权入口） 除了元成股份投资者索赔案再次提交法院立案，2026年5月7日，许峰律师代理的卓朗科技（600225）投资者索赔案也再提交一次法院立案，卓朗科技退市不影响索赔。
-
-前期许峰律师代理的卓朗科技投资者索赔案在法院判决投资者胜诉后，投资者目前已经收到法院判定的赔偿款项，许峰律师代理的卓朗科技投资者索赔已经获得胜诉以及获赔到位。
-
-律师团队同步也还在继续接受其他投资者的索赔委托。
-
-2024年12月25日晚，卓朗科技（600225）公告收到证监会《行政处罚决定书》，经查，2019年至2023年，卓朗科技子公司天津卓朗科技发展有限公司虚构服务器、软件和系统集成服务销售业务，虚增收入和利润。
-
-上述虚假销售业务导致卓朗科技2019年至2023年年度报告分别虚增营业收入24，915.28万元、48，912.89万元、33，861.50万元、65，612.78万元、8，225.45万元，占各期对外披露营业收入的21.05%、45.19%、41.60%、72.46%、13.22%；分别虚增利润总额24，915.28万元、30，989.93万元、33，861.50万元、35，713.19万元、8，225.45万元，占各期对外披露利润总额绝对值的33.81%、7.68%、41.26%、86.08%、50.27%。
+(总台记者 陈庆滨 贾立梁 )
 
 ## 相关推荐
 
-- 2026-06-29 16:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 15:59 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 16:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 15:59 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 16:05 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 16:23 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 16:09 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 16:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 16:03 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 16:20 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 16:17 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 16:15 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 16:13 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 15:59 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 16:16 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 16:29 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 16:10 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 16:15 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 16:16 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 16:11 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 16:12 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 16:06 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 16:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 16:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/568056.shtml)
-- 2026-06-29 16:20 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/823812202.shtml)
-- 2026-06-29 15:57 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/93400963.shtml)
-- 2026-06-29 16:07 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/77543214.shtml)
-- 2026-06-29 15:59 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/92076366514.shtml)
-- 2026-06-29 16:07 - [超级计算机预测阿根廷和法国会师决赛](https://www.share.minike.top/Article/details/645617703837.shtml)
-- 2026-06-29 16:21 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/875888.shtml)
-- 2026-06-29 16:05 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/595447191.shtml)
-- 2026-06-29 15:55 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.minike.top/Article/details/2532410.shtml)
-- 2026-06-29 16:13 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/4590063040.shtml)
-- 2026-06-29 16:03 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/05903.shtml)
-- 2026-06-29 16:20 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/189154272.shtml)
-- 2026-06-29 16:15 - [斗破苍穹](http://www.blog.minike.top/Article/details/1673607.shtml)
-- 2026-06-29 16:14 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/4668134.shtml)
-- 2026-06-29 16:06 - [请回答王牌2019](http://www.share.minike.top/Article/details/3931245297.shtml)
+- 2026-06-29 16:14 - [一见倾心](https://www.share.minike.top/Article/details/703863135.shtml)
+- 2026-06-29 16:27 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/55523.shtml)
+- 2026-06-29 16:03 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/050803497481.shtml)
+- 2026-06-29 16:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/4968911779.shtml)
+- 2026-06-29 16:10 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/838674972123.shtml)
+- 2026-06-29 16:11 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/28497408954.shtml)
+- 2026-06-29 16:00 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/530080.shtml)
+- 2026-06-29 16:10 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/61593202.shtml)
+- 2026-06-29 16:24 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/28772.shtml)
+- 2026-06-29 16:21 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/394556603.shtml)
+- 2026-06-29 16:27 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/70992.shtml)
+- 2026-06-29 16:18 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/423439135891.shtml)
+- 2026-06-29 16:24 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/8664545.shtml)
+- 2026-06-29 16:27 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/340914.shtml)
+- 2026-06-29 16:12 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/3256923.shtml)

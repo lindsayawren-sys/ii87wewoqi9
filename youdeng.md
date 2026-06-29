@@ -1,56 +1,57 @@
-# 中越边境“生命直通车”已成功救助700余名两国急危重症患者
+# 岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-【东盟专线】中越边境“生命直通车”已成功救助700余名两国急危重症患者 中新社南宁5月8日电 (记者 黄艳梅)广西壮族自治区卫生健康委员会8日举行的新闻发布会披露，截至目前，“1369生命直通车”已成功救助700余名中越两国危急重症患者。 “1369生命直通车”于2016年8月开通，是广西防城港市立足边境口岸区位优势打造的跨境急救特色品牌，为危急重症患者提供24小时紧急医疗救助
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 岚图汽车科技股份有限公司总经理蒋焘表示，智能电动汽车的最终形态目前还没有形成，这就像2000年初的手机一样，从传统功能机向智能手机进化的过程中，其最终形态经历了巨大的变化，而现在的汽车，实际
 
 ## 正文
 
-【东盟专线】中越边境“生命直通车”已成功救助700余名两国急危重症患者 中新社南宁5月8日电 (记者 黄艳梅)广西壮族自治区卫生健康委员会8日举行的新闻发布会披露，截至目前，“1369生命直通车”已成功救助700余名中越两国危急重症患者。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-“1369生命直通车”于2016年8月开通，是广西防城港市立足边境口岸区位优势打造的跨境急救特色品牌，为危急重症患者提供24小时紧急医疗救助通关保障。
+岚图汽车科技股份有限公司总经理蒋焘表示，智能电动汽车的最终形态目前还没有形成，这就像2000年初的手机一样，从传统功能机向智能手机进化的过程中，其最终形态经历了巨大的变化，而现在的汽车，实际上也还没有达到最终的成熟状态。
 
-防城港市卫生健康委员会主任戴三军介绍，为破解跨境医疗语言沟通难题，该市组建由护理骨干组成的越南语志愿服务队，全程提供翻译服务，精准对接患者病情问询、诊疗方案告知等工作，保障救治各环节高效衔接。
+汽车智能化必将对整个行业带来巨大影响，也会深刻改变用户的消费选择。
 
-服务队全程参与院前评估、途中监护、病情监测、应急处置、专科护理及转运协调等工作，主动对接越方医疗机构、口岸联检等相关部门，高效完成患者信息核验、通关对接、转诊协调等工作，最大限度压缩通关时长，为救治争取黄金时间。
+在他看来，未来的汽车，有可能变得非常简单，也有可能变得非常复杂。
 
-戴三军表示，作为国际医学开放试验区，防城港市将深化与越南等东盟国家的护理交流合作，持续优化跨境急救转运护理流程，完善跨境医疗协作机制，推动护理服务与跨境急救、国际诊疗、康复护理深度融合。
+说它简单，是因为未来汽车可能只包含两个大的智能体：第一个智能体是控制车辆本身，负责将车辆从A点安全移动到B点，它会把现在的智能驾驶、自动测控、车灯控制等功能全部融合在一起；第二个智能体就是智能座舱，主要负责与用户进行沟通和交互，满足用户的个性化需求。
 
-(完)
+说它复杂，是因为要实现这样的智能水平，需要高度的集成化，每个功能模块下，都会把智能座舱、自动驾驶、测控系统、智能底盘等全部融合在一起，车辆的内部架构会越来越复杂，但对于用户而言，呈现出来的操作和体验却会越来越简单。
+
+他指出，这种变化会带来三个核心问题。
+
+第一个问题，就是要重新定义“什么是一辆好车”。
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 16:10 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 16:00 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 16:04 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 16:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 15:59 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 15:57 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 16:14 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 15:58 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 16:12 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 16:15 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 16:22 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 16:04 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 16:09 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 16:12 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 16:04 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 16:23 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 16:27 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 16:24 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 16:12 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 16:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 16:17 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 16:07 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 16:09 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 16:24 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:57 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/67592462.shtml)
-- 2026-06-29 16:11 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/958041756.shtml)
-- 2026-06-29 16:19 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/1105788301.shtml)
-- 2026-06-29 16:16 - [沙丘](http://www.share.minike.top/Article/details/50183667.shtml)
-- 2026-06-29 16:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/64505007.shtml)
-- 2026-06-29 16:23 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/992720.shtml)
-- 2026-06-29 16:01 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/54698713.shtml)
-- 2026-06-29 15:56 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/48524.shtml)
-- 2026-06-29 16:23 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/00393622708.shtml)
-- 2026-06-29 16:11 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/035712566.shtml)
-- 2026-06-29 15:55 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/6488258.shtml)
-- 2026-06-29 16:08 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.minike.top/Article/details/597202.shtml)
-- 2026-06-29 16:21 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/384306569623.shtml)
-- 2026-06-29 16:13 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/283409098.shtml)
-- 2026-06-29 15:55 - [普京承认俄出现燃料危机](https://www.blog.kurohicncr.top/Article/details/154603170.shtml)
+- 2026-06-29 16:02 - [欧盟为什么越来越倾向贸易保护](http://www.blog.kurohicncr.top/Article/details/29368.shtml)
+- 2026-06-29 16:14 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/784915004.shtml)
+- 2026-06-29 16:05 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/3747520026.shtml)
+- 2026-06-29 16:01 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/25779803.shtml)
+- 2026-06-29 16:26 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/920201114727.shtml)
+- 2026-06-29 16:08 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/84101550649.shtml)
+- 2026-06-29 16:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/342114329617.shtml)
+- 2026-06-29 16:19 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/619859813.shtml)
+- 2026-06-29 16:10 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/88665.shtml)
+- 2026-06-29 16:00 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/8467798.shtml)
+- 2026-06-29 16:11 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/8584552333.shtml)
+- 2026-06-29 16:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/23265972.shtml)
+- 2026-06-29 16:18 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/787755060.shtml)
+- 2026-06-29 16:25 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/32101.shtml)
+- 2026-06-29 16:28 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/2463243.shtml)

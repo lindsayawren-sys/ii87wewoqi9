@@ -1,57 +1,58 @@
-# “五一”假期广西新能源汽车充电量创历史同期新高
+# 壳牌计划2027年启动Loran-Manatee气田天然气生产
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月7日电(黄令妍 陆冬琦 陈丽婷)广西“八桂充”省级电动汽车充电服务与监管平台7日提供的信息显示，今年“五一”假期，广西新能源汽车充电总量达4158万千瓦时，同比增长35.93%，创历史同期新高。从5月1日起，广西连续5天单日充电量均突破700万千瓦时。亮眼的充电数据，折射出广西“绿色文旅”与“低碳出行”深度融合。 在“五一”假期期间，广西文旅市场持续火热。南方电网
+能源生产商壳牌计划于2027年开始从Loran-Manatee海上气田产出天然气。该气田横跨委内瑞拉与特立尼达和多巴哥的海上边界，特立尼达国家天然气公司董事长杰拉尔德·拉姆丁周四向路透社透露了这一消息。 在临时总统德尔西·罗德里格斯政府领导下，壳牌正加速推进委内瑞拉的天然气项目，尤其是与特立尼达合作的项目。特立尼达需要新的天然气供应来支持其液化天然气和石化项目。 拉姆丁表示，壳
 
 ## 正文
 
-中新网南宁5月7日电(黄令妍 陆冬琦 陈丽婷)广西“八桂充”省级电动汽车充电服务与监管平台7日提供的信息显示，今年“五一”假期，广西新能源汽车充电总量达4158万千瓦时，同比增长35.93%，创历史同期新高。
+能源生产商壳牌计划于2027年开始从Loran-Manatee海上气田产出天然气。
 
-从5月1日起，广西连续5天单日充电量均突破700万千瓦时。
+该气田横跨委内瑞拉与特立尼达和多巴哥的海上边界，特立尼达国家天然气公司董事长杰拉尔德·拉姆丁周四向路透社透露了这一消息。
 
-亮眼的充电数据，折射出广西“绿色文旅”与“低碳出行”深度融合。
+在临时总统德尔西·罗德里格斯政府领导下，壳牌正加速推进委内瑞拉的天然气项目，尤其是与特立尼达合作的项目。
 
-在“五一”假期期间，广西文旅市场持续火热。
+特立尼达需要新的天然气供应来支持其液化天然气和石化项目。
 
-南方电网广西电动汽车服务有限公司作为广西站点最多、容量最大的充换电运营服务商，全力保障假期充电需求。
+拉姆丁表示，壳牌已告知国家天然气公司，其正在努力争取明年从该联合气田产出第一批天然气。
 
-该公司运营服务部副总经理韦静媛介绍，假期期间累计服务新能源汽车超24万辆次，高速服务区、热门景区、县域乡镇充电需求尤为旺盛。
+该公司已将用于输送天然气至特立尼达的管道容量从原计划的每日7亿立方英尺提升至每日10亿立方英尺。
 
-针对南宁、桂林阳朔等充电需求激增区域，该公司提前优化站点运维，保障充电效率，全力保障民众出行补能。
+“这些天然气现在将通过一条32英寸的管道输送至我们的Beachfield设施，而非原计划的24英寸管道，”拉姆丁在接受采访时补充道。
 
-假期期间，南宁青秀山等核心景区结合节日特点推出系列活动，南方电网南宁区域充电量同比增长98.4%。
+此前有报道称，壳牌正在深入谈判参与Loran气田（该气田位于委内瑞拉一侧），并可能选择将其与Manatee气田作为一个统一项目进行开发。
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 16:07 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 16:17 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 16:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 16:21 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 16:17 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 15:57 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 15:56 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 16:04 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 15:59 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 15:55 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 16:10 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 16:20 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 16:01 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 16:14 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 16:10 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 16:12 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 16:00 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 16:22 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 16:16 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 16:26 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 16:02 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 16:09 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:56 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/51689865855.shtml)
-- 2026-06-29 15:56 - [当我回母校教书](https://www.blog.minike.top/Article/details/278278.shtml)
-- 2026-06-29 16:00 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/55492.shtml)
-- 2026-06-29 16:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/919029390.shtml)
-- 2026-06-29 16:19 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/240745.shtml)
-- 2026-06-29 16:19 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/005205469871.shtml)
-- 2026-06-29 16:11 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/50876685175.shtml)
-- 2026-06-29 15:59 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/0748457076.shtml)
-- 2026-06-29 16:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/807092015433.shtml)
-- 2026-06-29 16:06 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/1223673.shtml)
-- 2026-06-29 16:08 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/8459700431.shtml)
-- 2026-06-29 15:57 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/766953217.shtml)
-- 2026-06-29 16:15 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/678795.shtml)
-- 2026-06-29 16:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/53173194.shtml)
-- 2026-06-29 16:04 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/4755957415.shtml)
+- 2026-06-29 16:17 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/0961934.shtml)
+- 2026-06-29 16:06 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/51531812760.shtml)
+- 2026-06-29 16:27 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/42126300.shtml)
+- 2026-06-29 16:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/096172061.shtml)
+- 2026-06-29 16:07 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/254960012302.shtml)
+- 2026-06-29 16:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/8424893496.shtml)
+- 2026-06-29 16:08 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/67547.shtml)
+- 2026-06-29 16:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/221186349830.shtml)
+- 2026-06-29 16:08 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.minike.top/Article/details/370491.shtml)
+- 2026-06-29 16:09 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/4503045.shtml)
+- 2026-06-29 16:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/7286221.shtml)
+- 2026-06-29 16:11 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/3229373.shtml)
+- 2026-06-29 16:07 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/3804364.shtml)
+- 2026-06-29 16:29 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/615331.shtml)
+- 2026-06-29 16:11 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/817024962.shtml)

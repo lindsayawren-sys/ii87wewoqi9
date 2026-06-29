@@ -1,61 +1,60 @@
-# 证监会严肃查处元道通信财务造假案件
+# 重磅！证监会最新发布！创业板新规，提出八大改革举措
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证监会发布 近日，证监会对元道通信（维权）股份有限公司（简称元道通信）财务造假案件作出行政处罚事先告知。经查，元道通信2019年至2022年虚增收入，涉嫌欺诈发行、定期报告信息披露违法违规等。证监会拟对上市公司罚款23，884万元，对3名责任人员合计罚
+专题：证监会发布！深化创业板改革总体方案出炉 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月10日，经国务院同意，证监会发布《关于深化创业板改革 更好服务新质生产力发展的意见》（以下简称《创业板意见》），这是进一步提高资本市场制度包容性、适应性，健全投资和融资相协调的资本市场功能的重要举措，标志着新一轮全面深化资本市场改革向纵深推进。 具体来看，《
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：证监会发布！
 
-来源：证监会发布 近日，证监会对元道通信（维权）股份有限公司（简称元道通信）财务造假案件作出行政处罚事先告知。
+深化创业板改革总体方案出炉 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-经查，元道通信2019年至2022年虚增收入，涉嫌欺诈发行、定期报告信息披露违法违规等。
+4月10日，经国务院同意，证监会发布《关于深化创业板改革 更好服务新质生产力发展的意见》（以下简称《创业板意见》），这是进一步提高资本市场制度包容性、适应性，健全投资和融资相协调的资本市场功能的重要举措，标志着新一轮全面深化资本市场改革向纵深推进。
 
-证监会拟对上市公司罚款23，884万元，对3名责任人员合计罚款1，800万元并对相关人员采取5年证券市场禁入措施。
+具体来看，《创业板意见》深入贯彻党中央、国务院决策部署，牢牢把握防风险、强监管、促高质量发展的工作主线，围绕持续深化资本市场投融资改革，优化创业板全链条创新和监管制度体系，进一步提高制度包容性、适应性，提出了八大针对性的改革举措。
 
-元道通信涉嫌触及重大违法强制退市情形，深交所将依法启动退市程序。
+一是突出板块功能定位，更好服务实体经济高质量发展。
 
-证监会已冻结元道通信募集资金相关账户，目前正在对中介机构执业情况开展调查。
+进一步发挥创业板主要服务成长型创新创业企业的特色和优势，加力支持新产业、新业态、新技术企业发展和传统产业转型升级。
 
-对于可能涉及的犯罪线索，证监会将坚持应移尽移工作原则，严格按照《刑法》《最高人民检察院 公安部关于公安机关管辖的刑事案件立案追诉标准的规定（二）》的规定移送公安机关。
+积极支持优质未盈利创新企业和新型消费、现代服务业等领域优质创新企业发行上市。
 
-责任编辑：杨红卜
+二是优化发行上市标准，提高包容性和吸引力。
 
 ## 相关推荐
 
-- 2026-06-29 16:19 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 16:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 16:20 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 16:04 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 16:14 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 15:54 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 16:07 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 16:20 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 16:23 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 16:08 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 15:54 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 16:07 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 16:08 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 16:02 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 15:56 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 16:06 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 16:23 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 16:07 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 16:22 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 16:29 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 16:27 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 16:05 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 16:12 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 16:20 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 16:14 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 16:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 16:08 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 16:29 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 16:24 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/1719443.shtml)
-- 2026-06-29 16:19 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/679580343144.shtml)
-- 2026-06-29 16:10 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/6630678477.shtml)
-- 2026-06-29 16:04 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/400298761394.shtml)
-- 2026-06-29 15:55 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/19070927.shtml)
-- 2026-06-29 16:04 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/018731063.shtml)
-- 2026-06-29 16:00 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/687954382592.shtml)
-- 2026-06-29 16:07 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/952880.shtml)
-- 2026-06-29 16:03 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/98700.shtml)
-- 2026-06-29 16:09 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/79534602348.shtml)
-- 2026-06-29 16:12 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/303951479.shtml)
-- 2026-06-29 15:56 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/7148160.shtml)
-- 2026-06-29 15:56 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/4696524.shtml)
-- 2026-06-29 16:07 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/62521.shtml)
-- 2026-06-29 15:54 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/4744806452.shtml)
+- 2026-06-29 16:00 - [美的空调 卡bug](http://www.share.minike.top/Article/details/4602958.shtml)
+- 2026-06-29 16:20 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/1038088.shtml)
+- 2026-06-29 16:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/41748005054.shtml)
+- 2026-06-29 16:27 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/3960389.shtml)
+- 2026-06-29 16:12 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/712036481573.shtml)
+- 2026-06-29 16:19 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/0455208714.shtml)
+- 2026-06-29 16:30 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/39073032057.shtml)
+- 2026-06-29 16:03 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/73319075933.shtml)
+- 2026-06-29 16:17 - [流金岁月](http://www.share.kurohicncr.top/Article/details/64684852.shtml)
+- 2026-06-29 16:13 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/060301527.shtml)
+- 2026-06-29 16:14 - [欧盟为什么越来越倾向贸易保护](http://www.share.kurohicncr.top/Article/details/05547484.shtml)
+- 2026-06-29 16:29 - [博主：黄金和原油回落不等于风险消失](https://www.share.kurohicncr.top/Article/details/78118.shtml)
+- 2026-06-29 16:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/0270445.shtml)
+- 2026-06-29 16:12 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/00563176471.shtml)
+- 2026-06-29 16:29 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/69357804.shtml)

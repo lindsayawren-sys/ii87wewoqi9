@@ -1,56 +1,52 @@
-# 谁来为无子女老人暮年“兜底”？
+# 世界无人机运动会启幕 成都上演精彩“空中竞技”
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-既要晚年照护有保障，也需妥善处置“身后事” 谁来为无子女老人暮年“兜底”？ 阅读提示 对老人来说，要根据自己的风险点进行组合安排，把“生前照护、失能监护、身后处理”三件事分开设计，这样才是真正有兜底能力的方案。家住北京的贺女士今年77岁，在北京有三处住房，退休金充裕，但她一生未婚，无儿无女，父母早已过世，虽有两个哥哥和两个姐姐，却也都年事已高。因此，今后的养老问题一直是她的一个
+发布时间：2026年04月11日 20:58 来源：中国新闻网 4月11日，世界无人机运动会在成都高新区新川之心机器人公园开赛。来自中小学、高校、企业和多个国家和地区的443支参赛队伍在高新赛区同场竞技。 本次高新赛区共设置无人机举重、无人机击剑、无人机篮球、低空智控赛四大赛项。比赛现场，伴随阵阵嗡鸣声，各类无人机腾空而起，在选手们的精准操作下完成高难度动作，将技术比拼转化为极
 
 ## 正文
 
-既要晚年照护有保障，也需妥善处置“身后事” 谁来为无子女老人暮年“兜底”？
+发布时间：2026年04月11日 20:58 来源：中国新闻网 4月11日，世界无人机运动会在成都高新区新川之心机器人公园开赛。
 
-阅读提示 对老人来说，要根据自己的风险点进行组合安排，把“生前照护、失能监护、身后处理”三件事分开设计，这样才是真正有兜底能力的方案。
+来自中小学、高校、企业和多个国家和地区的443支参赛队伍在高新赛区同场竞技。
 
-家住北京的贺女士今年77岁，在北京有三处住房，退休金充裕，但她一生未婚，无儿无女，父母早已过世，虽有两个哥哥和两个姐姐，却也都年事已高。
+本次高新赛区共设置无人机举重、无人机击剑、无人机篮球、低空智控赛四大赛项。
 
-因此，今后的养老问题一直是她的一个心病。
+比赛现场，伴随阵阵嗡鸣声，各类无人机腾空而起，在选手们的精准操作下完成高难度动作，将技术比拼转化为极具观赏性的“空中竞技”。
 
-她曾向社区求助，也咨询过律师，有人建议她去养老院，有人提议她办理遗嘱。
-
-但这些都未能解决她最核心的担忧——当她生病卧床、意识不清时，该怎么办？
-
-贺女士的情况并非个案，对于无子女老人来说，其既需要晚年照护有保障，也需要“身后事”能得到妥善处置，这就指向了一个关键性的问题：谁来为无子女老人的暮年做最后的“兜底”？
-
-与最信任的人签订意定监护 2025年6月，贺女士来到了北京市信德公证处。
+何美锟 四川成都报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 16:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 15:57 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 15:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 16:22 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 16:17 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 16:19 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 16:01 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 16:00 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 16:21 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 16:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 16:24 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 16:09 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 16:21 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 16:22 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 16:08 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 16:25 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 16:18 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 16:16 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 16:07 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 16:09 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 16:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:54 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/1950505319.shtml)
-- 2026-06-29 16:12 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/510355.shtml)
-- 2026-06-29 15:54 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/6887666398.shtml)
-- 2026-06-29 16:14 - [新能源车能当外接空调用吗](http://www.blog.kurohicncr.top/Article/details/187005244034.shtml)
-- 2026-06-29 16:12 - [青春环游记第三季](http://www.blog.minike.top/Article/details/40083.shtml)
-- 2026-06-29 16:19 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.kurohicncr.top/Article/details/61707.shtml)
-- 2026-06-29 15:57 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/7303975.shtml)
-- 2026-06-29 15:56 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/100765707.shtml)
-- 2026-06-29 16:15 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/868356.shtml)
-- 2026-06-29 15:56 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/68660701873.shtml)
-- 2026-06-29 16:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/3952978856.shtml)
-- 2026-06-29 16:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/000957326.shtml)
-- 2026-06-29 16:10 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/07128521485.shtml)
-- 2026-06-29 16:02 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/628150240.shtml)
-- 2026-06-29 16:14 - [发反科学内容为何会有200万粉丝](http://www.share.minike.top/Article/details/59420.shtml)
+- 2026-06-29 16:16 - [南非老帅布罗斯的梦没能做完](https://www.blog.minike.top/Article/details/3973887.shtml)
+- 2026-06-29 16:04 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/33863015.shtml)
+- 2026-06-29 16:04 - [当我回母校教书](https://www.blog.minike.top/Article/details/4066745254.shtml)
+- 2026-06-29 16:21 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/88864.shtml)
+- 2026-06-29 16:16 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/04356905.shtml)
+- 2026-06-29 16:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/06148093015.shtml)
+- 2026-06-29 16:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/123398135266.shtml)
+- 2026-06-29 16:18 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/21660026.shtml)
+- 2026-06-29 16:21 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/86790608.shtml)
+- 2026-06-29 16:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/1039055.shtml)
+- 2026-06-29 16:10 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/058253691211.shtml)
+- 2026-06-29 16:17 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/28392581.shtml)
+- 2026-06-29 16:24 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/14393228766.shtml)
+- 2026-06-29 16:22 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/29278.shtml)
+- 2026-06-29 16:01 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/49469.shtml)

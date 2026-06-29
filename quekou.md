@@ -1,53 +1,44 @@
-# 四川乐山市中区通报“玉河沟水体异味”：对该河段进行清理
+# KIM YOUNG JUN（金暎埈）获批担任韩亚银行（中国）董事、董事长
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网5月8日电 据“乐山头条”微信公众号消息，四川省乐山市市中区联合工作组发布情况通报，2026年5月7日17时，有网民反映乐山市市中区玉河沟水体异味问题，市中区高度重视，立即成立联合工作组，连夜开展排查处置。经初步核查，造成水体异味的主要原因是，玉河沟地处城乡结合部，沿线部分区域市政污水管网建成年代较早，基础设施不完善、老旧管网破损、巡查管护不到位，加之正值春灌高峰期，河沟
+4月10日金融一线消息，北京金融监管局发布《关于KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长任职资格的批复》，核准KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长的任职资格。 责任编辑：曹睿潼
 
 ## 正文
 
-中新网5月8日电 据“乐山头条”微信公众号消息，四川省乐山市市中区联合工作组发布情况通报，2026年5月7日17时，有网民反映乐山市市中区玉河沟水体异味问题，市中区高度重视，立即成立联合工作组，连夜开展排查处置。
+4月10日金融一线消息，北京金融监管局发布《关于KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长任职资格的批复》，核准KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长的任职资格。
 
-经初步核查，造成水体异味的主要原因是，玉河沟地处城乡结合部，沿线部分区域市政污水管网建成年代较早，基础设施不完善、老旧管网破损、巡查管护不到位，加之正值春灌高峰期，河沟来水不足、自净能力下降，导致水质变差。
-
-目前，联合工作组正在对该河段进行清理，对破损管网展开抢修。
-
-下一步，市中区将加快完善城乡结合部市政基础设施和老旧管网改造，加大日常巡查管护力度，进一步改善流域环境。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 16:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 16:04 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 16:16 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 16:13 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 16:09 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 16:18 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 15:56 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 16:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 15:58 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 16:15 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 16:01 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 16:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 16:11 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 16:13 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 16:20 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 16:08 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 16:17 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 16:29 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 16:06 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 16:18 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 16:23 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 16:18 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 16:09 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 16:08 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 16:02 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:21 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/8509032.shtml)
-- 2026-06-29 15:59 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/282169639551.shtml)
-- 2026-06-29 16:13 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/332067870.shtml)
-- 2026-06-29 16:18 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/3206841.shtml)
-- 2026-06-29 16:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/35901518497.shtml)
-- 2026-06-29 16:07 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/793213525374.shtml)
-- 2026-06-29 16:14 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/17956831.shtml)
-- 2026-06-29 15:57 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/46755.shtml)
-- 2026-06-29 16:22 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/23539166747.shtml)
-- 2026-06-29 16:01 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/88245945812.shtml)
-- 2026-06-29 15:55 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/05955.shtml)
-- 2026-06-29 16:23 - [普京：俄面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/57913215111.shtml)
-- 2026-06-29 16:16 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/549104642840.shtml)
-- 2026-06-29 15:56 - [周杰伦演唱会真的好多人啊](http://www.share.kurohicncr.top/Article/details/1090055546.shtml)
-- 2026-06-29 16:02 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/248337.shtml)
+- 2026-06-29 16:30 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/536626683450.shtml)
+- 2026-06-29 16:28 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/180879.shtml)
+- 2026-06-29 16:25 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/00730.shtml)
+- 2026-06-29 16:08 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/012225959.shtml)
+- 2026-06-29 16:08 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/63877316.shtml)
+- 2026-06-29 16:10 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/07699833906.shtml)
+- 2026-06-29 16:09 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/49947970.shtml)
+- 2026-06-29 16:00 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/196406771520.shtml)
+- 2026-06-29 16:06 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/381226.shtml)
+- 2026-06-29 16:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/162247641.shtml)
+- 2026-06-29 16:01 - [扬名立万](http://www.blog.minike.top/Article/details/5867266.shtml)
+- 2026-06-29 16:03 - [网友飞机上偶遇肖战](https://www.share.kurohicncr.top/Article/details/647794585785.shtml)
+- 2026-06-29 16:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/562887.shtml)
+- 2026-06-29 16:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/5596576654.shtml)
+- 2026-06-29 16:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/7646010.shtml)

@@ -1,56 +1,54 @@
-# 酒价内参5月8日价格发布：精品茅台下跌1元/瓶
+# Truist下调Tronox评级，股价跌幅超5%
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月8日小幅回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9944元，较昨日上涨5元，结束前一日的回调。市场在短暂走弱后重回平稳，终端交投情绪保持稳定，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨四跌两平，赢家略占上风。
+在2026年股价已上涨逾一倍之后，Truist认为现在或许是时候暂缓买入Tronox了。 该银行将这家钛产品生产商的评级从“买入”下调至“持有”，同时将其目标价上调至9美元，这意味着较周三收盘价下跌1%。分析师Peter Osterland在周四的一份报告中写道，虽然大宗商品价格上涨帮助该公司自美伊战争爆发以来股价上涨了20%，但投资者可能忽视了公司面临的风险。 Osterla
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月8日小幅回升。
+在2026年股价已上涨逾一倍之后，Truist认为现在或许是时候暂缓买入Tronox了。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9944元，较昨日上涨5元，结束前一日的回调。
+该银行将这家钛产品生产商的评级从“买入”下调至“持有”，同时将其目标价上调至9美元，这意味着较周三收盘价下跌1%。
 
-市场在短暂走弱后重回平稳，终端交投情绪保持稳定，核心单品涨跌分化依然显著。
+分析师Peter Osterland在周四的一份报告中写道，虽然大宗商品价格上涨帮助该公司自美伊战争爆发以来股价上涨了20%，但投资者可能忽视了公司面临的风险。
 
-今日白酒市场11大单品五涨四跌两平，赢家略占上风。
+Osterland写道：“我们确实认为，成本压力和不利的地域组合对TROX近期盈利和现金流产生影响的 risk 有所升高。
 
-上涨方面，青花郎涨幅居前，上涨7元/瓶，重返700元关口上方；洋河梦之蓝M6+上涨4元/瓶，平近一月最高价格；五粮液1618上涨2元/瓶；古井贡古20与习酒君品均上涨1元/瓶。
+虽然我们认为在‘正常化’条件下，TROX较高程度的垂直整合是一个优势，但我们确实认为，由于运费和物流成本上升，这在短期内可能成为一个相对劣势。
 
-下跌方面，国窖1573跌幅居前，下跌5元/瓶，近期该酒品的价格波动较为剧烈，在900元大关附近反复震荡；水晶剑南春下跌3元/瓶；飞天茅台与精品茅台均下跌1元/瓶。
+” 周四午后交易中，Tronox股价跌幅超过5%。
 
-五粮液普五八代与青花汾20的价格环比保持不变。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 16:12 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 16:10 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 16:10 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 15:57 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 16:04 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 16:12 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 15:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 16:16 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 16:11 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 16:14 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 16:13 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 16:01 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 16:02 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 16:05 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 16:29 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 16:23 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 16:17 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 16:17 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 16:21 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/7274716271.shtml)
-- 2026-06-29 16:23 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/81020784768.shtml)
-- 2026-06-29 16:18 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/02383439.shtml)
-- 2026-06-29 16:10 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/2865020.shtml)
-- 2026-06-29 16:21 - [青春环游记第三季](https://www.blog.minike.top/Article/details/4023824.shtml)
-- 2026-06-29 16:16 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/46510.shtml)
-- 2026-06-29 16:00 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/83026120.shtml)
-- 2026-06-29 16:08 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/530701470.shtml)
-- 2026-06-29 16:20 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/178510392.shtml)
-- 2026-06-29 16:23 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/47563390.shtml)
-- 2026-06-29 15:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/17908.shtml)
-- 2026-06-29 15:55 - [端午节加班工资应该怎么算](http://www.blog.kurohicncr.top/Article/details/3845225850.shtml)
-- 2026-06-29 16:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/07054.shtml)
-- 2026-06-29 16:07 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/055715047.shtml)
-- 2026-06-29 16:17 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/05262178.shtml)
+- 2026-06-29 16:10 - [恋与深空 731](http://www.share.minike.top/Article/details/5756475.shtml)
+- 2026-06-29 16:20 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/02054578.shtml)
+- 2026-06-29 16:05 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/11339039797.shtml)
+- 2026-06-29 16:01 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/98437.shtml)
+- 2026-06-29 16:13 - [把古诗里的动作换成加班](http://www.blog.minike.top/Article/details/631196.shtml)
+- 2026-06-29 16:19 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/40877525705.shtml)
+- 2026-06-29 16:29 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/3053411.shtml)
+- 2026-06-29 16:23 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/504481230084.shtml)
+- 2026-06-29 16:26 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/38008498121.shtml)
+- 2026-06-29 16:13 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/75314798.shtml)
+- 2026-06-29 16:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/455370.shtml)
+- 2026-06-29 16:16 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/73928754250.shtml)
+- 2026-06-29 16:23 - [沙丘](http://www.share.minike.top/Article/details/646952593350.shtml)
+- 2026-06-29 16:00 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/242487302.shtml)
+- 2026-06-29 16:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/798771.shtml)

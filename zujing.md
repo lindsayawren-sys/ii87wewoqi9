@@ -1,59 +1,52 @@
-# 美丽新疆丨沙漠镶绿，零碳焕新 这条公路的“变身”太燃了
+# 连云港东方农村商业银行被罚97.31万元：违反金融统计相关规定等
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-石榴云/新疆日报记者 于江艳 通讯员 王成凯 莽莽塔克拉玛干，漫漫沙漠公路，一条绿色长廊在流沙中蜿蜒延伸，成为大漠深处最动人的风景线。近日，塔里木沙漠公路生态防护林完成建成以来首次大面积苗木补植，50万株耐旱苗木扎根沙海，165万平方米草方格锁住黄沙，为这条世界最长贯穿流动性沙漠的等级公路再添生机。 从夫妻工常年驻守悉心管护，到油田重金投入持续守护，再到科研团队联手攻坚生态治理
+4月10日金融一线消息，中国人民银行连云港市分行行政处罚决定信息公示表显示，连云港东方农村商业银行股份有限公司因违反金融统计相关规定；违反账户管理规定；违反人民币反假规定；违反信用信息采集、提供、查询及相关管理规定；未按照规定报告可疑交易；为身份不明的客户提供服务、与其进行交易，受到警告，并处罚款97.3075万元。 序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为
 
 ## 正文
 
-石榴云/新疆日报记者 于江艳 通讯员 王成凯 莽莽塔克拉玛干，漫漫沙漠公路，一条绿色长廊在流沙中蜿蜒延伸，成为大漠深处最动人的风景线。
+4月10日金融一线消息，中国人民银行连云港市分行行政处罚决定信息公示表显示，连云港东方农村商业银行股份有限公司因违反金融统计相关规定；违反账户管理规定；违反人民币反假规定；违反信用信息采集、提供、查询及相关管理规定；未按照规定报告可疑交易；为身份不明的客户提供服务、与其进行交易，受到警告，并处罚款97.3075万元。
 
-近日，塔里木沙漠公路生态防护林完成建成以来首次大面积苗木补植，50万株耐旱苗木扎根沙海，165万平方米草方格锁住黄沙，为这条世界最长贯穿流动性沙漠的等级公路再添生机。
+序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚决定日期 公示期限（自公示起计算） 备注 1 连云港东方农村商业银行股份有限公司 连银罚决字〔2026〕1号 违反金融统计相关规定；违反账户管理规定；违反人民币反假规定；违反信用信息采集、提供、查询及相关管理规定；未按照规定报告可疑交易；为身份不明的客户提供服务、与其进行交易。
 
-从夫妻工常年驻守悉心管护，到油田重金投入持续守护，再到科研团队联手攻坚生态治理，新疆以久久为功的坚守、科学精准的施策，在沙漠腹地书写治沙护路、生态修复的绿色答卷，让大漠戈壁绿意绵延，绘就人与自然和谐共生的壮美画卷。
+警告，并处罚款97.3075万元。
 
-补植50万株新苗木5月6日清晨，太阳刚越过沙丘，周银丰就扛起铁锹，赶往水井房东边的林带，查看补种苗木长势。
-
-作为专职养护塔里木沙漠公路生态防护林的工人，周银丰和妻子邱利兰常年驻守在48号水井房，为附近4公里范围的生态防护林浇水、施肥、打药。
-
-“4月中下旬以来，我们在林带两边补种了三、四千棵柽柳、梭梭，现在天气一天比一天热，得重点关注苗木长势，水得及时跟上。
-
-”周银丰说。
-
-塔里木沙漠公路全长562公里，两侧生态防护林绵延436公里，为守护好这条绿丝带，沿途109座水井房的夫妻工，常年坚守在沙漠公路两侧。
+中国人民银行连云港市分行 2026年3月26日 三年 责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 15:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 16:09 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 16:08 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 16:18 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 16:21 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 15:57 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 16:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 16:16 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 16:11 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 16:02 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 16:16 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 16:05 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 16:20 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 16:08 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 16:09 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 16:02 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 16:02 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 16:13 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 16:21 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 16:24 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 16:14 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 16:07 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 16:04 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 16:23 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 16:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 16:19 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 16:00 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/244650805202.shtml)
-- 2026-06-29 15:59 - [送你一朵小红花](http://www.share.minike.top/Article/details/5905210633.shtml)
-- 2026-06-29 16:06 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/00090146.shtml)
-- 2026-06-29 16:22 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/59307341258.shtml)
-- 2026-06-29 16:07 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/28767704881.shtml)
-- 2026-06-29 16:05 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/470771878.shtml)
-- 2026-06-29 16:10 - [博主：全球股市进入“AI极端共振”](https://www.share.kurohicncr.top/Article/details/962099255391.shtml)
-- 2026-06-29 15:55 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/34324338425.shtml)
-- 2026-06-29 15:59 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/24997.shtml)
-- 2026-06-29 16:13 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/7350836.shtml)
-- 2026-06-29 16:10 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/9718260.shtml)
-- 2026-06-29 16:04 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/68284657084.shtml)
-- 2026-06-29 15:54 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/209690768610.shtml)
-- 2026-06-29 16:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/679285272.shtml)
-- 2026-06-29 15:56 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/8065022.shtml)
+- 2026-06-29 16:12 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/3977888.shtml)
+- 2026-06-29 16:20 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/32338382.shtml)
+- 2026-06-29 16:07 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/11249.shtml)
+- 2026-06-29 16:17 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/6515446333.shtml)
+- 2026-06-29 16:01 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/86832614.shtml)
+- 2026-06-29 16:24 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/15287805.shtml)
+- 2026-06-29 16:01 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/133239098.shtml)
+- 2026-06-29 16:21 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/619576606748.shtml)
+- 2026-06-29 16:10 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/4892392.shtml)
+- 2026-06-29 16:25 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/9340194732.shtml)
+- 2026-06-29 16:01 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/656831560028.shtml)
+- 2026-06-29 16:10 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/1246478507.shtml)
+- 2026-06-29 16:14 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/4372538.shtml)
+- 2026-06-29 16:01 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/845926769.shtml)
+- 2026-06-29 16:28 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/75106.shtml)

@@ -1,57 +1,49 @@
-# 大湾区锂电池海运出口“一箱制”落地 助力“新三样”高效出海
+# *ST声迅（003004）：中标绍兴京越地铁有限公司采购项目，中标金额为390.00万元
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-记者从广东海事局了解到，5月7日，装载东莞制造锂电池产品的集装箱货车从东莞启运，约90分钟后抵达深圳盐田港，被直接吊装上货轮发往海外市场，这标志着莞深锂电池海运出口“一箱制”新模式完成首单运输，正式进入常态化运行，为粤港澳大湾区跨境贸易便利化再添一项重要制度创新成果。今后，符合条件的东莞锂电池产品在装箱阶段完成查验后，即可直接从盐田港装船出海，将服务东莞约400多家锂电池生产企
+同壁财经讯，企查查数据显示，根据《绍兴市城市轨道交通1号线工程运营2025年安检机功能模块采购项目（重新招标）中标结果公示》，北京声迅电子股份有限公司于2026年4月9日公告中标绍兴京越地铁有限公司采购项目，中标金额为390.00万元。相关上市公司：*ST声迅（维权）(003004.SZ)同壁财经小贴士：*ST声迅（003004.SZ）2024年营业收入为3.02亿元，营业收入
 
 ## 正文
 
-记者从广东海事局了解到，5月7日，装载东莞制造锂电池产品的集装箱货车从东莞启运，约90分钟后抵达深圳盐田港，被直接吊装上货轮发往海外市场，这标志着莞深锂电池海运出口“一箱制”新模式完成首单运输，正式进入常态化运行，为粤港澳大湾区跨境贸易便利化再添一项重要制度创新成果。
+同壁财经讯，企查查数据显示，根据《绍兴市城市轨道交通1号线工程运营2025年安检机功能模块采购项目（重新招标）中标结果公示》，北京声迅电子股份有限公司于2026年4月9日公告中标绍兴京越地铁有限公司采购项目，中标金额为390.00万元。
 
-今后，符合条件的东莞锂电池产品在装箱阶段完成查验后，即可直接从盐田港装船出海，将服务东莞约400多家锂电池生产企业高效出海。
+相关上市公司：*ST声迅（维权）(003004.SZ)同壁财经小贴士：*ST声迅（003004.SZ）2024年营业收入为3.02亿元，营业收入增长率为7.85%，归属母公司净利润为-0.51亿元，归属母公司净利润增长率为-304.23%，净资产收益率为-6.58%。
 
-锂电池作为我国外贸出口“新三样”之一，东莞是重要的锂电池生产基地。
+2025年上半年公司营业收入为0.73亿元，营业收入增长率为27.51%，归属母公司净利润为-0.10亿元，归属母公司净利润增长率为58.50%。
 
-过去，东莞生产的锂电池在装箱后，到达盐田港会由深圳海事部门进行抽查，一旦遇上查验高峰，往往需要滞港等待，产生吊装、堆存、人工等额外费用。
-
-在抽查过程中一旦发现问题，企业货物将无法出海并折返。
-
-不仅增加了企业出口物流成本，也影响了出口效率。
-
-现在，通过“一箱制”的新模式，东莞企业在工厂装箱阶段，即可申请海事部门上门查验，产品查验合格后，就可以直达深圳盐田港出海。
-
-深圳海事部门一般不再重复开箱查验，实现“一次查验、一箱到底”。
+目前公司属于信息技术行业，主要产品类型为监控器材及系统，2024年报主营构成为监控报警系统:47.26%;安检系统:25.61%;监控报警服务:14.48%;安检服务:11.84%;其他业务:0.82%。
 
 ## 相关推荐
 
-- 2026-06-29 16:05 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 16:16 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 15:54 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 16:18 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 15:59 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 16:17 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 16:17 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 16:19 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 15:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 16:18 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 16:12 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 16:17 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 16:18 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 16:08 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 16:03 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 16:14 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 16:28 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 16:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 16:10 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 16:05 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 16:01 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 16:01 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/26114.shtml)
-- 2026-06-29 15:59 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/26079799.shtml)
-- 2026-06-29 15:54 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/07805.shtml)
-- 2026-06-29 16:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/62470135587.shtml)
-- 2026-06-29 16:20 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/8635071022.shtml)
-- 2026-06-29 15:58 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/9839617446.shtml)
-- 2026-06-29 16:02 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/48750953573.shtml)
-- 2026-06-29 16:14 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/572469486.shtml)
-- 2026-06-29 16:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/360222.shtml)
-- 2026-06-29 16:20 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/38028.shtml)
-- 2026-06-29 16:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/25335.shtml)
-- 2026-06-29 16:03 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/876073118.shtml)
-- 2026-06-29 16:08 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/685074.shtml)
-- 2026-06-29 16:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/85100041183.shtml)
-- 2026-06-29 16:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/98930659050.shtml)
+- 2026-06-29 16:10 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/29101893666.shtml)
+- 2026-06-29 16:09 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/41825.shtml)
+- 2026-06-29 16:23 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/53038642837.shtml)
+- 2026-06-29 16:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/908090.shtml)
+- 2026-06-29 16:19 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/49073691358.shtml)
+- 2026-06-29 16:26 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/100489929747.shtml)
+- 2026-06-29 16:12 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/284195915312.shtml)
+- 2026-06-29 16:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/95870898.shtml)
+- 2026-06-29 16:18 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/039689277.shtml)
+- 2026-06-29 16:10 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/9643712.shtml)
+- 2026-06-29 16:16 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/7129817.shtml)
+- 2026-06-29 16:28 - [周生如故](http://www.blog.minike.top/Article/details/2576179035.shtml)
+- 2026-06-29 16:29 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/9000500742.shtml)
+- 2026-06-29 16:27 - [恋与深空 731](http://www.blog.minike.top/Article/details/4987844300.shtml)
+- 2026-06-29 16:14 - [沙丘](http://www.share.kurohicncr.top/Article/details/74435654532.shtml)

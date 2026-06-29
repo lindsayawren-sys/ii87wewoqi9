@@ -1,57 +1,48 @@
-# 巨额融资与商业变现共振！AI应用逆势活跃 融资客提前埋伏多股(名单)
+# 思考乐教育：受托人根据股份奖励计划购买50万股股份
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-受隔夜美股影响，5月8日早盘，AI应用板块表现活跃，截至11时，南威软件走出两连板，引力传媒、贝瑞基因、ST美克、*ST高科强势封板，酷特智能一度20cm涨停，博睿数据、新大陆、国子软件等多股跟涨。 消息面上，Kimi（月之暗面）即将完成新一轮20亿美元融资，DeepSeek首轮融资也有新消息。与此同时，豆包近日推出付费订阅，标志着国产大模型厂商正式进入商业化变现阶段。 大模型
+思考乐教育（01769）公布，于2026年4月9日，受托人根据股份奖励计划已于市场上购入合共50万股股份，每股股份平均购买价约1.63港元，为获选参与者的利益以信托方式持有。责任编辑：卢昱君
 
 ## 正文
 
-受隔夜美股影响，5月8日早盘，AI应用板块表现活跃，截至11时，南威软件走出两连板，引力传媒、贝瑞基因、ST美克、*ST高科强势封板，酷特智能一度20cm涨停，博睿数据、新大陆、国子软件等多股跟涨。
+思考乐教育（01769）公布，于2026年4月9日，受托人根据股份奖励计划已于市场上购入合共50万股股份，每股股份平均购买价约1.63港元，为获选参与者的利益以信托方式持有。
 
-消息面上，Kimi（月之暗面）即将完成新一轮20亿美元融资，DeepSeek首轮融资也有新消息。
-
-与此同时，豆包近日推出付费订阅，标志着国产大模型厂商正式进入商业化变现阶段。
-
-大模型厂商融资不断 据媒体报道，大模型独角兽Kimi即将完成新一轮约20亿美元融资，投后估值突破200亿美元（约1400亿元人民币）。
-
-本轮融资由美团龙珠领投，中国移动、CPE等参投，其中美团龙珠投资超过2亿美元。
-
-相关资金将用于进一步巩固Kimi在模型SOTA、算力储备及人才激励上的领先身位。
-
-值得注意的是，今年1月和2月，Kimi密集完成了三轮融资，分别融得5亿美元、7亿美元和7亿美元。
-
-加上最新一轮融资，不到半年时间里，Kimi融资总额已超39亿美元，最新估值相比去年11月的约43亿美元翻了四倍多。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 16:20 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 16:16 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 16:12 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 16:10 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 15:55 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 15:56 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 16:15 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 15:54 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 16:16 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 16:10 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 16:10 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 16:10 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 16:22 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 16:28 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 16:28 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 16:18 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 16:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 16:07 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 16:13 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 16:20 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 16:21 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 16:07 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 16:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 16:02 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/6008503.shtml)
-- 2026-06-29 16:05 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/7307936.shtml)
-- 2026-06-29 15:59 - [扬名立万](http://www.blog.minike.top/Article/details/785364563.shtml)
-- 2026-06-29 16:00 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/878338376357.shtml)
-- 2026-06-29 16:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/78235.shtml)
-- 2026-06-29 16:20 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/30570398230.shtml)
-- 2026-06-29 16:16 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/0173367510.shtml)
-- 2026-06-29 16:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/37295.shtml)
-- 2026-06-29 16:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/86968543087.shtml)
-- 2026-06-29 15:54 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/93131.shtml)
-- 2026-06-29 16:11 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/64268207.shtml)
-- 2026-06-29 16:03 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/0779657.shtml)
-- 2026-06-29 16:10 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/844089126.shtml)
-- 2026-06-29 16:10 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/96712571132.shtml)
-- 2026-06-29 16:20 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/71870328807.shtml)
+- 2026-06-29 16:30 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/833090755.shtml)
+- 2026-06-29 16:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/5540697.shtml)
+- 2026-06-29 16:13 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/0356446.shtml)
+- 2026-06-29 16:04 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/8937635.shtml)
+- 2026-06-29 16:26 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/58716738.shtml)
+- 2026-06-29 16:07 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/96442613.shtml)
+- 2026-06-29 16:13 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.minike.top/Article/details/04999.shtml)
+- 2026-06-29 16:07 - [博主：黄金和原油回落不等于风险消失](https://www.share.kurohicncr.top/Article/details/4357446393.shtml)
+- 2026-06-29 16:23 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/2287420.shtml)
+- 2026-06-29 16:23 - [T1 KC](http://www.blog.kurohicncr.top/Article/details/58319.shtml)
+- 2026-06-29 16:04 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/2701035.shtml)
+- 2026-06-29 16:23 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/1989651748.shtml)
+- 2026-06-29 16:00 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/99345274.shtml)
+- 2026-06-29 16:24 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/86166796.shtml)
+- 2026-06-29 16:00 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/0871463832.shtml)

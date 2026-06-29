@@ -1,48 +1,54 @@
-# 中国工信部批复第六代移动通信系统技术试验频率
+# 教育部等五部门：推动人工智能教育全面纳入地方课程体系
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 中国工业和信息化部8日公布，为进一步推动中国6G技术研发、标准研制与产业化进程，工信部近日向 IMT-2030(6G)推进组批复6GHz频段6G试验频率使用许可，支持其在部分地区开展6G技术试验，面向国际电信联盟确定的6G典型场景与关键性能指标，开展技术研发攻关和测试验证。 工信部介绍，此次批复6G技术试验频率，将有力推动中国6G高质量发展。(完)
+中新网4月10日电 近日，教育部等五部门发布关于印发《“人工智能+教育”行动计划》的通知。行动计划提到，加快普及中小学生的人工智能教育。持续完善《中小学人工智能通识教育指南》，开齐开足开好人工智能相关课程。推动人工智能教育全面纳入地方课程体系，指导各地研制人工智能课程指南，明确各学段课程目标、内容与课时要求。鼓励开展人工智能跨学科教学，推动人工智能教育融入课后服务、研学实践等环
 
 ## 正文
 
-中新社北京5月8日电 中国工业和信息化部8日公布，为进一步推动中国6G技术研发、标准研制与产业化进程，工信部近日向 IMT-2030(6G)推进组批复6GHz频段6G试验频率使用许可，支持其在部分地区开展6G技术试验，面向国际电信联盟确定的6G典型场景与关键性能指标，开展技术研发攻关和测试验证。
+中新网4月10日电 近日，教育部等五部门发布关于印发《“人工智能+教育”行动计划》的通知。
 
-工信部介绍，此次批复6G技术试验频率，将有力推动中国6G高质量发展。
+行动计划提到，加快普及中小学生的人工智能教育。
 
-(完)
+持续完善《中小学人工智能通识教育指南》，开齐开足开好人工智能相关课程。
+
+推动人工智能教育全面纳入地方课程体系，指导各地研制人工智能课程指南，明确各学段课程目标、内容与课时要求。
+
+鼓励开展人工智能跨学科教学，推动人工智能教育融入课后服务、研学实践等环节。
+
+坚持科技教育与人文教育相结合，注重学生的启智、心灵的培养，引导学生科学认识、合理利用智能技术，提升学生智能素养，激发学生好奇心，培养创新思维，提高认知思考和解决复杂问题的能力。
+
+建强中小学人工智能教育基地，支持农村、边远地区学校利用国家平台开好人工智能课程。
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 16:21 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 16:19 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 15:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 15:54 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 16:06 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 16:03 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 15:56 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 16:13 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 16:14 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 16:01 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 16:18 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 16:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 16:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 16:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 16:27 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 16:01 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 16:14 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 16:25 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 16:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 16:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 16:06 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/631472.shtml)
-- 2026-06-29 16:04 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/753028547.shtml)
-- 2026-06-29 16:15 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/74987.shtml)
-- 2026-06-29 16:13 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/8473834976.shtml)
-- 2026-06-29 16:04 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/642913.shtml)
-- 2026-06-29 16:15 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/76408.shtml)
-- 2026-06-29 16:04 - [TFING全员黑西装](https://www.share.minike.top/Article/details/320522818.shtml)
-- 2026-06-29 15:54 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/874340.shtml)
-- 2026-06-29 16:05 - [媒体：中国田径压力与期待并存](https://www.blog.minike.top/Article/details/165026.shtml)
-- 2026-06-29 16:16 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/8462482757.shtml)
-- 2026-06-29 15:55 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/728520146.shtml)
-- 2026-06-29 16:21 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/91991.shtml)
-- 2026-06-29 16:19 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/27627483.shtml)
-- 2026-06-29 16:17 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/8167281.shtml)
-- 2026-06-29 16:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/065581318.shtml)
+- 2026-06-29 16:09 - [天道](http://www.share.kurohicncr.top/Article/details/77937.shtml)
+- 2026-06-29 16:14 - [一生一世](http://www.share.kurohicncr.top/Article/details/8390444.shtml)
+- 2026-06-29 16:16 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/2752175.shtml)
+- 2026-06-29 16:07 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/2208949.shtml)
+- 2026-06-29 16:25 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/0169572.shtml)
+- 2026-06-29 16:11 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/7511634.shtml)
+- 2026-06-29 16:23 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/677357.shtml)
+- 2026-06-29 16:13 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/98361333406.shtml)
+- 2026-06-29 16:00 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/3978087.shtml)
+- 2026-06-29 16:00 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/310016.shtml)
+- 2026-06-29 16:29 - [永远有话聊的原因](https://www.share.minike.top/Article/details/89178985012.shtml)
+- 2026-06-29 16:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/818421031.shtml)
+- 2026-06-29 16:24 - [小鹏MONAL03预售定档7月2日](https://www.blog.kurohicncr.top/Article/details/793119508.shtml)
+- 2026-06-29 16:16 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/18556.shtml)
+- 2026-06-29 16:05 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/67493582.shtml)

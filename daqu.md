@@ -1,58 +1,60 @@
-# 中国首个现代冰川主题科普馆在祁连山腹地开馆
+# 亚马逊首次转播美国大师赛，成为赛事史上第四家媒体合作伙伴
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新社青海祁连5月8日电 (李隽)祁连山国家公园(候选区)八一冰川科普馆(下称科普馆)8日在祁连山腹地的青海省海北藏族自治州祁连县野牛沟乡揭牌开放。该馆是中国首个以现代冰川为主题的专业科普场馆。 祁连山是中国西部重要的生态安全屏障和水源涵养区。1958年8月1日，中国第一支高山冰雪利用考察队首次发现并考察了八一冰川，开启了为期半个多世纪的科学研究。八一冰川是祁连山内陆河黑河源头
+要点 体育界的目光周四转向佐治亚州奥古斯塔，迎来美国大师赛首轮赛事。观众将首次可以通过亚马逊 Prime Video 观看赛事直播。 亚马逊将在首轮和次轮赛事中，于美国东部时间下午 1 点至 3 点提供独家直播报道。赛事全程四天，Prime Video 将直播奥古斯塔著名的 “阿门角”—— 即 11 号、12 号和 13 号洞。亚马逊的《走进阿门角》节目将呈现高级数据统计和专属
 
 ## 正文
 
-中新社青海祁连5月8日电 (李隽)祁连山国家公园(候选区)八一冰川科普馆(下称科普馆)8日在祁连山腹地的青海省海北藏族自治州祁连县野牛沟乡揭牌开放。
+要点 体育界的目光周四转向佐治亚州奥古斯塔，迎来美国大师赛首轮赛事。
 
-该馆是中国首个以现代冰川为主题的专业科普场馆。
+观众将首次可以通过亚马逊 Prime Video 观看赛事直播。
 
-祁连山是中国西部重要的生态安全屏障和水源涵养区。
+亚马逊将在首轮和次轮赛事中，于美国东部时间下午 1 点至 3 点提供独家直播报道。
 
-1958年8月1日，中国第一支高山冰雪利用考察队首次发现并考察了八一冰川，开启了为期半个多世纪的科学研究。
+赛事全程四天，Prime Video 将直播奥古斯塔著名的 “阿门角”—— 即 11 号、12 号和 13 号洞。
 
-八一冰川是祁连山内陆河黑河源头，是中国西部重要冰源水库与全球气候变化敏感生态指示器。
+亚马逊的《走进阿门角》节目将呈现高级数据统计和专属镜头角度，让观众直观感受不同球手如何策略性应对这三个球洞。
 
-科普馆基于八一冰川原生特质，整合多年来冰川监测、科研考察成果结晶，通过实物陈列、影像记录、互动体验等多种展陈形式，深度还原祁连山冰川的演化历程，反映冰川监测保护工作的艰辛历程，直观呈现高海拔冰川生态风貌。
+该平台还将全程转播 15 号、16 号洞，并播出部分焦点组画面，但这部分内容并非亚马逊制作。
 
-科普馆建筑面积2997平方米，运用微缩实景、多媒体交互、沉浸式体验等技术，为科研成果展示交流提供载体，也为民众打开了认识冰川生态、树立环保意识的窗口。
+在弗雷德・里德利担任主席的奥古斯塔国家高尔夫俱乐部，亚马逊成为继派拉蒙旗下 CBS、维森特旗下美国电视网（1982—2007 年）以及迪士尼旗下 ESPN 之后，史上第四家媒体合作伙伴。
 
-(完)
+去年，美国大师赛将派拉蒙 + 纳入转播阵营，在周六、周日中午至下午 2 点提供两小时独家流媒体转播，该安排今年将继续保留。
 
 ## 相关推荐
 
-- 2026-06-29 16:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 15:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 16:05 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 16:10 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 15:56 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 16:06 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 16:12 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 16:03 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 16:00 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 16:14 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 16:18 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 16:13 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 16:16 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 16:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 16:17 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 16:29 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 16:11 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 16:05 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 16:07 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 16:29 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 16:14 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 16:03 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 16:00 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 16:00 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 16:24 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 16:12 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/6445988.shtml)
-- 2026-06-29 16:02 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/8832106.shtml)
-- 2026-06-29 16:23 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/81174860.shtml)
-- 2026-06-29 16:13 - [血糖高的人能吃西瓜吗](http://www.blog.kurohicncr.top/Article/details/49405602711.shtml)
-- 2026-06-29 16:06 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/733992655153.shtml)
-- 2026-06-29 16:11 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/009071476.shtml)
-- 2026-06-29 16:09 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/6234250.shtml)
-- 2026-06-29 16:24 - [周生如故](https://www.blog.kurohicncr.top/Article/details/389037300645.shtml)
-- 2026-06-29 16:17 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/649556688.shtml)
-- 2026-06-29 15:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/55934.shtml)
-- 2026-06-29 16:21 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/305833834572.shtml)
-- 2026-06-29 16:03 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/954008503.shtml)
-- 2026-06-29 16:19 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/8954770.shtml)
-- 2026-06-29 16:16 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/85023381315.shtml)
-- 2026-06-29 16:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/88182446747.shtml)
+- 2026-06-29 16:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/014982.shtml)
+- 2026-06-29 16:10 - [明星大侦探第四季](http://www.share.minike.top/Article/details/17775.shtml)
+- 2026-06-29 16:17 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/09152285339.shtml)
+- 2026-06-29 16:08 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/2722920033.shtml)
+- 2026-06-29 16:19 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/36225035723.shtml)
+- 2026-06-29 16:12 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/80889193347.shtml)
+- 2026-06-29 16:18 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/96153404284.shtml)
+- 2026-06-29 16:05 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/305150.shtml)
+- 2026-06-29 16:13 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/6654396.shtml)
+- 2026-06-29 16:29 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/279864350.shtml)
+- 2026-06-29 16:12 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/71388.shtml)
+- 2026-06-29 16:28 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/63145.shtml)
+- 2026-06-29 16:11 - [青春环游记第三季](https://www.blog.minike.top/Article/details/37525685921.shtml)
+- 2026-06-29 16:06 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/16222005715.shtml)
+- 2026-06-29 16:18 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/272900.shtml)

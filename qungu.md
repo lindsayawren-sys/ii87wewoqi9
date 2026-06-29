@@ -1,59 +1,59 @@
-# 中东局势缓和削弱避险买盘，美元指数小幅回落，等待非农数据指引
+# 房抵贷利率3.8%变8.7%五年才发现？常熟银行工作人员：正在核实，会根据事实情况妥善处理
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周五亚洲交易时段，衡量美元兑六种主要货币表现的美元指数（DXY）小幅走弱，盘中交投于98.20附近。此前美元在连续反弹后出现阶段性回调，主要受到中东局势缓和以及市场风险情绪改善影响。 近期全球金融市场的核心焦点，依然围绕中东局势变化以及美国经济数据展开。此前美国与伊朗之间的军事摩擦一度推动市场避险情绪快速升温，美元因此获得资金流入支撑。不过，随着市场收到以色
+每经记者|李玉雯 每经编辑|廖丹 “房抵贷利率3.8变8.7五年才发现”话题日前登上热搜，据媒体报道，江苏的王先生2021年在常熟银行办理住房抵押贷款，五年里他一直以为自己是按照3.8%的年利率还款，直到今年打算提前还款，才发现合同约定年利率为8.7%。 《每日经济新闻》记者就此事联系采访常熟银行涉事支行，工作人员表示，正在抓紧核实，后续会根据事实情况妥善处理。 媒体报道称，王
 
 ## 正文
 
-汇通财经APP讯——周五亚洲交易时段，衡量美元兑六种主要货币表现的美元指数（DXY）小幅走弱，盘中交投于98.20附近。
+每经记者|李玉雯 每经编辑|廖丹 “房抵贷利率3.8变8.7五年才发现”话题日前登上热搜，据媒体报道，江苏的王先生2021年在常熟银行办理住房抵押贷款，五年里他一直以为自己是按照3.8%的年利率还款，直到今年打算提前还款，才发现合同约定年利率为8.7%。
 
-此前美元在连续反弹后出现阶段性回调，主要受到中东局势缓和以及市场风险情绪改善影响。
+《每日经济新闻》记者就此事联系采访常熟银行涉事支行，工作人员表示，正在抓紧核实，后续会根据事实情况妥善处理。
 
-近期全球金融市场的核心焦点，依然围绕中东局势变化以及美国经济数据展开。
+媒体报道称，王先生2021年办理贷款时，中介称常熟银行年利率仅3.8%，低于四大行的4.8%~5.8%，他因此选择在该行贷款68万元，十年还清，每个月连本带息还款8500元左右。
 
-此前美国与伊朗之间的军事摩擦一度推动市场避险情绪快速升温，美元因此获得资金流入支撑。
+签合同时业务经理跳过利率页让他直接签字，之后五年银行一直未提供合同，王先生误以为按3.8%还款。
 
-不过，随着市场收到以色列与伊朗双方释放的局势降温信号，投资者风险偏好出现回暖，美元避险需求有所下降。
+今年2月他打算提前还款，才发现合同约定年利率为8.7%。
 
-美国总统特朗普表示，美国与伊朗之间的停火安排目前依然有效，这进一步缓解了市场对于中东全面冲突升级的担忧。
+常熟银行改制成立于2001年，2016年9月在上交所上市，以小微金融为特色。
 
-与此同时，据市场调查显示，美国方面仍在等待伊朗对于重新开放霍尔木兹海峡以及结束冲突相关提议作出正式回应。
+该行2025年半年报披露，报告期末该行个人贷款1363亿元，占总贷款的54.2%。
 
-此前，美国军方曾针对伊朗班达尔阿巴斯港口以及霍尔木兹海峡附近目标展开军事打击，以回应伊朗针对美军舰艇的袭击行动。
+其中，个人经营性贷款944.6亿元，占总贷款的37.56%；个人经营性贷款户数31.6万户，占总贷款户数之比55.4%。
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 15:58 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 16:15 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 16:18 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 16:10 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 15:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 15:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 16:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 15:56 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 16:04 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 16:09 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 16:16 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 15:59 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 16:08 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 16:23 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 16:19 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 16:07 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 16:00 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 16:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 16:17 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 16:26 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 16:23 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 16:06 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 16:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 16:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 16:01 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/310409808834.shtml)
-- 2026-06-29 15:56 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/407875030.shtml)
-- 2026-06-29 16:00 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/3755768.shtml)
-- 2026-06-29 16:01 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/46825721475.shtml)
-- 2026-06-29 16:16 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/1595240.shtml)
-- 2026-06-29 16:21 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/621210189.shtml)
-- 2026-06-29 16:10 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/27259685585.shtml)
-- 2026-06-29 15:55 - [抓特务票房破亿](http://www.share.minike.top/Article/details/771204.shtml)
-- 2026-06-29 16:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/879930.shtml)
-- 2026-06-29 16:11 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/758793949.shtml)
-- 2026-06-29 16:22 - [舒行钢任湖南省交通运输厅厅长](https://www.share.kurohicncr.top/Article/details/946749.shtml)
-- 2026-06-29 16:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/6496560.shtml)
-- 2026-06-29 16:17 - [逃狱兄弟](https://www.blog.minike.top/Article/details/67289659.shtml)
-- 2026-06-29 16:11 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/566026656.shtml)
-- 2026-06-29 16:22 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/286170.shtml)
+- 2026-06-29 16:20 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/76205.shtml)
+- 2026-06-29 16:17 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/52421721000.shtml)
+- 2026-06-29 16:25 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/445838743.shtml)
+- 2026-06-29 16:16 - [NBA交易](http://www.share.minike.top/Article/details/9061158.shtml)
+- 2026-06-29 16:03 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/409441142.shtml)
+- 2026-06-29 16:13 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.minike.top/Article/details/712052353.shtml)
+- 2026-06-29 16:01 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/044633999.shtml)
+- 2026-06-29 16:21 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/55819299.shtml)
+- 2026-06-29 16:09 - [血糖高的人能吃西瓜吗](http://www.blog.minike.top/Article/details/663277295718.shtml)
+- 2026-06-29 16:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/3884157222.shtml)
+- 2026-06-29 16:08 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/990838550073.shtml)
+- 2026-06-29 16:10 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/379735123057.shtml)
+- 2026-06-29 16:29 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/761408.shtml)
+- 2026-06-29 16:07 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/951830.shtml)
+- 2026-06-29 16:03 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/46433193694.shtml)

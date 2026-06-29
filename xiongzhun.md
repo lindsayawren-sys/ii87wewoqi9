@@ -1,42 +1,47 @@
-# 华宝基金红利风向标：煤炭、石油石化板块走弱，高股息策略回调
+# 亨利加集团于4月10日斥资4.43万港元回购5000股
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-责任编辑：周守来
+亨利加集团（03638）发布公告，于2026年4月10日，该公司斥资4.43万港元回购5000股。责任编辑：卢昱君
 
 ## 正文
 
-责任编辑：周守来
+亨利加集团（03638）发布公告，于2026年4月10日，该公司斥资4.43万港元回购5000股。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 16:03 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 16:17 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 16:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 16:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 16:07 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 16:13 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 16:18 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 16:20 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 16:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 16:26 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 16:01 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 16:16 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 16:01 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 16:11 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 16:12 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 16:14 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 16:19 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 16:08 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 16:26 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 16:03 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 16:20 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 16:20 - [吴建豪老婆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:18 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/4290414.shtml)
-- 2026-06-29 16:01 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/45166.shtml)
-- 2026-06-29 16:03 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/77453535.shtml)
-- 2026-06-29 16:17 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/32359479728.shtml)
-- 2026-06-29 16:12 - [一生一世](https://www.share.minike.top/Article/details/99803724208.shtml)
-- 2026-06-29 16:08 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/67230626057.shtml)
-- 2026-06-29 16:11 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/3144540.shtml)
-- 2026-06-29 16:00 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/92859339855.shtml)
-- 2026-06-29 16:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/45632.shtml)
-- 2026-06-29 16:08 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/851476.shtml)
-- 2026-06-29 15:57 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/9906094548.shtml)
-- 2026-06-29 16:23 - [刘扬任湖南省副省长](https://www.share.minike.top/Article/details/5933792336.shtml)
-- 2026-06-29 16:14 - [请回答王牌2019](http://www.share.minike.top/Article/details/14959403221.shtml)
-- 2026-06-29 16:23 - [媒体：高考后消费应量力而行适度有度](http://www.share.minike.top/Article/details/845963697021.shtml)
-- 2026-06-29 15:59 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.minike.top/Article/details/391219.shtml)
+- 2026-06-29 16:26 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/0696756.shtml)
+- 2026-06-29 16:13 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/63784646.shtml)
+- 2026-06-29 16:01 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/16247.shtml)
+- 2026-06-29 16:24 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/863991.shtml)
+- 2026-06-29 16:11 - [周杰伦演唱会真的好多人啊](https://www.share.minike.top/Article/details/71853230398.shtml)
+- 2026-06-29 16:20 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/212570.shtml)
+- 2026-06-29 16:28 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/19762849.shtml)
+- 2026-06-29 16:03 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/511159.shtml)
+- 2026-06-29 16:00 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/913087382700.shtml)
+- 2026-06-29 16:16 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/59019.shtml)
+- 2026-06-29 16:23 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/60107574.shtml)
+- 2026-06-29 16:12 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/396008109582.shtml)
+- 2026-06-29 16:28 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/368772021693.shtml)
+- 2026-06-29 16:10 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/6880850.shtml)
+- 2026-06-29 16:25 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/75760732.shtml)

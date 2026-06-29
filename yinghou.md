@@ -1,58 +1,56 @@
-# 豪掷百亿美元押注：全球资本追捧印度板球超级联赛
+# 光大期货：4月10日软商品日报
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-核心要点 在南亚大陆，板球运动风靡全球，相关商业生态蓬勃发展，印度板球产业正成为各路投资者争抢的优质标的。 短短一个多月内，印度板球超级联赛已有两支球队以超百亿美金估值易主。最新一笔交易为本周日成交的拉贾斯坦皇家队收购案，整体估值 16.5 亿美元。 多家媒体报道，由卡尔・索马尼牵头、背靠沃尔玛集团罗布・沃尔顿的美国投资财团，曾参与竞标拉贾斯坦皇家队，但最终不敌钢铁大亨米塔尔与
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西3月出口糖约180.82吨，同比减少2.3%。巴西2025/26榨季（4月-次年3月）共计出口糖3423万吨，同比减少2.57%。现货报价方面，广西制糖集团报价区间为5290~5430元/吨，下调10元/吨；云南制糖集团报价5140~ 5200元/吨，下调10元/吨；加工糖厂主流报
 
 ## 正文
 
-核心要点 在南亚大陆，板球运动风靡全球，相关商业生态蓬勃发展，印度板球产业正成为各路投资者争抢的优质标的。
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西3月出口糖约180.82吨，同比减少2.3%。
 
-短短一个多月内，印度板球超级联赛已有两支球队以超百亿美金估值易主。
+巴西2025/26榨季（4月-次年3月）共计出口糖3423万吨，同比减少2.57%。
 
-最新一笔交易为本周日成交的拉贾斯坦皇家队收购案，整体估值 16.5 亿美元。
+现货报价方面，广西制糖集团报价区间为5290~5430元/吨，下调10元/吨；云南制糖集团报价5140~ 5200元/吨，下调10元/吨；加工糖厂主流报价区间为5590~5850元/吨，部分下调10元/吨。
 
-多家媒体报道，由卡尔・索马尼牵头、背靠沃尔玛集团罗布・沃尔顿的美国投资财团，曾参与竞标拉贾斯坦皇家队，但最终不敌钢铁大亨米塔尔与疫苗巨头普纳瓦拉组成的收购方。
+原糖方面，巴西开榨丰产预期不变，期价继续承压下行，国内现货成交依然清淡，广西云南尚未收榨，国内供应充足与政策支撑预期并存，有抗跌迹象，关注5300元/吨位置支撑情况。
 
-据 ESPN 消息，索马尼财团对竞标失利表示遗憾。
+棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周四，ICE美棉%，报收美分/磅，郑棉主力合约环比上涨0.26%，报收15340元/吨，主力合约持仓环比增加26885手至51.84万手，棉花3128B现货价格指数16380元/吨，较前一日上涨20元/吨。
 
-该财团称：“我们原本十分期待助力印度板球超级联赛迈向全新国际高度。
+国际市场方面，中东地区局势持续反复，在美以伊初步停火之后，以色列袭击黎巴嫩，伊朗称谈判基础已经破坏，原油价格小幅回升，持续关注后续进展。
 
-” 今年 3 月末，黑石集团与美国知名体育投资人戴维・布利策联手，以18 亿美元收购 IPL 班加罗尔皇家挑战者队。
+基本面方面，USDA4月报公布，5月报会新一年度供需格局进行展望，重点关注。
 
-印度板球超级联赛创立于 2008 年，是赛制紧凑、俱乐部运营模式的职业板球联赛，汇聚全球及印度本土顶尖球员。
+国内市场方面，郑棉期价窄幅震荡，主力合约移仓换月完成。
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 16:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 16:23 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 15:59 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 16:08 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 16:09 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 16:07 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 16:17 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 16:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 15:56 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 16:20 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 15:57 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 16:08 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 16:17 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 16:05 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 16:23 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 16:02 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 16:08 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 16:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 16:11 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 16:11 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 16:09 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/30334252990.shtml)
-- 2026-06-29 16:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/2081628.shtml)
-- 2026-06-29 16:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/694187803.shtml)
-- 2026-06-29 15:54 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/4292978268.shtml)
-- 2026-06-29 16:08 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/7406579695.shtml)
-- 2026-06-29 16:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/93714484.shtml)
-- 2026-06-29 16:20 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/210168.shtml)
-- 2026-06-29 15:56 - [我和我的家乡](http://www.share.minike.top/Article/details/11096533709.shtml)
-- 2026-06-29 15:56 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/48838868.shtml)
-- 2026-06-29 16:15 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/175998.shtml)
-- 2026-06-29 16:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/337715166.shtml)
-- 2026-06-29 15:59 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/96976703825.shtml)
-- 2026-06-29 16:12 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/20549871722.shtml)
-- 2026-06-29 15:57 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/90321637545.shtml)
-- 2026-06-29 16:12 - [起风了](https://www.blog.kurohicncr.top/Article/details/92450.shtml)
+- 2026-06-29 16:19 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/0019955.shtml)
+- 2026-06-29 16:17 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/541173.shtml)
+- 2026-06-29 16:13 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/52733.shtml)
+- 2026-06-29 16:05 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/85672.shtml)
+- 2026-06-29 16:25 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/6887528.shtml)
+- 2026-06-29 16:02 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/515709196.shtml)
+- 2026-06-29 16:10 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/36004.shtml)
+- 2026-06-29 16:21 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/074488930.shtml)
+- 2026-06-29 16:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/67302017.shtml)
+- 2026-06-29 16:07 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/82352.shtml)
+- 2026-06-29 16:05 - [把古诗里的动作换成加班](http://www.blog.minike.top/Article/details/091381872.shtml)
+- 2026-06-29 16:00 - [小娘惹](https://www.share.minike.top/Article/details/13463859789.shtml)
+- 2026-06-29 16:28 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/3212112819.shtml)
+- 2026-06-29 16:21 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/19856555.shtml)
+- 2026-06-29 16:02 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/4808181736.shtml)

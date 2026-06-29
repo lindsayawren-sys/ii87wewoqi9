@@ -1,49 +1,60 @@
-# 小鹏否认被约谈立案
+# 广东计划5年内为200万名女职工提供“两癌”免费筛查服务
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-5月9日，小鹏集团法务部发文：我们关注到，部分社交账号通过AI应用，恶意炒作“8家新能源车企被集中约谈”“3家涉嫌违规被立案调查”等信息，并将我司纳入名单，对我司品牌和声誉造成恶劣影响。经核实，我司近期并未收到此类不实信息提到的所谓“约谈”，也不存在被立案调查。我们已经对相关制谣传谣主体进行取证，后续会依法追究其法律责任。来源 小鹏汽车法务部
+中新网广州4月10日电 (记者 张璐)广东省总工会第八届女职工委员会9日正式发布未来五年工作蓝图。 据悉，广东工会将积极参与女职工权益相关法律法规的修订，持续推动《广东省实施〈女职工劳动保护特别规定〉办法》等地方性法规的落地见效与评估监督。针对新就业形态女性劳动者、女农民工等群体，加强专项集体合同签订与履约监督，推广应用“一函两书”制度，探索参与女职工权益保障公益诉讼。 在婚育
 
 ## 正文
 
-5月9日，小鹏集团法务部发文：我们关注到，部分社交账号通过AI应用，恶意炒作“8家新能源车企被集中约谈”“3家涉嫌违规被立案调查”等信息，并将我司纳入名单，对我司品牌和声誉造成恶劣影响。
+中新网广州4月10日电 (记者 张璐)广东省总工会第八届女职工委员会9日正式发布未来五年工作蓝图。
 
-经核实，我司近期并未收到此类不实信息提到的所谓“约谈”，也不存在被立案调查。
+据悉，广东工会将积极参与女职工权益相关法律法规的修订，持续推动《广东省实施〈女职工劳动保护特别规定〉办法》等地方性法规的落地见效与评估监督。
 
-我们已经对相关制谣传谣主体进行取证，后续会依法追究其法律责任。
+针对新就业形态女性劳动者、女农民工等群体，加强专项集体合同签订与履约监督，推广应用“一函两书”制度，探索参与女职工权益保障公益诉讼。
 
-来源 小鹏汽车法务部
+在婚育支持方面，广东工会积极打造“会聚良缘”婚恋服务品牌，建设全省职工线上交友平台“粤会吧”；示范性开展青年职工集体婚礼活动，构建全省工会线上线下联动的婚恋服务体系，提高工会婚恋服务质效。
+
+在生育保障方面，广东工会计划五年内新建省级“工会爱心妈妈小屋”350家，为200万名包括困难企业女职工、新就业形态女性劳动者和女农民工在内的女职工提供免费“两癌”筛查，推动200万名女职工参保安康互助保障。
+
+在托育服务方面，广东工会探索多种方式推动用人单位开展福利性托育服务，规范发展工会爱心托管班，推动5年内建设工会爱心托管班1万个，省级工会爱心托管班300个。
+
+同时，加强女职工心理健康服务与家庭友好型工作场所建设。
+
+未来五年，广东工会计划建设女职工创新工作室1000个，其中省级工作室150个，并搭建创新成果展示平台，推动群众性创新活动。
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 16:02 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 16:04 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 16:20 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 16:14 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 16:07 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 15:55 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 15:59 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 15:59 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 16:10 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 15:55 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 16:07 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 16:05 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 16:11 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 16:01 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 16:22 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 16:22 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 16:26 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 16:08 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 16:28 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 16:03 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 16:21 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 16:19 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 16:17 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 16:12 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/499633454559.shtml)
-- 2026-06-29 16:10 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/3719144475.shtml)
-- 2026-06-29 16:15 - [新能源车能当外接空调用吗](http://www.blog.minike.top/Article/details/36235404.shtml)
-- 2026-06-29 15:54 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/046157891120.shtml)
-- 2026-06-29 15:59 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/359931.shtml)
-- 2026-06-29 16:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/150182263831.shtml)
-- 2026-06-29 16:03 - [驻日美军航母沦为“毒窝”](http://www.blog.minike.top/Article/details/760346106250.shtml)
-- 2026-06-29 15:58 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/1679516351.shtml)
-- 2026-06-29 16:16 - [女心理师](https://www.blog.kurohicncr.top/Article/details/4263610047.shtml)
-- 2026-06-29 16:17 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/2945957.shtml)
-- 2026-06-29 16:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/016297.shtml)
-- 2026-06-29 16:02 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/05448794.shtml)
-- 2026-06-29 16:06 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/65700.shtml)
-- 2026-06-29 16:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/819690.shtml)
-- 2026-06-29 15:55 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/7026093535.shtml)
+- 2026-06-29 16:08 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.minike.top/Article/details/18646815.shtml)
+- 2026-06-29 16:09 - [逆天祖国人](http://www.share.minike.top/Article/details/5178243745.shtml)
+- 2026-06-29 16:06 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/58438219509.shtml)
+- 2026-06-29 16:29 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/1537677.shtml)
+- 2026-06-29 16:14 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/4155510791.shtml)
+- 2026-06-29 16:19 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/138090753793.shtml)
+- 2026-06-29 16:21 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/63606928.shtml)
+- 2026-06-29 16:15 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/9684750.shtml)
+- 2026-06-29 16:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/68028646.shtml)
+- 2026-06-29 16:12 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/02064.shtml)
+- 2026-06-29 16:21 - [NBA交易](http://www.blog.minike.top/Article/details/48139827.shtml)
+- 2026-06-29 16:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/127363211.shtml)
+- 2026-06-29 16:10 - [我和我的家乡](https://www.blog.minike.top/Article/details/37154204503.shtml)
+- 2026-06-29 16:05 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/64489.shtml)
+- 2026-06-29 16:26 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/20581.shtml)

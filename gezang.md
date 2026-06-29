@@ -1,59 +1,60 @@
-# 中疾控：我国无感染病例报告 无本次涉疫汉坦病毒自然宿主分布
+# AI是抢走文科生“饭碗”，还是让文科生更吃香
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-2026年5月2日，世界卫生组织通报，一艘4月1日从阿根廷出发的极地探险邮轮上，暴发了汉坦病毒感染疫情，从4月6日开始陆续造成8人发病，截至5月7日已出现3例死亡，引发广泛关注和担忧。我国也有汉坦病毒流行，会出现类似情况吗？汉坦病毒在全球有多少病例？ 我国有涉及本次邮轮疫情的病毒吗？ 汉坦病毒感染呈全球性分布，据估计，全球每年发生约20万例的感染病例。近年来，我国肾综合征出血热
+观 察 AI是抢走文科生“饭碗”，还是让文科生更吃香 临近毕业季，中青报·中青网记者梳理多家知名企业实习招聘信息时发现，相关岗位需求出现明显变化：新增了不少与文科相关的AI岗位。例如TikTok正在招聘“内容策略产品实习生(AI方向)”，要求能精准理解规则并高效执行标注工作；腾讯则在寻找“内容培训生”，要求参与数字资产库建设与维护，梳理角色AI模型、风格化提示词库、经典镜头素材
 
 ## 正文
 
-2026年5月2日，世界卫生组织通报，一艘4月1日从阿根廷出发的极地探险邮轮上，暴发了汉坦病毒感染疫情，从4月6日开始陆续造成8人发病，截至5月7日已出现3例死亡，引发广泛关注和担忧。
+观 察 AI是抢走文科生“饭碗”，还是让文科生更吃香 临近毕业季，中青报·中青网记者梳理多家知名企业实习招聘信息时发现，相关岗位需求出现明显变化：新增了不少与文科相关的AI岗位。
 
-我国也有汉坦病毒流行，会出现类似情况吗？
+例如TikTok正在招聘“内容策略产品实习生(AI方向)”，要求能精准理解规则并高效执行标注工作；腾讯则在寻找“内容培训生”，要求参与数字资产库建设与维护，梳理角色AI模型、风格化提示词库、经典镜头素材库等内容。
 
-汉坦病毒在全球有多少病例？
+此类岗位具备一个共同特点：必须具备AI相关技能。
 
-我国有涉及本次邮轮疫情的病毒吗？
+不久前，“AI大厂月薪3万元疯抢文科生”登上热搜，提示词工程师、AI训练师等岗位被媒体广泛报道。
 
-汉坦病毒感染呈全球性分布，据估计，全球每年发生约20万例的感染病例。
+不少人在网络上讨论：AI是抢走了文科生的“饭碗”，还是让文科生更吃香了？
 
-近年来，我国肾综合征出血热发病呈逐年下降的趋势。
+中青报·中青网记者在采访中发现，不少文科毕业生早已主动投身AI赛道。
 
-美洲地区每年报告病例200~300例，整体发病呈上升趋势。
+华南师范大学新闻传播学硕士张曼(化名)毕业后便入职国内互联网大厂，从事AI相关工作。
 
-本次疫情涉及的安第斯病毒，我国境内无自然宿主分布，也无人类感染病例报告。
+与传统产品运营岗位不同，她主要参与AI产品的内容生态搭建、用户需求调研与分析，并结合自然语言优化AI内容，提高生成产品的场景适配性，加快AI产品的市场传播。
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 15:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 15:57 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 16:13 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 16:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 16:13 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 16:17 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 16:21 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 16:03 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 16:10 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 15:54 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 16:03 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 16:09 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 16:03 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 16:06 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 16:21 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 16:23 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 16:01 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 16:06 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 16:03 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 16:08 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 16:07 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-29 16:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 16:01 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 16:19 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 16:12 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 16:13 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/938016787439.shtml)
-- 2026-06-29 15:57 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/047418.shtml)
-- 2026-06-29 16:09 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/66678.shtml)
-- 2026-06-29 15:56 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/6453326.shtml)
-- 2026-06-29 16:18 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/3496918320.shtml)
-- 2026-06-29 16:13 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/45371591751.shtml)
-- 2026-06-29 16:16 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/3247361.shtml)
-- 2026-06-29 16:04 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/157036862.shtml)
-- 2026-06-29 16:14 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/12276.shtml)
-- 2026-06-29 16:16 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/408881263750.shtml)
-- 2026-06-29 15:59 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/9320958.shtml)
-- 2026-06-29 16:01 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/82905215.shtml)
-- 2026-06-29 16:19 - [黄金也扛不住了](http://www.share.minike.top/Article/details/76400623336.shtml)
-- 2026-06-29 16:08 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/98273825.shtml)
-- 2026-06-29 16:08 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/182775950.shtml)
+- 2026-06-29 16:24 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/94947.shtml)
+- 2026-06-29 16:26 - [女心理师](https://www.blog.minike.top/Article/details/11394931151.shtml)
+- 2026-06-29 16:01 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/0365322408.shtml)
+- 2026-06-29 16:21 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/2677254.shtml)
+- 2026-06-29 16:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/5371181495.shtml)
+- 2026-06-29 16:08 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/4819604.shtml)
+- 2026-06-29 16:21 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/48045968.shtml)
+- 2026-06-29 16:23 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/603243350419.shtml)
+- 2026-06-29 16:07 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/55944.shtml)
+- 2026-06-29 16:23 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/49165971.shtml)
+- 2026-06-29 16:12 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/2566547.shtml)
+- 2026-06-29 16:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/184327372465.shtml)
+- 2026-06-29 16:01 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/528086581.shtml)
+- 2026-06-29 16:14 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/29066309.shtml)
+- 2026-06-29 16:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/39657444463.shtml)

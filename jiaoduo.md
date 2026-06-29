@@ -1,59 +1,59 @@
-# 工业零部件制造商Gencor一季度调整后每股收益0.41美元，营收3378万美元低于预期
+# 韩国拟出台新规，强制即时通讯服务提供商采取防范垃圾短信措施
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-工业零部件制造商Gencor Industries公布2026财年第二季度财报，调整后每股收益为0.41美元，符合市场预期；营收为3378万美元，低于分析师预期的3652万美元，差距约274万美元。 财务概况 GAAP口径下，公司净利润为610万美元，合每股收益0.41美元，与调整后数据一致。营收较去年同期的3410万美元微降约1%。毛利率为27.5%，略低于去年同期的28.2
+韩国媒体监管机构周五批准了一项规定，要求群发短信服务提供商必须采取防范非法垃圾短信的措施，才能维持其认证资格。 韩国媒体与通信委员会（KMCC）在自去年10月成立以来的首次例行会议上宣布了这一消息。此举是韩国政府遏制非法短信活动举措的一部分。 具体而言，即时通讯服务提供商必须满足16项标准，包括禁用词过滤系统和防止非法使用的措施，才能获得批量传输资格。 如果检测到与非法活动（包
 
 ## 正文
 
-工业零部件制造商Gencor Industries公布2026财年第二季度财报，调整后每股收益为0.41美元，符合市场预期；营收为3378万美元，低于分析师预期的3652万美元，差距约274万美元。
+韩国媒体监管机构周五批准了一项规定，要求群发短信服务提供商必须采取防范非法垃圾短信的措施，才能维持其认证资格。
 
-财务概况 GAAP口径下，公司净利润为610万美元，合每股收益0.41美元，与调整后数据一致。
+韩国媒体与通信委员会（KMCC）在自去年10月成立以来的首次例行会议上宣布了这一消息。
 
-营收较去年同期的3410万美元微降约1%。
+此举是韩国政府遏制非法短信活动举措的一部分。
 
-毛利率为27.5%，略低于去年同期的28.2%，主要因原材料成本上涨。
+具体而言，即时通讯服务提供商必须满足16项标准，包括禁用词过滤系统和防止非法使用的措施，才能获得批量传输资格。
 
-业务分部表现 沥青设备业务营收为1850万美元，同比下降5%，受部分公共基建项目启动延迟影响。
+如果检测到与非法活动（包括毒品、赌博和非法放贷）相关的消息，政府将取消其认证。
 
-骨料设备业务营收为850万美元，同比增长3%。
+获得认证的服务提供商将接受年度审核，以确保其持续符合相关标准。
 
-加热与干燥设备业务营收为678万美元，同比增长6%。
+这项拟议的法规须经韩国政府立法部审查并由内阁批准。
 
-管理层评论 首席执行官在声明中表示，营收不及预期主要因几个大型订单的交付时间从本季度推迟至下季度。
+韩国媒体协调委员会（KMCC）负责人Kim Jong-cheol在一份声明中表示：“这项政策将加强政府对分销商的监管。
 
 ## 相关推荐
 
-- 2026-06-29 16:23 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 16:15 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 16:19 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 16:07 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 16:01 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 16:19 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 16:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 15:59 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 16:11 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 16:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 16:01 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 16:22 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 16:12 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 16:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 16:13 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 16:30 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 16:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 16:28 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 16:03 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 16:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 16:18 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 16:25 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 16:18 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 16:10 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 16:26 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 16:25 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/2236018.shtml)
-- 2026-06-29 16:22 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/969229664.shtml)
-- 2026-06-29 16:10 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/292102529476.shtml)
-- 2026-06-29 16:03 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/0031062942.shtml)
-- 2026-06-29 16:00 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/744480784.shtml)
-- 2026-06-29 15:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/979682131355.shtml)
-- 2026-06-29 15:59 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/55120.shtml)
-- 2026-06-29 16:15 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/48389466.shtml)
-- 2026-06-29 15:54 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/20386214172.shtml)
-- 2026-06-29 16:04 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/80450.shtml)
-- 2026-06-29 16:11 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/35791.shtml)
-- 2026-06-29 15:54 - [新能源车能当外接空调用吗](http://www.blog.minike.top/Article/details/9131812.shtml)
-- 2026-06-29 16:00 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/536105034.shtml)
-- 2026-06-29 16:03 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/564855621828.shtml)
-- 2026-06-29 15:59 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/108419618617.shtml)
+- 2026-06-29 16:25 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/65605623.shtml)
+- 2026-06-29 16:07 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/262193.shtml)
+- 2026-06-29 16:17 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/72116281.shtml)
+- 2026-06-29 16:28 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/38696.shtml)
+- 2026-06-29 16:18 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/8430067.shtml)
+- 2026-06-29 16:18 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/565599257398.shtml)
+- 2026-06-29 16:07 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/5821058074.shtml)
+- 2026-06-29 16:15 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/359558.shtml)
+- 2026-06-29 16:26 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/626471537750.shtml)
+- 2026-06-29 16:10 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/45411.shtml)
+- 2026-06-29 16:22 - [葛军谈AI时代理科生出路](https://www.blog.minike.top/Article/details/47816809509.shtml)
+- 2026-06-29 16:29 - [流金岁月](https://www.share.minike.top/Article/details/289134977975.shtml)
+- 2026-06-29 16:16 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/85517394183.shtml)
+- 2026-06-29 16:25 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.kurohicncr.top/Article/details/4594219804.shtml)
+- 2026-06-29 16:12 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/76659107907.shtml)

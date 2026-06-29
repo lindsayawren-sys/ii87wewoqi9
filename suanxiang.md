@@ -1,57 +1,56 @@
-# 港股本周收盘站稳26000点 腾讯、阿里、京东季度业绩成市场焦点
+# 黄河全流域进入春灌高峰期
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新社香港5月8日电 (记者 戴小橦)港股市场近日企稳回升，香港恒生指数8日收报26393.71点，站稳26000点关口；恒生科技指数当天收于5102.79点。 回顾全周，香港恒生指数累计上涨2.39%，恒生科技指数累计涨幅达4.75%，大型科技股成为拉动大盘上行的重要动力。 下周港股科技板块将迎来密集业绩披露期，腾讯控股、阿里巴巴、京东集团等头部平台企业陆续公布季度业绩，市场
+中新网郑州4月10日电 (记者 阚力)中国水利部黄河水利委员会(以下简称黄委)10日消息，随着气温回升，当前黄河上中下游春灌工作全面铺开，春灌期间黄河中下游已累计引黄供水超过21.5亿立方米，有效满足了小麦生长期用水需求。进入4月以来，黄河流域局部地区持续高温少雨，青海、甘肃、宁夏、内蒙古、山西、陕西部分地区存在不同程度旱情。自清明节后，宁夏、内蒙古引黄灌区冬小麦开始返青，黄河
 
 ## 正文
 
-中新社香港5月8日电 (记者 戴小橦)港股市场近日企稳回升，香港恒生指数8日收报26393.71点，站稳26000点关口；恒生科技指数当天收于5102.79点。
+中新网郑州4月10日电 (记者 阚力)中国水利部黄河水利委员会(以下简称黄委)10日消息，随着气温回升，当前黄河上中下游春灌工作全面铺开，春灌期间黄河中下游已累计引黄供水超过21.5亿立方米，有效满足了小麦生长期用水需求。
 
-回顾全周，香港恒生指数累计上涨2.39%，恒生科技指数累计涨幅达4.75%，大型科技股成为拉动大盘上行的重要动力。
+进入4月以来，黄河流域局部地区持续高温少雨，青海、甘肃、宁夏、内蒙古、山西、陕西部分地区存在不同程度旱情。
 
-下周港股科技板块将迎来密集业绩披露期，腾讯控股、阿里巴巴、京东集团等头部平台企业陆续公布季度业绩，市场预判三家企业盈利表现将明显分化。
+自清明节后，宁夏、内蒙古引黄灌区冬小麦开始返青，黄河上游引黄春灌工作全面启动；中游山西、陕西，下游河南、山东春灌持续展开，引黄入冀补淀工作也稳定推进。
 
-高歌证券金融首席分析师聂振邦表示，港股进入大型科技股业绩披露窗口期，有望持续吸引增量资金布局。
+黄委方面称，黄河上中下游全线进入春灌用水高峰期，需水量较大，干流合计引水流量由4月1日的989立方米每秒增加至9日的1138立方米每秒。
 
-他认为，若香港恒生指数能够连续两日收市站稳在26500点上方，本月大盘有望进一步挑战27000点整数关口。
+截至4月9日，黄河干流龙羊峡、刘家峡、万家寨、三门峡、小浪底五大水库合计蓄水283.06亿立方米。
 
-奕丰环球市场(iFAST Global Markets)投资总监温钢城表示，市场普遍预期腾讯控股、阿里巴巴、京东集团三家科技企业仍将持续加大人工智能领域投资，后续将重点观察各家核心业务增长韧性，以及管理层对公司未来发展前景的战略解读。
+其中，小浪底水库蓄水58.69亿立方米，比去年同期多蓄0.57亿立方米。
 
-展望港股后市，渣打银行认为，行情走势或将主要受中东局势牵动，整体呈现“先跌后升”格局。
+今年3月以来，4次调整刘家峡水库下泄流量，5次调整小浪底水库下泄流量。
 
-(完)
+4月8日，黄委及时下达4月中旬黄河水量调度方案，进一步细化调度举措，为上中下游春灌高峰期供水提供坚实保障。
 
 ## 相关推荐
 
-- 2026-06-29 15:57 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 16:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 16:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 16:01 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 16:09 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 16:01 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 16:16 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 16:22 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 16:19 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 15:56 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 15:55 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 16:00 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 16:08 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 16:24 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 16:16 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 16:10 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 16:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 16:13 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 16:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 16:06 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 16:20 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/1199115542.shtml)
-- 2026-06-29 16:02 - [天道](https://www.blog.kurohicncr.top/Article/details/197999.shtml)
-- 2026-06-29 15:57 - [上班主打一个薪尽自然凉](http://www.blog.minike.top/Article/details/795064933633.shtml)
-- 2026-06-29 16:07 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/025451546.shtml)
-- 2026-06-29 16:21 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/8343810.shtml)
-- 2026-06-29 16:09 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/6118230546.shtml)
-- 2026-06-29 16:17 - [韩国国脚无缘上亿韩元奖金](http://www.blog.minike.top/Article/details/7361356268.shtml)
-- 2026-06-29 15:54 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/06094859.shtml)
-- 2026-06-29 16:06 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/26473848539.shtml)
-- 2026-06-29 15:55 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/945883.shtml)
-- 2026-06-29 16:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/037093007.shtml)
-- 2026-06-29 16:01 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/986364482.shtml)
-- 2026-06-29 16:02 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/766217632.shtml)
-- 2026-06-29 15:54 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/529585963163.shtml)
-- 2026-06-29 16:06 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/1031397351.shtml)
+- 2026-06-29 16:01 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.kurohicncr.top/Article/details/1109986314.shtml)
+- 2026-06-29 16:21 - [上班主打一个薪尽自然凉](http://www.blog.kurohicncr.top/Article/details/7379786762.shtml)
+- 2026-06-29 16:26 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/520158182992.shtml)
+- 2026-06-29 16:01 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/453955.shtml)
+- 2026-06-29 16:08 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/370859007.shtml)
+- 2026-06-29 16:22 - [血糖高的人能吃西瓜吗](http://www.blog.kurohicncr.top/Article/details/840013848.shtml)
+- 2026-06-29 16:24 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/011428634.shtml)
+- 2026-06-29 16:25 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/15754.shtml)
+- 2026-06-29 16:11 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/200356031188.shtml)
+- 2026-06-29 16:11 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/6346274.shtml)
+- 2026-06-29 16:29 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/3923733.shtml)
+- 2026-06-29 16:03 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/87089.shtml)
+- 2026-06-29 16:07 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/00690842031.shtml)
+- 2026-06-29 16:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/225795.shtml)
+- 2026-06-29 16:19 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/05208155338.shtml)

@@ -1,54 +1,58 @@
-# 10万立方米超大型乙烷运输船从江苏出江试航
+# 第93届CMEF在沪举行 AI医疗应用引关注
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-中新网南京5月8日电 (沈阳 朱维克)8日，在泰州海事部门保障下，江苏扬子鑫福造船有限公司建造的10万立方米超大型乙烷运输船(VLEC)“鑫福137”轮出江试航。 “鑫福137”轮长229.9米，型宽36.5米，舱容达10万立方米，是全球大规模乙烷运输船(VLEC)序列，技术指标、安全标准、绿色性能均达国际顶尖水平。该船是江苏扬子鑫福造船有限公司为新浦化学(泰兴)有限公司建造的
+中新社上海4月11日电 (记者 陈静)正在上海举行的第93届中国国际医疗器械博览会(CMEF)上，多款人工智能(AI)医疗应用引关注。 由GE医疗中国团队主导研发、全球资源协同的创新成果—— Allia Celeo Max朱雀旗舰型血管造影系统(下称：朱雀)亮相现场。作为一款创新型碳纤维大孔径介入平台，朱雀将AI无缝嵌入到介入诊疗的全流程，实现了从“看见”到“看清”，再到“预见
 
 ## 正文
 
-中新网南京5月8日电 (沈阳 朱维克)8日，在泰州海事部门保障下，江苏扬子鑫福造船有限公司建造的10万立方米超大型乙烷运输船(VLEC)“鑫福137”轮出江试航。
+中新社上海4月11日电 (记者 陈静)正在上海举行的第93届中国国际医疗器械博览会(CMEF)上，多款人工智能(AI)医疗应用引关注。
 
-“鑫福137”轮长229.9米，型宽36.5米，舱容达10万立方米，是全球大规模乙烷运输船(VLEC)序列，技术指标、安全标准、绿色性能均达国际顶尖水平。
+由GE医疗中国团队主导研发、全球资源协同的创新成果—— Allia Celeo Max朱雀旗舰型血管造影系统(下称：朱雀)亮相现场。
 
-该船是江苏扬子鑫福造船有限公司为新浦化学(泰兴)有限公司建造的5艘同型船首制船。
+作为一款创新型碳纤维大孔径介入平台，朱雀将AI无缝嵌入到介入诊疗的全流程，实现了从“看见”到“看清”，再到“预见”的跨越。
 
-今年一季度，泰州海事局共保障新造船舶出江试航33艘，其中，保障205米以上大型船舶12艘、数量同比增长10%，保障270米以上超大型船舶7艘、数量同比增长133.3%。
+GE医疗大中华区副总裁、先进可视化诊疗业务总经理徐悦表示，朱雀是“全球资源+中国创新”双轮驱动的典型。
 
-(完)
+中国高水平的医疗中心和专家以及巨大的手术量，大大缩短了研发周期。
+
+“中国智造”正深度参与全球高端医疗装备的创新发展。
+
+明日像素携自主研发的“AI医美大脑”全栈技术体系亮相。
+
+“AI医美大脑”依托高速马达、智能算法、AI芯片，构建起集感知、分析、决策于一体的专属技术体系，包含多个自研核心技术，比如：皮肤像素级分割算法实现微米级精细评估；术后效果预测大模型降低医患纠纷等。
 
 ## 相关推荐
 
-- 2026-06-29 16:18 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 16:06 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 16:16 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 16:17 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 16:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 16:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 16:02 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 15:54 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 16:02 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 15:54 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 15:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 15:58 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 16:14 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 15:56 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 16:01 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 16:16 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 16:01 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 16:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 16:05 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 16:08 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 16:18 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 16:28 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 16:07 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 16:29 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 16:06 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 16:16 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/0402381.shtml)
-- 2026-06-29 15:54 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/628223931.shtml)
-- 2026-06-29 16:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/94841699.shtml)
-- 2026-06-29 15:54 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/9181579133.shtml)
-- 2026-06-29 15:56 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/06486274.shtml)
-- 2026-06-29 15:55 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/4238371075.shtml)
-- 2026-06-29 16:10 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/480175524853.shtml)
-- 2026-06-29 16:21 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/234366118067.shtml)
-- 2026-06-29 16:16 - [逃狱兄弟](http://www.blog.minike.top/Article/details/4141082365.shtml)
-- 2026-06-29 16:19 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/90197386.shtml)
-- 2026-06-29 16:06 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/685722702754.shtml)
-- 2026-06-29 16:23 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/62043653282.shtml)
-- 2026-06-29 16:17 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/6082798740.shtml)
-- 2026-06-29 15:55 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/401372659.shtml)
-- 2026-06-29 16:07 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/93326.shtml)
+- 2026-06-29 16:10 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/5114908.shtml)
+- 2026-06-29 16:25 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/927948510592.shtml)
+- 2026-06-29 16:02 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/523537896450.shtml)
+- 2026-06-29 16:15 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/9824945789.shtml)
+- 2026-06-29 16:22 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/7865639250.shtml)
+- 2026-06-29 16:27 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/9948317347.shtml)
+- 2026-06-29 16:20 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/03125.shtml)
+- 2026-06-29 16:23 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/240545.shtml)
+- 2026-06-29 16:27 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/96585325938.shtml)
+- 2026-06-29 16:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/105036973303.shtml)
+- 2026-06-29 16:13 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/098477.shtml)
+- 2026-06-29 16:17 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/43496019968.shtml)
+- 2026-06-29 16:01 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/27803.shtml)
+- 2026-06-29 16:24 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/710660.shtml)
+- 2026-06-29 16:18 - [啊啊啊](https://www.share.minike.top/Article/details/497134.shtml)

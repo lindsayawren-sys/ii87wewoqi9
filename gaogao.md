@@ -1,58 +1,60 @@
-# 【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实
+# 广东清远“五大百亿”农业产业全产业链产值已超461亿元
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-央视网消息（新闻联播）：当前，树立和践行正确政绩观学习教育正在深入扎实开展。四川省宜宾市、福建省厦门市深学细悟、真抓实干，切实把学习教育成果转化为指导实践、为民造福的实际行动和成效。 四川宜宾建立专题研讨深学、青年党员研学、市县专班督学等机制，推动学习教育融入日常、抓在经常。学习教育开展以来，宜宾选派2100多名干部走进社区、乡村，收集整理群众意见。 围绕居民反映的部分老旧小区
+中新网东莞4月11日电 (记者 张璐)广货行天下夏季行动·清远农林文旅招商推介会暨京东清远跑步鸡发布仪式(简称“活动”)10日在东莞举行。 “东莞不仅是世界工厂，更是食品工业的桥头堡和巨大的消费引擎。”清远市农业农村局相关负责人接受中新网采访时表示，此次选择在东莞举办推介会，就是要借助2026食博会·预博会和农博会这一国家级平台，让藏在粤北山区的好物对接粤港澳大湾区的采购商、加
 
 ## 正文
 
-央视网消息（新闻联播）：当前，树立和践行正确政绩观学习教育正在深入扎实开展。
+中新网东莞4月11日电 (记者 张璐)广货行天下夏季行动·清远农林文旅招商推介会暨京东清远跑步鸡发布仪式(简称“活动”)10日在东莞举行。
 
-四川省宜宾市、福建省厦门市深学细悟、真抓实干，切实把学习教育成果转化为指导实践、为民造福的实际行动和成效。
+“东莞不仅是世界工厂，更是食品工业的桥头堡和巨大的消费引擎。
 
-四川宜宾建立专题研讨深学、青年党员研学、市县专班督学等机制，推动学习教育融入日常、抓在经常。
+”清远市农业农村局相关负责人接受中新网采访时表示，此次选择在东莞举办推介会，就是要借助2026食博会·预博会和农博会这一国家级平台，让藏在粤北山区的好物对接粤港澳大湾区的采购商、加工商和投资商，实现从生态价值到市场价值的快速转化。
 
-学习教育开展以来，宜宾选派2100多名干部走进社区、乡村，收集整理群众意见。
+据悉，截至2025年，清远五大百亿级现代农业产业全产业链产值已达461.24亿元，其中清远鸡、英德红茶、西牛麻竹笋全产业链产值均突破百亿元大关。
 
-围绕居民反映的部分老旧小区无业主委员会、无物业服务、无人防物防等问题，宜宾将全市存在问题的400多个小区划分为4类，制定45项重点攻坚任务清单，分批推动改造提升。
+活动现场，清远拿出“农林文旅”全产业家底，面向粤港澳大湾区精准招商，全方位展示“粤味珍品·清远好食材”的独特魅力，集中呈现清远现代农业、林业与文旅产业的丰富资源。
 
-目前，宜宾全市县处级以上领导班子针对“部分干部存在主动破局意愿薄弱”等情况，建立学习教育查摆问题清单162个，查摆问题4300余条。
+“清远是大湾区向北辐射的第一站，拥有‘一江四轨、六纵四横’的交通网，高铁20分钟到广州、40分钟到东莞、60分钟到深圳。
 
-福建厦门一体推进学查改。
+不仅如此，清远的用地、用工成本只有珠三角的60%至70%，工业电价优惠力度全省领先。
 
-学习教育开展以来，厦门以民生需求为工作落脚点，组织党员干部深入社区一线走访调研，倾听群众诉求。
+”清远市人民政府副市长许崇砚表示。
 
 ## 相关推荐
 
-- 2026-06-29 16:17 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 16:17 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 15:55 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 16:08 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 16:07 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 15:58 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 16:18 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 16:09 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 15:54 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 15:56 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 15:59 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 15:55 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 16:12 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 16:21 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 16:13 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 16:03 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 16:28 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 16:08 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 16:13 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 16:21 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 16:16 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 16:17 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 16:19 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 16:28 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 16:00 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 16:04 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/369981015.shtml)
-- 2026-06-29 16:17 - [世界杯上那些封神的门将](http://www.blog.kurohicncr.top/Article/details/73955.shtml)
-- 2026-06-29 16:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/3492643158.shtml)
-- 2026-06-29 15:58 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/613460203766.shtml)
-- 2026-06-29 16:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/5619418.shtml)
-- 2026-06-29 15:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/761254867201.shtml)
-- 2026-06-29 16:02 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/552892244.shtml)
-- 2026-06-29 16:10 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/29169876.shtml)
-- 2026-06-29 16:22 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/703365501.shtml)
-- 2026-06-29 16:06 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/486413.shtml)
-- 2026-06-29 16:06 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/51755042.shtml)
-- 2026-06-29 16:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/408928.shtml)
-- 2026-06-29 16:23 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/973955284.shtml)
-- 2026-06-29 15:56 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/55979712346.shtml)
-- 2026-06-29 16:02 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/4562584.shtml)
+- 2026-06-29 16:05 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/45653428965.shtml)
+- 2026-06-29 16:25 - [第一炉香](https://www.blog.minike.top/Article/details/94894.shtml)
+- 2026-06-29 16:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/64824.shtml)
+- 2026-06-29 16:28 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/10443.shtml)
+- 2026-06-29 16:22 - [吴建豪老婆](http://www.blog.minike.top/Article/details/92649752541.shtml)
+- 2026-06-29 16:21 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/47742838688.shtml)
+- 2026-06-29 16:14 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/13636751090.shtml)
+- 2026-06-29 16:12 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/602709007860.shtml)
+- 2026-06-29 16:08 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/4506076.shtml)
+- 2026-06-29 16:16 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/665242662.shtml)
+- 2026-06-29 16:28 - [千与千寻](http://www.share.minike.top/Article/details/2264120861.shtml)
+- 2026-06-29 16:04 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/98842675.shtml)
+- 2026-06-29 16:04 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/6273173.shtml)
+- 2026-06-29 16:13 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/77487827332.shtml)
+- 2026-06-29 16:27 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/733622190.shtml)

@@ -1,59 +1,57 @@
-# 商务部召开第十届中国—俄罗斯博览会新闻发布会（实录）
+# 俄乌和平谈判进展消息传出，欧洲军工股下跌
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-商务部召开第十届中国—俄罗斯博览会新闻发布会 商务部于2026年5月8日（星期五）15时举行专题新闻发布会，请商务部欧亚司副司长马驰，黑龙江省贸促会副会长王欣梅，俄罗斯联邦经济发展部驻俄驻华商务代表处代表（俄驻华商务副代表级别）谢尔久科娃介绍第十届中国—俄罗斯博览会有关情况，并回答记者朋友关心的问题。 以下为发布会文字实录 何亚东 各位记者朋友们，大家下午好。欢迎参加商务部专题
+受美伊之间脆弱停火以及俄乌有望达成和平谈判的消息影响，欧洲股市周五早盘小幅走高。 伦敦时间上午 11：30（美国东部时间早 6：30）后不久，欧洲泛欧斯托克 600 指数上涨 0.7%，多数区域板块和主要交易所均处于上涨区间。 乌克兰对俄高级谈判代表释放冲突有望解决的信号后，欧洲国防股大幅下挫。 德国最大军火商莱茵金属下跌 5.9%，坦克制造商伦克下跌 5.8%，军用科技与监控
 
 ## 正文
 
-商务部召开第十届中国—俄罗斯博览会新闻发布会 商务部于2026年5月8日（星期五）15时举行专题新闻发布会，请商务部欧亚司副司长马驰，黑龙江省贸促会副会长王欣梅，俄罗斯联邦经济发展部驻俄驻华商务代表处代表（俄驻华商务副代表级别）谢尔久科娃介绍第十届中国—俄罗斯博览会有关情况，并回答记者朋友关心的问题。
+受美伊之间脆弱停火以及俄乌有望达成和平谈判的消息影响，欧洲股市周五早盘小幅走高。
 
-以下为发布会文字实录 何亚东 各位记者朋友们，大家下午好。
+伦敦时间上午 11：30（美国东部时间早 6：30）后不久，欧洲泛欧斯托克 600 指数上涨 0.7%，多数区域板块和主要交易所均处于上涨区间。
 
-欢迎参加商务部专题新闻发布会。
+乌克兰对俄高级谈判代表释放冲突有望解决的信号后，欧洲国防股大幅下挫。
 
-今天我们非常高兴地邀请到商务部欧亚司副司长马驰先生，黑龙江省贸促会副会长王欣梅女士，俄罗斯联邦经济发展部驻俄驻华商务代表处代表（俄驻华商务副代表级别）谢尔久科娃女士，请他们为大家介绍第十届中俄博览会有关情况，并回答大家关心的问题。
+德国最大军火商莱茵金属下跌 5.9%，坦克制造商伦克下跌 5.8%，军用科技与监控企业亨索尔特暴跌 6%。
 
-下面我们首先请马驰副司长作介绍。
+其他走低的国防股包括：瑞典战斗机制造商萨博下跌 3.3%，英国 BAE 系统公司下跌 3.6%。
 
-马驰 各位媒体朋友，大家下午好！
+彭博社周五报道，前军事情报官员、乌克兰总统弗拉基米尔・泽连斯基的核心助手之一基里洛・布达诺夫对谈判接近达成和解表示乐观。
 
-2026年是中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》签署25周年。
+周四，以色列总理本雅明・内塔尼亚胡表示，以方同意 “尽快” 与黎巴嫩谈判。
 
-在这一具有里程碑意义的重要节点，由商务部、黑龙江省人民政府与俄罗斯联邦经济发展部、工业和贸易部共同主办的第十届中国—俄罗斯博览会，将于5月17-21日在哈尔滨国际会展中心举办，黑龙江省还将同期举办第三十五届哈尔滨国际经济贸易洽谈会。
+伊朗议会议长穆罕默德・巴盖尔・加利巴夫称，以色列持续袭击黎巴嫩，违反了美伊之间的停火协议。
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 16:06 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 15:57 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 15:58 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 16:02 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 16:21 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 16:03 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 16:04 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 16:20 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 15:59 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 16:07 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 16:16 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 16:08 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 16:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 16:18 - [TFING全员黑西装](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 16:17 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 16:19 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 16:01 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 16:23 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 16:05 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 16:15 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 16:03 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 16:19 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 16:29 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:57 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/811578260937.shtml)
-- 2026-06-29 16:11 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/4828669.shtml)
-- 2026-06-29 16:07 - [乔家的儿女](https://www.share.minike.top/Article/details/30542449.shtml)
-- 2026-06-29 16:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/407299.shtml)
-- 2026-06-29 16:23 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/628247.shtml)
-- 2026-06-29 16:17 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/144196.shtml)
-- 2026-06-29 15:54 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/78153490.shtml)
-- 2026-06-29 15:59 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/1132386943.shtml)
-- 2026-06-29 16:15 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/200094303692.shtml)
-- 2026-06-29 16:20 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/97618608.shtml)
-- 2026-06-29 16:23 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/74337760.shtml)
-- 2026-06-29 16:22 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/3334608.shtml)
-- 2026-06-29 16:12 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/31075618810.shtml)
-- 2026-06-29 16:04 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/23290055757.shtml)
-- 2026-06-29 15:55 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/404318.shtml)
+- 2026-06-29 16:25 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/576295690.shtml)
+- 2026-06-29 16:18 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/8143653.shtml)
+- 2026-06-29 16:27 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/511596.shtml)
+- 2026-06-29 16:09 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/96045691697.shtml)
+- 2026-06-29 16:18 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/13307770761.shtml)
+- 2026-06-29 16:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/3381272.shtml)
+- 2026-06-29 16:09 - [7款商保创新药“转道”](http://www.blog.kurohicncr.top/Article/details/605001668.shtml)
+- 2026-06-29 16:07 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/6181495166.shtml)
+- 2026-06-29 16:28 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/33152885.shtml)
+- 2026-06-29 16:08 - [速度与激情9](https://www.share.minike.top/Article/details/56343341904.shtml)
+- 2026-06-29 16:16 - [天道](https://www.share.kurohicncr.top/Article/details/48758.shtml)
+- 2026-06-29 16:21 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/23839144922.shtml)
+- 2026-06-29 16:26 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/78261974.shtml)
+- 2026-06-29 16:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/648227.shtml)
+- 2026-06-29 16:10 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/601311226727.shtml)

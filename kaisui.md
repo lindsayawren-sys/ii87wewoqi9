@@ -1,58 +1,60 @@
-# 营收腰斩、巨亏近9亿元后，富煌钢构再曝超3亿元债务危机！知情人士：无争议的款项基本都收回了
+# 东西问丨中东冲突为何陷入循环“魔咒”？
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-每经记者|张宝莲 每经编辑|黄胜 继2025年业绩大幅滑坡后，主营钢结构业务的富煌钢构（维权）（002743.SZ，股价5.47元，市值23.81亿元）财务困境进一步加剧。5月7日晚间，该公司发布公告，披露了合计高达3.29亿元的债务逾期情况，其中未兑付的商业承兑汇票金额近3亿元，为公司紧张的资金链再添一层阴影。 同时，为公司出具2025年年报的审计机构天健会计师事务所（特殊普
+中新网石家庄4月12日电 题：中东冲突为何陷入循环“魔咒”？ 作者 亚当·艾诺 渥太华跨文化对话研究所理事会主席 当前围绕美以伊冲突，中东问题再次成为国际舆论焦点。 表面上看，这场冲突常常被解释为核问题、地区代理冲突或伊朗与美国、以色列之间的直接对抗。但如果把时间线拉长，把今天的战争放回过去数十年的中东政治与军事格局中观察，就会发现这场战争并不是突然出现的，它背后有一条相当清晰
 
 ## 正文
 
-每经记者|张宝莲 每经编辑|黄胜 继2025年业绩大幅滑坡后，主营钢结构业务的富煌钢构（维权）（002743.SZ，股价5.47元，市值23.81亿元）财务困境进一步加剧。
+中新网石家庄4月12日电 题：中东冲突为何陷入循环“魔咒”？
 
-5月7日晚间，该公司发布公告，披露了合计高达3.29亿元的债务逾期情况，其中未兑付的商业承兑汇票金额近3亿元，为公司紧张的资金链再添一层阴影。
+作者 亚当·艾诺 渥太华跨文化对话研究所理事会主席 当前围绕美以伊冲突，中东问题再次成为国际舆论焦点。
 
-同时，为公司出具2025年年报的审计机构天健会计师事务所（特殊普通合伙）在审计报告中明确加入了“与持续经营相关的重大不确定性”段落，直指公司有息负债高，资金流动性困难，存在可能导致对公司持续经营能力产生重大疑虑的重大不确定性。
+表面上看，这场冲突常常被解释为核问题、地区代理冲突或伊朗与美国、以色列之间的直接对抗。
 
-5月8日，《每日经济新闻》记者拨打公司董秘办电话，但是语音提示电话已欠费。
+但如果把时间线拉长，把今天的战争放回过去数十年的中东政治与军事格局中观察，就会发现这场战争并不是突然出现的，它背后有一条相当清晰且长期延续的战略逻辑。
 
-记者向公司董秘办邮箱发送采访函，截至发稿，未收到回复。
+今天人们看到的，并不只是一次新的军事摩擦，而是过去数十年地区安全结构不断演化、不断失衡之后的集中爆发。
 
-另据一位富煌钢构方面人士称，回款项目方面，无争议的款项基本都收回了，有争议的项目正在诉讼中。
+有国际关系研究机构指出，中东地区长期处于典型的“安全困境”状态，各国在追求自身安全的过程中反而不断加剧整体不稳定，这也是冲突周期性爆发的重要背景。
 
-目前公司因资金短缺没有开展什么新项目，仅有很少的项目处于扫尾阶段。
+美以伊冲突的根源是什么？
 
-据公司5月7日公告，由于回款不及预期导致暂时性流动资金紧张，公司及子公司出现部分债务逾期和商业承兑汇票未能按期兑付的情形。
+若要理解这次冲突真正的原因，就必须从20世纪70年代的伊朗说起。
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 16:11 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 16:17 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 15:56 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 16:16 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 16:20 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 16:22 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 16:11 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 16:14 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 16:04 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 16:22 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 16:12 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 16:25 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 16:29 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 16:18 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 16:06 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 16:27 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 16:18 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 16:19 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 16:05 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 16:10 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 16:01 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 16:11 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 16:28 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 16:00 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 16:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/66504896.shtml)
-- 2026-06-29 16:09 - [韩国队如何把94%出线概率打到0%](http://www.blog.kurohicncr.top/Article/details/397557.shtml)
-- 2026-06-29 16:00 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/21382.shtml)
-- 2026-06-29 15:57 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/65981107.shtml)
-- 2026-06-29 16:19 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/763983.shtml)
-- 2026-06-29 16:03 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/457746356496.shtml)
-- 2026-06-29 16:00 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/840566.shtml)
-- 2026-06-29 15:59 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/751122432.shtml)
-- 2026-06-29 16:04 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/867679.shtml)
-- 2026-06-29 16:04 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/7575769510.shtml)
-- 2026-06-29 16:20 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/8564810.shtml)
-- 2026-06-29 16:21 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/0274429.shtml)
-- 2026-06-29 16:02 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.kurohicncr.top/Article/details/06567460.shtml)
-- 2026-06-29 16:04 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/92057.shtml)
-- 2026-06-29 16:22 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/606157412.shtml)
+- 2026-06-29 16:27 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/71131.shtml)
+- 2026-06-29 16:07 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/59910449996.shtml)
+- 2026-06-29 16:23 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/811183009835.shtml)
+- 2026-06-29 16:18 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/35657704.shtml)
+- 2026-06-29 16:25 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/558478738.shtml)
+- 2026-06-29 16:27 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/6739416450.shtml)
+- 2026-06-29 16:24 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/217321235894.shtml)
+- 2026-06-29 16:09 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/34611.shtml)
+- 2026-06-29 16:08 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/29448991829.shtml)
+- 2026-06-29 16:29 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/295570.shtml)
+- 2026-06-29 16:17 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/317474546829.shtml)
+- 2026-06-29 16:27 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/79654227983.shtml)
+- 2026-06-29 16:08 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/7317315.shtml)
+- 2026-06-29 16:08 - [滾石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/0368036860.shtml)
+- 2026-06-29 16:26 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/7774670745.shtml)

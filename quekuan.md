@@ -1,48 +1,57 @@
-# 油价逼近100美元 美股期货小幅走高
+# 宠物专用CT、AI诊断心脏病……“黑科技”争抢宠物经济机遇
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-美国股指期货上涨0.3%至0.6%，交易员密切关注美伊再度冲突。美国4月新增就业11.5万人，4月失业率维持在4.3%。油价徘徊在100美元附近，Akamai Technologies在获得18亿美元的AI基础设施承诺后股价跳涨。责任编辑：张俊 SF065
+中新经纬4月10日电 (王玉玲)“宠物医疗的快速发展体现在供给端技术进步、合规能力强化与专业人才梯队建设，叠加消费端宠物保有量增加、人宠情感纽带加强，共同推动行业发展。”在第93届中国国际医疗器械博览会(CMEF，下称医博会)期间，上海汉维生物医药科技有限公司(汉维宠仕)首席科学家阮林高在接受中新经纬采访时表示。 “宠物经济”近年来持续火热。根据派读宠物行业大数据平台发布的《2
 
 ## 正文
 
-美国股指期货上涨0.3%至0.6%，交易员密切关注美伊再度冲突。
+中新经纬4月10日电 (王玉玲)“宠物医疗的快速发展体现在供给端技术进步、合规能力强化与专业人才梯队建设，叠加消费端宠物保有量增加、人宠情感纽带加强，共同推动行业发展。
 
-美国4月新增就业11.5万人，4月失业率维持在4.3%。
+”在第93届中国国际医疗器械博览会(CMEF，下称医博会)期间，上海汉维生物医药科技有限公司(汉维宠仕)首席科学家阮林高在接受中新经纬采访时表示。
 
-油价徘徊在100美元附近，Akamai Technologies在获得18亿美元的AI基础设施承诺后股价跳涨。
+“宠物经济”近年来持续火热。
 
-责任编辑：张俊 SF065
+根据派读宠物行业大数据平台发布的《2026年中国宠物行业白皮书》，2025年，中国城镇宠物(犬猫)消费市场规模达3126亿元，较2024年增长4.1%。
+
+消费方面，单只宠物消费持续提升，单只犬年均消费3006元、单只猫年均消费2085元，均创历史新高。
+
+宠物经济也驱动了宠物医疗的发展。
+
+中新经纬在医博会现场看到，医疗器械厂家带来了许多宠物专用医疗器械，包括AI驱动宠物心脏诊断设备、宠物专用CT、宠物雾化器等。
+
+从跨国企业到本土厂商，企业正在争抢“毛孩子”经济的新机遇。
 
 ## 相关推荐
 
-- 2026-06-29 16:16 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 16:03 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 16:23 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 16:18 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 16:15 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 16:00 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 16:15 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 15:59 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 16:04 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 16:19 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 16:17 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 16:14 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 16:05 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 16:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 16:28 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 16:10 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 16:14 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 16:04 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 16:07 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 16:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 16:24 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:05 - [首尔商铺禁止洪明甫入内](http://www.share.minike.top/Article/details/18311.shtml)
-- 2026-06-29 15:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/11729053066.shtml)
-- 2026-06-29 16:21 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/001895268.shtml)
-- 2026-06-29 15:58 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/1282401.shtml)
-- 2026-06-29 16:19 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/16345.shtml)
-- 2026-06-29 16:14 - [媒体：网络测评不能只剩“生意”](http://www.share.kurohicncr.top/Article/details/45862449076.shtml)
-- 2026-06-29 16:17 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/9001375303.shtml)
-- 2026-06-29 16:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/599641.shtml)
-- 2026-06-29 16:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/069185544956.shtml)
-- 2026-06-29 16:20 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/20843204.shtml)
-- 2026-06-29 15:57 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/0505892737.shtml)
-- 2026-06-29 16:23 - [斗破苍穹](https://www.blog.minike.top/Article/details/68553950.shtml)
-- 2026-06-29 16:10 - [Canna纳尔8-0对位单杀Doran](http://www.blog.minike.top/Article/details/201669846438.shtml)
-- 2026-06-29 16:17 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/837547.shtml)
-- 2026-06-29 16:19 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/1029856.shtml)
+- 2026-06-29 16:02 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/31428170883.shtml)
+- 2026-06-29 16:17 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/361377648.shtml)
+- 2026-06-29 16:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/79642696.shtml)
+- 2026-06-29 16:09 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/86387.shtml)
+- 2026-06-29 16:14 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/59393.shtml)
+- 2026-06-29 16:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/587626349.shtml)
+- 2026-06-29 16:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/09267331.shtml)
+- 2026-06-29 16:11 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/642113.shtml)
+- 2026-06-29 16:13 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/2133381574.shtml)
+- 2026-06-29 16:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/4564674799.shtml)
+- 2026-06-29 16:09 - [驻日美军航母沦为“毒窝”](http://www.share.minike.top/Article/details/4698362537.shtml)
+- 2026-06-29 16:22 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/768907107698.shtml)
+- 2026-06-29 16:19 - [周杰伦演唱会真的好多人啊](http://www.share.minike.top/Article/details/33706464683.shtml)
+- 2026-06-29 16:14 - [急先锋](https://www.blog.kurohicncr.top/Article/details/34015184.shtml)
+- 2026-06-29 16:07 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/99426495.shtml)

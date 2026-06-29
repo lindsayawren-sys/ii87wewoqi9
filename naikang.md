@@ -1,59 +1,61 @@
-# 软银下调OpenAI保证金贷款目标规模
+# 地缘冲突反复，部分央行抛售黄金，黄金短期或仍维持承压态势
 
-> 更新时间：2026-06-29 16:24:02 UTC+8
+> 更新时间：2026-06-29 16:30:02 UTC+8
 
 ## 摘要
 
-彭博社周五援引知情人士消息报道，因部分债权方态度审慎犹豫，软银集团缩减了以所持 OpenAI 股份为抵押、规模 100 亿美元保证金贷款的原定计划。 报道称，软银及合作银行在磋商中提出，拟将贷款目标规模下调至最低 600 亿美元。 消息指出，软银最初的融资方案令投资方心存顾虑：OpenAI 作为未上市企业，其估值难以合理敲定。 路透社暂无法核实该报道真实性，软银与 OpenAI
+文章来源：大众新闻-大众日报 过去一周，一方面，中东冲突反复冲击油价与金价；另一方面，多国央行买卖黄金的行动不一，金价走势震荡。广州日报全媒体记者留意到，4月3日至4月9日，伦敦金（现货黄金）收盘价在4600~4700美元/盎司的窄幅空间内震荡。受访业内人士认为，金价走势尚不明朗，短期黄金或仍维持承压态势。 伦敦金（现货黄金）近期走势图。 北京时间4月8日，中东地缘冲突缓解，国
 
 ## 正文
 
-彭博社周五援引知情人士消息报道，因部分债权方态度审慎犹豫，软银集团缩减了以所持 OpenAI 股份为抵押、规模 100 亿美元保证金贷款的原定计划。
+文章来源：大众新闻-大众日报 过去一周，一方面，中东冲突反复冲击油价与金价；另一方面，多国央行买卖黄金的行动不一，金价走势震荡。
 
-报道称，软银及合作银行在磋商中提出，拟将贷款目标规模下调至最低 600 亿美元。
+广州日报全媒体记者留意到，4月3日至4月9日，伦敦金（现货黄金）收盘价在4600~4700美元/盎司的窄幅空间内震荡。
 
-消息指出，软银最初的融资方案令投资方心存顾虑：OpenAI 作为未上市企业，其估值难以合理敲定。
+受访业内人士认为，金价走势尚不明朗，短期黄金或仍维持承压态势。
 
-路透社暂无法核实该报道真实性，软银与 OpenAI 均未立即回应路透社的置评请求。
+伦敦金（现货黄金）近期走势图。
 
-保证金贷款：指投资者向机构借贷资金用于投资证券，并以购入的资产作为贷款抵押。
+北京时间4月8日，中东地缘冲突缓解，国际原油价格跳水，国际金价和银价迅速拉升，现货黄金一度涨破4800美元/盎司。
 
-彭博社今年 4 月曾报道，这笔两年期保证金贷款附带条款，软银可选择将贷款期限再延长一年。
+但4月9日，霍尔木兹海峡再度关闭。
 
-报道补充，目前相关磋商仍在进行，最终贷款规模等细节仍有可能变动。
+新华社发布消息称，伊朗议长表示，伊美谈判尚未开始，3项停战条款已遭违反，局势再升级。
 
-软银自 2024 年 9 月起投资布局 OpenAI；2025 年 1 月，双方还携手合作美国人工智能基建项目星门计划（Stargate）。
+伦敦金（现货黄金）随即下探，伦敦金（现货黄金）自4850美元/盎司的高位跳水，至9日17时报4731美元/盎司，10日上午10时则报4748美元/盎司。
 
 ## 相关推荐
 
-- 2026-06-29 16:17 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 16:00 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 16:09 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 16:19 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 15:55 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 16:19 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 16:16 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 15:55 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 16:05 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 15:57 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 16:04 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 16:03 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 16:18 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 16:21 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 16:20 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 16:29 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 16:19 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 16:07 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 16:08 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 16:29 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 16:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 16:21 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 16:20 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 16:25 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 16:28 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 16:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 16:07 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 16:27 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.minike.top/Article/details/86322.shtml)
-- 2026-06-29 16:16 - [扬名立万](https://www.share.minike.top/Article/details/9116011.shtml)
-- 2026-06-29 16:03 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/688557684.shtml)
-- 2026-06-29 15:56 - [博主：全球股市进入“AI极端共振”](http://www.share.minike.top/Article/details/538248595274.shtml)
-- 2026-06-29 15:55 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/9544755.shtml)
-- 2026-06-29 16:16 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/3461441458.shtml)
-- 2026-06-29 16:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/48410.shtml)
-- 2026-06-29 15:57 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/99560809943.shtml)
-- 2026-06-29 16:08 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/536785850748.shtml)
-- 2026-06-29 16:19 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/914740209979.shtml)
-- 2026-06-29 15:55 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/883499562403.shtml)
-- 2026-06-29 16:10 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/745978633.shtml)
-- 2026-06-29 16:15 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/032725386.shtml)
-- 2026-06-29 16:10 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/747115415.shtml)
-- 2026-06-29 16:04 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.minike.top/Article/details/2953441.shtml)
+- 2026-06-29 16:11 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/537285.shtml)
+- 2026-06-29 16:24 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/23533.shtml)
+- 2026-06-29 16:02 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/79310230947.shtml)
+- 2026-06-29 16:10 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/38777.shtml)
+- 2026-06-29 16:28 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/2157883495.shtml)
+- 2026-06-29 16:05 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/3410055562.shtml)
+- 2026-06-29 16:19 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/481028541.shtml)
+- 2026-06-29 16:10 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/7395072.shtml)
+- 2026-06-29 16:01 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/704385236.shtml)
+- 2026-06-29 16:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/0179096053.shtml)
+- 2026-06-29 16:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/62714852657.shtml)
+- 2026-06-29 16:25 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/733754820.shtml)
+- 2026-06-29 16:28 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/184313281.shtml)
+- 2026-06-29 16:26 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/685436391.shtml)
+- 2026-06-29 16:01 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/4873524.shtml)
