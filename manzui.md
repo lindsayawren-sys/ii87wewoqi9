@@ -1,43 +1,46 @@
-# 端午将至 江西南昌：多支龙舟队备战龙舟赛 赛场筹备就绪
+# 太原市尖草坪区信都村镇银行被罚43.91万元：违反金融统计相关规定等
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 21:02 来源：央视新闻 责任编辑：【王祎】
+5月19日金融一线消息，中国人民银行山西省分行行政处罚决定信息公示表显示，太原市尖草坪区信都村镇银行股份有限公司因违反金融统计相关规定、违反账户管理规定、违反网络安全管理规定、违反人民币流通管理规定、违反反假货币业务管理规定、未按照规定开展客户尽职调查、未按规定报告大额交易，被给予警告，并处罚款43.91万元。 责任编辑：王馨茹
 
 ## 正文
 
-发布时间：2026年06月11日 21:02 来源：央视新闻 责任编辑：【王祎】
+5月19日金融一线消息，中国人民银行山西省分行行政处罚决定信息公示表显示，太原市尖草坪区信都村镇银行股份有限公司因违反金融统计相关规定、违反账户管理规定、违反网络安全管理规定、违反人民币流通管理规定、违反反假货币业务管理规定、未按照规定开展客户尽职调查、未按规定报告大额交易，被给予警告，并处罚款43.91万元。
+
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 00:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 01:10 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 00:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 00:48 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 00:43 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 01:03 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 01:10 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 00:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 01:10 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 00:57 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 01:03 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 01:06 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 01:06 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 01:05 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 01:02 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 00:53 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 00:50 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 01:03 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 00:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 00:48 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 01:11 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 01:06 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:05 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/45672.shtml)
-- 2026-06-30 00:50 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/169385875978.shtml)
-- 2026-06-30 00:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/852929997154.shtml)
-- 2026-06-30 00:46 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/24936773859.shtml)
-- 2026-06-30 00:58 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/3924764776.shtml)
-- 2026-06-30 00:57 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/5511791762.shtml)
-- 2026-06-30 00:55 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/249023588.shtml)
-- 2026-06-30 00:58 - [世界杯](http://www.share.kurohicncr.top/Article/details/13459784392.shtml)
-- 2026-06-30 00:49 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/910511523872.shtml)
-- 2026-06-30 00:47 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/31276565.shtml)
-- 2026-06-30 01:11 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/0755765.shtml)
-- 2026-06-30 00:52 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/026730.shtml)
-- 2026-06-30 00:49 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/725780143.shtml)
-- 2026-06-30 00:59 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/341933.shtml)
-- 2026-06-30 01:08 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/1370749.shtml)
+- 2026-06-30 01:17 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/133949404.shtml)
+- 2026-06-30 01:12 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/597435.shtml)
+- 2026-06-30 01:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/8046694681.shtml)
+- 2026-06-30 01:02 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/850919537.shtml)
+- 2026-06-30 01:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/47576623.shtml)
+- 2026-06-30 01:13 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/13395.shtml)
+- 2026-06-30 00:50 - [明星大侦探第四季](https://www.share.minike.top/Article/details/791308500665.shtml)
+- 2026-06-30 01:16 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/82411290340.shtml)
+- 2026-06-30 00:48 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/5752295165.shtml)
+- 2026-06-30 01:09 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/5457879.shtml)
+- 2026-06-30 00:58 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/37432.shtml)
+- 2026-06-30 01:15 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/5269789.shtml)
+- 2026-06-30 01:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/4518375.shtml)
+- 2026-06-30 01:11 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/028235.shtml)
+- 2026-06-30 01:16 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/13479.shtml)

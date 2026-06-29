@@ -1,59 +1,59 @@
-# 【深度报告】印尼资源民族主义浪潮下的商品研究
+# 美国玉米现货飙升，受中国巨额采购承诺提振
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-作者 | 中信建投期货研究发展部研究员：田亚雄 期货交易咨询业务资格：证监许可〔2011〕1461号本报告完成时间 | 2026年6月12日 全球资源民族主义浪潮 全球资源民族主义：一股结构性浪潮，地缘博弈升级与绿色转型需求叠加，驱动中小资源国系统性重构关键矿产控制权。这场浪潮并非偶发，而是具备清晰的内生动因与历史延续性。 在地缘博弈升级、贸易保护抬头的大环境下，中小经济体政策
+（来源：粮信网） 外媒5月18日消息：周一（5月18日），美国玉米现货市场大幅上涨。，因为白宫宣布中国承诺未来三年每年额外采购170亿美元美国农产品，以及美国玉米带遭遇严重风暴灾害。 美国农业部每日天气报告显示，强烈的暴风雨天气导致玉米带出现龙卷风和山洪，平原地区的风暴给堪萨斯州和南达科他州带来了大风和冰雹灾害。 出口方面，美国农业部出口检验数据显示，截至5月14日当周，美国玉
 
 ## 正文
 
-作者 | 中信建投期货研究发展部研究员：田亚雄 期货交易咨询业务资格：证监许可〔2011〕1461号本报告完成时间 | 2026年6月12日 全球资源民族主义浪潮 全球资源民族主义：一股结构性浪潮，地缘博弈升级与绿色转型需求叠加，驱动中小资源国系统性重构关键矿产控制权。
+（来源：粮信网） 外媒5月18日消息：周一（5月18日），美国玉米现货市场大幅上涨。
 
-这场浪潮并非偶发，而是具备清晰的内生动因与历史延续性。
+，因为白宫宣布中国承诺未来三年每年额外采购170亿美元美国农产品，以及美国玉米带遭遇严重风暴灾害。
 
-在地缘博弈升级、贸易保护抬头的大环境下，中小经济体政策选择空间受限，普遍依托关键矿产、新能源等核心品类谋求在全球产业链里提升收益分成。
+美国农业部每日天气报告显示，强烈的暴风雨天气导致玉米带出现龙卷风和山洪，平原地区的风暴给堪萨斯州和南达科他州带来了大风和冰雹灾害。
 
-资源民族主义的兴起具备内生动因，预计未来5—10年该趋势仍将延续。
+出口方面，美国农业部出口检验数据显示，截至5月14日当周，美国玉米出口检验量为138万吨，虽低于前一周和去年同期水平，但是中国采购承诺为未来出口打开了想象空间。
 
-地缘博弈升级与绿色转型需求叠加，驱动中小资源国系统性重构关键矿产控制权。
+周一，美湾6月船期的2号黄玉米现货报价为每蒲5.61美元，相当于每吨220.9美元，比上个交易日上涨21.25美分．高于去年同期的5.12美元。
 
-这场浪潮并非偶发，而是具备清晰的内生动因与历史延续性。
+路易斯安那湾的基差是比CBOT的7月玉米期价高出84美分。
 
-资源民族主义并非新鲜议题，但本轮浪潮呈现出三个有别于历史的新特征： 第一，锂、钴、镍、铜等战略金属成为新焦点——彼时争夺的是石油，此刻争夺的是能源转型所需的“电池元素”； 第二，政策工具更加系统化，从单一出口禁令演进为涵盖出口管控、强制本地加工、股权稀释与国家特许权使用费的一揽子体系； 第三，各国政策形成示范效应，印尼的矿石禁令被赞比亚、津巴布韦、刚果金相继模仿，拉美锂三角国家（阿根廷、玻利维亚、智利）也在同步推进国有化进程。
+在伊利诺伊州中部地区，玉米加工厂收购二号黄玉米的报价平均为每蒲4.7283美元，比上个交易日上涨22.25美分，远高于去年同期的4.4533美元；基差报价比CBOT的7月玉米期货低22到高12美分。
 
-在地缘博弈升级、贸易保护抬头的大环境下，中小经济体政策选择空间受限，普遍依托关键矿产、新能源等核心品类谋求在全球产业链里提升收益分成。
+周一，芝加哥期货交易所（CBOT）玉米期货大幅上涨，2026年7月玉米收报477美分/蒲，比上个交易日上涨21.25美分；9月玉米期货收报482.25美分/蒲，上涨19.25美分；新季12月玉米收报498美分，上涨17美分。
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 00:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 01:00 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 00:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 00:43 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 00:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 01:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 00:47 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 00:42 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 00:51 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 01:11 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 01:04 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 00:54 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 00:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 01:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 01:06 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 00:58 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 01:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 01:17 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 01:16 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 01:05 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 01:17 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 00:55 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 00:50 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 00:58 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 01:01 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/436612.shtml)
-- 2026-06-30 00:58 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/25542.shtml)
-- 2026-06-30 01:03 - [小娘惹](https://www.blog.minike.top/Article/details/83677.shtml)
-- 2026-06-30 00:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/44075305.shtml)
-- 2026-06-30 00:59 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/24092749477.shtml)
-- 2026-06-30 00:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/626278.shtml)
-- 2026-06-30 00:52 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/08165.shtml)
-- 2026-06-30 00:50 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/37489635.shtml)
-- 2026-06-30 00:42 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/75553263277.shtml)
-- 2026-06-30 00:45 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/28399.shtml)
-- 2026-06-30 01:11 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/273153517.shtml)
-- 2026-06-30 01:09 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/035674284.shtml)
-- 2026-06-30 00:54 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/1241456416.shtml)
-- 2026-06-30 01:09 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/1385116055.shtml)
-- 2026-06-30 01:02 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/5206992.shtml)
+- 2026-06-30 01:14 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/174448.shtml)
+- 2026-06-30 00:50 - [小娘惹](http://www.share.minike.top/Article/details/000924231941.shtml)
+- 2026-06-30 01:10 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/8478067.shtml)
+- 2026-06-30 00:49 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/25234751044.shtml)
+- 2026-06-30 01:03 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/5418045.shtml)
+- 2026-06-30 00:58 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/048149650.shtml)
+- 2026-06-30 01:07 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/45531224217.shtml)
+- 2026-06-30 00:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/166395050.shtml)
+- 2026-06-30 01:11 - [世界杯](https://www.blog.minike.top/Article/details/4912294396.shtml)
+- 2026-06-30 01:02 - [流金岁月](http://www.blog.minike.top/Article/details/63395500.shtml)
+- 2026-06-30 00:59 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/1077814579.shtml)
+- 2026-06-30 01:05 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/54145.shtml)
+- 2026-06-30 01:03 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/5129564392.shtml)
+- 2026-06-30 01:07 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/074482873650.shtml)
+- 2026-06-30 01:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/58408091.shtml)

@@ -1,56 +1,53 @@
-# 南新制药收到证监会行政处罚事先告知书 投资者可参与索赔
+# 国内首次！128通道全植入式脑机接口开启临床试验
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年6月9日晚间，南新制药发布关于收到《行政处罚事先告知书》的公告。公告显示：湖南南新制药股份有限公司于2025 年9 月29 日收到中国证券监督管理委员会出具的《立案告知书》（编号：证监立案字 0132025024 号），2026 年 6 月 9 日
+今天，我国正式启动首个128通道全植入式脑机接口系统多中心临床试验，这项试验由首都医科大学附属北京天坛医院担任组长单位，这也标志着我国自主研发的高通量侵入式脑机接口技术进入临床转化的快车道。 此次研究采用的侵入式脑机接口系统，由皮层内植入式柔性电极与高集成度全植入式信号采集器两大模块构成。柔性电极采用超薄生物相容材料，可显著降低植入后的免疫反应，同时精准捕获具备高时空分辨率的单
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+今天，我国正式启动首个128通道全植入式脑机接口系统多中心临床试验，这项试验由首都医科大学附属北京天坛医院担任组长单位，这也标志着我国自主研发的高通量侵入式脑机接口技术进入临床转化的快车道。
 
-2026年6月9日晚间，南新制药发布关于收到《行政处罚事先告知书》的公告。
+此次研究采用的侵入式脑机接口系统，由皮层内植入式柔性电极与高集成度全植入式信号采集器两大模块构成。
 
-公告显示：湖南南新制药股份有限公司于2025 年9 月29 日收到中国证券监督管理委员会出具的《立案告知书》（编号：证监立案字 0132025024 号），2026 年 6 月 9 日，公司收到中国证监会湖南监管局出具的《行政处罚事先告知书》（〔2026〕6 号）。
+柔性电极采用超薄生物相容材料，可显著降低植入后的免疫反应，同时精准捕获具备高时空分辨率的单神经元动作电位，不仅让系统具备对精细脑电信息实时、高精度解码的能力，更使人机交互的信息传输速率实现数量级跃升。
 
-根据湖南证监局下达的行政处罚事先告知书显示，南新制药涉及的主要违规为：2023 年，南新制药控股子公司广州南新制药有限公司（以下简称广州南新）在部分客户退货后，未冲减当期收入和利润，导致南新制药2023 年年度报告虚增营业收入 4435.88 万元，占当期营业收入 5.96%；虚增利润总额908.77 万元，占当期利润总额 119.46%。
+与之配套的全植入式信号采集器采用无线全埋置设计，内置医疗级可充电电池并支持无线充电，可同步采集并传输高通道神经信号。
 
-2023 年，广州南新与部分客户分别签订《应收账款协议》，在《应收账款协议》约定的现金折扣生效后，未冲减当期收入和利润，导致南新制药2023 年年度报告虚增营业收入2032.40万元，占当期营业收入2.73%；虚增利润总额286.45万元，占当期利润总额 37.65%。
+患者可以在更自然、舒适的环境中接受治疗与康复训练，真正满足临床应用的便捷与安全需求。
 
-以上事项，导致南新制药共计虚增 2023 年度营业收入6468.28 万元，占当期营业收入 8.69%；虚增利润总额 1195.22 万元，占当期利润总额157.11%。
-
-湖南证监局拟对湖南南新制药股份有限公司给予警告，并处以500 万元罚款。
-
-南新制药表示对于《事先告知书》中涉及的相关事项，公司进行深刻的自查自纠并整改。
+(央视新闻客户端 总台央视记者 杨阳 牟媞媞)
 
 ## 相关推荐
 
-- 2026-06-30 01:04 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 01:04 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 01:09 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 00:42 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 00:47 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 00:49 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 00:47 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 01:05 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 00:52 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 00:53 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 00:58 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 01:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 00:49 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 00:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 01:09 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 00:50 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 01:05 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 01:09 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 00:50 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 00:56 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 01:04 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:53 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/34445.shtml)
-- 2026-06-30 01:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/2042915.shtml)
-- 2026-06-30 00:56 - [急先锋](http://www.share.minike.top/Article/details/03498223.shtml)
-- 2026-06-30 00:56 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/6570254881.shtml)
-- 2026-06-30 00:56 - [流金岁月](http://www.share.minike.top/Article/details/51218722.shtml)
-- 2026-06-30 01:03 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/153655490.shtml)
-- 2026-06-30 00:43 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/5202999751.shtml)
-- 2026-06-30 00:43 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/337832864114.shtml)
-- 2026-06-30 01:10 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/651744779795.shtml)
-- 2026-06-30 00:46 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/33820122.shtml)
-- 2026-06-30 01:01 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/971185247.shtml)
-- 2026-06-30 01:02 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/68315602783.shtml)
-- 2026-06-30 00:55 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/15229675098.shtml)
-- 2026-06-30 00:55 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/669704.shtml)
-- 2026-06-30 00:52 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/082591050.shtml)
+- 2026-06-30 01:02 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/75274.shtml)
+- 2026-06-30 01:04 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/837048756.shtml)
+- 2026-06-30 01:11 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/6797744906.shtml)
+- 2026-06-30 00:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/72350326542.shtml)
+- 2026-06-30 00:51 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/844736552.shtml)
+- 2026-06-30 00:57 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/54769378.shtml)
+- 2026-06-30 01:14 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/34559.shtml)
+- 2026-06-30 01:16 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/35122138.shtml)
+- 2026-06-30 00:57 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/4950433.shtml)
+- 2026-06-30 00:48 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/495406806589.shtml)
+- 2026-06-30 00:57 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/126212641.shtml)
+- 2026-06-30 01:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/66976093.shtml)
+- 2026-06-30 00:58 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/8263980842.shtml)
+- 2026-06-30 01:06 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/234655276.shtml)
+- 2026-06-30 01:06 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/89909694.shtml)

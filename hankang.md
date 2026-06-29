@@ -1,54 +1,60 @@
-# 新华保险午前涨超6% 中央汇金为公司第一大股东
+# 清华大学魏晨阳：养老金融产品设计要稳健，消费者不能仅关注短期收益丨对话五道口
 
-> 更新时间：2026-06-30 01:12:03 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-新华保险（01336）午前涨超6%，截至发稿，股价上涨6.25%，现报52港元，成交额5.80亿港元。 近日，新华保险发布公告，根据《新华人寿保险股份有限公司章程》的规定，单独或者合并持有本公司百分之三以上有表决权股份的股东可以提名非独立董事候选人，截至本公告日期，中央汇金投资有限责任公司持有本公司31.34%的股份，提名黄耿为本公司第九届董事会非执行董事候选人。 本公司于20
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 红星资本局5月19日消息，2026清华五道口全球金融论坛在成都召开期间，清华大学五道口金融学院中国保险与养老金融研究中心主任、金融MBA教育中心主任魏晨阳接受红星资本局专访，就个人养老金、养老金融、养老保险等问题进行回应。 谈个人养老金缴存冷： 机构要有更多产品 红星资本局：如何看待个人养老金“开户热、缴存冷”
 
 ## 正文
 
-新华保险（01336）午前涨超6%，截至发稿，股价上涨6.25%，现报52港元，成交额5.80亿港元。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 红星资本局5月19日消息，2026清华五道口全球金融论坛在成都召开期间，清华大学五道口金融学院中国保险与养老金融研究中心主任、金融MBA教育中心主任魏晨阳接受红星资本局专访，就个人养老金、养老金融、养老保险等问题进行回应。
 
-近日，新华保险发布公告，根据《新华人寿保险股份有限公司章程》的规定，单独或者合并持有本公司百分之三以上有表决权股份的股东可以提名非独立董事候选人，截至本公告日期，中央汇金投资有限责任公司持有本公司31.34%的股份，提名黄耿为本公司第九届董事会非执行董事候选人。
+谈个人养老金缴存冷： 机构要有更多产品 红星资本局：如何看待个人养老金“开户热、缴存冷”的现状？
 
-本公司于2026年6月10日召开的第九届董事会第八次会议，审议通过了《关于提名黄耿先生为第九届董事会非执行董事候选人的议案》，同意提名黄耿先生为第九届董事会非执行董事候选人。
+目前制约缴存的因素有哪些？
 
-上述议案须经本公司股东会审议。
+魏晨阳：个人养老金从几年前开始试点，最早先解决的是制度覆盖，让开户的数量能够先多起来，接着需要在服务效果上去覆盖。
 
-待股东会审议通过后，黄耿先生的董事任职资格尚需监管机构核准。
+现在是开户很多，放进去的钱比较少，放进去的钱配置也比较简单，总体上达到预期，但是缴存转化不足。
 
-责任编辑：卢昱君
+从需求侧来看，个人需要建立个人养老金长周期配置的观念，学会在当前消费与未来养老用钱方面进行平衡，不能用短期理财的一些标准去要求养老金账户的表现。
+
+从供给侧方面，机构需要有更多的产品，以及满足不同年龄段消费者期限产品的选择，此外，还需要提供更多比较透明、容易理解的风险收益解释。
+
+总体上需要让消费者看得懂、选得准、拿得住。
 
 ## 相关推荐
 
-- 2026-06-30 01:03 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 00:47 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 01:07 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 00:56 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 00:48 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 01:05 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 00:53 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 00:55 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 00:51 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 00:48 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 00:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 00:53 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 00:57 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 00:50 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 00:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 01:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 01:01 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 01:17 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 01:07 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 01:16 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 00:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 00:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 01:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 01:09 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 00:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 01:03 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:05 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/23224366.shtml)
-- 2026-06-30 00:55 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/331433496815.shtml)
-- 2026-06-30 00:44 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/420188231.shtml)
-- 2026-06-30 00:59 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/773288.shtml)
-- 2026-06-30 00:43 - [蔚来车主罚站](https://www.share.minike.top/Article/details/799564658975.shtml)
-- 2026-06-30 00:44 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/159974.shtml)
-- 2026-06-30 00:44 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/51783405.shtml)
-- 2026-06-30 01:05 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/244453504.shtml)
-- 2026-06-30 00:45 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/12979.shtml)
-- 2026-06-30 01:05 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/58923156.shtml)
-- 2026-06-30 00:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/702636.shtml)
-- 2026-06-30 00:49 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/402997.shtml)
-- 2026-06-30 01:02 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/11416567.shtml)
-- 2026-06-30 00:56 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/38765.shtml)
-- 2026-06-30 00:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/918542967206.shtml)
+- 2026-06-30 00:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/98127125.shtml)
+- 2026-06-30 00:51 - [速度与激情9](http://www.blog.minike.top/Article/details/0523149995.shtml)
+- 2026-06-30 01:16 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/699600.shtml)
+- 2026-06-30 01:15 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/15572364.shtml)
+- 2026-06-30 01:01 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/23378.shtml)
+- 2026-06-30 01:05 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/494150.shtml)
+- 2026-06-30 01:07 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/98498.shtml)
+- 2026-06-30 01:11 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/886546470.shtml)
+- 2026-06-30 00:53 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/40325909607.shtml)
+- 2026-06-30 01:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/874844.shtml)
+- 2026-06-30 00:55 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/075044.shtml)
+- 2026-06-30 01:05 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/649065198.shtml)
+- 2026-06-30 01:06 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/55764.shtml)
+- 2026-06-30 01:17 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/4652200.shtml)
+- 2026-06-30 01:06 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/18008785.shtml)

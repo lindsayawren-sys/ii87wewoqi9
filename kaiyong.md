@@ -1,61 +1,57 @@
-# 东方甄选丢了“F4”，怎么又离开一个“治理剩菜”的志胜
+# 东方日升：p-HJT产品在卷迭式卫星太阳翼适配等方面具备综合优势
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-不到两个月，东方甄选又离开一位主播。 6月10日，东方甄选主播志胜在社交平台发视频回顾直播之路，并配文称“休假结束，再见啦。这份‘情书’比悲伤更悲伤”。 根据公开报道，志胜以接地气的试吃风格、幽默的表达被用户熟知，有粉丝戏称其为“治理剩菜剩饭的吃播主播”，抖音平台粉丝约8600个。 当天，有网友在志胜视频下评论称，“休假，本来是多么美好的事！现在它却成了一个代名词”，志胜回应称
+东方日升（300118）2025年度业绩说明会于2026年5月19日（星期二）15:00-16:00在全景路演举行。互动交流环节，公司方在回复投资者提问时表示，p-HJT产品在超薄电池应用、生产成本、比功率、卷迭式卫星太阳翼适配（柔性）、抗辐射等方面具备综合优势，相较传统砷化镓产品具有成本的比较优势。目前常规光伏电池厚度约为120-130μm， p-HJT电池厚度约为50-70
 
 ## 正文
 
-不到两个月，东方甄选又离开一位主播。
+东方日升（300118）2025年度业绩说明会于2026年5月19日（星期二）15:00-16:00在全景路演举行。
 
-6月10日，东方甄选主播志胜在社交平台发视频回顾直播之路，并配文称“休假结束，再见啦。
+互动交流环节，公司方在回复投资者提问时表示，p-HJT产品在超薄电池应用、生产成本、比功率、卷迭式卫星太阳翼适配（柔性）、抗辐射等方面具备综合优势，相较传统砷化镓产品具有成本的比较优势。
 
-这份‘情书’比悲伤更悲伤”。
+目前常规光伏电池厚度约为120-130μm， p-HJT电池厚度约为50-70μm，且仍具备进一步减薄潜力。
 
-根据公开报道，志胜以接地气的试吃风格、幽默的表达被用户熟知，有粉丝戏称其为“治理剩菜剩饭的吃播主播”，抖音平台粉丝约8600个。
+在低轨卫星等对成本敏感、寿命较短的应用场景中，电池薄片化能有效减轻发射载荷，节省燃料。
 
-当天，有网友在志胜视频下评论称，“休假，本来是多么美好的事！
+同时，超薄设计赋予电池良好的柔韧性，使其可适配卷迭式太阳翼结构（柔性太阳翼），提升卫星内部空间利用率。
 
-现在它却成了一个代名词”，志胜回应称，“是个悲伤故事”。
-
-新京报贝壳财经记者了解到，志胜目前确已离开东方甄选。
-
-早在2024年7月，董宇辉离职、东方甄选剥离“与辉同行”。
+此外，更薄的电池片也有助于减少辐射导致的性能衰减，从而在整体上提高电池在轨运行的效能与经济性。
 
 ## 相关推荐
 
-- 2026-06-30 00:47 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 00:58 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 00:44 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 00:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 00:45 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 01:06 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 01:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 00:49 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 00:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 01:01 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 01:08 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 01:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 01:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 01:03 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 01:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 01:10 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 00:59 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 01:11 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 01:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 01:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 01:15 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 00:53 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 00:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 01:01 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 00:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 01:15 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 00:53 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 01:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 01:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 01:12 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/718410649399.shtml)
-- 2026-06-30 01:07 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/776784223144.shtml)
-- 2026-06-30 01:06 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/7713352328.shtml)
-- 2026-06-30 01:04 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/7119013623.shtml)
-- 2026-06-30 01:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/088953195.shtml)
-- 2026-06-30 00:44 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/549446089.shtml)
-- 2026-06-30 00:42 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/210418327.shtml)
-- 2026-06-30 00:47 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/089578.shtml)
-- 2026-06-30 01:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/092172.shtml)
-- 2026-06-30 00:55 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/45186.shtml)
-- 2026-06-30 01:04 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/664286577803.shtml)
-- 2026-06-30 00:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/56367710924.shtml)
-- 2026-06-30 01:03 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/86465466.shtml)
-- 2026-06-30 00:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/011952.shtml)
-- 2026-06-30 00:47 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/6254767181.shtml)
+- 2026-06-30 01:05 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/4685174801.shtml)
+- 2026-06-30 00:49 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/8350846.shtml)
+- 2026-06-30 01:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/4998991539.shtml)
+- 2026-06-30 01:16 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/529881136.shtml)
+- 2026-06-30 01:09 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/31745618414.shtml)
+- 2026-06-30 01:16 - [爱很美味](http://www.share.kurohicncr.top/Article/details/98517856.shtml)
+- 2026-06-30 00:59 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/338036.shtml)
+- 2026-06-30 00:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/22741.shtml)
+- 2026-06-30 01:10 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/43609975755.shtml)
+- 2026-06-30 01:14 - [周生如故](https://www.share.kurohicncr.top/Article/details/081184235037.shtml)
+- 2026-06-30 01:12 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/1020975958.shtml)
+- 2026-06-30 01:05 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/48513325280.shtml)
+- 2026-06-30 01:14 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/3536943.shtml)
+- 2026-06-30 01:00 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/86455.shtml)
+- 2026-06-30 01:06 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/902227885990.shtml)

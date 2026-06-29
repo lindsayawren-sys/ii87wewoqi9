@@ -1,57 +1,57 @@
-# 山东深耕盐穴储能技术 助力中国能源结构转型升级
+# 柬埔寨加速推动新能源项目建设发展
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-中新网济南6月12日电 (记者 沙见龙)“接到任务时，我们心里既兴奋又忐忑。”2020年，中国科学院工程热物理研究所计划在山东落地10MW级压缩空气储能示范项目。面对这项艰巨的技术攻关任务，山东省煤田地质规划勘察研究院盐穴储能技术创新团队(下称“团队”)负责人王明，道出了彼时团队成员们复杂的心情。 在“双碳”目标背景下，盐穴储能凭借安全可靠、绿色低碳等突出优势，成为新型储能产业
+中新社金边5月19日电 (记者 杨强)隶属柬埔寨发展理事会的柬投资委员会当地时间19日召开专门会议，审查并讨论7个合格投资项目的注册申请，其中包括4个新能源发电项目，这将进一步推动该国清洁能源发展与能源转型布局。柬埔寨发展理事会当天发布的消息显示，此次审议的4个新能源投资项目，分别为一座装机容量200兆瓦太阳能发电站、一座装机容量100兆瓦太阳能发电站、一座装机容量30兆瓦太阳
 
 ## 正文
 
-中新网济南6月12日电 (记者 沙见龙)“接到任务时，我们心里既兴奋又忐忑。
+中新社金边5月19日电 (记者 杨强)隶属柬埔寨发展理事会的柬投资委员会当地时间19日召开专门会议，审查并讨论7个合格投资项目的注册申请，其中包括4个新能源发电项目，这将进一步推动该国清洁能源发展与能源转型布局。
 
-”2020年，中国科学院工程热物理研究所计划在山东落地10MW级压缩空气储能示范项目。
+柬埔寨发展理事会当天发布的消息显示，此次审议的4个新能源投资项目，分别为一座装机容量200兆瓦太阳能发电站、一座装机容量100兆瓦太阳能发电站、一座装机容量30兆瓦太阳能发电站，以及一个装机容量为500兆瓦的大型储能电池系统项目。
 
-面对这项艰巨的技术攻关任务，山东省煤田地质规划勘察研究院盐穴储能技术创新团队(下称“团队”)负责人王明，道出了彼时团队成员们复杂的心情。
+这是柬埔寨政府积极推动能源结构转型的一个重要进展。
 
-在“双碳”目标背景下，盐穴储能凭借安全可靠、绿色低碳等突出优势，成为新型储能产业的新锐力量，为中国能源结构转型升级提供了重要支撑。
+近年来，柬埔寨持续扩大对太阳能、风力发电及储能系统等新能源领域的投资力度，以实现当局提出的在2030年前可再生能源占全国电力结构至少70%的目标。
 
-彼时，中国盐穴压缩空气储能仍处于技术验证阶段，多项技术瓶颈制约着行业的规模化推广与应用。
+今年以来，柬埔寨发展理事会已批准多个风力和太阳能发电站投资项目，包括今年2月批准的一个位于蒙多基里省、投资额约2亿美元的风力发电站项目，以及4月批准的一个150兆瓦风力发电站和一个350兆瓦太阳能发电站项目。
 
-盐穴储能地下工程涵盖物探、钻井、封堵、测试等多个专业领域，技术链条长、系统集成难度高，此前中国国内尚无单一单位能够系统地完成全套地下施工工艺。
+今年4月10日，由中国重型机械有限公司、二重(德阳)重型装备有限公司及南方电网澜湄国际能源有限责任公司共同投资开发的柬埔寨首座千兆瓦级抽水蓄能电站在柬国公省举行开工仪式。
 
-山东省煤田地质规划勘察研究院长期深耕地质科研领域，在该领域具备扎实的技术积累与独特优势。
+这也是中柬产能合作重点项目清单中的核心工程。
 
-三维地震溶腔调查，老井井筒下桥塞、锻铣、扩眼、封堵，大口径定向钻进，井筒气密封测试，注气排卤……面对一系列技术难题，王明带领团队全力攻坚。
+当地专业人士认为，越来越多新能源项目的建设和投入使用，将进一步提升柬埔寨电力供应的稳定性与可持续性，为工业、农业和旅游业发展提供动力支撑。
 
 ## 相关推荐
 
-- 2026-06-30 00:42 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 00:48 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 01:10 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 01:10 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 01:09 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 00:55 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 00:53 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 00:46 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 01:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 01:07 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 00:57 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 01:16 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 00:49 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 01:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 00:58 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 01:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 01:10 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 01:08 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 00:59 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 01:04 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 00:57 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 01:10 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/6288574.shtml)
-- 2026-06-30 00:48 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/8182426.shtml)
-- 2026-06-30 01:08 - [千与千寻](http://www.share.minike.top/Article/details/07666.shtml)
-- 2026-06-30 00:59 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/177808.shtml)
-- 2026-06-30 00:59 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/778407628208.shtml)
-- 2026-06-30 00:50 - [金刚川](http://www.blog.minike.top/Article/details/2783560.shtml)
-- 2026-06-30 01:06 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/65261712.shtml)
-- 2026-06-30 01:08 - [东方风云榜直播](https://www.blog.minike.top/Article/details/240251391824.shtml)
-- 2026-06-30 01:04 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/18618.shtml)
-- 2026-06-30 01:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/3215570955.shtml)
-- 2026-06-30 00:47 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/76410.shtml)
-- 2026-06-30 01:11 - [点菜也要教吗](http://www.blog.minike.top/Article/details/697769367851.shtml)
-- 2026-06-30 01:08 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/67906577.shtml)
-- 2026-06-30 01:00 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/761741.shtml)
-- 2026-06-30 00:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/7538939.shtml)
+- 2026-06-30 01:05 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/6385573.shtml)
+- 2026-06-30 01:16 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/318634325526.shtml)
+- 2026-06-30 00:53 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/8452930725.shtml)
+- 2026-06-30 01:15 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/454337146399.shtml)
+- 2026-06-30 01:00 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/94945.shtml)
+- 2026-06-30 01:15 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/386656.shtml)
+- 2026-06-30 01:03 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/2706088408.shtml)
+- 2026-06-30 01:10 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/4119419.shtml)
+- 2026-06-30 00:59 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/907078096.shtml)
+- 2026-06-30 00:53 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/0673428.shtml)
+- 2026-06-30 01:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/81572.shtml)
+- 2026-06-30 01:07 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/12005.shtml)
+- 2026-06-30 01:08 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/58297.shtml)
+- 2026-06-30 00:48 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/037763.shtml)
+- 2026-06-30 00:49 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/9844122.shtml)

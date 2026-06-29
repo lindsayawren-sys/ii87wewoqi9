@@ -1,49 +1,56 @@
-# 快讯：多晶硅主力合约日内涨幅扩大至8.00%
+# 北京开展网络食品虚假宣传专项整治 食品广告不得涉及疾病治疗功能
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-快讯：2026年6月11日，多晶硅主力合约日内涨幅扩大至8.00%，现报37370元/吨。 责任编辑：赵思远
+北京开展网络食品虚假宣传专项整治 划定三大类行为红线 食品广告不得涉及疾病治疗功能 本报讯(记者 王薇)北京青年报记者昨日从北京市市场监管局获悉，近日全市启动网络食品销售虚假宣传专项整治行动，聚焦网络食品销售全链条，严厉打击各类虚假宣传违法行为，进一步规范网络食品经营市场秩序。 此次专项整治明确划定虚假商业营销、虚假违法广告、平台及直播相关违法行为三大类行为红线，整治范围覆盖第
 
 ## 正文
 
-快讯：2026年6月11日，多晶硅主力合约日内涨幅扩大至8.00%，现报37370元/吨。
+北京开展网络食品虚假宣传专项整治 划定三大类行为红线 食品广告不得涉及疾病治疗功能 本报讯(记者 王薇)北京青年报记者昨日从北京市市场监管局获悉，近日全市启动网络食品销售虚假宣传专项整治行动，聚焦网络食品销售全链条，严厉打击各类虚假宣传违法行为，进一步规范网络食品经营市场秩序。
 
-责任编辑：赵思远
+此次专项整治明确划定虚假商业营销、虚假违法广告、平台及直播相关违法行为三大类行为红线，整治范围覆盖第三方电商平台、社交平台、直播平台、短视频平台、自建网站、小程序、应用程序等各类网络经营主体。
+
+同时压紧压实平台企业、入网食品销售者、直播间运营者、直播营销人员及服务机构、广告主、广告经营者、广告发布者、广告代言人等全链条各环节主体责任，要求各类经营主体严守法律法规，坚决不触碰法律红线。
+
+专项整治将重点打击网络食品销售虚假商业营销行为，明确禁止普通食品和保健食品宣称疾病预防、治疗功能，普通食品不得宣称保健功能；严禁将普通食品、保健食品与药品相互混淆，使用医疗用语进行营销。
+
+同时，对食品及原料的商标、成分、功能、适用人群等作虚假或者引人误解的商业宣传，虚构食品原产地、有机认证等资质，利用科研机构、行业协会、医疗机构及医护、营养等专业人员名义或形象作虚假推荐证明，发布篡改、伪造的食品安全检验数据，以及采用虚假交易、技术手段营造虚假人气等行为，均在重点查处之列。
+
+针对网络食品虚假违法广告问题，专项整治明确要求，食品广告不得涉及疾病治疗功能，不得使用医疗用语或者易使商品与药品、医疗器械相混淆的用语，不得明示或者暗示食品为保障健康所必需。
+
+保健食品广告严禁利用广告代言人做推荐、证明，且必须显著标明“本品不能代替药物”或“保健食品不是药物，不能替代药物治疗疾病”等警示用语，未按规定标注的将依法严肃查处。
+
+专项整治还将严厉查处平台经营者食品安全管理制度不健全、落实不到位，对平台内经营者、直播间运营者审核查验不严，发现食品安全违法行为未及时制止并报告等问题。
 
 ## 相关推荐
 
-- 2026-06-30 00:57 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 00:42 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 01:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 00:56 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 01:11 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 00:58 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 01:06 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 00:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 00:52 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 00:48 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 00:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 01:02 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 00:51 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 00:46 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 00:50 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 01:02 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 01:16 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 01:08 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 01:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 01:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 01:15 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 01:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 00:58 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 01:02 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 01:12 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/598561543251.shtml)
-- 2026-06-30 01:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/13183897274.shtml)
-- 2026-06-30 00:58 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/9678914.shtml)
-- 2026-06-30 00:46 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/828071184.shtml)
-- 2026-06-30 01:01 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/21882.shtml)
-- 2026-06-30 00:56 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/0071871.shtml)
-- 2026-06-30 00:49 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/665411668.shtml)
-- 2026-06-30 00:50 - [千与千寻](http://www.blog.minike.top/Article/details/79569667.shtml)
-- 2026-06-30 00:48 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/8738422779.shtml)
-- 2026-06-30 00:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/273816410.shtml)
-- 2026-06-30 00:57 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/2930880.shtml)
-- 2026-06-30 00:43 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/8626441.shtml)
-- 2026-06-30 00:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/644218840561.shtml)
-- 2026-06-30 01:05 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/96902.shtml)
-- 2026-06-30 00:55 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/4875793237.shtml)
+- 2026-06-30 01:13 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/136098003.shtml)
+- 2026-06-30 01:11 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/64479839.shtml)
+- 2026-06-30 00:54 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/627505.shtml)
+- 2026-06-30 01:00 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/0346580847.shtml)
+- 2026-06-30 00:54 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/96056.shtml)
+- 2026-06-30 00:48 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/6301232.shtml)
+- 2026-06-30 01:17 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/5330045303.shtml)
+- 2026-06-30 01:16 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/32412027312.shtml)
+- 2026-06-30 00:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/98088039.shtml)
+- 2026-06-30 00:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/7040937262.shtml)
+- 2026-06-30 00:56 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/145214.shtml)
+- 2026-06-30 00:57 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/27430.shtml)
+- 2026-06-30 01:07 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/10869.shtml)
+- 2026-06-30 01:13 - [TOP Prada](http://www.share.minike.top/Article/details/040436.shtml)
+- 2026-06-30 00:49 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/4526531062.shtml)

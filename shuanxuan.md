@@ -1,58 +1,56 @@
-# 滴滴充电联合肯德基推出“送餐到站”服务 探索充电新体验
+# 中国国家卫健委：警惕与生命健康相关伪“科技概念”诈骗
 
-> 更新时间：2026-06-30 01:12:03 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-6月9日至22日，滴滴充电联合肯德基推出“送餐到站”服务，首批覆盖北京、上海、广州、杭州等14座城市的近50个充电场站，为用户提供“充电+用餐”的一站式服务体验。 活动期间，用户在指定场站通过滴滴出行App、滴滴充电App及其小程序等渠道扫码启动充电，即可一键下单“满电能量餐”，享受餐品直送充电场站的服务。同时，结合不同用户的需求，滴滴充电与肯德基联合推出多款优惠套餐券，并赠送
+中新社北京5月19日电 (记者 李纯)中国国家卫生健康委员会19日在北京举行新闻发布会，新闻发言人谢杨提示公众，警惕不法分子编造与生命健康相关的伪“科技概念”行骗欺诈。 谢杨指出，近年来，一些不法分子打着“生命科学”等名义，编造“脑波修复”“能量疗愈”“光波疗愈”等与生命健康相关的伪“科技概念”行骗欺诈，宣称可以治愈疾病等，危害民众身心健康和财产安全。 谢杨说，国家卫健委郑重提
 
 ## 正文
 
-6月9日至22日，滴滴充电联合肯德基推出“送餐到站”服务，首批覆盖北京、上海、广州、杭州等14座城市的近50个充电场站，为用户提供“充电+用餐”的一站式服务体验。
+中新社北京5月19日电 (记者 李纯)中国国家卫生健康委员会19日在北京举行新闻发布会，新闻发言人谢杨提示公众，警惕不法分子编造与生命健康相关的伪“科技概念”行骗欺诈。
 
-活动期间，用户在指定场站通过滴滴出行App、滴滴充电App及其小程序等渠道扫码启动充电，即可一键下单“满电能量餐”，享受餐品直送充电场站的服务。
+谢杨指出，近年来，一些不法分子打着“生命科学”等名义，编造“脑波修复”“能量疗愈”“光波疗愈”等与生命健康相关的伪“科技概念”行骗欺诈，宣称可以治愈疾病等，危害民众身心健康和财产安全。
 
-同时，结合不同用户的需求，滴滴充电与肯德基联合推出多款优惠套餐券，并赠送15天免费充电会员。
+谢杨说，国家卫健委郑重提示，疾病诊断与治疗必须在医疗机构由具备资质的卫生专业技术人员进行。
 
-用户在全国滴滴充电场站均可参与活动，所购套餐券可到任意肯德基线下门店使用核销。
+购买药品、医疗器械和保健产品要查看批准文号和适用范围等。
 
-数据显示，公共充电高峰集中在中午和晚上正餐时段，用户就餐需求随之增加。
+非医疗机构及无资质人员利用所谓“高科技手段”进行诊疗行为的，可能涉嫌非法行医。
 
-而受场地条件影响，多数充电站缺少餐饮类等生活配套设施。
+谢杨说，不法分子常常假借“培训班”“研讨会”等名义，通过制造焦虑，利用伪科学理论塑造“权威”、虚构治愈案例等方式，对他人进行精神控制，从而骗钱敛财甚至造成人身伤害，老年人尤其要避免轻信上当。
 
-滴滴充电表示，此次联合肯德基推出的“送餐到站”服务，从用户充电等候场景切入，是充电场景与餐饮业态及本地生活融合的全新探索，致力于为更多用户提供更加便捷、高效的充电与用餐一体化体验，持续创造用户价值。
+公众要提高警惕，发现相关线索的，可以向当地公安机关、卫生健康行政部门、市场监管部门等举报，也可以拨打热线反映。
 
-滴滴充电始终将用户体验作为服务升级的核心。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:42 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 01:02 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 01:00 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 01:01 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 00:51 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 00:52 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 01:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 00:59 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 00:54 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 00:57 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 00:55 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 00:54 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 01:00 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 01:17 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 01:04 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 00:55 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 00:57 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 01:04 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 01:10 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 01:13 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 00:59 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 00:55 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:47 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/39374255.shtml)
-- 2026-06-30 00:44 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/92708.shtml)
-- 2026-06-30 01:06 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/628766299570.shtml)
-- 2026-06-30 00:53 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/55964.shtml)
-- 2026-06-30 00:45 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/396011755.shtml)
-- 2026-06-30 01:08 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/24918398.shtml)
-- 2026-06-30 00:44 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/95877243.shtml)
-- 2026-06-30 00:51 - [金刚川](https://www.share.minike.top/Article/details/92713754971.shtml)
-- 2026-06-30 00:49 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/3693356.shtml)
-- 2026-06-30 01:03 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/899128725607.shtml)
-- 2026-06-30 00:56 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/728628081.shtml)
-- 2026-06-30 00:56 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/19654607836.shtml)
-- 2026-06-30 00:52 - [速度与激情9](https://www.share.minike.top/Article/details/72076959.shtml)
-- 2026-06-30 00:45 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/30186009757.shtml)
-- 2026-06-30 01:01 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/38972890632.shtml)
+- 2026-06-30 01:17 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/473208.shtml)
+- 2026-06-30 00:54 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/407216795.shtml)
+- 2026-06-30 01:06 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/108941457302.shtml)
+- 2026-06-30 01:09 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/3676471744.shtml)
+- 2026-06-30 01:04 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/69950283231.shtml)
+- 2026-06-30 00:49 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/609785.shtml)
+- 2026-06-30 00:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/1485167.shtml)
+- 2026-06-30 01:14 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/40294878562.shtml)
+- 2026-06-30 00:54 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/25998622721.shtml)
+- 2026-06-30 00:57 - [急先锋](https://www.share.kurohicncr.top/Article/details/04294271119.shtml)
+- 2026-06-30 00:51 - [金刚川](https://www.blog.minike.top/Article/details/446580921009.shtml)
+- 2026-06-30 01:02 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/647397712.shtml)
+- 2026-06-30 01:16 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/917286076.shtml)
+- 2026-06-30 01:09 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/55315113.shtml)
+- 2026-06-30 01:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/516712.shtml)

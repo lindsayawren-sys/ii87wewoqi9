@@ -1,58 +1,46 @@
-# 金价重返4200美元，黄金股经营杠杆释放盈利弹性，关注黄金产业链配置窗口
+# 广西车辆坠河致10人遇难
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-文章来源：财闻 中长期来看，全球央行连续22个季度净购金、美国联邦债务突破39万亿美元，货币信用重估逻辑持续深化，黄金的长期配置价值获得结构性支撑。 6月12日盘中，黄金板块跟随金价反弹集体走强。赤峰黄金（600988.SH）涨超7%，紫金矿业（601899.SH）涨超6%，中金黄金（600489.SH）涨超4%，湖南黄金（002155.SZ）涨超3%，山金国际（000975.
+据广西环江县有关部门消息，环江“5·16”过桥车辆坠河事件全部失联人员均已找到，本次事件5人生还，10人遇难。(新华社 记者曹祎铭、王楚然)
 
 ## 正文
 
-文章来源：财闻 中长期来看，全球央行连续22个季度净购金、美国联邦债务突破39万亿美元，货币信用重估逻辑持续深化，黄金的长期配置价值获得结构性支撑。
+据广西环江县有关部门消息，环江“5·16”过桥车辆坠河事件全部失联人员均已找到，本次事件5人生还，10人遇难。
 
-6月12日盘中，黄金板块跟随金价反弹集体走强。
-
-赤峰黄金（600988.SH）涨超7%，紫金矿业（601899.SH）涨超6%，中金黄金（600489.SH）涨超4%，湖南黄金（002155.SZ）涨超3%，山金国际（000975.SZ）涨超2%，板块赚钱效应显著。
-
-国际金价重返每盎司4200美元上方，市场在逐步消化通胀数据、美联储政策预期及地缘事件扰动后，黄金迎来阶段性修复行情。
-
-一、金价企稳反弹，中长期配置逻辑未发生根本变化 近期国际金价重返每盎司4200美元上方，市场情绪边际回暖。
-
-从中长期维度看，支撑黄金价格的核心逻辑并未发生根本变化。
-
-全球央行持续购金、高债务环境下的货币信用重估、以及地缘政治不确定性，共同构成了金价的中长期底部支撑。
-
-在金价维持历史相对高位的背景下，市场关注点正从黄金价格本身逐步向黄金产业链企业的盈利能力扩散，黄金股的盈利兑现期有望开启。
+(新华社 记者曹祎铭、王楚然)
 
 ## 相关推荐
 
-- 2026-06-30 01:03 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 00:57 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 00:52 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 00:58 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 00:48 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 01:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 01:01 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 00:42 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 01:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 00:53 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 01:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 00:47 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 01:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 00:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 00:56 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 01:16 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 01:04 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 01:16 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 01:05 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 00:59 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 00:49 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 01:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 00:53 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 01:04 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/46959638.shtml)
-- 2026-06-30 00:43 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/416982271.shtml)
-- 2026-06-30 00:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/72301351.shtml)
-- 2026-06-30 00:50 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/649318.shtml)
-- 2026-06-30 01:08 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/3369761.shtml)
-- 2026-06-30 01:07 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/339681928.shtml)
-- 2026-06-30 00:44 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/059132624583.shtml)
-- 2026-06-30 01:08 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/310310.shtml)
-- 2026-06-30 01:04 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/850576188097.shtml)
-- 2026-06-30 01:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/4366514068.shtml)
-- 2026-06-30 00:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/18803620.shtml)
-- 2026-06-30 01:01 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/5554370911.shtml)
-- 2026-06-30 00:48 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/637403074.shtml)
-- 2026-06-30 00:48 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/4767097424.shtml)
-- 2026-06-30 00:58 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/599712446901.shtml)
+- 2026-06-30 00:49 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/5886727446.shtml)
+- 2026-06-30 00:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/72648350917.shtml)
+- 2026-06-30 01:05 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/6136744389.shtml)
+- 2026-06-30 00:49 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/95101497.shtml)
+- 2026-06-30 01:01 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/9399589.shtml)
+- 2026-06-30 01:12 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/6010700111.shtml)
+- 2026-06-30 01:00 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/086297086947.shtml)
+- 2026-06-30 00:54 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/51437920017.shtml)
+- 2026-06-30 01:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/400568231.shtml)
+- 2026-06-30 00:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/193480.shtml)
+- 2026-06-30 01:04 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/63942166440.shtml)
+- 2026-06-30 00:55 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/805821.shtml)
+- 2026-06-30 00:48 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/550915.shtml)
+- 2026-06-30 00:55 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/526427732.shtml)
+- 2026-06-30 01:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/5384520754.shtml)

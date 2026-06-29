@@ -1,59 +1,53 @@
-# 医保目录调整启幕，商保创新药重构医药支付生态
+# 机器人出租车驶入伦敦街头测试
 
-> 更新时间：2026-06-30 01:12:03 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-来源：中保新知 年中政策落地窗口如期开启，牵动万亿医药市场走向的2026年国家医保药品目录调整，已全面迈入实质性推进阶段。 6月9日，国家医保局针对本年度药品目录调整申报工作发布重要提示。根据《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》（下称《工作方案》），本次目录调整线上申报通道于6月10日20：00正式关闭，逾期系统不再受
+Alphabet旗下的Waymo在伦敦扩大了高精地图测绘和试运行范围。随着人工智能驱动的车队日益接近商业化服务，自动驾驶车辆与传统黑色出租车之间的竞争愈发激烈。伦敦交通局正密切关注测试进展，并着手制定自动驾驶出租车的运营规范。黑色出租车司机协会表达了对就业冲击的担忧，呼吁政府限制自动驾驶车辆在市中心区域的运营。Waymo表示其技术将提升道路安全并降低出行成本，计划在取得监管许可
 
 ## 正文
 
-来源：中保新知 年中政策落地窗口如期开启，牵动万亿医药市场走向的2026年国家医保药品目录调整，已全面迈入实质性推进阶段。
+Alphabet旗下的Waymo在伦敦扩大了高精地图测绘和试运行范围。
 
-6月9日，国家医保局针对本年度药品目录调整申报工作发布重要提示。
+随着人工智能驱动的车队日益接近商业化服务，自动驾驶车辆与传统黑色出租车之间的竞争愈发激烈。
 
-根据《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》（下称《工作方案》），本次目录调整线上申报通道于6月10日20：00正式关闭，逾期系统不再受理相关申报材料。
+伦敦交通局正密切关注测试进展，并着手制定自动驾驶出租车的运营规范。
 
-数据显示，截至6月9日17时，仍有80个处于协议到期阶段的目录内药品尚未完成申报流程。
+黑色出租车司机协会表达了对就业冲击的担忧，呼吁政府限制自动驾驶车辆在市中心区域的运营。
 
-国家医保局提醒相关药企，务必在截止时限前完成申报提交，若逾期未申报，将直接影响对应药品的续约进程。
+Waymo表示其技术将提升道路安全并降低出行成本，计划在取得监管许可后于2027年前推出付费服务。
 
-与此同时，有意向申报的目录外药品品种，也需抓紧时间完成线上申报。
-
-同日上午，人保健康及其子公司人保健康管理有限公司，与中国华润集团旗下华润健康集团有限公司等多家子公司在深圳举行战略合作协议签约仪式，双方围绕商保药品目录、保险产品运营、带病体保险开发、商保服务中心建设、健康企业服务、健康体检升级、保险客户风险减量及健康大数据合作等八大领域开展深层次、全方位的合作，共同探索“保险+医疗+健管+科技”协同发展的创新模式。
-
-01 梯度准入落地 商保创新药开辟基本医保直通路径 此前举办的官方政策解读会上，国家医保局明确了两大目录联动的核心规则：2026年基本医保目录全面接纳商保创新药目录品种直接申报，正式落地“商保探路、医保接力”的梯度准入模式。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 01:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 00:59 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 00:53 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 00:55 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 00:53 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 00:45 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 01:12 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 00:49 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 00:54 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 01:12 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 00:58 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 00:48 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 01:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 01:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 00:52 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 00:59 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 00:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 00:53 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 01:05 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 01:06 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 01:14 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 01:04 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 00:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:43 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/23661214.shtml)
-- 2026-06-30 01:02 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/59965.shtml)
-- 2026-06-30 00:46 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/656492351638.shtml)
-- 2026-06-30 01:05 - [千香](https://www.blog.minike.top/Article/details/173058205395.shtml)
-- 2026-06-30 00:46 - [啊啊啊](http://www.blog.minike.top/Article/details/334867.shtml)
-- 2026-06-30 00:49 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/010501481855.shtml)
-- 2026-06-30 00:46 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/082927861.shtml)
-- 2026-06-30 00:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/74791104347.shtml)
-- 2026-06-30 00:54 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/147099851139.shtml)
-- 2026-06-30 01:05 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/98991324936.shtml)
-- 2026-06-30 00:43 - [沉睡花园](http://www.share.minike.top/Article/details/14303613.shtml)
-- 2026-06-30 01:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/34551619.shtml)
-- 2026-06-30 00:45 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/868050649880.shtml)
-- 2026-06-30 01:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/01310474809.shtml)
-- 2026-06-30 00:45 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/297829740967.shtml)
+- 2026-06-30 01:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/569011.shtml)
+- 2026-06-30 01:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/966959572.shtml)
+- 2026-06-30 01:02 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/91743595788.shtml)
+- 2026-06-30 00:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/7913890792.shtml)
+- 2026-06-30 01:13 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/0895292140.shtml)
+- 2026-06-30 00:54 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/7770276.shtml)
+- 2026-06-30 00:54 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/166465167201.shtml)
+- 2026-06-30 01:03 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/52025.shtml)
+- 2026-06-30 00:51 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/01006.shtml)
+- 2026-06-30 01:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/474270089.shtml)
+- 2026-06-30 01:03 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/312626990811.shtml)
+- 2026-06-30 01:09 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/1192357.shtml)
+- 2026-06-30 01:00 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/4415916365.shtml)
+- 2026-06-30 01:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/1962227286.shtml)
+- 2026-06-30 01:05 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/028773.shtml)

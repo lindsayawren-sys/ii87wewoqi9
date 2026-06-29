@@ -1,56 +1,50 @@
-# 巨力索具（002342）、宁科生物（600165）股民索赔案均再提交法院立案
+# 任斌：科技企业从初创、成长到上市发展全生命周期都需要金融支持
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月11日，上海久诚律师事务所股票索赔律师许峰代理的巨力索具（维权）（002342）投资者索赔案再提交法院立案，目前律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2026年5月15日，巨力索具公告收到证监会下发的《立案告知书》，因公司涉嫌信息披露误导性陈述违法违规，根据《证
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。 “科技金融赋能新质生产力”主题论坛上，成都纵横自动化技术股份有限公司创始人、董事长兼CEO任斌表示，科技企业从初创、成长到上市发展的全生命周期都需要金融支持，
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月11日，上海久诚律师事务所股票索赔律师许峰代理的巨力索具（维权）（002342）投资者索赔案再提交法院立案，目前律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。
 
-（许峰律师专栏） 2026年5月15日，巨力索具公告收到证监会下发的《立案告知书》，因公司涉嫌信息披露误导性陈述违法违规，根据《证券法》《行政处罚法》等法律法规，证监会决定对公司立案。
+本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。
 
-2026年3月18日，深交所作出关于对巨力索具股份有限公司及相关当事人给予通报批评处分的决定，经查明，巨力索具及相关当事人存在以下违规行为： 一、对商业航天业务的信息发布不完整，风险提示不充分。
+“科技金融赋能新质生产力”主题论坛上，成都纵横自动化技术股份有限公司创始人、董事长兼CEO任斌表示，科技企业从初创、成长到上市发展的全生命周期都需要金融支持，同时，从技术发展演变脉络看，从科技转化为实体，再到企业持续发展，金融更是非常重要的支撑，特别是以低空经济等新兴支柱产业为例，其研发投人、场景应用和市场开拓都离不开资金支持，金融助力尤为重要和关键。
 
-二、未及时核实并澄清相关市场传闻。
-
-许峰律师认为，在2025年12月17日到2026年2月12日之间买入巨力索具股票，并且在2026年2月12日后卖出或继续持有股票的投资者，目前还可发起索赔。
-
-（巨力索具维权入口） 除了巨力索具投资者索赔案再次提交法院立案，2026年6月11日，许峰律师代理的宁科生物（600165）投资者索赔案再提交法院立案。
-
-许峰律师代理的宁科生物投资者索赔案此前收到法院送达的判决书，投资者胜诉获赔，也收到部分案件的调解书，该部分投资者将调解获赔，律师团队同步也还在继续接受其他投资者的索赔委托。
-
-2024年4月4日，宁科生物公告公司及虞建明收到证监会宁夏监管局下发的《行政处罚决定书》，经查明，宁科生物违法事实如下： （一）2022年年度报告存在虚假记载 2022年，宁科生物通过其控股子公司宁夏中科生物新材料有限公司（以下简称中科新材），虚增2022年营业收入7，659.41万元，虚增利润总额7，722.20万元，分别占当期营业收入和利润总额的11.25%、46.59%，导致宁科生物2022年年度报告存在虚假记载。
+责任编辑：张文
 
 ## 相关推荐
 
-- 2026-06-30 01:03 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 00:53 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 00:53 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 00:43 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 00:53 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 00:50 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 01:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 00:56 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 01:11 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 00:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 01:08 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 01:10 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 01:04 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 01:13 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 01:13 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 00:59 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 00:48 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 01:07 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 01:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 01:01 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 00:52 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 00:52 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/81511.shtml)
-- 2026-06-30 01:11 - [逃狱兄弟](https://www.blog.minike.top/Article/details/95629215.shtml)
-- 2026-06-30 01:09 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/9228929797.shtml)
-- 2026-06-30 00:53 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/819374361.shtml)
-- 2026-06-30 01:11 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/34113223211.shtml)
-- 2026-06-30 00:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/994836.shtml)
-- 2026-06-30 00:59 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/80695688.shtml)
-- 2026-06-30 00:46 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/8767760.shtml)
-- 2026-06-30 00:55 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/49262409.shtml)
-- 2026-06-30 00:42 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/69270855.shtml)
-- 2026-06-30 00:59 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/650509330.shtml)
-- 2026-06-30 01:03 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/75717383.shtml)
-- 2026-06-30 00:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/8974861117.shtml)
-- 2026-06-30 01:03 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/76311017.shtml)
-- 2026-06-30 00:56 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/78441163.shtml)
+- 2026-06-30 00:50 - [美股](https://www.share.kurohicncr.top/Article/details/1045153.shtml)
+- 2026-06-30 01:11 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/38849511875.shtml)
+- 2026-06-30 00:57 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/9365451236.shtml)
+- 2026-06-30 00:50 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/2773467.shtml)
+- 2026-06-30 01:10 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/80052827.shtml)
+- 2026-06-30 01:08 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/77834850268.shtml)
+- 2026-06-30 01:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/4927063551.shtml)
+- 2026-06-30 00:50 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/4579028.shtml)
+- 2026-06-30 01:09 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/99637956659.shtml)
+- 2026-06-30 01:07 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/621013440.shtml)
+- 2026-06-30 01:16 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/292795918117.shtml)
+- 2026-06-30 01:12 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/7305188.shtml)
+- 2026-06-30 00:54 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/19144732.shtml)
+- 2026-06-30 01:16 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/28805.shtml)
+- 2026-06-30 00:55 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/68194651746.shtml)

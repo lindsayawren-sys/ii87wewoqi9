@@ -1,60 +1,42 @@
-# 投喂流浪动物？先看这份安全指南
+# 美国得州首府发生多起枪击案 4人受伤
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-投喂流浪动物？先看这份安全指南(健康驿站) 本报记者 王美华 您被短视频里救助流浪猫狗的温情画面打动过吗？小心！屏幕之外可能暗藏致命风险。 随着气温攀升，动物情绪易烦躁，加上人们衣着单薄、户外活动增多，被猫狗等动物抓咬伤的风险显著增加。河南省疾病预防控制中心传染病预防控制所副主任医师申晓靖提醒：狂犬病没有有效治疗手段，一旦发病，病死率接近100%，但通过科学预防几乎可以100%
+发布时间：2026年05月19日 09:19 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-投喂流浪动物？
-
-先看这份安全指南(健康驿站) 本报记者 王美华 您被短视频里救助流浪猫狗的温情画面打动过吗？
-
-小心！
-
-屏幕之外可能暗藏致命风险。
-
-随着气温攀升，动物情绪易烦躁，加上人们衣着单薄、户外活动增多，被猫狗等动物抓咬伤的风险显著增加。
-
-河南省疾病预防控制中心传染病预防控制所副主任医师申晓靖提醒：狂犬病没有有效治疗手段，一旦发病，病死率接近100%，但通过科学预防几乎可以100%防止发病，关键在于暴露后第一时间规范处置，才能避开常见致命误区——立即彻底清洗伤口、全程接种疫苗，必要时规范注射被动免疫制剂，就能将发病风险降至极低。
-
-近100%致死率，切勿有侥幸心理 对狂犬病，很多年轻人的认知还停留在“被疯狗咬了要打针”的模糊印象里。
-
-申晓靖介绍，目前已知有两种传染病病死率接近100%，一种是极为罕见的朊病毒病，由朊病毒引起的侵犯中枢神经系统的人兽共患传染病(如疯牛病等)，发病率极低；另一种就是狂犬病——而它可能隐藏在一次投喂流浪猫狗时的抓伤中，离我们并不遥远。
+发布时间：2026年05月19日 09:19 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 00:44 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 01:08 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 00:51 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 00:49 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 01:05 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 01:08 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 00:42 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 00:51 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 01:02 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 01:06 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 00:59 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 00:42 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 00:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 01:02 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 01:13 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 01:02 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 01:14 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 01:02 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 00:59 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 00:48 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 01:12 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 01:11 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 01:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:44 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/8430188.shtml)
-- 2026-06-30 01:11 - [极限挑战第一季](http://www.share.minike.top/Article/details/444020580.shtml)
-- 2026-06-30 01:06 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/910858482.shtml)
-- 2026-06-30 00:50 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/87989.shtml)
-- 2026-06-30 00:57 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/82683.shtml)
-- 2026-06-30 00:50 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/82535852.shtml)
-- 2026-06-30 00:59 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/256688.shtml)
-- 2026-06-30 01:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/394319881590.shtml)
-- 2026-06-30 00:56 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/526669.shtml)
-- 2026-06-30 01:05 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/89625.shtml)
-- 2026-06-30 01:09 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/743556651.shtml)
-- 2026-06-30 00:58 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/63740040827.shtml)
-- 2026-06-30 01:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/87872023437.shtml)
-- 2026-06-30 00:54 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/610958478.shtml)
-- 2026-06-30 00:56 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/66740.shtml)
+- 2026-06-30 01:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/4626964.shtml)
+- 2026-06-30 01:17 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/29038.shtml)
+- 2026-06-30 00:49 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/23427.shtml)
+- 2026-06-30 00:55 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/60248195.shtml)
+- 2026-06-30 01:05 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/24327509860.shtml)
+- 2026-06-30 01:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/4946280635.shtml)
+- 2026-06-30 00:54 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/44733792.shtml)
+- 2026-06-30 01:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/1383108323.shtml)
+- 2026-06-30 00:54 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/66660.shtml)
+- 2026-06-30 00:53 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/6313552833.shtml)
+- 2026-06-30 01:15 - [月亮](http://www.blog.minike.top/Article/details/87814.shtml)
+- 2026-06-30 01:12 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/752719324.shtml)
+- 2026-06-30 01:14 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/3409379.shtml)
+- 2026-06-30 00:49 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/047880378772.shtml)
+- 2026-06-30 01:00 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/0855771.shtml)

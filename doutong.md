@@ -1,60 +1,51 @@
-# 经济发展新动能强劲 国际机构看多中国科技资产
+# AI学伴进课堂：防“幻觉”与学生变懒 北京十中这样见招拆招
 
-> 更新时间：2026-06-30 01:12:03 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-今年以来，中国经济保持稳中有进的发展态势。对此，海内外多家权威机构近期也密集发布研究报告，研判中国经济的发展潜力和新动能。 国际机构看好中国经济发展韧性 普华永道今年上半年发布的一系列研报显示，中国经济韧性凸显，新质生产力加速形成，成为全球资本的重要锚点。《全球CEO调研中国报告》发现，将中国内地列为前三大投资目的地的全球CEO比例明显提升。 普华永道宏观经济研报指出，一系列数
+发布时间：2026年05月19日 22:02 来源：中国新闻网 AI如何融入中学生学习？如何避免大模型“幻觉”和学生变懒？教育模式正迎来哪些改变？近日，记者走进北京市第十中学，实地探访这里的AI课堂。(记者卢晓娜 北京报道） 责任编辑：【李季】
 
 ## 正文
 
-今年以来，中国经济保持稳中有进的发展态势。
+发布时间：2026年05月19日 22:02 来源：中国新闻网 AI如何融入中学生学习？
 
-对此，海内外多家权威机构近期也密集发布研究报告，研判中国经济的发展潜力和新动能。
+如何避免大模型“幻觉”和学生变懒？
 
-国际机构看好中国经济发展韧性 普华永道今年上半年发布的一系列研报显示，中国经济韧性凸显，新质生产力加速形成，成为全球资本的重要锚点。
+教育模式正迎来哪些改变？
 
-《全球CEO调研中国报告》发现，将中国内地列为前三大投资目的地的全球CEO比例明显提升。
+近日，记者走进北京市第十中学，实地探访这里的AI课堂。
 
-普华永道宏观经济研报指出，一系列数据展现出中国经济强劲的新动能：今年一季度，中国高技术产业实际使用外资同比增长30.7%，其中，研发与设计服务、计算机及办公设备制造业实际使用外资增幅分别达127.8%和88.1%。
-
-中国AI领域也表现亮眼，内地企业AI应用能力领跑全球，17%的企业实现AI降本增收。
-
-作为世界经济增长的重要引擎，中国经济发展的稳定性、韧性以及新动能，也获得了国际评级机构的认可。
-
-国际信用评级机构穆迪近期决定，维持中国主权信用评级“A1”，并将展望调升至“稳定”。
+(记者卢晓娜 北京报道） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 00:56 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 01:07 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 01:11 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 00:50 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 00:48 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 01:04 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 00:56 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 01:03 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 01:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 00:51 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 01:00 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 01:10 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 00:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 00:54 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 01:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 00:52 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 00:56 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 01:16 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 01:08 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 00:59 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 00:59 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 01:00 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 00:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 01:00 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 01:09 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:43 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/4560597.shtml)
-- 2026-06-30 01:08 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/115859.shtml)
-- 2026-06-30 00:55 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/42206.shtml)
-- 2026-06-30 00:46 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/09194120.shtml)
-- 2026-06-30 00:52 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/029609534.shtml)
-- 2026-06-30 01:04 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/43218523934.shtml)
-- 2026-06-30 00:53 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/0037791.shtml)
-- 2026-06-30 00:45 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/151946204123.shtml)
-- 2026-06-30 01:11 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/83328930591.shtml)
-- 2026-06-30 00:57 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/156936501.shtml)
-- 2026-06-30 00:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/58806947.shtml)
-- 2026-06-30 01:07 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/56639.shtml)
-- 2026-06-30 00:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/8268798330.shtml)
-- 2026-06-30 00:49 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/24109453792.shtml)
-- 2026-06-30 01:11 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/801944.shtml)
+- 2026-06-30 01:17 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/50344.shtml)
+- 2026-06-30 00:50 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/874761.shtml)
+- 2026-06-30 01:03 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/36142190910.shtml)
+- 2026-06-30 01:11 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/64275.shtml)
+- 2026-06-30 01:06 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/3801146.shtml)
+- 2026-06-30 01:14 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/99990513.shtml)
+- 2026-06-30 00:55 - [我们的少年时代2](https://www.blog.minike.top/Article/details/592666819603.shtml)
+- 2026-06-30 01:11 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/810629160.shtml)
+- 2026-06-30 00:50 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/1141576897.shtml)
+- 2026-06-30 00:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/6569205711.shtml)
+- 2026-06-30 01:09 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/08193268.shtml)
+- 2026-06-30 01:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/120132102699.shtml)
+- 2026-06-30 01:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/7853691.shtml)
+- 2026-06-30 01:02 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/6688998.shtml)
+- 2026-06-30 01:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/099423477132.shtml)

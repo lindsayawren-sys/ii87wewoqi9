@@ -1,58 +1,56 @@
-# 南方乳业：做好“加减法”垫高成长“天花板”
+# 操盘必读：影响股市利好或利空消息_2026年5月19日_财经新闻
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！● 本报记者 吴科任 作为本土乳制品企业，南方乳业品牌在贵州深入人心，并拥有七成左右的省内市场份额。当前，行业面临产能过剩、竞争加剧、毛利承压等诸多挑战，南方乳业如何突围？ 近日，南方乳业总经理刘陵在接受中国证券报记者专访时详解了公司的应对之策：一方面，做好发展“加法”，以“省外扩张、省内深耕、线上线下协同
+专题：获利盘回吐压力显现 中期上行趋势不改 影响股市利好与利空消息 宏观新闻 1、中共中央政治局常委、国务院总理李强5月18日在北京调研。他强调，要深入贯彻落实习近平总书记关于发展新质生产力、建设现代化产业体系的重要论述和指示精神，推动人工智能与先进制造业深度融合，坚持创新发展，突出应用导向，积极促进智能机器人迭代升级，大力推进人工智能全方位、深层次赋能制造业，加快培育塑造经济
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：获利盘回吐压力显现 中期上行趋势不改 影响股市利好与利空消息 宏观新闻 1、中共中央政治局常委、国务院总理李强5月18日在北京调研。
 
-● 本报记者 吴科任 作为本土乳制品企业，南方乳业品牌在贵州深入人心，并拥有七成左右的省内市场份额。
+他强调，要深入贯彻落实习近平总书记关于发展新质生产力、建设现代化产业体系的重要论述和指示精神，推动人工智能与先进制造业深度融合，坚持创新发展，突出应用导向，积极促进智能机器人迭代升级，大力推进人工智能全方位、深层次赋能制造业，加快培育塑造经济发展新动能新优势。
 
-当前，行业面临产能过剩、竞争加剧、毛利承压等诸多挑战，南方乳业如何突围？
+2、近日，中共中央政治局常委、国务院副总理丁薛祥先后在北京、河北、内蒙古调研算力网建设。
 
-近日，南方乳业总经理刘陵在接受中国证券报记者专访时详解了公司的应对之策：一方面，做好发展“加法”，以“省外扩张、省内深耕、线上线下协同”为核心策略，精准发力、多措并举，全面提升市场份额，增强品牌影响力；另一方面，做好发展“减法”，围绕生产、供应链、渠道、费用四个维度，推进降本增效工作。
+他强调，要深入贯彻落实习近平总书记重要指示精神，按照“十五五”规划纲要部署，加强顶层设计和科学谋划，推进全国一体化算力网建设和集约高效利用，赋能经济社会高质量发展。
 
-“高份额不等于增长到了‘天花板’。
+丁薛祥表示，算力是国家综合国力的重要体现，要统筹布局、有序建设。
 
-贵州人均乳品消费量仍低于全国平均水平，存量空间依然很大。
+3、就美国总统特朗普涉台表态，外交部发言人郭嘉昆18日在例行记者会上答问时表示，我们注意到特朗普总统的表态。
 
-”刘陵判断，“随着落后产能逐步出清、供需格局回归平衡，行业拐点有望在今明两年显现。
+台湾是中国领土不可分割的一部分，从来不是一个国家，今后也绝无可能。
 
-凭借稳健经营与全产业链优势，公司将率先受益。
+“台独”与台海和平水火不容，“倚外谋独”是死路一条，两岸统一才是光明大道，民进党当局应该认清大势，面对现实，悬崖勒马。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 01:11 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 00:51 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 00:45 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 01:11 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 00:47 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 01:08 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 00:43 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 00:55 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 00:47 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 00:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 00:46 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 00:54 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 01:17 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 00:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 01:13 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 01:08 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 01:07 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 01:15 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 01:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 00:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 00:55 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:48 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/3719855.shtml)
-- 2026-06-30 00:55 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/89497.shtml)
-- 2026-06-30 00:56 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/959064611198.shtml)
-- 2026-06-30 00:50 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/641518201.shtml)
-- 2026-06-30 00:57 - [千与千寻](http://www.share.kurohicncr.top/Article/details/3464214.shtml)
-- 2026-06-30 01:02 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/80967200.shtml)
-- 2026-06-30 01:00 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/86294.shtml)
-- 2026-06-30 01:01 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/749524.shtml)
-- 2026-06-30 01:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/1760001.shtml)
-- 2026-06-30 00:47 - [女心理师](http://www.blog.minike.top/Article/details/2459506518.shtml)
-- 2026-06-30 00:46 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/091320458.shtml)
-- 2026-06-30 00:50 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/405510220.shtml)
-- 2026-06-30 01:00 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/334502380.shtml)
-- 2026-06-30 00:53 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/267948.shtml)
-- 2026-06-30 00:59 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/25527854618.shtml)
+- 2026-06-30 01:12 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/464747298220.shtml)
+- 2026-06-30 01:14 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/903449985.shtml)
+- 2026-06-30 01:07 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/6716718.shtml)
+- 2026-06-30 00:56 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/9915861.shtml)
+- 2026-06-30 01:07 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/11776480937.shtml)
+- 2026-06-30 00:53 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/306361.shtml)
+- 2026-06-30 01:15 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/5014616.shtml)
+- 2026-06-30 00:56 - [新官上任三把火](http://www.share.minike.top/Article/details/74989123.shtml)
+- 2026-06-30 01:14 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/18690087594.shtml)
+- 2026-06-30 00:57 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/377955895291.shtml)
+- 2026-06-30 00:51 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/2485179787.shtml)
+- 2026-06-30 00:48 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/67478.shtml)
+- 2026-06-30 01:13 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/6735686691.shtml)
+- 2026-06-30 00:56 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/913338992709.shtml)
+- 2026-06-30 01:16 - [月亮](https://www.share.kurohicncr.top/Article/details/07571687.shtml)

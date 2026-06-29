@@ -1,60 +1,55 @@
-# 螃蟹、登科、状元考卷……这些送考文物又火出了圈
+# 摩根士丹利日本区负责人：日本央行加息是提振日元汇率的关键
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-“愿考生提笔稳如古鼎沉实，十二年积淀尽数迸发，高考旗开得胜、鼎甲题名！”“愿你一鸣惊人，凯歌高奏！”在6月初，打开微博或小红书，大概率会被这些“碎碎念”刷屏。发出这些声音的，不是七大姑八大姨，而是各大博物馆里的“显眼包”文物。随着高考的钟声敲响，为了给Z世代的学子们加油打气，各大博物馆集体整活，在高考前后，“让文物说话”，送上最诚挚的祝福。 谐音梗依旧受欢迎 要论今年送考文物的
+摩根士丹利日本区CEO Alberto Tamura表示，他预计日元兑美元汇率有望走强至140附近，而日本央行的政策举措是实现这一目标的核心因素。 Tamura在采访中称，若日本央行6月未能加息，此举将对债市与汇市造成冲击。 他并未给出具体时间节点，仅表示后续局势走向未定，日元汇率存在两大走向：既可能跌至170，也有望回升至140。 “不少投资者认为日本央行政策行动滞后，因此率
 
 ## 正文
 
-“愿考生提笔稳如古鼎沉实，十二年积淀尽数迸发，高考旗开得胜、鼎甲题名！
+摩根士丹利日本区CEO Alberto Tamura表示，他预计日元兑美元汇率有望走强至140附近，而日本央行的政策举措是实现这一目标的核心因素。
 
-”“愿你一鸣惊人，凯歌高奏！
+Tamura在采访中称，若日本央行6月未能加息，此举将对债市与汇市造成冲击。
 
-”在6月初，打开微博或小红书，大概率会被这些“碎碎念”刷屏。
+他并未给出具体时间节点，仅表示后续局势走向未定，日元汇率存在两大走向：既可能跌至170，也有望回升至140。
 
-发出这些声音的，不是七大姑八大姨，而是各大博物馆里的“显眼包”文物。
+“不少投资者认为日本央行政策行动滞后，因此率先出台加息举措至关重要。
 
-随着高考的钟声敲响，为了给Z世代的学子们加油打气，各大博物馆集体整活，在高考前后，“让文物说话”，送上最诚挚的祝福。
+若全球经济局势趋于稳定，日元也将迎来走强契机。
 
-谐音梗依旧受欢迎 要论今年送考文物的“顶流”，谐音梗依然是当仁不让的C位。
+”他表示，日本官方并不希望日元在当前价位基础上大幅走弱，且目前日本宏观经济整体态势向好。
 
-在诸多社交媒体刷屏的短视频中，最受家长群欢迎的，当属那一只只“张牙舞爪”的螃蟹。
-
-“蟹”通“甲”，“芦”通“胪”。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 01:01 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 00:50 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 01:06 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 00:58 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 00:43 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 00:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 01:08 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 00:42 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 01:04 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 01:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 00:53 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 01:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 00:59 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 00:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 01:12 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 00:52 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 01:10 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 01:09 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 01:08 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 00:53 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 01:02 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 00:53 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 01:13 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 01:11 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 01:01 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/17670.shtml)
-- 2026-06-30 00:55 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/00353655.shtml)
-- 2026-06-30 00:48 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/992440524.shtml)
-- 2026-06-30 00:42 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/003730190458.shtml)
-- 2026-06-30 01:10 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/3194868.shtml)
-- 2026-06-30 00:55 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/6147318218.shtml)
-- 2026-06-30 00:58 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/409126.shtml)
-- 2026-06-30 01:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/59771.shtml)
-- 2026-06-30 00:55 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/1994769547.shtml)
-- 2026-06-30 01:11 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/8391770098.shtml)
-- 2026-06-30 00:59 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/56456503.shtml)
-- 2026-06-30 00:45 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/65369907862.shtml)
-- 2026-06-30 01:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/105836479.shtml)
-- 2026-06-30 01:00 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/55526.shtml)
-- 2026-06-30 01:06 - [毒液2](https://www.blog.minike.top/Article/details/76657232566.shtml)
+- 2026-06-30 00:57 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/88122.shtml)
+- 2026-06-30 00:58 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/02617425288.shtml)
+- 2026-06-30 01:03 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/35731.shtml)
+- 2026-06-30 01:17 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/44751.shtml)
+- 2026-06-30 00:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/75975.shtml)
+- 2026-06-30 01:12 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/72120385.shtml)
+- 2026-06-30 01:12 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/49410034025.shtml)
+- 2026-06-30 01:13 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/482563262722.shtml)
+- 2026-06-30 00:48 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/77532071821.shtml)
+- 2026-06-30 01:02 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/955175871208.shtml)
+- 2026-06-30 00:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/616291.shtml)
+- 2026-06-30 01:05 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/213186875380.shtml)
+- 2026-06-30 01:11 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/4902085035.shtml)
+- 2026-06-30 01:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/8852802803.shtml)
+- 2026-06-30 01:17 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/8207744.shtml)

@@ -1,56 +1,56 @@
-# 特朗普警告称如果伊朗继续拒绝达成协议 美国将在周四发动更多打击
+# 李强在北京调研时强调 推动人工智能与先进制造业深度融合 加快培育塑造经济发展新动能新优势
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普表示，如果伊朗拒绝同意一项临时和平协议，美国将继续对伊朗进行轰炸。此前，两国军队已连续第二晚发生交火。 随着谈判迟迟没有取得进展，特朗普的不满情绪不断加剧，下令发动多轮打击。他在接受福克斯新闻采访时表示，除非伊朗伊斯兰共和国接受一项协议 —— 该协议旨在将双方日益脆弱的停火延长两个月，并重新开放霍尔木兹海峡 —— 否则美国将在周四继续发动攻击。 伊朗则像前
+新华社北京5月18日电(记者邹伟)中共中央政治局常委、国务院总理李强5月18日在北京调研。他强调，要深入贯彻落实习近平总书记关于发展新质生产力、建设现代化产业体系的重要论述和指示精神，推动人工智能与先进制造业深度融合，坚持创新发展，突出应用导向，积极促进智能机器人迭代升级，大力推进人工智能全方位、深层次赋能制造业，加快培育塑造经济发展新动能新优势。 李强先后来到北京人形机器人创
 
 ## 正文
 
-美国总统唐纳德·特朗普表示，如果伊朗拒绝同意一项临时和平协议，美国将继续对伊朗进行轰炸。
+新华社北京5月18日电(记者邹伟)中共中央政治局常委、国务院总理李强5月18日在北京调研。
 
-此前，两国军队已连续第二晚发生交火。
+他强调，要深入贯彻落实习近平总书记关于发展新质生产力、建设现代化产业体系的重要论述和指示精神，推动人工智能与先进制造业深度融合，坚持创新发展，突出应用导向，积极促进智能机器人迭代升级，大力推进人工智能全方位、深层次赋能制造业，加快培育塑造经济发展新动能新优势。
 
-随着谈判迟迟没有取得进展，特朗普的不满情绪不断加剧，下令发动多轮打击。
+李强先后来到北京人形机器人创新中心有限公司、小米汽车科技有限公司，听取智能机器人技术创新和产业发展介绍，察看企业研发成果和产品在不同场景下的应用展示，走进生产车间了解智能制造、质量检测等情况。
 
-他在接受福克斯新闻采访时表示，除非伊朗伊斯兰共和国接受一项协议 —— 该协议旨在将双方日益脆弱的停火延长两个月，并重新开放霍尔木兹海峡 —— 否则美国将在周四继续发动攻击。
+李强指出，智能机器人综合集成大模型、高端制造、新材料等新技术，是人工智能和先进制造业融合发展的重要载体。
 
-伊朗则像前一天晚上那样进行报复，向美国位于科威特、巴林和约旦的军事基地发射导弹。
+近年来，我国智能机器人技术加速迭代升级，在经济社会各行业各领域日益得到广泛应用。
 
-科威特一度关闭领空数小时；约旦表示拦截了20枚导弹。
+要持续强化基础研究、关键核心技术攻关和前沿技术探索，打造技术创新和产业服务平台，高水平建设数据训练场，加快整机产品、关键零部件、智能决策与控制系统等创新突破，为智能机器人产业高质量发展提供有力支撑。
 
-巴林称，导弹拦截过程中产生的弹片落入首都麦纳麦，导致一名儿童受伤。
+李强强调，科技的生命力在于应用。
 
-截至目前，无论是美国还是伊朗的袭击，都没有立即传出人员伤亡的报告。
+智能机器人产业发展空间广阔，要发挥我国市场规模超大、产业链条完整、应用场景丰富等优势，用好大规模设备更新、首台套装备等支持政策，鼓励政府部门、国有企业等开放场景，促进新技术新产品中试验证，支持智能机器人在确保安全前提下加快规模应用，在实践中不断发现问题、解决问题、改进提升。
 
 ## 相关推荐
 
-- 2026-06-30 01:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 00:46 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 01:05 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 01:11 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 00:55 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 00:47 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 01:11 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 00:53 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 01:05 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 01:09 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 00:55 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 00:54 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 00:49 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 01:01 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 01:04 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 01:01 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 01:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 00:51 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 01:01 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 01:15 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/701063.shtml)
-- 2026-06-30 00:50 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/90366029.shtml)
-- 2026-06-30 00:45 - [毒液2](https://www.share.minike.top/Article/details/78536.shtml)
-- 2026-06-30 00:52 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/9584089.shtml)
-- 2026-06-30 00:55 - [美股](http://www.blog.minike.top/Article/details/5094200762.shtml)
-- 2026-06-30 01:00 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/063829.shtml)
-- 2026-06-30 01:02 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/591906862.shtml)
-- 2026-06-30 01:04 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/68107148224.shtml)
-- 2026-06-30 00:59 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/978060.shtml)
-- 2026-06-30 00:52 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/42129.shtml)
-- 2026-06-30 00:42 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/0877514.shtml)
-- 2026-06-30 00:50 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/39447.shtml)
-- 2026-06-30 01:06 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/466090.shtml)
-- 2026-06-30 00:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/36630000.shtml)
-- 2026-06-30 01:02 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/177974419.shtml)
+- 2026-06-30 00:49 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/029943620014.shtml)
+- 2026-06-30 01:09 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/75217685445.shtml)
+- 2026-06-30 00:48 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/29334430208.shtml)
+- 2026-06-30 00:59 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/003075587243.shtml)
+- 2026-06-30 01:09 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/71419423.shtml)
+- 2026-06-30 01:02 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/2535706113.shtml)
+- 2026-06-30 01:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/82743967.shtml)
+- 2026-06-30 00:50 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/25683855.shtml)
+- 2026-06-30 01:13 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/437869040822.shtml)
+- 2026-06-30 01:12 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/487405427.shtml)
+- 2026-06-30 01:02 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/586927931.shtml)
+- 2026-06-30 00:50 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/029834.shtml)
+- 2026-06-30 01:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/3849784623.shtml)
+- 2026-06-30 01:14 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/4821168924.shtml)
+- 2026-06-30 00:55 - [蔚来车主罚站](http://www.share.minike.top/Article/details/647602055.shtml)

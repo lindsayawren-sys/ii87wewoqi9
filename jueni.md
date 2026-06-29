@@ -1,54 +1,61 @@
-# CBS：美国-伊朗谅解备忘录可能下周签署
+# 中国驻孟加拉国使馆发布规范中介机构办理赴华签证提示
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-据哥伦比亚广播公司（CBS）援引多位外交消息人士报道，美国与伊朗的谅解备忘录可能于下周初签署。 CBS称，这份文件将为双方就长期协议展开进一步谈判铺平道路。 CBS记者表示，与此同时，这份谅解备忘录将有助于恢复贸易自由流通。 CBS：清理霍尔木兹海峡将至少需要30天，而谅解备忘录将启动为期60天的谈判，讨论包括伊朗核计划在内的更广泛议题。责任编辑：何云
+中新网5月19日电 据中国驻孟加拉国大使馆微信公众号消息，近期，中国驻孟加拉国使馆发现部分中介机构在代办赴华签证中存在申请材料造假、收费项目不公开、夸大办证难度、延误办证进度、发布虚假信息、蒙骗申请人等问题，扰乱使馆正常办证秩序，损害申请人利益。为进一步规范中介机构代办签证活动，自2026年7月5日起，驻孟加拉国使馆要求代办赴华签证的孟当地旅行社具备国际航空运输协会(IATA)
 
 ## 正文
 
-据哥伦比亚广播公司（CBS）援引多位外交消息人士报道，美国与伊朗的谅解备忘录可能于下周初签署。
+中新网5月19日电 据中国驻孟加拉国大使馆微信公众号消息，近期，中国驻孟加拉国使馆发现部分中介机构在代办赴华签证中存在申请材料造假、收费项目不公开、夸大办证难度、延误办证进度、发布虚假信息、蒙骗申请人等问题，扰乱使馆正常办证秩序，损害申请人利益。
 
-CBS称，这份文件将为双方就长期协议展开进一步谈判铺平道路。
+为进一步规范中介机构代办签证活动，自2026年7月5日起，驻孟加拉国使馆要求代办赴华签证的孟当地旅行社具备国际航空运输协会(IATA)资质。
 
-CBS记者表示，与此同时，这份谅解备忘录将有助于恢复贸易自由流通。
+驻孟加拉国使馆不为任何中介机构提供降低签证审核标准的特权。
 
-CBS：清理霍尔木兹海峡将至少需要30天，而谅解备忘录将启动为期60天的谈判，讨论包括伊朗核计划在内的更广泛议题。
+为减少等候时间，建议符合材料要求的申请人通过中国签证申请服务中心网站https://www.visaforchina.cn/自行提交材料，勿委托中介代办。
 
-责任编辑：何云
+驻孟加拉国使馆致力于为孟民众提供优质便捷的签证服务，将不断出台新举措便利中孟人员往来。
+
+使馆未授权、指定或推荐特定机构作为签证代办专门机构，未与任何签证代办机构建立合作伙伴关系。
+
+如发现任何机构或个人冒充使馆名义从事代办签证的商业行为，使馆将追究其法律责任。
+
+请广大申请人提高警惕，谨防受骗。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 00:49 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 00:50 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 00:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 00:52 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 00:50 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 00:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 00:43 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 01:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 00:50 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 00:59 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 01:06 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 00:53 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 00:54 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 00:57 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 00:56 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 01:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 00:54 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 01:01 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 01:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 01:09 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 00:54 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 00:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 01:01 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 01:08 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 00:52 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 01:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 01:01 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 01:07 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:04 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/904895253.shtml)
-- 2026-06-30 01:00 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/111944153.shtml)
-- 2026-06-30 00:58 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/16669841.shtml)
-- 2026-06-30 00:50 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/6859303.shtml)
-- 2026-06-30 01:09 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/69565.shtml)
-- 2026-06-30 01:11 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/32150.shtml)
-- 2026-06-30 00:55 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/775764519.shtml)
-- 2026-06-30 01:08 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/73452802.shtml)
-- 2026-06-30 00:53 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/808079588855.shtml)
-- 2026-06-30 01:09 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/97453725172.shtml)
-- 2026-06-30 01:01 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/28082.shtml)
-- 2026-06-30 00:59 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/185199559.shtml)
-- 2026-06-30 00:58 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/08200286885.shtml)
-- 2026-06-30 00:49 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/25098867933.shtml)
-- 2026-06-30 00:46 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/72547927799.shtml)
+- 2026-06-30 01:13 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/1665349.shtml)
+- 2026-06-30 00:58 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/907209443073.shtml)
+- 2026-06-30 01:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/033556980.shtml)
+- 2026-06-30 00:50 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/440121905385.shtml)
+- 2026-06-30 00:48 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/97587.shtml)
+- 2026-06-30 01:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/485595.shtml)
+- 2026-06-30 00:57 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/3910443748.shtml)
+- 2026-06-30 01:03 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/102227688996.shtml)
+- 2026-06-30 01:15 - [送你一朵小红花](https://www.blog.minike.top/Article/details/501921.shtml)
+- 2026-06-30 01:15 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/072334987536.shtml)
+- 2026-06-30 01:12 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/366534013137.shtml)
+- 2026-06-30 01:05 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/8476982921.shtml)
+- 2026-06-30 00:50 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/542806.shtml)
+- 2026-06-30 01:00 - [斗破苍穹](http://www.share.minike.top/Article/details/54520265.shtml)
+- 2026-06-30 01:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/75166664250.shtml)

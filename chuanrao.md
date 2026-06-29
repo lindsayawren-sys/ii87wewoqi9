@@ -1,58 +1,61 @@
-# “6·18百亿补贴”非真百亿 北京市市场监管局约谈5家电商平台
+# 农业农村部召开生猪产能综合调控部署视频会
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月11日电 (记者 吕少威)为防范化解“6·18”期间网络集中促销活动可能引发的“内卷式”竞争风险，维护消费者合法权益和公平有序的网络交易市场秩序，北京市市场监督管理局11日约谈淘宝(天猫)、京东、拼多多、抖音、小红书5家电商平台，通报平台“内卷式”竞争综合整治发现的第二批典型问题，主要包括促销活动虚假宣传、促销规则制定与公示不规范、商品经营者信息未公示等问题，并提
+转自：农业农村部网站 5月18日，农业农村部召开视频会，部署落实新修订的生猪产能综合调控实施方案，分析当前生猪生产形势，进一步压实各方责任，推动生猪产业从数量扩张转向高质量发展。农业农村部党组成员、副部长张治礼出席会议并讲话。 会议认为，强化生猪产能综合调控关乎生猪稳定供给、农民增收和防范行业金融风险。各地必须提高政治站位，严格落实产能去化措施，推动生猪价格合理回升，促进生猪产
 
 ## 正文
 
-中新网北京6月11日电 (记者 吕少威)为防范化解“6·18”期间网络集中促销活动可能引发的“内卷式”竞争风险，维护消费者合法权益和公平有序的网络交易市场秩序，北京市市场监督管理局11日约谈淘宝(天猫)、京东、拼多多、抖音、小红书5家电商平台，通报平台“内卷式”竞争综合整治发现的第二批典型问题，主要包括促销活动虚假宣传、促销规则制定与公示不规范、商品经营者信息未公示等问题，并提出整改要求。
+转自：农业农村部网站 5月18日，农业农村部召开视频会，部署落实新修订的生猪产能综合调控实施方案，分析当前生猪生产形势，进一步压实各方责任，推动生猪产业从数量扩张转向高质量发展。
 
-1.淘宝(天猫)平台：2026年5月起，平台在媒体和应用程序端广泛宣传“6·18百亿补贴”活动，但监管部门向平台了解，百亿补贴并非“6·18”期间平台投入百亿资金补贴消费者，实际是一项长期的营销活动，平台多次拒绝提供本次“6·18”活动期间投入的实际补贴金额及平台、商家间的出资比例。
+农业农村部党组成员、副部长张治礼出席会议并讲话。
 
-平台未在显著位置公示“百亿补贴”相关活动规则，“百亿补贴”频道内部分商品未公示实际销售者资质信息。
+会议认为，强化生猪产能综合调控关乎生猪稳定供给、农民增收和防范行业金融风险。
 
-2.拼多多平台：平台推出“百亿补贴”活动，但未在规则中明确投入的实际补贴金额及平台、商家间的出资比例，无法提供相关证明材料。
+各地必须提高政治站位，严格落实产能去化措施，推动生猪价格合理回升，促进生猪产业稳定健康发展。
 
-在促销规则中，“对于与商品有关的任何纠纷，拼多多作为平台方，可在法定范围内予以必要协助，但不因此承担商品有关的责任”，单方面免除了平台的法定责任。
+会议要求，要准确把握现阶段生猪产业发展形势，抓好生猪产能常态化精准化调控，把去产能、促转型各项工作落到实处。
 
-3.京东平台：平台推出“百亿补贴”“百亿农补”活动，但在规则中未公示促销期限，未明确投入的实际补贴金额及平台、商家间的出资比例，且无法提供证明材料。
+要巩固生猪价格回升势头，促进猪肉消费，引导养殖场户理性看待后市行情，防止盲目压栏和扩产赌行情。
 
-“百亿超市”未公示活动规则。
+要多措并举压减产能，抓紧修订省级实施方案，强化大型猪企窗口指导和经营风险预警，严控新增产能，引导中小养殖场户差异化发展。
 
-4.抖音平台：推出“6·18好物节”及“百亿消费券”等活动，但未向消费者公示促销规则；在活动招商规则中规定，如平台对活动规则进行调整会直接通知商家，未设置公开征求意见环节。
+要强化监测预警引导，督促生产经营主体履行数据报送义务，健全权威信息发布机制，多渠道、多频次发布权威预警信息。
 
 ## 相关推荐
 
-- 2026-06-30 00:51 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 01:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 00:58 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 00:50 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 00:52 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 00:51 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 00:45 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 00:45 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 00:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 00:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 00:53 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 01:03 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 00:51 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 00:49 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 01:17 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 00:49 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 01:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 01:08 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 01:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 01:02 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 01:12 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 01:09 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 01:00 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 00:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 01:11 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 00:55 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 00:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/38569949.shtml)
-- 2026-06-30 00:53 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/42374.shtml)
-- 2026-06-30 01:11 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/1241555093.shtml)
-- 2026-06-30 01:11 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/39917627.shtml)
-- 2026-06-30 01:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/60920638707.shtml)
-- 2026-06-30 01:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/98485504.shtml)
-- 2026-06-30 01:10 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/70905472.shtml)
-- 2026-06-30 00:53 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/0774385152.shtml)
-- 2026-06-30 00:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/808624818.shtml)
-- 2026-06-30 00:59 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/19939739.shtml)
-- 2026-06-30 00:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/1461098.shtml)
-- 2026-06-30 01:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/06538962.shtml)
-- 2026-06-30 01:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/40865858388.shtml)
-- 2026-06-30 01:06 - [美人鱼](http://www.share.kurohicncr.top/Article/details/490043.shtml)
-- 2026-06-30 00:45 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/66110463211.shtml)
+- 2026-06-30 00:57 - [千与千寻](https://www.share.minike.top/Article/details/235895.shtml)
+- 2026-06-30 01:15 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/04533017401.shtml)
+- 2026-06-30 01:14 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/6847377653.shtml)
+- 2026-06-30 00:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/22066384.shtml)
+- 2026-06-30 00:49 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/165719791028.shtml)
+- 2026-06-30 00:59 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/5713194.shtml)
+- 2026-06-30 01:11 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/30886540982.shtml)
+- 2026-06-30 00:50 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/08205558904.shtml)
+- 2026-06-30 01:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/90346.shtml)
+- 2026-06-30 01:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/943777195.shtml)
+- 2026-06-30 01:01 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/01159981.shtml)
+- 2026-06-30 01:15 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/5078814171.shtml)
+- 2026-06-30 01:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/994511990485.shtml)
+- 2026-06-30 01:02 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/449171.shtml)
+- 2026-06-30 01:03 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/376808237678.shtml)

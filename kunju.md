@@ -1,61 +1,56 @@
-# 东西问·古典学｜瓦列里·彼得罗夫：“古典文明不在我们身后，而在我们前方”
+# 10年期美债收益率触及一年来最高，日本30年期国债收益率升至纪录新高
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科6月11日电 题：“古典文明不在我们身后，而在我们前方” ——专访俄罗斯科学院哲学研究所首席研究员瓦列里·彼得罗夫 中新社记者 田冰 当AI重构生活、科技重塑世界的今天，我们该去哪里寻找文明前行的锚点？如何理解古典语境中“德性”的现代内涵？中俄跨文明交流又能为全球古典学研究提供怎样的样本？第二届世界古典学大会6月9日至10日在希腊雅典举行，中新社“东西问”专访受邀参
+美国国债收益率周一变动不大，在上周全球债券抛售潮导致收益率大幅走高后稍作喘息。 10年期美国国债收益率——美国政府借贷的关键基准——下跌不到1个基点，报4.591%。当日早些时候，该收益率曾触及15个月来的最高水平。 对政治风险更为敏感的30年期美国国债收益率同样下跌不到1个基点，报5.123%。该收益率上周曾触及近一年来的最高水平。2年期美国国债收益率通常与美联储短期利率决策
 
 ## 正文
 
-中新社莫斯科6月11日电 题：“古典文明不在我们身后，而在我们前方” ——专访俄罗斯科学院哲学研究所首席研究员瓦列里·彼得罗夫 中新社记者 田冰 当AI重构生活、科技重塑世界的今天，我们该去哪里寻找文明前行的锚点？
+美国国债收益率周一变动不大，在上周全球债券抛售潮导致收益率大幅走高后稍作喘息。
 
-如何理解古典语境中“德性”的现代内涵？
+10年期美国国债收益率——美国政府借贷的关键基准——下跌不到1个基点，报4.591%。
 
-中俄跨文明交流又能为全球古典学研究提供怎样的样本？
+当日早些时候，该收益率曾触及15个月来的最高水平。
 
-第二届世界古典学大会6月9日至10日在希腊雅典举行，中新社“东西问”专访受邀参会的俄罗斯科学院哲学研究所首席研究员、古代和中世纪哲学与科学中心主任瓦列里·彼得罗夫，拆解古典文明跨越千年的核心价值。
+对政治风险更为敏感的30年期美国国债收益率同样下跌不到1个基点，报5.123%。
 
-现将访谈实录摘要如下： 中新社记者：您认为当下重新回望古典文明，其核心价值体现在哪里？
+该收益率上周曾触及近一年来的最高水平。
 
-彼得罗夫：古典文明的核心价值在于，它让我们重新审视人类存在的根本问题。
+2年期美国国债收益率通常与美联储短期利率决策同步变动，下跌不到1个基点，报4.075%。
 
-古典学不提供解决现代问题的技术方案，但让我们重新追问：什么是正义、美德、和平及有尊严的人生？
+上周美国国债收益率飙升，原因是美国与伊朗谈判前景恶化，在油价持续高企的背景下加剧了通胀担忧。
 
-古典学遗产并非博物馆展品。
+此外，美国最新数据也显示，上游物价上涨压力正开始传导至消费者端。
 
 ## 相关推荐
 
-- 2026-06-30 00:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 01:10 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 00:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 01:07 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 01:07 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 00:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 00:58 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 01:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 00:43 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 01:10 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 00:44 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 01:11 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 01:11 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 00:48 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 00:45 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 00:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 01:13 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 01:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 01:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 01:04 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 00:49 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 00:54 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 01:13 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 00:57 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 01:02 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:05 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/4335003.shtml)
-- 2026-06-30 01:12 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/74239.shtml)
-- 2026-06-30 00:45 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/5054468.shtml)
-- 2026-06-30 01:03 - [沙丘](http://www.share.minike.top/Article/details/3981151.shtml)
-- 2026-06-30 00:56 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/41478955004.shtml)
-- 2026-06-30 00:51 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/8201278.shtml)
-- 2026-06-30 00:54 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/478564.shtml)
-- 2026-06-30 01:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/223908477.shtml)
-- 2026-06-30 01:00 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/23634.shtml)
-- 2026-06-30 00:46 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/433096.shtml)
-- 2026-06-30 00:54 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/90766626526.shtml)
-- 2026-06-30 01:10 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/1077261192.shtml)
-- 2026-06-30 00:51 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/252417509586.shtml)
-- 2026-06-30 00:46 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/7156905386.shtml)
-- 2026-06-30 00:48 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/88971.shtml)
+- 2026-06-30 01:04 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/962995552.shtml)
+- 2026-06-30 01:04 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/82486656.shtml)
+- 2026-06-30 01:15 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/6239757.shtml)
+- 2026-06-30 00:58 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/6379683.shtml)
+- 2026-06-30 00:55 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/08595184.shtml)
+- 2026-06-30 00:55 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/18733431.shtml)
+- 2026-06-30 00:58 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/49395.shtml)
+- 2026-06-30 01:04 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/8064377031.shtml)
+- 2026-06-30 01:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/9237730.shtml)
+- 2026-06-30 01:11 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/7781184570.shtml)
+- 2026-06-30 01:17 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/12039.shtml)
+- 2026-06-30 00:56 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/378070334711.shtml)
+- 2026-06-30 01:02 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/124764684826.shtml)
+- 2026-06-30 00:50 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/60866.shtml)
+- 2026-06-30 01:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/256485857163.shtml)

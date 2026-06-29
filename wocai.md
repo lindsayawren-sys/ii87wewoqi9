@@ -1,58 +1,56 @@
-# 央行加息迅速退效 印尼债市重拾跌势
+# 中俄高校共建工业智能国际联合实验室
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-印尼债券周四重拾跌势，本周早些时候的意外加息之举仅短暂缓解了压力，投资者的注意力再次转向引发市场动荡的整体经济问题。 10年期收益率涨12个基点至7.46%，5年期收益率涨6个基点至7.52%。印尼盾跌0.1%，基准股指一度下跌0.9%，随后反弹。 之前该国官员寻求安抚外国投资者，引发了一轮释压反弹行情，促使印尼盾创下一年多来最大涨幅，债市和股市也双双得到提振。 印尼市场的动荡
+中新网青岛5月18日电(王禹)由青岛科技大学与俄罗斯斯科尔科沃科学技术研究院共建的工业智能国际联合实验室18日在青岛市崂山区揭牌。 当前，人工智能(AI)正深刻驱动产业变革，工业智能是推动制造业转型升级、培育新质生产力的关键引擎，对突破关键核心技术瓶颈、保障产业链供应链安全稳定、实现高水平科技自立自强具有重大意义。 据介绍，俄罗斯斯科尔科沃科学技术研究院在俄罗斯人工智能领域位居
 
 ## 正文
 
-印尼债券周四重拾跌势，本周早些时候的意外加息之举仅短暂缓解了压力，投资者的注意力再次转向引发市场动荡的整体经济问题。
+中新网青岛5月18日电(王禹)由青岛科技大学与俄罗斯斯科尔科沃科学技术研究院共建的工业智能国际联合实验室18日在青岛市崂山区揭牌。
 
-10年期收益率涨12个基点至7.46%，5年期收益率涨6个基点至7.52%。
+当前，人工智能(AI)正深刻驱动产业变革，工业智能是推动制造业转型升级、培育新质生产力的关键引擎，对突破关键核心技术瓶颈、保障产业链供应链安全稳定、实现高水平科技自立自强具有重大意义。
 
-印尼盾跌0.1%，基准股指一度下跌0.9%，随后反弹。
+据介绍，俄罗斯斯科尔科沃科学技术研究院在俄罗斯人工智能领域位居前列，其人工智能中心聚焦“应用人工智能”方向，在多智能体工业AI系统、生成式设计与数字孪生等前沿领域拥有突出优势与丰富的产业落地经验。
 
-之前该国官员寻求安抚外国投资者，引发了一轮释压反弹行情，促使印尼盾创下一年多来最大涨幅，债市和股市也双双得到提振。
+俄罗斯斯科尔科沃科学技术研究院人工智能中心主任伊万·秋金表示：“工业智能国际联合实验室的正式揭牌，标志着双方合作步入实质性落地与纵深推进的新阶段，将为工业智能前沿探索、核心技术研发与国际学术交流提供高能级平台支撑。
 
-印尼市场的动荡仍未结束，投资者正在评估官员能否重建被总统的干预主义议程侵蚀的信心。
+” 据介绍，在技术层面，工业智能国际联合实验室将融合两校在AI基础理论和随机学习算法、生成式AI、多智能体系统等方向的优势资源，共同开发具有自主知识产权的工业智能软件平台与解决方案。
 
-同时前景也变得更加复杂，因为中东紧张局势加剧推高油价，从而可能推高印尼的贸易逆差和通胀，给印尼盾造成新的压力。
+在产业层面，该实验室将紧密对接山东制造业数字化转型的关键痛点，推动科研成果的本地化落地与产业化转化，助力传统制造环节向智能化、绿色化方向升级。
 
-责任编辑：于健 SF069
+青岛科技大学教授、工业智能国际联合实验室主任王殿辉表示：“工业智能国际联合实验室将聚焦轻量化机器学习理论、工业基础模型等前沿方向，打造国内领先、国际一流的‘AI+工业’创新平台，推动关键核心技术攻关与高质量成果转化。
+
+”(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:49 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 01:06 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 01:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 01:05 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 00:57 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 00:51 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 01:05 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 01:10 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 00:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 00:52 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 00:43 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 00:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 01:02 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 00:43 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 01:05 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 01:07 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 00:55 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 01:17 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 00:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 00:51 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 00:50 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 00:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 01:01 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 01:09 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:05 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/65664588981.shtml)
-- 2026-06-30 01:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/804716.shtml)
-- 2026-06-30 01:03 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/863497.shtml)
-- 2026-06-30 01:04 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/91424046.shtml)
-- 2026-06-30 01:11 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/334033.shtml)
-- 2026-06-30 00:56 - [女心理师](http://www.share.minike.top/Article/details/739234922876.shtml)
-- 2026-06-30 00:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/287618132.shtml)
-- 2026-06-30 01:01 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/27581318.shtml)
-- 2026-06-30 01:01 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/91963266.shtml)
-- 2026-06-30 01:08 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/7645725.shtml)
-- 2026-06-30 00:51 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/443483.shtml)
-- 2026-06-30 01:03 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/06421475800.shtml)
-- 2026-06-30 00:46 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/9101062.shtml)
-- 2026-06-30 00:58 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/23869005.shtml)
-- 2026-06-30 00:57 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/40023.shtml)
+- 2026-06-30 01:07 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/425454584.shtml)
+- 2026-06-30 01:02 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/4170865921.shtml)
+- 2026-06-30 01:09 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/577886304.shtml)
+- 2026-06-30 01:02 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/129828284445.shtml)
+- 2026-06-30 01:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/190988136.shtml)
+- 2026-06-30 00:58 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/7504922.shtml)
+- 2026-06-30 01:05 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/80469767.shtml)
+- 2026-06-30 01:04 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/77729532.shtml)
+- 2026-06-30 00:50 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/941744.shtml)
+- 2026-06-30 00:53 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/140953.shtml)
+- 2026-06-30 01:10 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/880987044473.shtml)
+- 2026-06-30 01:10 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/310098.shtml)
+- 2026-06-30 00:52 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/0118223.shtml)
+- 2026-06-30 00:48 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/334022567.shtml)
+- 2026-06-30 01:09 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/827282.shtml)

@@ -1,47 +1,45 @@
-# 多只汽车股创十余年新低
+# 浦江中国公布于5月19日上午起复牌
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-6月11日，A股和港股汽车股普遍持续走低，其中广汽集团股价收跌0.86%至5.75元，创下2015年5月以来的新低；上汽集团股价收跌1.98%至10.87元，创下2016年6月以来的新低；截至当日下午3时，北京汽车下跌2.91%至1港元，创下自2014年12月上市以来的新低。（第一财经记者 肖逸思）责任编辑：孙同怀
+浦江中国（01417）发布公告，公司股份（证券代号：01417）将于今天（2026年5月19日）上午九时正起恢复买卖。责任编辑：卢昱君
 
 ## 正文
 
-6月11日，A股和港股汽车股普遍持续走低，其中广汽集团股价收跌0.86%至5.75元，创下2015年5月以来的新低；上汽集团股价收跌1.98%至10.87元，创下2016年6月以来的新低；截至当日下午3时，北京汽车下跌2.91%至1港元，创下自2014年12月上市以来的新低。
+浦江中国（01417）发布公告，公司股份（证券代号：01417）将于今天（2026年5月19日）上午九时正起恢复买卖。
 
-（第一财经记者 肖逸思）责任编辑：孙同怀
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:57 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 01:11 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 00:52 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 00:56 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 01:05 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 00:52 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 01:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 01:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 00:53 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 01:09 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 00:55 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 01:00 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 01:05 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 00:59 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 01:15 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 01:02 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 01:11 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 00:53 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 00:53 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 00:48 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 01:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 00:57 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 01:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 01:11 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/977497746.shtml)
-- 2026-06-30 01:01 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/72254430937.shtml)
-- 2026-06-30 00:46 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/2250278340.shtml)
-- 2026-06-30 01:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/4618591191.shtml)
-- 2026-06-30 01:11 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/41759366.shtml)
-- 2026-06-30 00:52 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/0871545110.shtml)
-- 2026-06-30 01:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/2995392331.shtml)
-- 2026-06-30 01:03 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/56204314.shtml)
-- 2026-06-30 01:06 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/9163560.shtml)
-- 2026-06-30 01:00 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/9245299.shtml)
-- 2026-06-30 01:11 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/6806736614.shtml)
-- 2026-06-30 01:08 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/15755380.shtml)
-- 2026-06-30 00:43 - [新官上任三把火](https://www.blog.minike.top/Article/details/86052.shtml)
-- 2026-06-30 00:49 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/31423.shtml)
-- 2026-06-30 01:10 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/841472318770.shtml)
+- 2026-06-30 01:02 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/972136807889.shtml)
+- 2026-06-30 01:04 - [速度与激情9](https://www.share.minike.top/Article/details/134605928.shtml)
+- 2026-06-30 00:50 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/398992547171.shtml)
+- 2026-06-30 01:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/39733933.shtml)
+- 2026-06-30 01:13 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/7435515.shtml)
+- 2026-06-30 00:49 - [极限挑战第一季](http://www.blog.minike.top/Article/details/9672814.shtml)
+- 2026-06-30 00:57 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/40404731.shtml)
+- 2026-06-30 00:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/687901159.shtml)
+- 2026-06-30 00:51 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/647434.shtml)
+- 2026-06-30 00:54 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/96609131.shtml)
+- 2026-06-30 01:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/7423923490.shtml)
+- 2026-06-30 01:03 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/04694770276.shtml)
+- 2026-06-30 00:59 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/5318327.shtml)
+- 2026-06-30 01:10 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/0704529500.shtml)
+- 2026-06-30 00:48 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/3166103979.shtml)

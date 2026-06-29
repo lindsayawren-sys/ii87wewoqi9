@@ -1,58 +1,56 @@
-# 索赔末班车！得润电子案件已在审理，时效仅剩半年
+# 数读定制家居年报 | 欧派家居营收、净利“断层式”领跑 索菲亚首次经营现金流转负
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-上海沪紫律师事务所刘鹏律师团队近日收到得润电子索赔案的案件受理通知，意味着案件正式进入审理程序。（刘鹏律师专栏） 需提醒投资者的是该案诉讼时效将在2026年12月30日到期，距今仅剩半年，建议适格投资者尽快加入。 其被起诉跟一纸处罚有关，深圳证监局已出具《行政处罚决定书》。2020年至2022年，因主要客户经营困难无法回款，公司实际控制人通过自有资金及对外借款，向客户、供应商等
+出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。这意味着，存
 
 ## 正文
 
-上海沪紫律师事务所刘鹏律师团队近日收到得润电子索赔案的案件受理通知，意味着案件正式进入审理程序。
+出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。
 
-（刘鹏律师专栏） 需提醒投资者的是该案诉讼时效将在2026年12月30日到期，距今仅剩半年，建议适格投资者尽快加入。
+国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。
 
-其被起诉跟一纸处罚有关，深圳证监局已出具《行政处罚决定书》。
+与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。
 
-2020年至2022年，因主要客户经营困难无法回款，公司实际控制人通过自有资金及对外借款，向客户、供应商等提供资金支持，再由这些主体以“偿还历史欠款”的名义将资金转回公司。
+这意味着，存量房翻新已正式取代新房装修，成为家居消费的主要需求来源。
 
-这一操作累计虚构回款超过5.34亿元，导致公司多期财报少计信用减值损失。
+另一方面，“以旧换新”政策持续释放红利。
 
-上述行为导致得润电子披露的2020年年报、2021年年报及2022年半年报存在虚假记载。
+2025年，社会消费品零售总额达50.12万亿元，同比增长3.7%。
 
-深圳证监局对ST得润（维权）处以700万元罚款，对实控人处以1200万元罚款并采取5年证券市场禁入措施。
+其中，家具类消费品全年零售额实现同比增长14.6%，较2024年显著提速，智能家居和适老化改造成为新增长极；建筑及装潢材料类受房地产市场转型期影响，零售额同比下降约2.7%，但降幅已明显收窄。
 
-投资者如符合于2020年8月27日-2023年12月30日期间买入，并在2023年12月31日之后卖出或仍持有而亏损的即可登记索赔。
+截至4月30日，A股15家定制家居（按申万三级行业分类）上市公司均已披露2025年报。
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 00:42 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 01:01 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 01:08 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 01:05 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 00:54 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 00:49 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 00:44 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 00:59 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 01:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 01:00 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 01:08 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 00:54 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 01:10 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 01:12 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 01:11 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 00:53 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 01:14 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 00:59 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 01:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 01:08 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 00:58 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/80428545449.shtml)
-- 2026-06-30 01:08 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/907963.shtml)
-- 2026-06-30 01:01 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/16638867.shtml)
-- 2026-06-30 01:07 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/92200998.shtml)
-- 2026-06-30 00:59 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/813328493.shtml)
-- 2026-06-30 01:09 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/1317464.shtml)
-- 2026-06-30 00:58 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/55154.shtml)
-- 2026-06-30 01:09 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/27658391606.shtml)
-- 2026-06-30 01:10 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/93526.shtml)
-- 2026-06-30 01:00 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/3567030.shtml)
-- 2026-06-30 00:50 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/7999414.shtml)
-- 2026-06-30 00:43 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/075959.shtml)
-- 2026-06-30 00:48 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/602050065.shtml)
-- 2026-06-30 00:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/67682019.shtml)
-- 2026-06-30 01:10 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/259003.shtml)
+- 2026-06-30 01:01 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/58040878.shtml)
+- 2026-06-30 00:56 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/716987939607.shtml)
+- 2026-06-30 00:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/490138471.shtml)
+- 2026-06-30 01:02 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/403220942.shtml)
+- 2026-06-30 01:13 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/81823.shtml)
+- 2026-06-30 00:49 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/16355215404.shtml)
+- 2026-06-30 00:49 - [天道](https://www.blog.minike.top/Article/details/89281912.shtml)
+- 2026-06-30 00:51 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/488629439.shtml)
+- 2026-06-30 01:13 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/31163037.shtml)
+- 2026-06-30 00:52 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/86096291105.shtml)
+- 2026-06-30 01:07 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/43387.shtml)
+- 2026-06-30 01:10 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/7979545.shtml)
+- 2026-06-30 01:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/25419720.shtml)
+- 2026-06-30 01:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/246075.shtml)
+- 2026-06-30 00:57 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/728557537.shtml)

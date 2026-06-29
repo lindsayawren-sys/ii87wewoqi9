@@ -1,56 +1,59 @@
-# 药捷安康开年以来三次闪电配售净筹6.24亿港元 配售价直线下坠每轮配售投资者都在被“套牢”
+# 小摩：零跑汽车重申“增持”评级 目标价90港元
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-2026年5月27日，港股18A生物科技公司药捷安康-B（02617.HK）再度公告，以每股40.83港元向不少于六名承配人配售383.6万股新股，折让约18%，净筹约1.52亿港元。 这是继2026年1月完成首轮配售、4月完成第二轮配售后，药捷安康开年以来第三次向资本市场伸手。算上2025年6月IPO募资净额约1.61亿港元，上市不足一年，药捷安康合计已从资本市场抽水约8亿港
+摩根大通发布研报称，零跑汽车（09863）首季业绩大致符合该行预期，且优于市场预期。尽管首季受到行业性疲软、原材料价格上涨及竞争激烈影响，公司仍展现出审慎的成本控制能力，并交出创纪录的海外表现。管理层在业绩电话会议上态度乐观，重申2026财年100万辆销售的雄心目标。摩根大通维持零跑汽车增持评级，目标价90港元。 该行表示，零跑汽车第二季销量指引介乎24万至25万辆，相当于按季
 
 ## 正文
 
-2026年5月27日，港股18A生物科技公司药捷安康-B（02617.HK）再度公告，以每股40.83港元向不少于六名承配人配售383.6万股新股，折让约18%，净筹约1.52亿港元。
+摩根大通发布研报称，零跑汽车（09863）首季业绩大致符合该行预期，且优于市场预期。
 
-这是继2026年1月完成首轮配售、4月完成第二轮配售后，药捷安康开年以来第三次向资本市场伸手。
+尽管首季受到行业性疲软、原材料价格上涨及竞争激烈影响，公司仍展现出审慎的成本控制能力，并交出创纪录的海外表现。
 
-算上2025年6月IPO募资净额约1.61亿港元，上市不足一年，药捷安康合计已从资本市场抽水约8亿港元。
+管理层在业绩电话会议上态度乐观，重申2026财年100万辆销售的雄心目标。
 
-其中三次配售合计净筹6.24亿港元，远超IPO募资规模。
+摩根大通维持零跑汽车增持评级，目标价90港元。
 
-然而，每一轮配售资金尚未完全使用，新一轮配售接踵而至；配售价在一次又一次折让中从90港元以上跌至40港元，先期入场的配售投资者普遍陷入浮亏。
+该行表示，零跑汽车第二季销量指引介乎24万至25万辆，相当于按季增长约120%，展现出中国电动车企中最强劲的动力，主要受惠于A10及B19型号的订单势头、即将推出的D99 MPV，以及现有车型的改款。
 
-更令市场担忧的是，大量限售股将于2026年6月22日解禁，公司却在此期间密集配售，稀释效应与抛压预期叠加。
+小摩认为，这预示公司正进入强大的产品周期及增长拐点。
 
-三笔配售一单接一单，“钱去哪了”成最大疑问 药捷安康上市的资本节奏，从起步便是极限操作。
+海外扩张方面，凭借全球超过1，000个销售网点，管理层有信心达到15万辆出口目标的上限，且收购Stellantis（STLA.US）西班牙工厂的进度仍然处于正轨。
 
-2025年6月23日，公司以每股13.15港元在港交所上市，发行1528.1万股，募资净额仅1.61亿港元，上市首日市值尚不足100亿港元。
+该行维持2026年95.5万辆的销量预测，同比增长60%，并预计第二季将恢复盈利。
 
 ## 相关推荐
 
-- 2026-06-30 00:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 01:09 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 00:43 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 01:09 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 00:54 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 00:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 00:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 01:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 00:57 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 01:01 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 01:15 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 01:00 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 00:58 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 01:17 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 01:07 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 00:58 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 00:56 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 01:06 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 01:15 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 00:54 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 01:03 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 00:59 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 01:09 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/07609726.shtml)
-- 2026-06-30 00:53 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/531769167619.shtml)
-- 2026-06-30 00:59 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/0712499965.shtml)
-- 2026-06-30 00:58 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/920558.shtml)
-- 2026-06-30 01:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/722566040559.shtml)
-- 2026-06-30 00:44 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/647926.shtml)
-- 2026-06-30 00:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/51872.shtml)
-- 2026-06-30 00:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/43024777.shtml)
-- 2026-06-30 01:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/859194.shtml)
-- 2026-06-30 01:10 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/88726353673.shtml)
-- 2026-06-30 00:42 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/0819782592.shtml)
-- 2026-06-30 00:48 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/73665025625.shtml)
-- 2026-06-30 01:02 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/100991140.shtml)
-- 2026-06-30 01:06 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/76342.shtml)
-- 2026-06-30 01:06 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/37668863.shtml)
+- 2026-06-30 00:56 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/435808.shtml)
+- 2026-06-30 00:59 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/7434344.shtml)
+- 2026-06-30 01:14 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/521296.shtml)
+- 2026-06-30 01:12 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/80125319.shtml)
+- 2026-06-30 01:13 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/94577826159.shtml)
+- 2026-06-30 01:05 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/412047722.shtml)
+- 2026-06-30 01:09 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/24465015084.shtml)
+- 2026-06-30 01:02 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/19557.shtml)
+- 2026-06-30 01:04 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/568456095.shtml)
+- 2026-06-30 01:14 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/90234.shtml)
+- 2026-06-30 01:02 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/5453740.shtml)
+- 2026-06-30 01:02 - [绘画区你赢了](http://www.share.minike.top/Article/details/746441188.shtml)
+- 2026-06-30 00:51 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/2235384.shtml)
+- 2026-06-30 01:17 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/19803539950.shtml)
+- 2026-06-30 00:54 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/10086902.shtml)

@@ -1,59 +1,59 @@
-# 杨德龙：美股5月通胀数据创三年新高 导致美联储降息预期推迟 美股三大股指重挫
+# 金石控股集团附属拟出资1000万元参与投资合伙企业
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-近期市场风格发生了一定切换，前期涨幅较大的科技股出现较大幅度回调，而前期表现低迷的传统板块则受资金流入推动出现反弹。市场整体仍处于震荡调整阶段。在5月20日左右，我曾提到，由于科技股短期涨幅过大，许多投资者盲目追高，积累了较大的获利盘，科技股回调压力加大。虽然中长期来看，本轮AI科技革命具有极大的想象力，但股价过快上涨也会产生局部泡沫，出现回调风险。当然，这轮回调或不意味着科技
+金石控股集团（01943）发布公告，于2026年5月16日，本公司的附属公司深圳恒宸宇（作为有限合伙人）与广东芯动能源（作为普通合伙人及执行事务合伙人）、北京国交英华（作为普通合伙人）、北京兆瑄电力（作为有限合伙人）及北京国交中兴（作为有限合伙人）订立合伙协议，以共同投资合伙企业（广州芯动长擎投资合伙企业（有限合伙）），合伙期限为十年。据此，深圳恒宸宇同意作为有限合伙人参与投资
 
 ## 正文
 
-近期市场风格发生了一定切换，前期涨幅较大的科技股出现较大幅度回调，而前期表现低迷的传统板块则受资金流入推动出现反弹。
+金石控股集团（01943）发布公告，于2026年5月16日，本公司的附属公司深圳恒宸宇（作为有限合伙人）与广东芯动能源（作为普通合伙人及执行事务合伙人）、北京国交英华（作为普通合伙人）、北京兆瑄电力（作为有限合伙人）及北京国交中兴（作为有限合伙人）订立合伙协议，以共同投资合伙企业（广州芯动长擎投资合伙企业（有限合伙）），合伙期限为十年。
 
-市场整体仍处于震荡调整阶段。
+据此，深圳恒宸宇同意作为有限合伙人参与投资合伙企业，认缴出资人民币1000万元。
 
-在5月20日左右，我曾提到，由于科技股短期涨幅过大，许多投资者盲目追高，积累了较大的获利盘，科技股回调压力加大。
+合伙企业增资后的认缴出资总额为人民币3560万元，深圳恒宸宇将占合伙企业认缴出资总额的28.09%。
 
-虽然中长期来看，本轮AI科技革命具有极大的想象力，但股价过快上涨也会产生局部泡沫，出现回调风险。
+合伙企业的主要投资目的为全体合伙人认可的新能源的投资，以及合伙企业有盈余条件下的其他全体合伙人认可的新能源业务，使合伙企业取得最佳经济效益。
 
-当然，这轮回调或不意味着科技牛行情的结束，反而回调之后，科技行情或会走得更加持久、健康。
+本集团一直积极寻找具有潜力的投资机会，以拓宽本集团的收入来源并提升股东价值。
 
-2024年9月24日，多个部门集中推出一揽子稳增长政策，开启了本轮牛市行情，至今已超过一年半。
+合伙企业重点投资于新能源领域相关业务。
 
-本轮行情与往年牛市有很大差别，一是大盘上了4000点，但仍有不少人对此怀疑，根本原因在于本轮牛市是结构严重分化的牛市。
+董事会认为，新型储能及新能源行业受国家政策大力支持，具有广阔的市场前景和增长潜力。
 
-配置科技创新板块的投资者获得了很好的收益，而配置传统板块的投资者则出现了较大亏损，许多传统股票的价格甚至跌破行情启动时的价格，创出新低。
+透过参与投资合伙企业，本集团可借助普通合伙人及其他合伙人在相关领域的专业知识及资源，以较低风险涉足新能源产业，符合本集团的长期发展战略。
 
 ## 相关推荐
 
-- 2026-06-30 00:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 00:49 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 01:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 00:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 01:09 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 01:11 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 00:44 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 00:57 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 00:44 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 00:42 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 00:55 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 01:04 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 01:05 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 00:51 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 01:00 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 01:08 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 00:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 00:56 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 01:04 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 00:56 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 00:59 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 01:09 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 00:51 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 01:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 00:55 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 01:14 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:05 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/022259620.shtml)
-- 2026-06-30 00:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/58447.shtml)
-- 2026-06-30 00:46 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/570107753793.shtml)
-- 2026-06-30 00:42 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/989594.shtml)
-- 2026-06-30 00:53 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/57784.shtml)
-- 2026-06-30 00:45 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/636019733490.shtml)
-- 2026-06-30 01:06 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/091827.shtml)
-- 2026-06-30 00:46 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/25137870.shtml)
-- 2026-06-30 01:07 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/3245149032.shtml)
-- 2026-06-30 00:51 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/85844693.shtml)
-- 2026-06-30 01:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/31910101820.shtml)
-- 2026-06-30 00:59 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/07916729.shtml)
-- 2026-06-30 00:58 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/97454356.shtml)
-- 2026-06-30 01:09 - [这一刀 会很帅](https://www.share.minike.top/Article/details/3304633264.shtml)
-- 2026-06-30 00:43 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/12379.shtml)
+- 2026-06-30 01:10 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/111757847.shtml)
+- 2026-06-30 01:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/0362492.shtml)
+- 2026-06-30 00:51 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/132420.shtml)
+- 2026-06-30 00:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/1403864777.shtml)
+- 2026-06-30 01:15 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/32780549.shtml)
+- 2026-06-30 01:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/296394.shtml)
+- 2026-06-30 00:57 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/015181.shtml)
+- 2026-06-30 00:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/6436340.shtml)
+- 2026-06-30 00:50 - [毒液2](http://www.blog.minike.top/Article/details/974363392.shtml)
+- 2026-06-30 00:59 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/25539036600.shtml)
+- 2026-06-30 01:14 - [流金岁月](http://www.blog.minike.top/Article/details/65315982.shtml)
+- 2026-06-30 01:16 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/4179178303.shtml)
+- 2026-06-30 01:01 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/508960.shtml)
+- 2026-06-30 01:13 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/661136.shtml)
+- 2026-06-30 00:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/63027205.shtml)

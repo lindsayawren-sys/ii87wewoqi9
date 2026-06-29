@@ -1,56 +1,61 @@
-# 泰凌医药2025年报被出具“不发表意见”后 续聘大华决议遭96.62%高票否决 AI医疗故事尚未贡献一分钱收入
+# 广西民建南宁市委会联合举办2026年孤独症儿童绘画展暨义卖活动
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-2026年6月4日，港股泰凌医药（01011.HK）召开股东周年大会，一项看似常规的“重新委任核数师”的决议案引发轩然大波。最终投票结果显示，关于重新委任大华马施云会计师事务所有限公司为公司核数师的第3项普通决议案，赞成票仅为7，253，850股（占比3.38%），反对票高达207，054，239股（占比96.62%），以大比例被否决。这是泰凌医药近年最激烈的一次“以票否决”式
+蓝灯映童心 艺爱暖邕城 ——民建南宁市委会联合举办2026年孤独症儿童绘画展暨义卖活动 5月17日，在第36个全国助残日当天，“蓝灯映童心 艺爱暖邕城——孤独症儿童的艺术微光”2026年南宁市孤独症儿童绘画展暨义卖活动，在南宁江南蓝鲸世界启动。本次活动由市卫健委、民建南宁市委会等单位联合主办，旨在为孤独症儿童搭建才艺展示平台，并通过艺术展示与公益义卖相结合的方式，筹集善款专项用
 
 ## 正文
 
-2026年6月4日，港股泰凌医药（01011.HK）召开股东周年大会，一项看似常规的“重新委任核数师”的决议案引发轩然大波。
+蓝灯映童心 艺爱暖邕城 ——民建南宁市委会联合举办2026年孤独症儿童绘画展暨义卖活动 5月17日，在第36个全国助残日当天，“蓝灯映童心 艺爱暖邕城——孤独症儿童的艺术微光”2026年南宁市孤独症儿童绘画展暨义卖活动，在南宁江南蓝鲸世界启动。
 
-最终投票结果显示，关于重新委任大华马施云会计师事务所有限公司为公司核数师的第3项普通决议案，赞成票仅为7，253，850股（占比3.38%），反对票高达207，054，239股（占比96.62%），以大比例被否决。
+本次活动由市卫健委、民建南宁市委会等单位联合主办，旨在为孤独症儿童搭建才艺展示平台，并通过艺术展示与公益义卖相结合的方式，筹集善款专项用于孤独症儿童康复救助。
 
-这是泰凌医药近年最激烈的一次“以票否决”式治理事件。
+作为主办单位之一，民建南宁市委会高度重视此次活动，主要领导提前召开会议专题研究部署，带头发动全市会员积极参与。
 
-大华马施云会计师事务所有限公司已自股东周年大会结束时起退任公司核数师。
+活动通知一经发出立即得到会员的积极响应，不少在外地的会员专门调整了行程，提前赶回南宁；一些会员特意带着孩子来到现场，近距离感受社会温情善意，培养爱心与责任感；部分因事确实无法亲临现场的会员，也通过委托代购等方式参与活动，不让爱心缺席。
 
-“股东罢审”：96.62%反对的罕见票决 股东大会当日，投票权涉及已发行股份总数948，997，694股，其他常规议程——包括采纳经审核财务报表、重选董事、发行及购回股份授权等——均以100%赞成票无条件通过。
+活动开始前，不少会员提前在展示区记下心仪画作的编号，准备在慈善竞拍义卖环节踊跃认购。
 
-唯独重新委任核数师议案遭遇了股东集中的“用脚投票”，显示出投资者对当前审计机构已失去基本信任。
+当主持人宣布义卖开始，舞台大屏轮番展示一幅幅充满童真与想象力的画作时，会员们纷纷举起手中的号牌，争相认购这些承载着孤独症儿童内心世界的真挚作品。
 
-“不发表意见”：审计意见为何成为压死信任的最后一根稻草？
+整场义卖活动爱心涌动、高潮迭起，每一次号牌的举起，每一幅作品的成功认购，现场都响起热烈的掌声。
 
-在股东否决核数师之前，审计报告本身已是悬在公司头顶的“达摩克利斯之剑”。
+一位成功认购心仪作品的会员说，这些孩子虽然不善言辞，但他们用画笔描绘出了最纯净的世界，希望这点心意能帮到他们；另一位会员则表示，要把画作挂在客厅里，每天都能看到孩子们笔下的春光和心中的阳光。
 
 ## 相关推荐
 
-- 2026-06-30 01:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 01:02 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 00:58 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 00:48 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 01:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 00:44 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 01:10 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 00:59 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 00:47 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 00:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 01:07 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 01:15 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 00:52 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 00:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 01:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 00:52 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 01:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 01:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 00:53 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 01:16 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 01:14 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 01:11 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 00:49 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 01:17 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 01:07 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/37673141.shtml)
-- 2026-06-30 00:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/70274.shtml)
-- 2026-06-30 00:52 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/8439863.shtml)
-- 2026-06-30 00:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/197482956.shtml)
-- 2026-06-30 00:50 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/0592913.shtml)
-- 2026-06-30 01:00 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/023372.shtml)
-- 2026-06-30 00:49 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/0533068154.shtml)
-- 2026-06-30 01:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/08074.shtml)
-- 2026-06-30 00:58 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/657823460320.shtml)
-- 2026-06-30 00:44 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/266783770.shtml)
-- 2026-06-30 00:52 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/583264671.shtml)
-- 2026-06-30 00:45 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/25634.shtml)
-- 2026-06-30 01:07 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/155261619.shtml)
-- 2026-06-30 01:00 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/28206.shtml)
-- 2026-06-30 01:01 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/354253232075.shtml)
+- 2026-06-30 01:07 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/809763829840.shtml)
+- 2026-06-30 01:17 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/927584.shtml)
+- 2026-06-30 01:16 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/294168918400.shtml)
+- 2026-06-30 00:58 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/747318969927.shtml)
+- 2026-06-30 00:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/23110811461.shtml)
+- 2026-06-30 01:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/21466.shtml)
+- 2026-06-30 00:50 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/438025.shtml)
+- 2026-06-30 00:52 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/3265253839.shtml)
+- 2026-06-30 01:15 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/808409.shtml)
+- 2026-06-30 00:57 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/23416.shtml)
+- 2026-06-30 01:16 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/433599.shtml)
+- 2026-06-30 01:05 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/96307554.shtml)
+- 2026-06-30 00:52 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/88928807917.shtml)
+- 2026-06-30 01:09 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/18546497.shtml)
+- 2026-06-30 00:56 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/04848172889.shtml)

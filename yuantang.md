@@ -1,46 +1,55 @@
-# 菲律宾：南部强震已致47人死亡 逾34万人受灾
+# 收益率上升致黄金下跌
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 19:44 来源：央视新闻 责任编辑：【王祎】
+随着美债收益率和美元攀升，SPDR黄金ETF价格下跌。石油驱动的通胀担忧本应提振黄金的避险需求，但债券收益率的上涨却削弱了无息资产黄金的吸引力。市场正在消化美联储可能更长时间维持高利率的预期，这降低了持有黄金的机会成本优势。尽管中东地缘政治风险持续，部分投资者仍选择从黄金转向收益率更具吸引力的短期国债。若油价继续上行带动通胀预期进一步升温，黄金可能面临来自加息预期的更大压力。责
 
 ## 正文
 
-发布时间：2026年06月11日 19:44 来源：央视新闻 责任编辑：【王祎】
+随着美债收益率和美元攀升，SPDR黄金ETF价格下跌。
+
+石油驱动的通胀担忧本应提振黄金的避险需求，但债券收益率的上涨却削弱了无息资产黄金的吸引力。
+
+市场正在消化美联储可能更长时间维持高利率的预期，这降低了持有黄金的机会成本优势。
+
+尽管中东地缘政治风险持续，部分投资者仍选择从黄金转向收益率更具吸引力的短期国债。
+
+若油价继续上行带动通胀预期进一步升温，黄金可能面临来自加息预期的更大压力。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 00:59 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 00:43 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 00:45 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 00:55 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 00:47 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 01:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 01:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 01:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 00:43 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 01:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 00:48 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 00:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 01:07 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 01:15 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 01:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 01:14 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 00:55 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 00:51 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 01:16 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 01:03 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 01:17 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 00:52 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 01:04 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 01:11 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 00:55 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 00:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:43 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/1190453232.shtml)
-- 2026-06-30 01:00 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/32619.shtml)
-- 2026-06-30 00:54 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/69935300400.shtml)
-- 2026-06-30 01:00 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/269163.shtml)
-- 2026-06-30 00:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/4136763018.shtml)
-- 2026-06-30 00:43 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/3214637.shtml)
-- 2026-06-30 01:07 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/4923394.shtml)
-- 2026-06-30 00:50 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/956576.shtml)
-- 2026-06-30 00:56 - [月亮](https://www.blog.minike.top/Article/details/7005780.shtml)
-- 2026-06-30 01:02 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/010768.shtml)
-- 2026-06-30 00:57 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/656303.shtml)
-- 2026-06-30 01:06 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/525584412.shtml)
-- 2026-06-30 00:54 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/708747892.shtml)
-- 2026-06-30 00:42 - [存储三巨头被告了](http://www.share.minike.top/Article/details/97755378.shtml)
-- 2026-06-30 00:58 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/853355.shtml)
+- 2026-06-30 01:17 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/00622484597.shtml)
+- 2026-06-30 00:59 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/5554870.shtml)
+- 2026-06-30 00:51 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/90432.shtml)
+- 2026-06-30 00:49 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/69006676.shtml)
+- 2026-06-30 01:15 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/81101985586.shtml)
+- 2026-06-30 00:51 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/167329322653.shtml)
+- 2026-06-30 00:53 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/37614668151.shtml)
+- 2026-06-30 01:17 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/178532.shtml)
+- 2026-06-30 00:52 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/031646.shtml)
+- 2026-06-30 01:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/759405.shtml)
+- 2026-06-30 01:12 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/49391980.shtml)
+- 2026-06-30 00:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/87288188061.shtml)
+- 2026-06-30 01:03 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/44587.shtml)
+- 2026-06-30 01:08 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/9326133.shtml)
+- 2026-06-30 00:48 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/48357.shtml)

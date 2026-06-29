@@ -1,60 +1,60 @@
-# KKR称AI驱动的生产力繁荣仍将延续，但警示出现19世纪以来罕见的极端分化格局
+# 中欧空间科学深度合作 “微笑”卫星守望地球家园
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-核心要点 美国大型投资巨头 KKR 表示，由人工智能带动的生产力增长浪潮才刚刚拉开序幕，但同时警示，经济增长或将高度集中于少数行业。 以上观点出自该机构周四发布的年中展望报告。 KKR 全球宏观与资产配置主管、资产负债表首席投资官亨利・H・麦克维在报告中写道：未来数年人工智能将持续释放生产力红利，但与之相伴的是，全球战略竞争加剧，经济增长会愈发集中在少数行业，分化程度或将达到
+中新网北京5月19日电 (记者 孙自法)中文“微笑”和对应的英文“SMILE”，可以说是人类社会交流交往中最和善、最常用、最有效的表情。 5月19日，由中欧联合研制、命名“微笑”的卫星成功发射升空，将中欧空间科学团队地面微笑开展的深度合作延续到太空中，通过全景成像观测地球磁层在太阳风作用下形成的微笑曲线，守望人类共同的地球家园。 “微笑”卫星是颗怎样的卫星？为何能吸引中欧合作研
 
 ## 正文
 
-核心要点 美国大型投资巨头 KKR 表示，由人工智能带动的生产力增长浪潮才刚刚拉开序幕，但同时警示，经济增长或将高度集中于少数行业。
+中新网北京5月19日电 (记者 孙自法)中文“微笑”和对应的英文“SMILE”，可以说是人类社会交流交往中最和善、最常用、最有效的表情。
 
-以上观点出自该机构周四发布的年中展望报告。
+5月19日，由中欧联合研制、命名“微笑”的卫星成功发射升空，将中欧空间科学团队地面微笑开展的深度合作延续到太空中，通过全景成像观测地球磁层在太阳风作用下形成的微笑曲线，守望人类共同的地球家园。
 
-KKR 全球宏观与资产配置主管、资产负债表首席投资官亨利・H・麦克维在报告中写道：未来数年人工智能将持续释放生产力红利，但与之相伴的是，全球战略竞争加剧，经济增长会愈发集中在少数行业，分化程度或将达到 19 世纪 70 年代第二次工业革命开端以来前所未有的极端水平。
+“微笑”卫星是颗怎样的卫星？
 
-麦克维描述了当下的投资格局：部分经济板块与市场资金极度匮乏，另一部分赛道则资金泛滥。
+为何能吸引中欧合作研制？
 
-他指出，科技、高端服务业、政府支出相关领域将出现高度集中的增长行情。
+双方各承担了哪些工作？
 
-放眼长期大趋势，KKR 认为国防与能源电力行业是最具发展红利的板块。
+未来有什么进一步的合作规划？
 
-报告提到：尽管原材料成本走高，但各国、各行业都愈发重视供应链安全与抗风险能力，相关投入持续扩容。
+对中欧乃至世界航天合作有何影响？
 
-以下为麦克维给投资者梳理的另外三大核心观点： 一、亚洲股市与私募市场持续领跑 麦克维表示：“我们认为日本、韩国市场当前估值仍处低位，2026 至 2027 两年两国企业盈利大概率持续超预期。
+“微笑”卫星中方首席科学家、中国科学院国家空间科学中心主任王赤院士就这些备受关注的话题进行科普解读。
 
 ## 相关推荐
 
-- 2026-06-30 01:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 01:06 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 01:04 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 00:46 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 00:51 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 00:50 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 00:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 01:10 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 01:05 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 00:44 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 01:02 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 01:06 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 01:09 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 00:51 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 01:02 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 01:06 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 00:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 01:17 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 01:05 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 01:12 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 00:48 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 00:53 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 01:09 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 01:16 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 00:59 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 00:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 01:10 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 01:05 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/112993.shtml)
-- 2026-06-30 00:48 - [青春环游记第三季](http://www.blog.minike.top/Article/details/02696241997.shtml)
-- 2026-06-30 00:58 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/19462595.shtml)
-- 2026-06-30 00:53 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/187643.shtml)
-- 2026-06-30 01:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/6086081.shtml)
-- 2026-06-30 00:45 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/91315.shtml)
-- 2026-06-30 00:52 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/102649.shtml)
-- 2026-06-30 00:44 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/064014.shtml)
-- 2026-06-30 00:56 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/82179342750.shtml)
-- 2026-06-30 01:11 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/878313.shtml)
-- 2026-06-30 01:09 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/5260612912.shtml)
-- 2026-06-30 00:52 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/868352807045.shtml)
-- 2026-06-30 00:53 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/1450020.shtml)
-- 2026-06-30 00:57 - [扬名立万](http://www.blog.minike.top/Article/details/41353062.shtml)
-- 2026-06-30 00:52 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/80750.shtml)
+- 2026-06-30 00:58 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/57740919.shtml)
+- 2026-06-30 01:14 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/75935286413.shtml)
+- 2026-06-30 00:48 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/57194.shtml)
+- 2026-06-30 01:10 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/061707893689.shtml)
+- 2026-06-30 01:04 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/45847755510.shtml)
+- 2026-06-30 01:09 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/57177463.shtml)
+- 2026-06-30 01:13 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/47325446.shtml)
+- 2026-06-30 00:53 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/60558.shtml)
+- 2026-06-30 00:53 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/53192.shtml)
+- 2026-06-30 01:10 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/573222382.shtml)
+- 2026-06-30 00:49 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/88970510006.shtml)
+- 2026-06-30 00:51 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/068268.shtml)
+- 2026-06-30 01:01 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/4842798.shtml)
+- 2026-06-30 01:12 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/105537.shtml)
+- 2026-06-30 01:04 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/129289956.shtml)

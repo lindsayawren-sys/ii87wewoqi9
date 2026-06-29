@@ -1,56 +1,60 @@
-# 6月12日外盘头条：特朗普取消原定对伊朗的军事打击 并称很快签署协议 SpaceX创下史上最大规模IPO
+# 华安基金：通信电子高景气，创业板50指数上周涨3.92%
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、中东局势峰回路转 特朗普取消原定对伊朗的军事打击 2、特朗普与以色列总理内塔尼亚胡讨论了关于伊朗的初步谅解备忘录 3、SpaceX确定发行价 募资750亿美元创史上最大IPO 4、甲骨文拟大幅追加融资、现金流承压，股价暴跌11% 5、欧洲央行官员认为下一次加息最早可能在7月进行 6、沃什政策首秀在即 Pimco称市场关注其如何
+行情回顾及主要观点： 上周A股市场整体呈现分化趋势，主要指数表现不一：沪深300跌0.25%，中证500跌1.82%，中证1000跌0.67%，创业板50涨3.92%，科创50涨3.40%。交易面，A股市场日均成交额提升至3.3万亿左右，市场投资热情高涨。市场热点聚焦商业航天、光纤、液冷服务器、玻璃基板、储能、算力租赁、CPO、先进封装等，科技和制造领域活跃。建议关注融资活跃和
 
 ## 正文
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、中东局势峰回路转 特朗普取消原定对伊朗的军事打击 2、特朗普与以色列总理内塔尼亚胡讨论了关于伊朗的初步谅解备忘录 3、SpaceX确定发行价 募资750亿美元创史上最大IPO 4、甲骨文拟大幅追加融资、现金流承压，股价暴跌11% 5、欧洲央行官员认为下一次加息最早可能在7月进行 6、沃什政策首秀在即 Pimco称市场关注其如何为美联储打上自身印记 中东局势峰回路转 特朗普取消原定对伊朗的军事打击 特朗普表示取消了原定对伊朗的军事打击计划，这堪称惊人转折——就在数小时前，他还发誓言要“狠狠”打击伊朗，并威胁要夺取其石油基础设施。
+行情回顾及主要观点： 上周A股市场整体呈现分化趋势，主要指数表现不一：沪深300跌0.25%，中证500跌1.82%，中证1000跌0.67%，创业板50涨3.92%，科创50涨3.40%。
 
-特朗普周四表示，与德黑兰的谈判“已经提交至伊朗最高领导层”。
+交易面，A股市场日均成交额提升至3.3万亿左右，市场投资热情高涨。
 
-他称“协议签署的时间和地点将很快公布”，但未提供更多细节。
+市场热点聚焦商业航天、光纤、液冷服务器、玻璃基板、储能、算力租赁、CPO、先进封装等，科技和制造领域活跃。
 
-特朗普在社交媒体上发帖表示，“我作为美利坚合众国总统，已取消原定于今晚针对伊朗的打击和轰炸行动。
+建议关注融资活跃和政策支持的成长板块，如人工智能和先进制造，大盘成长风格突出的创业板50指数值得重点关注。
 
-” 特朗普与以色列总理内塔尼亚胡讨论了关于伊朗的初步谅解备忘录 以色列总理办公室在X平台发帖称，美国总统特朗普和以色列总理内塔尼亚胡讨论了有望达成的伊朗谅解备忘录，该备忘录旨在启动谈判。
+创业板为主要“三创（创新、创造、创意）四新（新技术、新产业、新业态、新模式）”的成长型创新创业企业提供直接融资平台。
 
-以色列不是该谅解备忘录的一方。
+权重行业方面，创业板50指数聚焦信息技术+新能源+金融科技+医药四大新质生产力赛道，科技成长属性纯粹。
 
-内塔尼亚胡感谢特朗普承诺确保最终协议包括“移除浓缩核材料、拆除伊朗浓缩基础设施、限制导弹生产，以及结束伊朗对该地区代理恐怖组织的支持”。
+图：创业板50指数四大赛道 创业板50指数：追“光”识“新”更掘“金”。
 
-SpaceX确定发行价 募资750亿美元创史上最大IPO SpaceX创下史上最大规模IPO，一举跻身全球市值最高上市公司行列，并使创始人埃隆·马斯克距离成为全球首位万亿美元富豪更近一步。
+横向对比来看，创业板50指数的光模块含量、新能源光伏含量以及金融科技含量优于创业板指以及主流宽基指数。
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 00:48 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 01:09 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 01:01 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 00:55 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 00:58 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 00:43 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 01:11 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 00:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 01:06 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 00:59 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 01:03 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 00:59 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 01:02 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 00:48 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 00:52 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 00:58 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 01:02 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 01:12 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 01:15 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 00:54 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 00:48 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 01:10 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 01:17 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/80387942.shtml)
-- 2026-06-30 01:09 - [毒液2](http://www.blog.minike.top/Article/details/445061795490.shtml)
-- 2026-06-30 00:43 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/23207.shtml)
-- 2026-06-30 01:03 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/12726363.shtml)
-- 2026-06-30 00:48 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/017954983727.shtml)
-- 2026-06-30 00:45 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/30625492.shtml)
-- 2026-06-30 01:04 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/6095403250.shtml)
-- 2026-06-30 00:53 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/5374822.shtml)
-- 2026-06-30 00:53 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/316527156385.shtml)
-- 2026-06-30 01:02 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/42934662.shtml)
-- 2026-06-30 00:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/56359030525.shtml)
-- 2026-06-30 00:48 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/84352.shtml)
-- 2026-06-30 00:58 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/0883469138.shtml)
-- 2026-06-30 00:43 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/9791259210.shtml)
-- 2026-06-30 00:54 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/8763845.shtml)
+- 2026-06-30 01:00 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/89135406135.shtml)
+- 2026-06-30 01:11 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/095595558389.shtml)
+- 2026-06-30 01:10 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/39654.shtml)
+- 2026-06-30 01:13 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/494273355642.shtml)
+- 2026-06-30 00:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/72120.shtml)
+- 2026-06-30 00:58 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/97576.shtml)
+- 2026-06-30 01:12 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/64613.shtml)
+- 2026-06-30 01:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/2074143728.shtml)
+- 2026-06-30 01:11 - [这一刀 会很帅](https://www.share.minike.top/Article/details/507876401.shtml)
+- 2026-06-30 00:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/61249057418.shtml)
+- 2026-06-30 01:16 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/023932.shtml)
+- 2026-06-30 00:51 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/904299.shtml)
+- 2026-06-30 01:14 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/16890675325.shtml)
+- 2026-06-30 00:58 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/174841245.shtml)
+- 2026-06-30 00:50 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/96793448770.shtml)

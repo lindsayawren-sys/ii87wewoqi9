@@ -1,57 +1,61 @@
-# 玲珑SPORT MASTER 2欧洲发布：三大创新突破，锚定全球高端市场
+# 映恩生物-B拟回购最多4000万美元股份 创始人朱忠远拟增持不超过500万美元股份
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-6月10日，2026科隆国际轮胎展（THE TIRE COLOGNE）首日，玲珑轮胎正式向全球推出新一代超高性能（UHP）轮胎——SPORT MASTER 2。现场吸引了超过100多位国际客户与专业媒体代表参加，新颖的发布形式、前瞻的发展战略和众多的新产品均收获高度评价，成为展会首日最受瞩目的焦点事件。欧洲研发、测试、生产，锚定全球高端市场发布会上，玲珑轮胎高层系统阐述了公司的
+映恩生物-B（09606）公布，董事会拟行使公司股东于2025年6月 20日举行的股东周年大会上授予的一般授权项下的权力，于适当时机在公开市场购回公司股份。股份购回计划拟动用最多4000万美元购回股份。公司将以其内部资金为购回股份提供资金，并拟将根据股份购回计划购回的股份作为库存股份持有。 董事会认为，股份当前成交价未能反映其内在价值及公司业务前景，现为公司购回股份的良机。股份
 
 ## 正文
 
-6月10日，2026科隆国际轮胎展（THE TIRE COLOGNE）首日，玲珑轮胎正式向全球推出新一代超高性能（UHP）轮胎——SPORT MASTER 2。
+映恩生物-B（09606）公布，董事会拟行使公司股东于2025年6月 20日举行的股东周年大会上授予的一般授权项下的权力，于适当时机在公开市场购回公司股份。
 
-现场吸引了超过100多位国际客户与专业媒体代表参加，新颖的发布形式、前瞻的发展战略和众多的新产品均收获高度评价，成为展会首日最受瞩目的焦点事件。
+股份购回计划拟动用最多4000万美元购回股份。
 
-欧洲研发、测试、生产，锚定全球高端市场发布会上，玲珑轮胎高层系统阐述了公司的发展战略与新产品规划，明确将超高性能轮胎作为全球化竞争的核心赛道。
+公司将以其内部资金为购回股份提供资金，并拟将根据股份购回计划购回的股份作为库存股份持有。
 
-SPORT MASTER 2由玲珑欧洲技术团队主导研发，在欧洲完成全部严苛测试，并由玲珑欧洲工厂生产制造。
+董事会认为，股份当前成交价未能反映其内在价值及公司业务前景，现为公司购回股份的良机。
 
-这种“本地研发、本地验证、本地生产”的海外闭环，确保了产品精准满足欧洲用户对操控、安全、环保的高标准，也是玲珑从“产品走出去”到“品牌走上去”的战略支点。
+股份购回计划反映董事会及管理层团队对公司的长期策略及增长充满信心。
 
-打破“驾驶乐趣与里程不可兼得”的魔咒玲珑欧洲技术负责人深入解读了SPORT MASTER 2的核心技术优势。
+董事会认为，股份购回计划符合公司及其股东的整体最佳利益。
 
-作为SPORT MASTER系列的全面升级之作，它在继承世界级安全性基因的基础上，实现了三大突破：精准操控，响应如影随形采用优化刚性胎面花块设计，搭配超高强度芳纶材料混合冠带层，大幅减少激烈驾驶时的胎面变形，带来精准、快速的转向响应。
+另外，公司创始人、董事会主席、执行董事兼首席执行官朱忠远博士，基于对本集团未来发展前景的信心及对公司长期投资价值的认可，拟在遵守上市规则及其他适用法律法规的前提下，以自有资金透过公开市场购买公司股份，增持总金额不超过500万美元。
 
-无论是高速变道还是连续过弯，都能提供稳定如磐石的操控感。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:03 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 00:58 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 01:09 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 00:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 00:43 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 00:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 00:57 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 01:04 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 01:00 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 01:11 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 01:02 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 01:13 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 01:02 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 01:15 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 00:54 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 01:01 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 01:11 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 00:48 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 00:57 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 00:56 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 00:55 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 00:53 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 00:56 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 00:53 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 01:16 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 01:00 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:42 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/19687658.shtml)
-- 2026-06-30 00:59 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/34407392.shtml)
-- 2026-06-30 01:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/89740788716.shtml)
-- 2026-06-30 00:45 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/678584.shtml)
-- 2026-06-30 01:06 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/3141955.shtml)
-- 2026-06-30 01:06 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/035849770.shtml)
-- 2026-06-30 00:55 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/83480843872.shtml)
-- 2026-06-30 00:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/398421885.shtml)
-- 2026-06-30 01:08 - [月亮](http://www.blog.minike.top/Article/details/171275.shtml)
-- 2026-06-30 00:54 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/3048300571.shtml)
-- 2026-06-30 00:47 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/31073700257.shtml)
-- 2026-06-30 01:09 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/261190329.shtml)
-- 2026-06-30 00:56 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/53307949254.shtml)
-- 2026-06-30 00:58 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/9240623180.shtml)
-- 2026-06-30 01:08 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/275903591.shtml)
+- 2026-06-30 01:17 - [恋与深空回应争议](https://www.share.minike.top/Article/details/97905.shtml)
+- 2026-06-30 00:55 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/1536966.shtml)
+- 2026-06-30 01:16 - [扫黑风暴](https://www.blog.minike.top/Article/details/104156.shtml)
+- 2026-06-30 00:55 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/72346061019.shtml)
+- 2026-06-30 01:10 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/001085300.shtml)
+- 2026-06-30 00:52 - [我和我的家乡](https://www.share.minike.top/Article/details/806825.shtml)
+- 2026-06-30 01:05 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/0360689.shtml)
+- 2026-06-30 00:58 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/312847361.shtml)
+- 2026-06-30 00:56 - [千与千寻](https://www.share.minike.top/Article/details/92561.shtml)
+- 2026-06-30 01:00 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/74512950607.shtml)
+- 2026-06-30 00:59 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/94446.shtml)
+- 2026-06-30 00:48 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/10924.shtml)
+- 2026-06-30 01:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/3527952865.shtml)
+- 2026-06-30 01:00 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/12376894.shtml)
+- 2026-06-30 00:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/422435383688.shtml)

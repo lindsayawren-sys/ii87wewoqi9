@@ -1,60 +1,57 @@
-# 000911，被证监会立案！
+# 数读卫浴制品年报 | 松霖科技、建霖家居靠机器人“翻盘”？ 惠达卫浴存货、应收账款周转天数双高
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 股价刷新多年新低之际，*ST广糖（维权）（000911）又被立案。 6月12日，*ST广糖公告，公司于当日收到证监会下发的《立案告知书》，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。 *ST广糖表示，目前公司各项经营活动均正常开展。在立案调查期间，公司将积
+出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。这意味着，存
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 股价刷新多年新低之际，*ST广糖（维权）（000911）又被立案。
+出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。
 
-6月12日，*ST广糖公告，公司于当日收到证监会下发的《立案告知书》，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。
+国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。
 
-*ST广糖表示，目前公司各项经营活动均正常开展。
+与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。
 
-在立案调查期间，公司将积极配合证监会的调查工作。
+这意味着，存量房翻新已正式取代新房装修，成为家居消费的主要需求来源。
 
-*ST广糖公司全称为广西农投糖业集团股份有限公司，其是一家从事机制糖生产与销售的企业，主要为食品饮料、调味品等下游行业提供基础食糖原料。
+另一方面，“以旧换新”政策持续释放红利。
 
-公司的主要客户包括海天味业、李锦记、娃哈哈、百事可乐等需求量大的大型食品饮料企业和大型糖类专业经销商。
+2025年，社会消费品零售总额达50.12万亿元，同比增长3.7%。
 
-*ST广糖旗下有“明阳”“云鸥”等品牌白砂糖，是广西区域制糖行业龙头企业，在广西乃至全国食糖市场占据重要份额。
+其中，家具类消费品全年零售额实现同比增长14.6%，较2024年显著提速，智能家居和适老化改造成为新增长极；建筑及装潢材料类受房地产市场转型期影响，零售额同比下降约2.7%，但降幅已明显收窄。
 
-近期，*ST广糖股价持续下跌，6月12日盘中一度下探至4.72元/股，刷新多年新低。
+截至4月30日，A股6家卫浴制品（按申万三级行业分类）上市公司均已披露2025年报。
 
 ## 相关推荐
 
-- 2026-06-30 01:01 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 01:03 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 00:56 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 00:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 00:58 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 00:52 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 01:04 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 00:58 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 00:53 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 00:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 00:57 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 00:50 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 00:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 01:10 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 01:09 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 00:51 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 00:57 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 01:13 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 01:08 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 00:55 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 01:15 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 00:58 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-30 01:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 01:05 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 01:01 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:46 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/38377738.shtml)
-- 2026-06-30 00:54 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/98574400999.shtml)
-- 2026-06-30 00:53 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/724959393.shtml)
-- 2026-06-30 00:51 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/52875.shtml)
-- 2026-06-30 00:53 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/0959964.shtml)
-- 2026-06-30 01:10 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/69847261362.shtml)
-- 2026-06-30 00:51 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/2981990.shtml)
-- 2026-06-30 00:44 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/89421962109.shtml)
-- 2026-06-30 01:11 - [逃狱兄弟](http://www.blog.minike.top/Article/details/6234944.shtml)
-- 2026-06-30 00:55 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/01834376.shtml)
-- 2026-06-30 00:56 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/956074807.shtml)
-- 2026-06-30 00:54 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/115114509.shtml)
-- 2026-06-30 00:53 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/46445932481.shtml)
-- 2026-06-30 01:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/24180.shtml)
-- 2026-06-30 00:52 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/970722311193.shtml)
+- 2026-06-30 00:49 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/456518.shtml)
+- 2026-06-30 01:14 - [急先锋](http://www.blog.kurohicncr.top/Article/details/95518249.shtml)
+- 2026-06-30 01:04 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/7506335147.shtml)
+- 2026-06-30 00:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/0187054.shtml)
+- 2026-06-30 00:57 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/12897341.shtml)
+- 2026-06-30 00:53 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/155845452278.shtml)
+- 2026-06-30 00:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/151809685294.shtml)
+- 2026-06-30 00:52 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/28654.shtml)
+- 2026-06-30 01:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/81374156.shtml)
+- 2026-06-30 00:48 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/70320.shtml)
+- 2026-06-30 00:53 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/03166.shtml)
+- 2026-06-30 00:52 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/32235267.shtml)
+- 2026-06-30 00:48 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/8204187.shtml)
+- 2026-06-30 01:04 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/50740461.shtml)
+- 2026-06-30 01:13 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/2435484.shtml)

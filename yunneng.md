@@ -1,58 +1,58 @@
-# 台湾中华青年交流协会理事长黄荣护：海峡风浪再大，也切不断两岸青年血脉相连的根脉
+# 广西北海海上风电单桩基础设备出运越南
 
-> 更新时间：2026-06-30 01:12:03 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月12日 14:16 来源：中国新闻网 作为第十八届海峡论坛系列活动之一，第二十四届海峡青年论坛6月12日在福建厦门开幕。台湾中华青年交流协会理事长黄荣护在致辞中表示，回首24年前，在两岸关系发展的关键时刻，台湾中华青年交流协会与大陆的伙伴们共同发起并举办第一届海峡青年论坛。24年春华秋实，这座由两岸青年共同搭建的桥梁，经历风雨，不仅从未中断，反而越发坚
+中新网北海5月18日电(庞毅)5月18日下午，装载着海上风电单桩基础设备的“新丝路”轮，从广西北海市铁山港公共码头起航，驶向越南。这是广西蓝水海洋工程有限公司承接的越南永隆海上风电项目的首批设备。 据了解，为保障这批风电设备安全、高效出口，北海海事局主动作为，提供精准服务。自项目启动之初，该局便与企业建立常态化对接机制，围绕船舶选型、出运方案优化等关键环节提供专业指导，提前化解
 
 ## 正文
 
-发布时间：2026年06月12日 14:16 来源：中国新闻网 作为第十八届海峡论坛系列活动之一，第二十四届海峡青年论坛6月12日在福建厦门开幕。
+中新网北海5月18日电(庞毅)5月18日下午，装载着海上风电单桩基础设备的“新丝路”轮，从广西北海市铁山港公共码头起航，驶向越南。
 
-台湾中华青年交流协会理事长黄荣护在致辞中表示，回首24年前，在两岸关系发展的关键时刻，台湾中华青年交流协会与大陆的伙伴们共同发起并举办第一届海峡青年论坛。
+这是广西蓝水海洋工程有限公司承接的越南永隆海上风电项目的首批设备。
 
-24年春华秋实，这座由两岸青年共同搭建的桥梁，经历风雨，不仅从未中断，反而越发坚实，成为两岸青年交流规模最大，也最具影响力的品牌盛会。
+据了解，为保障这批风电设备安全、高效出口，北海海事局主动作为，提供精准服务。
 
-我们用24年的坚持，证明海峡的风浪再大，也切不断两岸青年血脉相连的根脉，更挡不住大家走近走亲，携手前行的步伐。
+自项目启动之初，该局便与企业建立常态化对接机制，围绕船舶选型、出运方案优化等关键环节提供专业指导，提前化解潜在风险；并依托与气象、海洋等部门的联动机制，实时跟踪辖区海况变化，及时推送预警信息，协助企业科学研判并抢抓最佳运输窗口期，有效规避恶劣天气风险。
 
-黄荣护指出，世界在巨变，特别是在人工智慧与社会化的AI时代，两岸青年更需要发挥台湾创新创意的优势，结合大陆广阔市场与资源的优势，同舟共济，携手拼世界。
+在运输环节，海事执法人员对承运船舶“新丝路”轮开展了全面安全“体检”。
 
-正如那一首我们都很熟悉的歌曲《我的未来不是梦》，两岸青年的未来就是中华民族伟大复兴的未来。
+为进一步提升运输效能，北海海事局联合北部湾船舶交通管理中心(筹)、引航机构、码头业主等单位，为风电设备运输船舶开辟“绿色通道”，实行优先受理、优先审核、优先放行，保障船舶优先进出港。
 
-(记者 郎佳慧 制作 徐妙巧） 责任编辑：【李季】
+今年以来，北海海事局已累计保障风电大件设备安全出运12艘次，其中包括导管架17个、基础桩44根。
+
+北海海事局表示，将持续优化监管与服务举措，护航海上风电产业出口。
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 00:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 00:58 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 01:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 00:56 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 01:03 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 00:54 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 01:03 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 01:11 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 00:46 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 01:04 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 00:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 00:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 00:46 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 01:10 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 00:52 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 01:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 00:52 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 01:01 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 00:51 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 01:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 00:59 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 01:07 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 01:16 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 01:14 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 01:07 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/119688161.shtml)
-- 2026-06-30 00:53 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/20332.shtml)
-- 2026-06-30 01:10 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/20314792.shtml)
-- 2026-06-30 01:05 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/21889.shtml)
-- 2026-06-30 00:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/046085908.shtml)
-- 2026-06-30 00:52 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/671118212926.shtml)
-- 2026-06-30 01:03 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/35259.shtml)
-- 2026-06-30 00:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/9420602.shtml)
-- 2026-06-30 00:45 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/0823609649.shtml)
-- 2026-06-30 01:04 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/411963818506.shtml)
-- 2026-06-30 00:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/68804.shtml)
-- 2026-06-30 01:01 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/3028150.shtml)
-- 2026-06-30 00:50 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/153262087298.shtml)
-- 2026-06-30 00:52 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/613755.shtml)
-- 2026-06-30 00:43 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/03807.shtml)
+- 2026-06-30 00:53 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/79555176771.shtml)
+- 2026-06-30 01:13 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/3471775055.shtml)
+- 2026-06-30 00:58 - [扬名立万](http://www.blog.minike.top/Article/details/948256169.shtml)
+- 2026-06-30 01:09 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/157609044.shtml)
+- 2026-06-30 00:57 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/77966201.shtml)
+- 2026-06-30 01:10 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/24518812.shtml)
+- 2026-06-30 00:58 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/57981192050.shtml)
+- 2026-06-30 01:05 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/682155861.shtml)
+- 2026-06-30 01:14 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/53949346108.shtml)
+- 2026-06-30 01:00 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/79769.shtml)
+- 2026-06-30 01:10 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/3324801.shtml)
+- 2026-06-30 01:05 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/4681704710.shtml)
+- 2026-06-30 01:07 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/564446786651.shtml)
+- 2026-06-30 00:49 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/889033106759.shtml)
+- 2026-06-30 00:57 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/832930.shtml)

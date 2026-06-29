@@ -1,57 +1,51 @@
-# 三协会联合发文 规范电视剧（网络剧）演员署名
+# 福耀玻璃遭摩根大通减持约61.87万股 每股作价约61.21港元
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-中新网6月12日电 据中国电视剧制作产业协会官方微信消息，针对近年来电视剧(网络剧)行业愈演愈烈的演员署名排序之争，中国电视剧制作产业协会、中国网络视听节目服务协会、中国广播电视社会组织联合会演员委员会于今日向会员单位联合发布《关于规范电视剧(网络剧)演员署名的通知》(以下简称《通知》)。此举旨在从源头破除“撕番”乱象，引导行业回归艺术创作本位，构建风清气正的文艺生态。 据行业
+香港联交所最新资料显示，5月14日，摩根大通减持福耀玻璃（03606）61.8741万股，每股作价61.2138港元，总金额约为3787.55万港元。减持后最新持股数目约为8465.47万股，最新持股比例为13.95%。责任编辑：卢昱君
 
 ## 正文
 
-中新网6月12日电 据中国电视剧制作产业协会官方微信消息，针对近年来电视剧(网络剧)行业愈演愈烈的演员署名排序之争，中国电视剧制作产业协会、中国网络视听节目服务协会、中国广播电视社会组织联合会演员委员会于今日向会员单位联合发布《关于规范电视剧(网络剧)演员署名的通知》(以下简称《通知》)。
+香港联交所最新资料显示，5月14日，摩根大通减持福耀玻璃（03606）61.8741万股，每股作价61.2138港元，总金额约为3787.55万港元。
 
-此举旨在从源头破除“撕番”乱象，引导行业回归艺术创作本位，构建风清气正的文艺生态。
+减持后最新持股数目约为8465.47万股，最新持股比例为13.95%。
 
-据行业内部反映，近年来，部分电视剧(网络剧)在选角、签约、拍摄、宣传、播出等环节，因演员署名、排位等问题引发多起争议，甚至出现停工、项目延误、舆论对立等情况，严重干扰正常创作，恶化行业生态，行业各方对此反映强烈。
-
-“当排名压倒了演技，当位置取代了质量，文艺作品就失去了灵魂。
-
-”业内人士指出，此类风气不仅助长了“流量至上”的错误价值观，助长了青少年群体不良的“饭圈”文化，更让整个行业背负了“浮躁功利”的负面形象，规范署名已刻不容缓。
-
-今日发布的《通知》指出，演员应自觉恪守职业道德，将主要精力投入艺术创作，不以署名排序干扰正常创作秩序；演员及其经纪机构应切实履行社会责任，积极主动引导粉丝理性追星，不以署名排序为由制造舆论对立，坚决抵制因署名排序问题引发的网络攻击与非理性行为。
-
-在演员署名规则方面，《通知》明确，演员署名实行分类管理，应根据角色性质、戏份体量及实际参与情况，规范使用“领衔主演”“特别出演”“出演”三类头衔，不得随意修改、增加其他名目。
-
-需说明的是，上述类别仅适用于有明确角色对应关系的演员。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:01 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 01:02 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 01:05 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 00:55 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 00:59 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 01:01 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 01:10 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 00:54 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 00:44 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-30 00:42 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 00:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 01:12 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 00:57 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 01:09 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-30 01:02 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 01:03 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 01:05 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 01:07 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 00:49 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 01:10 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 01:12 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 01:00 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 00:54 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 01:06 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 01:09 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 00:50 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/62785.shtml)
-- 2026-06-30 01:06 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/414921579.shtml)
-- 2026-06-30 00:58 - [周生如故](http://www.blog.minike.top/Article/details/959500.shtml)
-- 2026-06-30 00:55 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/911240333902.shtml)
-- 2026-06-30 01:10 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/0037816.shtml)
-- 2026-06-30 00:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/98144.shtml)
-- 2026-06-30 00:42 - [一见倾心](http://www.share.kurohicncr.top/Article/details/15055341473.shtml)
-- 2026-06-30 01:01 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/69615.shtml)
-- 2026-06-30 01:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/6558651.shtml)
-- 2026-06-30 01:06 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/407663275930.shtml)
-- 2026-06-30 01:00 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/43382060.shtml)
-- 2026-06-30 01:01 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/349876208172.shtml)
-- 2026-06-30 00:50 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/235039.shtml)
-- 2026-06-30 00:48 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/29507.shtml)
-- 2026-06-30 01:08 - [女心理师](https://www.blog.kurohicncr.top/Article/details/931475.shtml)
+- 2026-06-30 00:54 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/739960429165.shtml)
+- 2026-06-30 01:06 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/548019.shtml)
+- 2026-06-30 01:07 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/660360158.shtml)
+- 2026-06-30 00:59 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/36090726659.shtml)
+- 2026-06-30 00:54 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/841731228067.shtml)
+- 2026-06-30 00:56 - [金牌调解](https://www.share.minike.top/Article/details/800291208.shtml)
+- 2026-06-30 01:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/77475.shtml)
+- 2026-06-30 00:59 - [货车司机恶意闯卡逃费被行拘](http://www.share.minike.top/Article/details/698006.shtml)
+- 2026-06-30 00:48 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/45411279306.shtml)
+- 2026-06-30 01:06 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/448859822.shtml)
+- 2026-06-30 01:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/95855.shtml)
+- 2026-06-30 01:11 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/394294845.shtml)
+- 2026-06-30 01:04 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/15061575.shtml)
+- 2026-06-30 00:48 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/801642663.shtml)
+- 2026-06-30 01:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/62514.shtml)

@@ -1,58 +1,56 @@
-# Anthropic提议设立公共基金，让美国民众持有人工智能企业股权
+# 《中国乡村遗产旅游发展报告（2026）》在北京发布
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-特朗普周三再度表态，计划与人工智能企业会面，商议由政府持有相关企业股权一事 Anthropic首席执行官达里奥・阿莫代伊于周三发布一套政策框架，提出一套机制，让美国民众能够分享人工智能行业发展红利、持有相关企业收益权益。该文件提议效仿特朗普政府推出的 “新生账户” 计划，为美国新生儿设立资本账户，账户资金来源为人工智能企业股权。按照Anthropic的方案，该账户覆盖人群还将拓
+中新网北京5月19日电 5月19日是中国旅游日，《乡村遗产旅游绿皮书：中国乡村遗产旅游发展报告(2026)》在北京正式发布。报告立足系统性保护要求，全面梳理2025年度农业文化遗产、乡村非物质文化遗产、传统村落旅游发展实践，为乡村振兴与文旅高质量发展提供坚实学术支撑。 报告由文化和旅游部资源开发司支持、北京联合大学主持编撰，是中国乡村遗产旅游领域的重要研究成果，也是“中国乡村遗
 
 ## 正文
 
-特朗普周三再度表态，计划与人工智能企业会面，商议由政府持有相关企业股权一事 Anthropic首席执行官达里奥・阿莫代伊于周三发布一套政策框架，提出一套机制，让美国民众能够分享人工智能行业发展红利、持有相关企业收益权益。
+中新网北京5月19日电 5月19日是中国旅游日，《乡村遗产旅游绿皮书：中国乡村遗产旅游发展报告(2026)》在北京正式发布。
 
-该文件提议效仿特朗普政府推出的 “新生账户” 计划，为美国新生儿设立资本账户，账户资金来源为人工智能企业股权。
+报告立足系统性保护要求，全面梳理2025年度农业文化遗产、乡村非物质文化遗产、传统村落旅游发展实践，为乡村振兴与文旅高质量发展提供坚实学术支撑。
 
-按照Anthropic的方案，该账户覆盖人群还将拓展至初入职场的成年人，以及所在行业可能被人工智能替代的现有从业者。
+报告由文化和旅游部资源开发司支持、北京联合大学主持编撰，是中国乡村遗产旅游领域的重要研究成果，也是“中国乡村遗产旅游绿皮书”系列第三部力作。
 
-此前特朗普已于上周表态，计划会见人工智能行业头部企业高管，商讨由政府持有这些企业股权的相关事宜。
+本次编撰汇聚国内外顶尖科研力量，中国科学院地理科学与资源研究所、中国人民大学、云南大学、中国农业大学、北京理工大学、中央民族大学、中国农业博物馆、西安文理学院、浙江省农业科学院农村发展研究所等十余所高校与科研单位参与编写。
 
-OpenAI 曾在 4 月发布相似提案，呼吁设立公共财富基金，依托 “多元化长期资产” 作为资金来源。
+据介绍，报告由总报告、分报告、专题研究、案例研究四部分构成。
 
-Anthropic与 OpenAI 的两份提案均未明确人工智能企业需要拿出多少资金或股权。
+总报告以系统性保护为统领，阐释农业文化遗产、乡村非遗、传统村落三大类乡村遗产旅游发展态势；分报告聚焦三类遗产旅游年度新趋势、新政策、新观点；专题研究围绕大遗产观、社区福祉、非遗空间适配、乡村手工艺发展、智能技术应用等前沿议题展开深度探讨；案例研究选取浙江缙云、云南元阳、广西环江、北京斋堂、京西灵水、河北涉县、湖北恩施等地典型样本，为乡村遗产旅游赋能乡村振兴、实现高质量可持续发展提供可复制、可推广的实践经验与科学指导。
 
-佛蒙特州民主党联邦参议员伯尼・桑德斯 6 月初刊发专栏文章，提议设立主权财富基金，由人工智能企业半数股权作为资金支撑。
+北京联合大学副校长鲍新中在致辞中表示，学校长期深耕乡村遗产旅游研究领域，依托国内最早、规模最大的旅游学院以及非遗学院、乡村振兴研究院等平台，组建跨学科研究团队。
 
-周三，特朗普再度向媒体表示，他计划会见排名前 12 至 15 家人工智能企业的高管，但并未透露更多细节。
+自2018年起，聘请李文华院士、闵庆文研究员等权威专家牵头开展农业文化遗产可持续旅游研究，深度参与全球及中国重要农业文化遗产申报与科研工作，产出一批高水平学术成果。
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 00:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 00:45 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 00:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 01:07 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 01:09 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 00:48 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 01:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 00:45 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 01:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 01:03 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 00:59 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 00:55 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 00:50 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 00:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 01:17 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 01:05 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 00:52 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 01:00 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 00:57 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 01:13 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 01:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:05 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/9264420.shtml)
-- 2026-06-30 01:03 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/460622506281.shtml)
-- 2026-06-30 00:51 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/58963640874.shtml)
-- 2026-06-30 01:08 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/097308384.shtml)
-- 2026-06-30 01:00 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/687838871.shtml)
-- 2026-06-30 00:42 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/7261054.shtml)
-- 2026-06-30 00:50 - [刘念回应](http://www.share.kurohicncr.top/Article/details/46294568.shtml)
-- 2026-06-30 00:52 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/7774903310.shtml)
-- 2026-06-30 01:10 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/55118693062.shtml)
-- 2026-06-30 00:45 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/5864214175.shtml)
-- 2026-06-30 00:51 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/017410621677.shtml)
-- 2026-06-30 01:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/18229.shtml)
-- 2026-06-30 01:10 - [天道](https://www.blog.minike.top/Article/details/27180.shtml)
-- 2026-06-30 00:56 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/1073763856.shtml)
-- 2026-06-30 00:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/54506309.shtml)
+- 2026-06-30 01:02 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/262941126.shtml)
+- 2026-06-30 01:08 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/671962004.shtml)
+- 2026-06-30 00:59 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/573801804.shtml)
+- 2026-06-30 00:56 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/167800988019.shtml)
+- 2026-06-30 01:02 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/6452265.shtml)
+- 2026-06-30 01:16 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/03921507.shtml)
+- 2026-06-30 00:59 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/465575731026.shtml)
+- 2026-06-30 01:11 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/07940.shtml)
+- 2026-06-30 00:50 - [啊啊啊](http://www.share.minike.top/Article/details/320476.shtml)
+- 2026-06-30 01:13 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/56947435.shtml)
+- 2026-06-30 01:01 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/580460070.shtml)
+- 2026-06-30 00:55 - [第一炉香](https://www.share.kurohicncr.top/Article/details/5922382450.shtml)
+- 2026-06-30 00:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/90645585.shtml)
+- 2026-06-30 01:01 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/553392614826.shtml)
+- 2026-06-30 00:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/30459380.shtml)

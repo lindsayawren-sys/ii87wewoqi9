@@ -1,58 +1,56 @@
-# 这4种藏在家里的致癌物 很多人天天接触却不知道
+# 禾赛预计Q2营收8.5亿至9亿元，全年激光雷达出货量剑指350万颗
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-日常生活中，潜藏着一些被我们忽视的致癌元凶。了解这些物质并采取相应措施减少接触，对于我们和家人的健康至关重要。 土榨花生油 很多人认为土榨花生油更香，但要特别提醒：土榨花生油一直都是强致癌物黄曲霉毒素超标的重灾区，因为这些油没有经过精炼处理，很容易让黄曲霉毒素“安家落户”。 除了土榨花生油，黄曲霉毒素也可能存在于发霉的花生、玉米等粮油产品中。因此，储存粮食时建议保持干燥、通风，
+禾赛科技周二公布2026年第一季度财报，并给出乐观业绩指引。公司预计第二季度净营收为8.5亿至9亿元人民币，同比增长20%至27%；同时重申2026年全年激光雷达出货量预计为300万至350万颗。 Q1业绩亮眼，扭亏为盈 财报显示，禾赛一季度实现营收6.81亿元，同比增长29.6%；净利润1830万元，实现扭亏为盈。按Non-GAAP计算，净利润达4770万元，同比增长452.
 
 ## 正文
 
-日常生活中，潜藏着一些被我们忽视的致癌元凶。
+禾赛科技周二公布2026年第一季度财报，并给出乐观业绩指引。
 
-了解这些物质并采取相应措施减少接触，对于我们和家人的健康至关重要。
+公司预计第二季度净营收为8.5亿至9亿元人民币，同比增长20%至27%；同时重申2026年全年激光雷达出货量预计为300万至350万颗。
 
-土榨花生油 很多人认为土榨花生油更香，但要特别提醒：土榨花生油一直都是强致癌物黄曲霉毒素超标的重灾区，因为这些油没有经过精炼处理，很容易让黄曲霉毒素“安家落户”。
+Q1业绩亮眼，扭亏为盈 财报显示，禾赛一季度实现营收6.81亿元，同比增长29.6%；净利润1830万元，实现扭亏为盈。
 
-除了土榨花生油，黄曲霉毒素也可能存在于发霉的花生、玉米等粮油产品中。
+按Non-GAAP计算，净利润达4770万元，同比增长452.9%。
 
-因此，储存粮食时建议保持干燥、通风，出现霉变的食品应果断丢弃。
+激光雷达总出货量达47.17万台，同比增长140.9%，其中ADAS出货35.34万台，机器人领域出货11.83万台，均创历史新高。
 
-那么，如果家中的筷子或砧板不慎接触了含有黄曲霉的粮油产品，需要整套丢掉吗？
+市场份额断层领先 据盖世汽车研究院数据，2026年3月禾赛在中国车载主激光雷达市场份额达55%，连续14个月蝉联行业第一。
 
-黄曲霉需要特定的环境和营养物质才能生长，要产生黄曲霉毒素也需要一定的条件，而筷子、砧板等不存在丰富的营养，较难产生黄曲霉毒素。
+国际权威研究机构Yole Group报告显示，禾赛以43%的市占率位居全球ADAS主激光雷达出货量第一。
 
-建议洗完筷子后，烘干或晾晒后再放置于筷桶；砧板用完后记得擦干，竖放或悬挂。
+战略升维与新业务布局 公司宣布战略升维，从“空间感知”进化为“空间智能”，并发布全球首款6D全彩激光雷达超感光芯片“毕加索”。
 
 ## 相关推荐
 
-- 2026-06-30 01:07 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 01:00 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 00:45 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 00:48 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 00:53 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 01:07 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 00:49 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 01:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 00:49 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 00:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 00:49 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 00:46 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 00:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 00:50 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 01:06 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 01:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 00:52 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 01:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 01:01 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 00:59 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 01:01 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 00:56 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/87218524927.shtml)
-- 2026-06-30 00:42 - [点菜也要教吗](http://www.share.minike.top/Article/details/71979.shtml)
-- 2026-06-30 01:09 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/880405.shtml)
-- 2026-06-30 01:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/049236543749.shtml)
-- 2026-06-30 00:45 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/03356731894.shtml)
-- 2026-06-30 01:05 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/4040107931.shtml)
-- 2026-06-30 01:11 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/38700.shtml)
-- 2026-06-30 00:55 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/64084.shtml)
-- 2026-06-30 00:45 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/644193791.shtml)
-- 2026-06-30 00:56 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/46785501211.shtml)
-- 2026-06-30 00:57 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/7595519982.shtml)
-- 2026-06-30 00:47 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/917719596.shtml)
-- 2026-06-30 01:02 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/966499452186.shtml)
-- 2026-06-30 01:02 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/1833876829.shtml)
-- 2026-06-30 00:43 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/55445701.shtml)
+- 2026-06-30 01:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/151334401.shtml)
+- 2026-06-30 00:56 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/15461.shtml)
+- 2026-06-30 00:55 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/32307854262.shtml)
+- 2026-06-30 01:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/74972143.shtml)
+- 2026-06-30 01:03 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/74514274568.shtml)
+- 2026-06-30 01:12 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/32419939.shtml)
+- 2026-06-30 01:03 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/9180786.shtml)
+- 2026-06-30 00:59 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/31410133.shtml)
+- 2026-06-30 01:06 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/96755459.shtml)
+- 2026-06-30 01:02 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/924887.shtml)
+- 2026-06-30 01:05 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/523790189848.shtml)
+- 2026-06-30 01:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/97353371.shtml)
+- 2026-06-30 00:52 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/644057123972.shtml)
+- 2026-06-30 01:06 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/2489957.shtml)
+- 2026-06-30 01:13 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/59023685.shtml)

@@ -1,61 +1,50 @@
-# 医疗，继续修复！512170底部放量三连阳！华宝基金港股通医疗ETF盘中冲击3%！机构看好医药长期投资价值
+# 南方大范围降水持续 部分地区伴有强对流天气
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-6月12日，AH医疗主题板块携手拉升。 A股医疗器械、医疗服务全线反弹，华大智造领涨近14%，威高血净两连板，金域医学、华熙生物涨超7%。全市场规模最大*医疗ETF华宝（512170）盘中一度涨超2%，今日有望斩获三连阳，场内交投活跃，实时成交超4亿元。 需要特别提示的是，近期医疗板块整体以调整为主， 512170此前一度8连跌，场内价格频刷20个月新低，阶段拐点尚未明朗，投资
+中新网5月19日电 据中央气象台网站消息，昨日，中东部大范围降雨持续，湖北东部和南部、湖南北部、贵州东部和南部、山东中东部、江苏北部、安徽北部、广西南部、广东西南部和海南岛南部等地部分地区出现大到暴雨，局地大暴雨，海南岛保亭、陵水、万宁，广西防城港，贵州黔南等局地特大暴雨(250～328.2毫米)。 中央气象台今晨继续发布暴雨黄色预警：预计今天，江南北部和西部、贵州东部和南部、
 
 ## 正文
 
-6月12日，AH医疗主题板块携手拉升。
+中新网5月19日电 据中央气象台网站消息，昨日，中东部大范围降雨持续，湖北东部和南部、湖南北部、贵州东部和南部、山东中东部、江苏北部、安徽北部、广西南部、广东西南部和海南岛南部等地部分地区出现大到暴雨，局地大暴雨，海南岛保亭、陵水、万宁，广西防城港，贵州黔南等局地特大暴雨(250～328.2毫米)。
 
-A股医疗器械、医疗服务全线反弹，华大智造领涨近14%，威高血净两连板，金域医学、华熙生物涨超7%。
+中央气象台今晨继续发布暴雨黄色预警：预计今天，江南北部和西部、贵州东部和南部、华南中西部等地部分地区有大到暴雨，其中，湖南西南部、贵州南部、广西北部、广东中部等地部分地区有大暴雨(100～180毫米)。
 
-全市场规模最大*医疗ETF华宝（512170）盘中一度涨超2%，今日有望斩获三连阳，场内交投活跃，实时成交超4亿元。
+上述部分地区伴有短时强降水(最大小时降雨量30～50毫米，局地可超过70毫米)，局地有雷暴大风等强对流天气。
 
-需要特别提示的是，近期医疗板块整体以调整为主， 512170此前一度8连跌，场内价格频刷20个月新低，阶段拐点尚未明朗，投资者务必警惕风险，切勿盲目“抄底”。
+气象专家提醒，今天，江西、安徽、湖南、贵州、广西、广东等地部分地区暴雨灾害风险高，并伴有强对流天气，需要特别注意做好防御措施。
 
-港股通医疗板块反弹力度更大，港股通医疗ETF华宝（159137）盘中一度冲高3%，现涨超2.55%收复5日均线。
-
-创新药产业链成份股贡献主要涨幅，科伦博泰生物领涨超7%，康方生物涨超5%，药明生物、药明康德双双涨超2%。
-
-值得关注的是，港股通医疗ETF华宝（159137）标的指数港股通医疗主题指数半年度调仓将于下一交易日（6月15日）生效。
-
-拟剔除4只成份股：科伦博泰生物、康方生物、映恩生物-B、再鼎医药。
+请公众及时关注当地气象部门发布的预报、预警信息，避免在强对流活跃时段外出。
 
 ## 相关推荐
 
-- 2026-06-30 01:03 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 00:54 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 00:59 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 00:56 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 00:50 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 00:50 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 00:58 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 00:50 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 00:57 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 01:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 01:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 00:45 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 01:11 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 01:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 00:52 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 00:55 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 01:00 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 00:59 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 01:01 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 00:51 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 00:49 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 01:09 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 01:15 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 01:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 00:54 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/628012202742.shtml)
-- 2026-06-30 01:05 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/9622495074.shtml)
-- 2026-06-30 00:56 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/39682.shtml)
-- 2026-06-30 00:58 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/56540987.shtml)
-- 2026-06-30 01:12 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/1448575.shtml)
-- 2026-06-30 00:43 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/34179034.shtml)
-- 2026-06-30 00:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/6060040.shtml)
-- 2026-06-30 00:51 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/4724861.shtml)
-- 2026-06-30 00:57 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/26957.shtml)
-- 2026-06-30 00:55 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/2500231893.shtml)
-- 2026-06-30 01:11 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/0982677.shtml)
-- 2026-06-30 00:56 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/4360295.shtml)
-- 2026-06-30 00:45 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/2326479.shtml)
-- 2026-06-30 00:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/873358.shtml)
-- 2026-06-30 00:43 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/223766.shtml)
+- 2026-06-30 01:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/33576343.shtml)
+- 2026-06-30 01:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/402355316049.shtml)
+- 2026-06-30 01:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/351321598.shtml)
+- 2026-06-30 01:00 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/796921.shtml)
+- 2026-06-30 01:15 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/570746.shtml)
+- 2026-06-30 00:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/042229229.shtml)
+- 2026-06-30 00:50 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/293229564299.shtml)
+- 2026-06-30 00:58 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/41738325.shtml)
+- 2026-06-30 01:00 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/620482.shtml)
+- 2026-06-30 01:11 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/0351907433.shtml)
+- 2026-06-30 01:08 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/56680368654.shtml)
+- 2026-06-30 01:10 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/542862865.shtml)
+- 2026-06-30 00:49 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/51928021.shtml)
+- 2026-06-30 01:05 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/6579031.shtml)
+- 2026-06-30 01:07 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/5659645234.shtml)

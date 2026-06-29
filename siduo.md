@@ -1,60 +1,57 @@
-# 2026年高考落幕 青春奔赴下一程
+# 广州开启城市消费嘉年华活动 民众一站式叹享大湾区风情
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-新华社北京6月10日电 题：2026年高考落幕 青春奔赴下一程 新华社记者 青春作序，逐梦今朝。6月10日，2026年全国高考落下帷幕。人生前路漫漫，少年积蓄新力、扬帆启航，奔赴下一程。 落幕 青春执笔已成章全国高考6月7日开考，多数省份9日结束，北京、山东等省份10日结束。万千学子标注下青春浓烈的注脚。 9日下午，记者在成都市石室天府中学(交子校区)考点周边看到，身着红马甲的
+中新网广州5月18日电(王华 潘俊林)2026广州服务消费季暨大湾区美食嘉年华18日广州塔二楼观景平台启幕。活动以“来广州，叹一夏”为主题，为民众带来集美食、文化、音乐、体育、休闲于一体的城市消费嘉年华，让民众一站式叹享大湾区风味与风情。 本次活动由广州市商务局主办。其中重头戏“大湾区美食嘉年华”，现场设“叹经典·广府老字号”和“叹创意·新潮粤味”两大美食街区，汇聚超50家餐饮
 
 ## 正文
 
-新华社北京6月10日电 题：2026年高考落幕 青春奔赴下一程 新华社记者 青春作序，逐梦今朝。
+中新网广州5月18日电(王华 潘俊林)2026广州服务消费季暨大湾区美食嘉年华18日广州塔二楼观景平台启幕。
 
-6月10日，2026年全国高考落下帷幕。
+活动以“来广州，叹一夏”为主题，为民众带来集美食、文化、音乐、体育、休闲于一体的城市消费嘉年华，让民众一站式叹享大湾区风味与风情。
 
-人生前路漫漫，少年积蓄新力、扬帆启航，奔赴下一程。
+本次活动由广州市商务局主办。
 
-落幕 青春执笔已成章全国高考6月7日开考，多数省份9日结束，北京、山东等省份10日结束。
+其中重头戏“大湾区美食嘉年华”，现场设“叹经典·广府老字号”和“叹创意·新潮粤味”两大美食街区，汇聚超50家餐饮品牌，涵盖粤菜、日料、西餐、甜品、茶饮等多元品类，实现百年老字号与新锐网红品牌同场亮相、传统风味与创意菜品碰撞交融，天南地北风味与米其林、黑珍珠餐厅集结，共奉饕餮盛宴。
 
-万千学子标注下青春浓烈的注脚。
+现场还设置四大主题打卡点，以广州塔为背景形成天然的取景画框，随手一拍即是大片。
 
-9日下午，记者在成都市石室天府中学(交子校区)考点周边看到，身着红马甲的志愿者正在协助维持秩序。
+活动期间，“粤BA啦啦队”和顶流IP“大湾鸡”将定时巡游，与民众互动。
 
-一些家长翘首以盼。
+此外，一念敦煌石窟艺术大展也来到活动现场，为美食嘉年华增添一抹文化亮色。
 
-“出来了，出来了！
+当夜幕降临，主舞台变身“城市开放式Livehouse”。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 00:50 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 00:54 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 00:48 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 01:04 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 01:03 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 01:00 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 00:48 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 01:01 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 00:59 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 00:59 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 00:58 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 01:06 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 01:11 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 01:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 01:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 01:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 01:05 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 00:59 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 01:07 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 00:50 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 01:06 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 00:48 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 01:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 01:03 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:54 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/713004.shtml)
-- 2026-06-30 01:08 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/064826766079.shtml)
-- 2026-06-30 00:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/735358.shtml)
-- 2026-06-30 01:05 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/046342265549.shtml)
-- 2026-06-30 01:02 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/443924.shtml)
-- 2026-06-30 01:05 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/371317892.shtml)
-- 2026-06-30 01:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/74731257.shtml)
-- 2026-06-30 00:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/670781021566.shtml)
-- 2026-06-30 00:42 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/82881.shtml)
-- 2026-06-30 00:55 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/0583441.shtml)
-- 2026-06-30 01:04 - [周生如故](http://www.blog.minike.top/Article/details/86447445367.shtml)
-- 2026-06-30 00:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/9831617039.shtml)
-- 2026-06-30 01:01 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/8542993.shtml)
-- 2026-06-30 01:05 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/96920417580.shtml)
-- 2026-06-30 00:55 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/5193475543.shtml)
+- 2026-06-30 00:59 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/46115.shtml)
+- 2026-06-30 01:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/07260203938.shtml)
+- 2026-06-30 00:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/655750.shtml)
+- 2026-06-30 01:16 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/336440301222.shtml)
+- 2026-06-30 01:10 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/25084473.shtml)
+- 2026-06-30 00:54 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/454403196.shtml)
+- 2026-06-30 01:05 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/8424585938.shtml)
+- 2026-06-30 00:57 - [月亮](https://www.blog.kurohicncr.top/Article/details/080455763.shtml)
+- 2026-06-30 00:52 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/088826559.shtml)
+- 2026-06-30 01:00 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/743537.shtml)
+- 2026-06-30 01:04 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/32462.shtml)
+- 2026-06-30 01:17 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/0110094179.shtml)
+- 2026-06-30 00:56 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/621024011.shtml)
+- 2026-06-30 01:03 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/45834156.shtml)
+- 2026-06-30 00:50 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/68422104586.shtml)

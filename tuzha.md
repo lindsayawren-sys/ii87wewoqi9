@@ -1,60 +1,59 @@
-# 中国证监会同意国仪量子IPO注册申请
+# 九三学社中央对口四川省长江生态环境保护民主监督工作综述
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-6月11日，中国证监会网站显示，国仪量子首次公开发行股票的注册申请获得中国证监会通过。国仪量子IPO于2025年12月10日获得受理，并于2026年5月12日提交注册。 招股书显示，国仪量子自成立以来专注于高端科学仪器的研发，面向量子科技、材料科学、化学化工、生物医药、先进制造等多个领域，向全球范围内的高校及科研院所、企业提供科技前沿探索所需的高端科学仪器装备、以增强型量子传感
+以科技之笔绘长江安澜 ——九三学社中央对口四川省长江生态环境保护民主监督工作综述 长江，从雪域奔腾而来，在四川留下千回百转的足迹。守护好这片重要生态屏障，关乎万里长江的安澜永续。 受中共中央委托，2021年至2025年，九三学社中央对口四川省开展长江生态环境保护民主监督。九三学社中央坚持以习近平新时代中国特色社会主义思想为指导，深入学习贯彻习近平生态文明思想，准确把握“共抓大保
 
 ## 正文
 
-6月11日，中国证监会网站显示，国仪量子首次公开发行股票的注册申请获得中国证监会通过。
+以科技之笔绘长江安澜 ——九三学社中央对口四川省长江生态环境保护民主监督工作综述 长江，从雪域奔腾而来，在四川留下千回百转的足迹。
 
-国仪量子IPO于2025年12月10日获得受理，并于2026年5月12日提交注册。
+守护好这片重要生态屏障，关乎万里长江的安澜永续。
 
-招股书显示，国仪量子自成立以来专注于高端科学仪器的研发，面向量子科技、材料科学、化学化工、生物医药、先进制造等多个领域，向全球范围内的高校及科研院所、企业提供科技前沿探索所需的高端科学仪器装备、以增强型量子传感器为代表的核心关键器件以及解决方案。
+受中共中央委托，2021年至2025年，九三学社中央对口四川省开展长江生态环境保护民主监督。
 
-经过多年创业经营，国仪量子在行业内树立起良好的品牌形象，赢得了众多客户认可，近三年收入复合增长率接近30%，形成了量子信息技术与自旋共振、电子显微镜、随钻测量、气体吸附分析等业务板块。
+九三学社中央坚持以习近平新时代中国特色社会主义思想为指导，深入学习贯彻习近平生态文明思想，准确把握“共抓大保护、不搞大开发”战略要求，充分发挥科技界别特色与人才智力优势，以持之以恒的韧劲破解长江上游生态治理难题，以务实履职展现了参政党服务国家大局、守护生态安全的责任担当。
 
-国仪量子自成立以来积极参与国内乃至国际市场竞争，推出的电子顺磁共振波谱仪、扫描NV探针显微镜、场发射扫描电子显微镜、聚焦离子束电子束双束显微镜等产品核心性能指标已达到甚至超越国际竞品，逐渐打破国际巨头在国内高端科学仪器市场的长期垄断或主导局面，并在量子信息与自旋共振、电子显微镜等细分市场名列前茅。
+专业力量守护一方碧水 “河水常年泛黄发臭，pH值低到2.5，老百姓饮水都成了问题。
 
-值得注意的是，国仪量子报告期内尚未实现盈利。
+”在四川叙永县大树矿区，因历史硫铁矿粗放开采，留下的酸性涌水污染。
 
-2023年至2025年，国仪量子营业收入分别为4亿元、5.01亿元和6.66亿元，扣非净利润分别为-1.69亿元、-1.04亿元和-1887.80万元，尚未实现盈利。
+河道如锈，土壤酸化，这是长江上游生态治理一块难啃的骨头。
 
-本次IPO，国仪量子拟募资11.69亿元，用于高端科学仪器产业化项目、量子技术发展研究院建设项目和应用中心网络建设项目，均围绕科学仪器主营业务开展，有助于公司进一步丰富产品矩阵并提升现有产品系列的产能水平，同时引进相关领域核心人才，把握市场先机，加速先进技术的产业化进程；优化自身本土化服务能力，更好地服务国内及海外重点区域客户，加大市场辐射的广度与深度；紧跟当前量子信息技术革命浪潮，积极布局行业前沿技术应用领域，推动高端科学仪器与量子信息技术的深度融合，为公司长期经营战略目标的实现奠定基础。
+2021年，九三学社中央在专题调研中直面这道沉疴。
 
 ## 相关推荐
 
-- 2026-06-30 01:01 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 00:52 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 00:52 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 01:00 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-30 01:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 00:53 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 00:51 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 01:07 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 01:00 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 00:54 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 01:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 01:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 00:49 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 00:48 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 01:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 01:10 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 01:09 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 01:00 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 00:53 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 01:13 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 00:58 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 01:14 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 01:08 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 00:58 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 00:56 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 00:49 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 00:48 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:46 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/96177046.shtml)
-- 2026-06-30 01:03 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/482582087.shtml)
-- 2026-06-30 01:04 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/79376494.shtml)
-- 2026-06-30 00:49 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/06403.shtml)
-- 2026-06-30 01:02 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/133220439.shtml)
-- 2026-06-30 01:00 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/721481613.shtml)
-- 2026-06-30 00:50 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/15922184.shtml)
-- 2026-06-30 01:07 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/640845.shtml)
-- 2026-06-30 00:42 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/933282742436.shtml)
-- 2026-06-30 00:52 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/014857601.shtml)
-- 2026-06-30 01:00 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/1049522739.shtml)
-- 2026-06-30 00:51 - [千与千寻](http://www.share.minike.top/Article/details/70652174508.shtml)
-- 2026-06-30 01:09 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/866972.shtml)
-- 2026-06-30 00:47 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/2124172774.shtml)
-- 2026-06-30 01:02 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/422010590.shtml)
+- 2026-06-30 00:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/5507208.shtml)
+- 2026-06-30 00:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/314902478543.shtml)
+- 2026-06-30 01:14 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/24488647.shtml)
+- 2026-06-30 00:49 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/43924619.shtml)
+- 2026-06-30 01:08 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/85748588.shtml)
+- 2026-06-30 01:11 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/90603.shtml)
+- 2026-06-30 01:14 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/02968457.shtml)
+- 2026-06-30 01:07 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/201230796201.shtml)
+- 2026-06-30 01:10 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/47318756.shtml)
+- 2026-06-30 00:49 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/19725.shtml)
+- 2026-06-30 01:12 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/69320687394.shtml)
+- 2026-06-30 00:49 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/6433286829.shtml)
+- 2026-06-30 01:15 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/091621.shtml)
+- 2026-06-30 01:12 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/45335455.shtml)
+- 2026-06-30 01:13 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/251759.shtml)

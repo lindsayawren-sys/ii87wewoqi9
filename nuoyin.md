@@ -1,49 +1,58 @@
-# 2026年IBSA世界盲人门球锦标赛在浙江杭州开赛
+# 宁夏重点人群家庭医生签约率达90.9%
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 12:21 来源：中国新闻网 近日，2026年IBSA世界盲人门球锦标赛在浙江杭州开赛，来自亚洲、欧洲、美洲、非洲等多个国家和地区的顶尖选手，组成男女32支国际队伍进行为期6天的对抗。中国队男子组在首日小组赛中以10比4战胜阿尔及利亚男子组。(王刚） 责任编辑：【苏亦瑜】
+中新网银川5月19日电 (记者 杨迪)2026年5月19日是第16个“世界家庭医生日”。记者在当天举办的2026年宁夏“世界家庭医生日”主题活动上获悉，宁夏已组建2473支家庭医生团队，常住人口签约率、重点人群签约率分别达到74.4%、90.9%，位居全国前列。本次活动由宁夏卫生健康委主办，固原市卫生健康委承办，原州区卫生健康局协办。现场正式发布《宁夏基本公共卫生服务蓝皮书》，
 
 ## 正文
 
-发布时间：2026年06月11日 12:21 来源：中国新闻网 近日，2026年IBSA世界盲人门球锦标赛在浙江杭州开赛，来自亚洲、欧洲、美洲、非洲等多个国家和地区的顶尖选手，组成男女32支国际队伍进行为期6天的对抗。
+中新网银川5月19日电 (记者 杨迪)2026年5月19日是第16个“世界家庭医生日”。
 
-中国队男子组在首日小组赛中以10比4战胜阿尔及利亚男子组。
+记者在当天举办的2026年宁夏“世界家庭医生日”主题活动上获悉，宁夏已组建2473支家庭医生团队，常住人口签约率、重点人群签约率分别达到74.4%、90.9%，位居全国前列。
 
-(王刚） 责任编辑：【苏亦瑜】
+本次活动由宁夏卫生健康委主办，固原市卫生健康委承办，原州区卫生健康局协办。
+
+现场正式发布《宁夏基本公共卫生服务蓝皮书》，全面展现宁夏基本公共卫生服务与家庭医生签约工作成效。
+
+活动指出，近年来宁夏家庭医生签约服务从“广覆盖”向“高质量”转变。
+
+65岁及以上老年人健康管理率达79.6%，远超国家目标；智能辅助诊疗、远程影像心电诊断等智慧医疗广泛应用，“一键呼叫”“健康积分”“健康帮扶降支行动”等创新模式落地见效，基层服务能力持续提升，2025年宁夏基层卫生健康发展综合评价位列全国第九。
+
+活动现场设置家庭医生签约、免费义诊、中医药体验、健康科普、应急救护实操等多个区域，为群众提供血压血糖监测、中医适宜技术体验、现场签约建档、心肺复苏与海姆立克急救技能教学等服务，通过政策宣讲、互动问答、文艺表演等形式，让群众在家门口享受便捷健康服务。
+
+下一步，宁夏相关部门将持续优化家庭医生签约服务十项感受度措施，保障慢病用药可及、转诊畅通；推动优质医疗资源下沉基层，强化人工智能与信息化赋能，拓展中医药、家庭病床、康复护理等特色服务；健全多部门协同机制，聚焦老年人、慢性病患者、孕产妇、儿童等重点人群，做实做细全周期健康管理，不断提升群众满意度。
 
 ## 相关推荐
 
-- 2026-06-30 00:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 00:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 00:51 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 01:07 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 01:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 00:44 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 00:50 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 00:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 00:49 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 00:42 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 00:53 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 00:54 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 00:54 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 01:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 00:48 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 00:59 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 01:05 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 01:14 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 01:15 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 00:56 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 01:16 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 00:51 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 01:16 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 01:08 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 01:06 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/74677.shtml)
-- 2026-06-30 00:56 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/5783242541.shtml)
-- 2026-06-30 01:00 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/034835482.shtml)
-- 2026-06-30 01:00 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/25671.shtml)
-- 2026-06-30 01:05 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/88458522.shtml)
-- 2026-06-30 00:56 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/50465.shtml)
-- 2026-06-30 00:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/78673.shtml)
-- 2026-06-30 00:48 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/052755139.shtml)
-- 2026-06-30 00:46 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/0347919.shtml)
-- 2026-06-30 01:09 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/55858516.shtml)
-- 2026-06-30 01:07 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/69233.shtml)
-- 2026-06-30 00:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/135851.shtml)
-- 2026-06-30 00:54 - [美股](http://www.blog.minike.top/Article/details/526458.shtml)
-- 2026-06-30 01:09 - [沉睡花园](http://www.blog.minike.top/Article/details/0409695.shtml)
-- 2026-06-30 01:00 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/413757.shtml)
+- 2026-06-30 00:50 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/12152452.shtml)
+- 2026-06-30 01:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/24386021.shtml)
+- 2026-06-30 00:51 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/370482313625.shtml)
+- 2026-06-30 00:54 - [沉睡花园](http://www.blog.minike.top/Article/details/25701180.shtml)
+- 2026-06-30 00:49 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/015179.shtml)
+- 2026-06-30 01:14 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/77559.shtml)
+- 2026-06-30 00:54 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/490129228112.shtml)
+- 2026-06-30 00:55 - [美人鱼](https://www.share.minike.top/Article/details/0284684756.shtml)
+- 2026-06-30 01:12 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/49052086.shtml)
+- 2026-06-30 01:10 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/8865000.shtml)
+- 2026-06-30 01:10 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/85005.shtml)
+- 2026-06-30 00:54 - [沙丘](https://www.blog.kurohicncr.top/Article/details/09133321585.shtml)
+- 2026-06-30 00:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/18174978.shtml)
+- 2026-06-30 00:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/466864043757.shtml)
+- 2026-06-30 01:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/34334102492.shtml)

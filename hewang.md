@@ -1,60 +1,58 @@
-# 美国连续三个月成为全球最大原油出口国
+# 美债利率上破关键位 美股盛宴能持续多久？
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-美国已成为全球最大的石油出口国，颠覆了沙特阿拉伯和俄罗斯长期主导的格局。随着美伊冲突重塑全球能源贸易，这一转变进一步巩固了美国公司对能源市场的控制。 美国跃居榜首，对于一个曾依赖中东石油数十年，并于1973年遭受部分欧佩克成员国为报复其支持以色列而实施的石油禁运的国家而言，无疑是一次惊人的逆转。 2010年后，美国的命运开始转变。当时，美国页岩油气产量飙升，使其先是成为世界最大
+最近几天，美国通胀报告连续刺激美国国债利率上扬。上周五（5月15日），美国股票市场的上涨势头止住了。就目前通胀态势看，投资者普遍认为，今年美联储减息的希望越来越渺茫。收盘时，道琼斯30种工业股票平均指数、标准普尔500指数、纳斯达克指数分别收于49402.3、7396.4、26225.15点，即下跌1.07%、1.40%、1.54%。 其他市场，美国十年期国债收益率收于4.59
 
 ## 正文
 
-美国已成为全球最大的石油出口国，颠覆了沙特阿拉伯和俄罗斯长期主导的格局。
+最近几天，美国通胀报告连续刺激美国国债利率上扬。
 
-随着美伊冲突重塑全球能源贸易，这一转变进一步巩固了美国公司对能源市场的控制。
+上周五（5月15日），美国股票市场的上涨势头止住了。
 
-美国跃居榜首，对于一个曾依赖中东石油数十年，并于1973年遭受部分欧佩克成员国为报复其支持以色列而实施的石油禁运的国家而言，无疑是一次惊人的逆转。
+就目前通胀态势看，投资者普遍认为，今年美联储减息的希望越来越渺茫。
 
-2010年后，美国的命运开始转变。
+收盘时，道琼斯30种工业股票平均指数、标准普尔500指数、纳斯达克指数分别收于49402.3、7396.4、26225.15点，即下跌1.07%、1.40%、1.54%。
 
-当时，美国页岩油气产量飙升，使其先是成为世界最大的天然气生产国，随后又成为最大的石油生产国。
+其他市场，美国十年期国债收益率收于4.595%（为2025年2月12日以来的最高收盘价），涨3.05%；WTI 6月原油合约收于105.42美元/桶，涨4.20%；现货黄金收于4540.07美元/盎司，跌2.41%；美元指数以99.21报收，涨0.49%；比特币现货收于79090.5美元，跌2.44%。
 
-自2026年2月以来，美伊冲突扰乱了沙特的石油出口，而俄罗斯的石油出口也因乌克兰无人机袭击和美国的制裁而受到影响。
+中东问题悬而未决，油价涨势推高通胀 美国劳工部12日发布的数据显示，4月美国消费者价格指数（CPI）同比上涨3.8%，为2023年6月以来的最高水平。
 
-在此背景下，美国已成为世界最大的石油出口国。
+扣除食品和能源价格后，美国4月核心CPI同比上涨2.8%，为6个月来的最高水平。
 
-船舶追踪服务公司Vortexa的数据显示，受高产量和战略储备释放的推动，美国5月份原油和燃料出口量攀升至约1050万桶/日，连续第三个月成为全球最大的出口国。
+数据显示，能源价格同比上涨了17.9%，对能源价格变化最敏感的交通服务上涨了4.3%，而其他商品和服务的价格涨幅相对温和。
 
 ## 相关推荐
 
-- 2026-06-30 00:55 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 00:52 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 01:00 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 00:44 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 00:46 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 00:53 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 00:43 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 01:01 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 00:43 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 01:06 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 00:59 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 00:56 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 01:07 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 00:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 00:49 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 00:53 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 01:17 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 01:13 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 01:16 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 01:01 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 00:48 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 01:09 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 00:59 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 00:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 01:05 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 00:59 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/59064043364.shtml)
-- 2026-06-30 00:45 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/45015738982.shtml)
-- 2026-06-30 00:52 - [巴西vs日本](http://www.blog.minike.top/Article/details/627713.shtml)
-- 2026-06-30 00:47 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/11894.shtml)
-- 2026-06-30 00:48 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/86702414.shtml)
-- 2026-06-30 00:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/226103607.shtml)
-- 2026-06-30 00:54 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/542115.shtml)
-- 2026-06-30 01:10 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/7095534.shtml)
-- 2026-06-30 01:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/20010252.shtml)
-- 2026-06-30 00:58 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/9803840956.shtml)
-- 2026-06-30 01:07 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/088811.shtml)
-- 2026-06-30 01:04 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/4989859986.shtml)
-- 2026-06-30 00:43 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/97700124993.shtml)
-- 2026-06-30 01:08 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/969423.shtml)
-- 2026-06-30 00:44 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/147811.shtml)
+- 2026-06-30 01:06 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/39128.shtml)
+- 2026-06-30 01:09 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/29145.shtml)
+- 2026-06-30 00:57 - [月亮](https://www.share.minike.top/Article/details/53232550198.shtml)
+- 2026-06-30 01:02 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/088016362.shtml)
+- 2026-06-30 01:13 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/51997700.shtml)
+- 2026-06-30 01:07 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/4978087632.shtml)
+- 2026-06-30 01:00 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/22024.shtml)
+- 2026-06-30 01:04 - [美股](https://www.share.minike.top/Article/details/501579618.shtml)
+- 2026-06-30 01:05 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/904806694.shtml)
+- 2026-06-30 01:15 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/763684724372.shtml)
+- 2026-06-30 00:59 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/54584150090.shtml)
+- 2026-06-30 01:03 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/311989795.shtml)
+- 2026-06-30 00:51 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/8843139.shtml)
+- 2026-06-30 01:07 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/85127516892.shtml)
+- 2026-06-30 00:51 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/9840299.shtml)

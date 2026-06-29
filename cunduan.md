@@ -1,59 +1,57 @@
-# （青春华章·丝路逐光）三十载深耕丝路寒旱区 为陇原良田纾困“解渴”
+# 武汉新芯终止IPO：以前是长江存储子公司无实际控制人独立性被问询！本来拟募资 48 亿！分红了 5 亿！
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-中新网甘肃张掖6月11日电 (戴文昌)从黄河上游连片的湿地草地，到河西走廊广袤的制种良田；从教书育人的三尺讲台，到扎根田间地头的科研一线，河西学院校长李广，在西部丝路寒旱农业研究与生态修复领域默默耕耘三十载。三十年来，他聚焦西北旱区发展难点，用科创成果为陇原良田纾困“解渴”。 1995年，李广从兰州大学毕业。彼时，在多数毕业生选择奔赴东部发达地区发展的浪潮中，他毅然放弃外地就业
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际投行研究报告 武汉新芯终止IPO：以前是长江存储子公司无实际控制人独立性被问询！本来拟募资 48 亿！利润率很低 虽然分红了 5 亿！ 1 、武汉新芯 2024 年 9 月 30 日申报科创板IPO，10 月 30 日就获得了上交所问询，不过到 2025 年 4 月 25 日才回复了问询，半年才搞
 
 ## 正文
 
-中新网甘肃张掖6月11日电 (戴文昌)从黄河上游连片的湿地草地，到河西走廊广袤的制种良田；从教书育人的三尺讲台，到扎根田间地头的科研一线，河西学院校长李广，在西部丝路寒旱农业研究与生态修复领域默默耕耘三十载。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-三十年来，他聚焦西北旱区发展难点，用科创成果为陇原良田纾困“解渴”。
+来源：国际投行研究报告 武汉新芯终止IPO：以前是长江存储子公司无实际控制人独立性被问询！
 
-1995年，李广从兰州大学毕业。
+本来拟募资 48 亿！
 
-彼时，在多数毕业生选择奔赴东部发达地区发展的浪潮中，他毅然放弃外地就业机会，扎根甘肃、深耕乡土。
+利润率很低 虽然分红了 5 亿！
 
-毕业后，他入职甘肃农业大学，自此便与西部农业科研和高等教育事业结下不解之缘。
+1 、武汉新芯 2024 年 9 月 30 日申报科创板IPO，10 月 30 日就获得了上交所问询，不过到 2025 年 4 月 25 日才回复了问询，半年才搞定一个回复，可能是保荐人国泰海通自己也在整合吧。
 
-从业三十年来，李广惜时笃行，课余深耕实验室、奔走田间地头，摸排西部寒旱农业发展痛点，攻坚生态修复技术难题，凭借扎实作风快速成长，逐步成为教授、博士生导师，成长为甘肃省内水土资源研究领域学科带头人，先后获评国务院政府特殊津贴专家、甘肃省拔尖领军人才等多项荣誉。
+不过刚刚上交所网站显示，终止了！
 
-育人路上，李广秉持“立人先立德、树人先树品”理念，坚持教研相长、知行合一，主讲多门农林核心课程，主编11部全国农林院校规划教材，打造精品课堂。
+2 、公司本来是长江存储的子公司，对武汉新芯（NOR Flash 厂商）IPO 审核中，关于‘独立性和关联交易’的问询回复与质疑，核心聚焦在它与控股股东长江存储之间的同业竞争风险，是科创板 IPO 中典型的 “分拆上市独立性拷问”。
 
-在人才培养中，他打破科研闭门造车的局限，鼓励学生走出实验室、扎根乡土实践，着力培育知农爱农、实干有为的青年人才。
+事实上，2016-2023 年，武汉新芯是长江存储的全资子公司；2023 年 4 月至今，二者同为长存集团控股子公司。
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 00:49 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 00:57 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 00:56 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 01:00 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 01:07 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 01:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 00:47 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 01:04 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 01:02 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 00:47 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 00:44 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 00:56 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 00:53 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 00:56 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 00:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 01:10 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 01:11 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 01:17 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 00:49 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 01:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 01:02 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 01:12 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 01:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:00 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/6988838.shtml)
-- 2026-06-30 01:08 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/7511638517.shtml)
-- 2026-06-30 00:56 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/843282697675.shtml)
-- 2026-06-30 01:00 - [存储三巨头被告了](https://www.share.minike.top/Article/details/7261144.shtml)
-- 2026-06-30 01:05 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/53057467579.shtml)
-- 2026-06-30 01:07 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/4661758.shtml)
-- 2026-06-30 01:06 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/5698906519.shtml)
-- 2026-06-30 01:08 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/16911.shtml)
-- 2026-06-30 00:53 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/028187.shtml)
-- 2026-06-30 01:02 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/687466508.shtml)
-- 2026-06-30 01:00 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/15034490865.shtml)
-- 2026-06-30 01:11 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/686702338852.shtml)
-- 2026-06-30 01:07 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/84722823771.shtml)
-- 2026-06-30 01:04 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/22312.shtml)
-- 2026-06-30 00:54 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/45061154.shtml)
+- 2026-06-30 01:15 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/058169108.shtml)
+- 2026-06-30 00:56 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/87006.shtml)
+- 2026-06-30 01:16 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/41405431357.shtml)
+- 2026-06-30 01:08 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/2693573948.shtml)
+- 2026-06-30 01:01 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/77612830632.shtml)
+- 2026-06-30 01:02 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/745926682.shtml)
+- 2026-06-30 01:03 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/3717173986.shtml)
+- 2026-06-30 01:06 - [我们的少年时代2](https://www.blog.minike.top/Article/details/7244472.shtml)
+- 2026-06-30 01:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/40410962.shtml)
+- 2026-06-30 00:48 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/326953.shtml)
+- 2026-06-30 00:52 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/60483338476.shtml)
+- 2026-06-30 01:12 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/7706677488.shtml)
+- 2026-06-30 00:59 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/66087503.shtml)
+- 2026-06-30 00:59 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/520745659.shtml)
+- 2026-06-30 00:58 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/2846055.shtml)

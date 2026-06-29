@@ -1,59 +1,61 @@
-# 6月12日起，内地居民携带符合条件的犬猫赴澳门免于隔离检疫
+# 博腾股份海外扩产遇黑天鹅：4.3亿索赔压顶，合规性瑕疵暴露多重风险
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-中新网6月12日电 据“海关发布”微信公众号消息，为深入落实树立和践行正确政绩观学习教育要求，回应内地居民携带宠物赴澳门便利化期盼，海关总署持续深化内地与澳门宠物检疫监管合作，就内地携带宠物犬猫赴澳门检疫要求同澳方达成一致。自6月12日起，内地居民携带符合条件的犬、猫进入澳门，免除30天隔离检疫要求，携带宠物赴澳旅行更加便利。一、政策核心利好 1.免隔离：符合条件犬猫抵达澳门后
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、海外基地“合规性瑕疵”引爆合作危机，诺华单方面解约 博腾股份的全球化战略正遭遇严重打击。近日，公司公告称，其位于斯洛文尼亚的CDMO基地项目突发重大变故，合作方诺华单方面提出解约，并保留约5470万欧元（约合人民币4.3亿元）的服务费及损失赔偿金索赔权。 此次冲突的核心，源于B30生产车间前期报批手续存在合规性问题。正是这一
 
 ## 正文
 
-中新网6月12日电 据“海关发布”微信公众号消息，为深入落实树立和践行正确政绩观学习教育要求，回应内地居民携带宠物赴澳门便利化期盼，海关总署持续深化内地与澳门宠物检疫监管合作，就内地携带宠物犬猫赴澳门检疫要求同澳方达成一致。
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、海外基地“合规性瑕疵”引爆合作危机，诺华单方面解约 博腾股份的全球化战略正遭遇严重打击。
 
-自6月12日起，内地居民携带符合条件的犬、猫进入澳门，免除30天隔离检疫要求，携带宠物赴澳旅行更加便利。
+近日，公司公告称，其位于斯洛文尼亚的CDMO基地项目突发重大变故，合作方诺华单方面提出解约，并保留约5470万欧元（约合人民币4.3亿元）的服务费及损失赔偿金索赔权。
 
-一、政策核心利好 1.免隔离：符合条件犬猫抵达澳门后，经澳门市政署兽医现场检疫合格，无需30天隔离检疫。
+此次冲突的核心，源于B30生产车间前期报批手续存在合规性问题。
 
-2.更便捷：前置检疫+现场查验模式，替代集中隔离，通关流程更高效。
+正是这一合规性瑕疵引发的连锁反应，导致双方矛盾激化。
 
-二、内地宠物赴澳门免隔离的基本条件 经与澳门市政署确认，目前，内地宠物赴澳门免隔离检疫的基本条件为： 1.仅限犬、猫，宠物身体健康，无疫病临床症状； 2.植入符合ISO11784/11785标准的电子芯片； 3.在赴澳前不少于30天及不多于1年内接种狂犬病疫苗，持有有效免疫证明； 4.在首次接种狂犬病疫苗30天后，赴澳前3个月至1年内采血并在澳方采信实验室(请拨打澳门市民服务热线853-28337676咨询)开展抗体滴度检测，检测结果不低于0.5IU/ml，并取得检测报告； 5.随附内地海关签发的有效动物卫生证书。
+尽管公司已与诺华沟通，但目前仍存在重大争议和分歧，最终诺华选择终止合作，并要求PSI在90天内搬离园区、交还场地。
 
-三、申请办理内地海关动物卫生证书的流程 1.在线申请。
+值得关注的是，博腾股份此前从未在公告中披露与诺华存在任何矛盾，也未明确说明该合规问题暴露的具体时间与细节。
 
-通过“互联网+海关”(https://online.customs.gov.cn)公共服务—携带出境宠物模块申请办理；或通过中国国际贸易“单一窗口”(https://www.singlewindow.cn)业务应用—口岸执法申报—检验检疫—携带出境宠物模块申请办理，填写携带人信息、宠物信息、狂犬病免疫信息、抗体检测信息等。
+这种信息披露的“滞后”与“模糊”，本身就可能引发投资者对公司治理透明度的质疑。
 
-2.预约海关现场检查。
+二、潜在损失超4亿元，资产减值与合同履约风险叠加 此次事件对博腾股份的财务冲击不容小觑。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 00:50 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 01:02 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 00:51 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 00:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 00:42 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 01:10 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 00:51 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 00:50 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 00:45 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 01:08 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 01:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 01:08 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 01:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 01:00 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 01:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 01:07 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 01:15 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 01:14 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 01:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 00:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 01:14 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 00:51 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 01:04 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 01:06 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 00:52 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 00:48 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 00:48 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/113621495984.shtml)
-- 2026-06-30 01:04 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/611765124128.shtml)
-- 2026-06-30 00:52 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/83686951754.shtml)
-- 2026-06-30 00:56 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/28826.shtml)
-- 2026-06-30 01:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/8588899.shtml)
-- 2026-06-30 00:55 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/4259836.shtml)
-- 2026-06-30 00:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/0850066.shtml)
-- 2026-06-30 00:55 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/020234803.shtml)
-- 2026-06-30 01:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/9984575770.shtml)
-- 2026-06-30 01:09 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/4287591100.shtml)
-- 2026-06-30 00:42 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/37061840870.shtml)
-- 2026-06-30 00:55 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/83659.shtml)
-- 2026-06-30 01:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/910482895.shtml)
-- 2026-06-30 01:04 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/02628.shtml)
-- 2026-06-30 00:51 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/28977777.shtml)
+- 2026-06-30 00:52 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/7776568.shtml)
+- 2026-06-30 01:11 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/329254110.shtml)
+- 2026-06-30 01:15 - [千香](https://www.share.kurohicncr.top/Article/details/5036908.shtml)
+- 2026-06-30 01:12 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/86308.shtml)
+- 2026-06-30 00:54 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/8941015.shtml)
+- 2026-06-30 00:59 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/4890631886.shtml)
+- 2026-06-30 01:04 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/08488027647.shtml)
+- 2026-06-30 00:50 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/70037.shtml)
+- 2026-06-30 01:01 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/8692079.shtml)
+- 2026-06-30 01:15 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/015098.shtml)
+- 2026-06-30 01:02 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/13301628841.shtml)
+- 2026-06-30 01:13 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/523149.shtml)
+- 2026-06-30 01:10 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/25243.shtml)
+- 2026-06-30 01:17 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/62283363.shtml)
+- 2026-06-30 01:08 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/62425692.shtml)

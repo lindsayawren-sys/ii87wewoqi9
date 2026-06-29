@@ -1,60 +1,59 @@
-# 张军扩：服务业发展正迎来三大历史机遇叠加的重要窗口期
+# 涨停、易主、监管函：金海高科背后的游戏资本棋局
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月11日电(记者 查志远) 近年来，国内旅游市场持续恢复增长，出行方式和消费场景也在不断拓展。中国发展研究基金会理事长、国务院发展研究中心原副主任张军扩11日在神州租车2026战略升级暨“车生活”新生态发布会上表示，服务消费正在成为消费扩容升级的重要方向，交通出行、文化旅游、城市服务、能源补给等场景之间的联动越来越紧密。张军扩指出，当前我国服务业发展正迎来三大历史机
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月19日晚间，空气过滤材料龙头金海高科披露股票交易异常波动公告：其股票于5月18日、5月19日连续两个交易日内收盘价格涨幅偏离值累计达到20%以上。消息面上，这家拥有31年历史的公司，在创始人二代接班刚满一年之际，便传来了拟易主游戏圈大佬的消息。根据此前公告，金海高科控股股东汇投控股及其一致行动人诸暨三三计划以20.79元/股
 
 ## 正文
 
-中新网北京6月11日电(记者 查志远) 近年来，国内旅游市场持续恢复增长，出行方式和消费场景也在不断拓展。
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月19日晚间，空气过滤材料龙头金海高科披露股票交易异常波动公告：其股票于5月18日、5月19日连续两个交易日内收盘价格涨幅偏离值累计达到20%以上。
 
-中国发展研究基金会理事长、国务院发展研究中心原副主任张军扩11日在神州租车2026战略升级暨“车生活”新生态发布会上表示，服务消费正在成为消费扩容升级的重要方向，交通出行、文化旅游、城市服务、能源补给等场景之间的联动越来越紧密。
+消息面上，这家拥有31年历史的公司，在创始人二代接班刚满一年之际，便传来了拟易主游戏圈大佬的消息。
 
-张军扩指出，当前我国服务业发展正迎来三大历史机遇叠加的重要窗口期。
+根据此前公告，金海高科控股股东汇投控股及其一致行动人诸暨三三计划以20.79元/股的对价，将所持合计29.60%的股份转让给自然人金丹良及其一致行动人陈永聪，总交易对价约14.52亿元。
 
-一是发展阶段升级带来的市场需求红利，居民出行需求向多元化、品质化延伸，推动汽车服务从单一出行供给向全场景生活服务拓展。
+交易完成后，公司实际控制人将由创始人丁氏家族变更为游戏圈资深大佬金丹良。
 
-二是技术变革催生产业新机遇，数字智能、新能源、自动驾驶等技术深度赋能，重构服务模式、创新应用场景，为打造一体化智慧“车生活”生态提供强劲动能。
+公司股票将于5月18日开市起复牌。
 
-三是国家战略与政策的大力支持和保驾护航，服务业扩能提质、新型消费、绿色低碳等扶持政策持续落地，营造了稳定有利的发展环境。
+消息一出，金海高科股价应声涨停。
 
-文化和旅游部数据显示，2025年国内居民出游人次达65.22亿，同比增长16.2%；国内居民出游花费6.30万亿元，同比增长9.5%。
+5月18日复牌后，公司股价迅速封板，收盘报25.41元/股。
 
-旅游消费规模的扩大，带动交通出行、目的地服务、休闲消费等环节加速联动。
+5月19日，金海高科继续高开，收盘再度涨停，报27.95元/股，总市值升至65.93亿元。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 01:00 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 00:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 00:54 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 00:49 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 01:10 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 01:10 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 00:51 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 01:03 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 00:57 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 00:43 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 01:04 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 01:09 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 01:11 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 01:04 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 00:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 00:56 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 01:14 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 01:03 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 01:08 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 01:16 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 01:11 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 01:13 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 01:06 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 01:17 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 00:51 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 00:59 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:49 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/31397553449.shtml)
-- 2026-06-30 01:10 - [金刚川](https://www.share.minike.top/Article/details/246318.shtml)
-- 2026-06-30 00:54 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/53049.shtml)
-- 2026-06-30 00:49 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/42586675.shtml)
-- 2026-06-30 00:44 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/23027.shtml)
-- 2026-06-30 01:09 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/197212.shtml)
-- 2026-06-30 01:09 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/2916767.shtml)
-- 2026-06-30 00:49 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/69986114.shtml)
-- 2026-06-30 01:07 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/8969834.shtml)
-- 2026-06-30 00:55 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/352881.shtml)
-- 2026-06-30 00:58 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/9584021171.shtml)
-- 2026-06-30 01:03 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/036456.shtml)
-- 2026-06-30 01:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/7258815114.shtml)
-- 2026-06-30 00:49 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/57019867376.shtml)
-- 2026-06-30 00:42 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/11892521704.shtml)
+- 2026-06-30 01:12 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/31074.shtml)
+- 2026-06-30 01:07 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/148169813.shtml)
+- 2026-06-30 01:11 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/0520838.shtml)
+- 2026-06-30 01:00 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/30932.shtml)
+- 2026-06-30 01:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/38596978038.shtml)
+- 2026-06-30 01:04 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/58842589.shtml)
+- 2026-06-30 00:51 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/27214.shtml)
+- 2026-06-30 01:10 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/121008.shtml)
+- 2026-06-30 00:54 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/7926516.shtml)
+- 2026-06-30 00:53 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/1794962764.shtml)
+- 2026-06-30 01:03 - [85花告别古偶](https://www.share.minike.top/Article/details/3226872.shtml)
+- 2026-06-30 00:53 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/143745825.shtml)
+- 2026-06-30 01:08 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/19113.shtml)
+- 2026-06-30 01:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/043312.shtml)
+- 2026-06-30 01:02 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/40082.shtml)

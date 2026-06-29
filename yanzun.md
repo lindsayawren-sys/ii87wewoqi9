@@ -1,48 +1,57 @@
-# 贵州茅台董事长陈华：价格不能出现大起大落 大家不传谣、不信谣
+# A股“股王”激战！近1个月来频繁易主
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-人民财讯6月11日电，6月11日下午，贵州茅台（600519）2025年度股东会在茅台会议中心召开，来自全国千余名茅台股东、机构投资者与分析师齐聚茅台镇。针对茅台酒价格问题，茅台集团董事长陈华表示，将随行就市，相对平稳，价格不能出现大起大落，供需适配、量价平衡。目前，茅台酒价格调整社会高度关注，公司对此高度保密，网上流传有各种信息，大家不传谣、不信谣。责任编辑：刘万里 SF01
+21世纪经济报道记者 刘夏菲 5月18日，A股“股王”再易主。截至当日收盘，联讯仪器（688808.SH）涨近15%，报1344.99元/股，登顶A股“股王”。 值得注意的是，联讯仪器在4月24日登陆科创板，上市仅仅14个交易日。该股发行价为81.88元/股，上市首日以799元/股收盘，涨幅高达875.83%。上市第5个交易日（4月30日），联讯仪器即跻身“千元股”之列。 国泰
 
 ## 正文
 
-人民财讯6月11日电，6月11日下午，贵州茅台（600519）2025年度股东会在茅台会议中心召开，来自全国千余名茅台股东、机构投资者与分析师齐聚茅台镇。
+21世纪经济报道记者 刘夏菲 5月18日，A股“股王”再易主。
 
-针对茅台酒价格问题，茅台集团董事长陈华表示，将随行就市，相对平稳，价格不能出现大起大落，供需适配、量价平衡。
+截至当日收盘，联讯仪器（688808.SH）涨近15%，报1344.99元/股，登顶A股“股王”。
 
-目前，茅台酒价格调整社会高度关注，公司对此高度保密，网上流传有各种信息，大家不传谣、不信谣。
+值得注意的是，联讯仪器在4月24日登陆科创板，上市仅仅14个交易日。
 
-责任编辑：刘万里 SF014
+该股发行价为81.88元/股，上市首日以799元/股收盘，涨幅高达875.83%。
+
+上市第5个交易日（4月30日），联讯仪器即跻身“千元股”之列。
+
+国泰海通证券计算机首席分析师杨林团队认为，联讯仪器是国内高端光通信及半导体测试仪器龙头，业绩处于高速增长期；但需注意光通信需求不及预期、竞争加剧影响利润等风险。
+
+事实上，自4月17日以来，A股“股王”已多次易主。
+
+4月17日，光芯片龙头源杰科技（688498.SH）以1445元/股的收盘价首次超越贵州茅台（600519.SH）登顶，此后便与贵州茅台展开了多轮拉锯。
 
 ## 相关推荐
 
-- 2026-06-30 00:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 00:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 01:07 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 00:55 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 01:09 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 00:42 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 01:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 00:43 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 00:57 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 01:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 01:15 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 01:02 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 01:06 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 01:02 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 01:09 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 01:06 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 01:03 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 00:50 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 01:13 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 01:04 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 01:17 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:47 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/6577605840.shtml)
-- 2026-06-30 01:08 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/033140.shtml)
-- 2026-06-30 00:45 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/8279657.shtml)
-- 2026-06-30 01:00 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/0735893527.shtml)
-- 2026-06-30 01:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/36905167.shtml)
-- 2026-06-30 00:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/532263895.shtml)
-- 2026-06-30 01:01 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/546973196.shtml)
-- 2026-06-30 00:52 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/950354351.shtml)
-- 2026-06-30 01:00 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/4100903.shtml)
-- 2026-06-30 00:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/5287177.shtml)
-- 2026-06-30 01:09 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/28555989.shtml)
-- 2026-06-30 00:43 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/916815.shtml)
-- 2026-06-30 00:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/487124.shtml)
-- 2026-06-30 01:04 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/2485937.shtml)
-- 2026-06-30 00:51 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/773783926.shtml)
+- 2026-06-30 01:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/987021346.shtml)
+- 2026-06-30 00:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/05920171.shtml)
+- 2026-06-30 00:48 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/75304613.shtml)
+- 2026-06-30 01:02 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/96170415.shtml)
+- 2026-06-30 00:59 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/9250379.shtml)
+- 2026-06-30 01:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/27621305335.shtml)
+- 2026-06-30 00:59 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/1180513.shtml)
+- 2026-06-30 01:15 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/15100.shtml)
+- 2026-06-30 01:07 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/2450652803.shtml)
+- 2026-06-30 00:57 - [送你一朵小红花](https://www.share.minike.top/Article/details/18710990.shtml)
+- 2026-06-30 01:10 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/919536729.shtml)
+- 2026-06-30 01:02 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/29546.shtml)
+- 2026-06-30 01:07 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/564592273.shtml)
+- 2026-06-30 00:57 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/9496819996.shtml)
+- 2026-06-30 01:06 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/31578.shtml)

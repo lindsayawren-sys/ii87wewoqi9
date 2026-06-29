@@ -1,61 +1,59 @@
-# 飞越世界杯赛场，高德扫街榜上线“看球飞行街景”与31城看球好店榜
+# 又一艘万亿“券商航母”加速驶来！中金、东兴、信达“三合一”草案出炉，券商整合再掀热潮→
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-世界杯开赛在即，6月11日，阿里巴巴集团旗下高德全新上线“扫街榜看球指南”。赛事期间，广大球迷无需再四处打探观赛场地，打开高德地图搜索“扫街榜看球指南”，就能直接看到31个城市、近500家球迷“用脚投票”选出来的看球好店。 同步上线的还有“看球飞行街景”——基于高德自研空间智能技术，球迷不仅能在空中俯瞰本届世界杯的16座比赛场馆，也能在出门前“先逛一圈”国内看球好店再决定去哪。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金融投资报 随着券商整合持续加速，证券行业格局正迎来深刻变革。 5月18日晚间，中金公司（601995）发布《换股吸收合并东兴证券股份有限公司、信达证券股份有限公司报告书（草案）》，显示其与东兴证券（601198）、信达证券（601059）换股吸收合并的万亿级“券商航母”已渐行渐近。 据中金公司公告
 
 ## 正文
 
-世界杯开赛在即，6月11日，阿里巴巴集团旗下高德全新上线“扫街榜看球指南”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-赛事期间，广大球迷无需再四处打探观赛场地，打开高德地图搜索“扫街榜看球指南”，就能直接看到31个城市、近500家球迷“用脚投票”选出来的看球好店。
+来源：金融投资报 随着券商整合持续加速，证券行业格局正迎来深刻变革。
 
-同步上线的还有“看球飞行街景”——基于高德自研空间智能技术，球迷不仅能在空中俯瞰本届世界杯的16座比赛场馆，也能在出门前“先逛一圈”国内看球好店再决定去哪。
+5月18日晚间，中金公司（601995）发布《换股吸收合并东兴证券股份有限公司、信达证券股份有限公司报告书（草案）》，显示其与东兴证券（601198）、信达证券（601059）换股吸收合并的万亿级“券商航母”已渐行渐近。
 
-看球去哪？
+据中金公司公告 换股比例与价格出炉 根据公告，中金公司为本次交易的吸并方，而东兴证券、信达证券为本次交易的被吸并方。
 
-一份“用脚投票”的城市看球地榜 热衷聚会看球的球迷，以往只能靠朋友推荐或社媒筛选，现在，高德扫街榜给出的答案更实在：看本地球迷自己最爱去的看球氛围好店是哪几家。
+具体来看，中金公司将向东兴证券全体A股换股股东发行中金公司A股股票、向信达证券全体A股换股股东发行中金公司A股股票，并且拟发行的A股股票将申请在上交所上市流通，东兴证券、信达证券的A股股票相应予以注销，东兴证券、信达证券亦将终止上市。
 
-入选看球榜的商家有三条标准：一是过去一年真实导航到店里程数排名靠前；二是夜间营业时间在凌晨2点及以后；三是店里有看球屏幕。
+自本次吸收合并交割日起，中金公司将承继及承接东兴证券、信达证券的全部资产、负债、业务、人员、合同、资质及其他一切权利与义务。
 
-这份榜单覆盖全国31个主要城市近500个看球好店，从北京的精酿酒吧到大连的海鲜排档，从成都的火锅串串到深圳的海景餐吧，每个城市都各具特色。
+于交割日后，中金公司将办理注册资本等相关的工商变更登记手续，东兴证券、信达证券将注销法人资格。
 
-杭州市上城区的黄龙海鲜大排档(庆春店)在当地榜单中名列前茅。
+相关公告同时公布了本次交易的换股比例与换股价格。
 
 ## 相关推荐
 
-- 2026-06-30 00:42 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 01:08 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 01:02 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 00:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 01:04 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 01:01 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 00:43 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 00:43 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 00:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 00:52 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 00:46 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 00:59 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 00:46 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 01:01 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 00:54 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 01:17 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 01:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 01:03 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 01:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 01:15 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 01:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 01:17 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 00:51 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 01:07 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 01:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 01:17 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 01:06 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 01:17 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/43625403499.shtml)
-- 2026-06-30 00:58 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/80600.shtml)
-- 2026-06-30 01:03 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/318950.shtml)
-- 2026-06-30 01:10 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/57684987.shtml)
-- 2026-06-30 01:02 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/710085.shtml)
-- 2026-06-30 00:52 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/677596497242.shtml)
-- 2026-06-30 00:45 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/691326.shtml)
-- 2026-06-30 01:10 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/8313018234.shtml)
-- 2026-06-30 01:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/111651.shtml)
-- 2026-06-30 01:10 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/526801008.shtml)
-- 2026-06-30 00:59 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/502061.shtml)
-- 2026-06-30 01:11 - [一见倾心](https://www.share.minike.top/Article/details/7891341280.shtml)
-- 2026-06-30 01:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/185002870049.shtml)
-- 2026-06-30 01:06 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/5244197527.shtml)
-- 2026-06-30 01:07 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/66750996938.shtml)
+- 2026-06-30 00:51 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/359322739.shtml)
+- 2026-06-30 00:54 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/657370621583.shtml)
+- 2026-06-30 01:03 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/472464.shtml)
+- 2026-06-30 01:07 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/6930714136.shtml)
+- 2026-06-30 00:58 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/062967884.shtml)
+- 2026-06-30 00:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/842322880781.shtml)
+- 2026-06-30 00:57 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/1635270.shtml)
+- 2026-06-30 01:02 - [小娘惹](https://www.blog.minike.top/Article/details/5209511.shtml)
+- 2026-06-30 01:15 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/812083818799.shtml)
+- 2026-06-30 01:14 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/800550.shtml)
+- 2026-06-30 00:52 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/78790622052.shtml)
+- 2026-06-30 01:12 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/005256224417.shtml)
+- 2026-06-30 00:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/3966719.shtml)
+- 2026-06-30 01:07 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/164594127535.shtml)
+- 2026-06-30 01:02 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/491420.shtml)

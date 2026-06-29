@@ -1,59 +1,44 @@
-# 山西晋城：千畴涌金开镰忙 又是一年好“丰”景
+# 5月LPR报价出炉：1年期和5年期以上利率均维持不变
 
-> 更新时间：2026-06-30 01:12:03 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-中新网晋城6月12日电 题：山西晋城：千畴涌金开镰忙 又是一年好“丰”景 作者 杨佩佩 李亚琴 近日，在山西省晋城市阳城县北留镇南庄村的麦田里，随着一声清脆的“开镰”指令响起，三台履带式联合收割机轰鸣作业，将饱满金黄的麦粒源源不断输送至运粮车中，2026年晋城市小麦机收会战正式拉开帷幕。 据悉，2026年晋城市小麦种植面积达64万亩。受去年秋汛天气影响，辖区小麦整体播种时间延后
+中新网5月20日电 据央行网站消息，中国人民银行授权全国银行间同业拆借中心公布，2026年5月20日贷款市场报价利率(LPR)为：1年期LPR为3.0%，5年期以上LPR为3.5%，均与上月持平。以上LPR在下一次发布LPR之前有效。
 
 ## 正文
 
-中新网晋城6月12日电 题：山西晋城：千畴涌金开镰忙 又是一年好“丰”景 作者 杨佩佩 李亚琴 近日，在山西省晋城市阳城县北留镇南庄村的麦田里，随着一声清脆的“开镰”指令响起，三台履带式联合收割机轰鸣作业，将饱满金黄的麦粒源源不断输送至运粮车中，2026年晋城市小麦机收会战正式拉开帷幕。
+中新网5月20日电 据央行网站消息，中国人民银行授权全国银行间同业拆借中心公布，2026年5月20日贷款市场报价利率(LPR)为：1年期LPR为3.0%，5年期以上LPR为3.5%，均与上月持平。
 
-据悉，2026年晋城市小麦种植面积达64万亩。
-
-受去年秋汛天气影响，辖区小麦整体播种时间延后近一个月，给苗期生长带来不利影响。
-
-为最大限度降低晚播带来的减产风险，全市各级农业农村部门精准施策、科学应对，全面落实“以墒补晚、以种补晚、以密补晚、以肥补晚、以好补晚”的专项技术方案。
-
-“去年小麦虽然播种偏晚，但我们通过合理加大种植密度，搭配全程精细化田间管护，叠加今年气候适宜、雨水充沛的有利条件，小麦整体长势远超预期。
-
-”晋城市农业农村局农技专家郭伟介绍，往年本地小麦平均亩产约550斤，今年经过科学管护，亩产显著高于历年，夏粮丰产丰收底气十足。
-
-伴随着阵阵机器轰鸣，田间收割作业有序推进，沃达丰综合农事服务中心的“98后”新农人张颖在田间地头，用镜头定格下这珍贵的丰收瞬间。
-
-张颖常年扎根田间一线，习惯用镜头记录农事生产、见证乡村丰收。
+以上LPR在下一次发布LPR之前有效。
 
 ## 相关推荐
 
-- 2026-06-30 01:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 00:58 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 00:43 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 01:12 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 00:46 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 01:02 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 01:03 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 01:07 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 00:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 01:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 00:55 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 01:08 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 00:56 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 01:09 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 00:58 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 00:58 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 01:06 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 01:13 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 00:56 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 01:12 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 01:09 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 01:08 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 01:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/25491982.shtml)
-- 2026-06-30 01:02 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/36357058709.shtml)
-- 2026-06-30 01:00 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/57149.shtml)
-- 2026-06-30 00:56 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/65679414612.shtml)
-- 2026-06-30 00:53 - [这一刀 会很帅](https://www.share.minike.top/Article/details/5230707.shtml)
-- 2026-06-30 00:55 - [金牌调解](http://www.blog.minike.top/Article/details/780161363082.shtml)
-- 2026-06-30 00:54 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/59058428.shtml)
-- 2026-06-30 01:08 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/048989.shtml)
-- 2026-06-30 01:10 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/62762.shtml)
-- 2026-06-30 00:59 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/42591590.shtml)
-- 2026-06-30 00:51 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/99511.shtml)
-- 2026-06-30 00:45 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/4189119355.shtml)
-- 2026-06-30 00:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/58501366135.shtml)
-- 2026-06-30 01:10 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/6055904.shtml)
-- 2026-06-30 00:58 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/607576023.shtml)
+- 2026-06-30 00:57 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/119932526012.shtml)
+- 2026-06-30 01:05 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/9217880620.shtml)
+- 2026-06-30 01:01 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/66165183032.shtml)
+- 2026-06-30 00:54 - [周生如故](http://www.share.minike.top/Article/details/54132170741.shtml)
+- 2026-06-30 00:53 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/2732742131.shtml)
+- 2026-06-30 01:12 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/40410205.shtml)
+- 2026-06-30 00:59 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/4749046.shtml)
+- 2026-06-30 00:52 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/87035.shtml)
+- 2026-06-30 00:49 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/6655259009.shtml)
+- 2026-06-30 01:11 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/01272.shtml)
+- 2026-06-30 01:09 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/76388286255.shtml)
+- 2026-06-30 00:55 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/76474.shtml)
+- 2026-06-30 01:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/7721613.shtml)
+- 2026-06-30 00:52 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/797204.shtml)
+- 2026-06-30 01:12 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/402878423.shtml)

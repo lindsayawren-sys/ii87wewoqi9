@@ -1,59 +1,48 @@
-# 国际油价仍低于100美元的十大原因
+# 第一拖拉机股份拟1979.25万元收购黑龙江北大荒垦征农机装备39%股权
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 伊朗战争爆发逾百日，史上规模最大的石油供应冲击未能将国际油价推上每桶100美元。 据Javier Blas分析，无论金融市场还是实物市场，油价走势均弱于绝大多数人的预期——远期价差、实物溢价、运费乃至炼厂利润均呈回落。战前，霍尔木兹海峡日均通过原油及成品油约2000万桶，占全球需求约五分之一。4月间，多家对冲基金和华尔街银行曾预测油价将冲上每桶200美元，而实
+第一拖拉机股份（00038）发布公告，公司已获悉成功中标销售股权，最终竞投价格为人民币1979.25万元。于2026年5月18日，公司与智能研究院公司订立股权转让协议，据此，智能研究院公司已同意出售而公司已同意按最终竞投价格购买目标公司黑龙江北大荒垦征农机装备有限公司的39%股权。 此次股权投资有助于深化公司与北大荒农垦集团有限公司合作关系，回应国家“建设大型大马力高端智慧农机
 
 ## 正文
 
-来源：华尔街见闻 伊朗战争爆发逾百日，史上规模最大的石油供应冲击未能将国际油价推上每桶100美元。
+第一拖拉机股份（00038）发布公告，公司已获悉成功中标销售股权，最终竞投价格为人民币1979.25万元。
 
-据Javier Blas分析，无论金融市场还是实物市场，油价走势均弱于绝大多数人的预期——远期价差、实物溢价、运费乃至炼厂利润均呈回落。
+于2026年5月18日，公司与智能研究院公司订立股权转让协议，据此，智能研究院公司已同意出售而公司已同意按最终竞投价格购买目标公司黑龙江北大荒垦征农机装备有限公司的39%股权。
 
-战前，霍尔木兹海峡日均通过原油及成品油约2000万桶，占全球需求约五分之一。
+此次股权投资有助于深化公司与北大荒农垦集团有限公司合作关系，回应国家“建设大型大马力高端智慧农机装备研发制造推广应用先导区”政策，依托北大荒农垦集团有限公司高端智慧农机装备的规模化应用场景，持续优化核心技术性能，加速推进公司高端产品的研发、制造、推广、应用，更好地服务及保障国家粮食安全。
 
-4月间，多家对冲基金和华尔街银行曾预测油价将冲上每桶200美元，而实际走势与之相去甚远。
-
-Javier Blas认为，以下十大力量的叠加，是解释这一现象的核心。
-
-其中部分因素具有结构性特征——如炼厂灵活性提升和期权市场扩容——将持续压制油价反弹；而战略储备动用和商业库存消耗则属于阶段性支撑，终将耗尽。
-
-然而，风险不可低估。
-
-美伊停火协议依然脆弱，双方近日仍在互相攻击。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 01:08 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 01:01 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 00:42 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 00:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 00:47 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 00:46 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 00:48 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 00:47 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 00:50 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 00:45 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 00:49 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 00:44 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 01:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 00:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 01:02 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 01:07 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 01:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 01:04 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 00:49 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 01:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 01:08 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 01:09 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:45 - [刘念回应](http://www.share.minike.top/Article/details/71091277033.shtml)
-- 2026-06-30 01:01 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/57012.shtml)
-- 2026-06-30 00:46 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/751829701.shtml)
-- 2026-06-30 00:50 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/30146550166.shtml)
-- 2026-06-30 00:51 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/204246555.shtml)
-- 2026-06-30 00:44 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/298739.shtml)
-- 2026-06-30 00:49 - [毒液2](http://www.share.kurohicncr.top/Article/details/8247314043.shtml)
-- 2026-06-30 01:00 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/849727.shtml)
-- 2026-06-30 00:50 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/463355.shtml)
-- 2026-06-30 00:47 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/43417307005.shtml)
-- 2026-06-30 00:56 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/650774050160.shtml)
-- 2026-06-30 01:02 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/3824086953.shtml)
-- 2026-06-30 00:58 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/3944911.shtml)
-- 2026-06-30 01:02 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/795532.shtml)
-- 2026-06-30 01:05 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/9988175.shtml)
+- 2026-06-30 01:01 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/53024286921.shtml)
+- 2026-06-30 01:01 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/229582357433.shtml)
+- 2026-06-30 00:48 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/10727.shtml)
+- 2026-06-30 01:09 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/1825513.shtml)
+- 2026-06-30 01:00 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/352550.shtml)
+- 2026-06-30 00:58 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/78129251194.shtml)
+- 2026-06-30 01:12 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/74456320.shtml)
+- 2026-06-30 00:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/44316.shtml)
+- 2026-06-30 01:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/067164177.shtml)
+- 2026-06-30 01:07 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/46458397242.shtml)
+- 2026-06-30 00:48 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/4058406381.shtml)
+- 2026-06-30 00:54 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/5263408.shtml)
+- 2026-06-30 01:04 - [女心理师](http://www.blog.minike.top/Article/details/567493672777.shtml)
+- 2026-06-30 01:06 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/036378214934.shtml)
+- 2026-06-30 01:00 - [刘念回应](http://www.share.kurohicncr.top/Article/details/567941949.shtml)

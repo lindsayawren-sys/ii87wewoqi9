@@ -1,58 +1,60 @@
-# 超市几块钱一盒的鸭血，到底能不能放心吃呢？
+# 追觅俞浩：曾经考虑过不上清华，直接创业
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-鸭血是我们餐桌上非常常见的一种食物，火锅中必点的鸭血、鸭血粉丝汤、毛血旺……鸭血那如丝绸般顺滑、入口即化的美妙触感总能瞬间抓住人们的味蕾，更别提它还含有丰富的铁，一直备受人们的喜爱。 然而，当我们在超市看到那一盒盒仅售几块钱的鸭血时，在享受美味之余，心中难免会犯起嘀咕：这么便宜，能是真的吗？鸭血是营养丰富的食品，还是工业化的“科技”产品？ 今天，我们就把关于鸭血的几个常见疑问彻
+做企业不是开故事会，发展才能解释问题，发展才能解决问题 文|《中国企业家》记者 李艳艳 见习编辑|李原编辑|何伊凡 头图摄影|邓攀 在成为世界首富之前，追觅科技创始人俞浩先打破了一项世界纪录：社交媒体上最活跃的CEO。从5月6日到5月12日，一周之内，他发了409条抖音、376条视频号、291条小红书、393条微博，平均每天12条朋友圈。 这还不包括追觅员工、高管发布的内容，他
 
 ## 正文
 
-鸭血是我们餐桌上非常常见的一种食物，火锅中必点的鸭血、鸭血粉丝汤、毛血旺……鸭血那如丝绸般顺滑、入口即化的美妙触感总能瞬间抓住人们的味蕾，更别提它还含有丰富的铁，一直备受人们的喜爱。
+做企业不是开故事会，发展才能解释问题，发展才能解决问题 文|《中国企业家》记者 李艳艳 见习编辑|李原编辑|何伊凡 头图摄影|邓攀 在成为世界首富之前，追觅科技创始人俞浩先打破了一项世界纪录：社交媒体上最活跃的CEO。
 
-然而，当我们在超市看到那一盒盒仅售几块钱的鸭血时，在享受美味之余，心中难免会犯起嘀咕：这么便宜，能是真的吗？
+从5月6日到5月12日，一周之内，他发了409条抖音、376条视频号、291条小红书、393条微博，平均每天12条朋友圈。
 
-鸭血是营养丰富的食品，还是工业化的“科技”产品？
+这还不包括追觅员工、高管发布的内容，他要求所有员工开通所有社交媒体的账号，每天至少发3条视频。
 
-今天，我们就把关于鸭血的几个常见疑问彻底讲清楚。
+视频中的俞浩，情绪起伏极大，几乎每句话都用叹号收尾。
 
-鸭血是怎么做的？
+有时快意恩仇：“夸我们的人，都长得比较帅！
 
-见过杀鸭的都知道，血液是液体状的。
+骂我们的人，都长得比较丑！
 
-那我们吃的鸭血是怎么做的呢？
+”有时咬牙切齿：“反正谁都不要随便招惹老子！
 
-其实就是新鲜鸭血加入盐后凝固的产物。
+我有仇必报！
 
 ## 相关推荐
 
-- 2026-06-30 01:03 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 01:09 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 00:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 00:51 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 00:52 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 01:09 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 00:44 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:01 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 00:44 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 01:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 00:50 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 00:44 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 00:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 00:58 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 01:15 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 01:08 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 01:10 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 01:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 00:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 01:03 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 00:55 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 00:55 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 00:52 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 00:54 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 01:13 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 01:00 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:51 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/92763.shtml)
-- 2026-06-30 01:11 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/184684440.shtml)
-- 2026-06-30 00:59 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/660918.shtml)
-- 2026-06-30 01:05 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/990163.shtml)
-- 2026-06-30 00:48 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/440999.shtml)
-- 2026-06-30 00:52 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/74147238736.shtml)
-- 2026-06-30 01:11 - [斗破苍穹](http://www.blog.minike.top/Article/details/34748232.shtml)
-- 2026-06-30 00:51 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/477213.shtml)
-- 2026-06-30 00:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/503388817917.shtml)
-- 2026-06-30 01:09 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/805154.shtml)
-- 2026-06-30 01:00 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/7686642875.shtml)
-- 2026-06-30 01:02 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/04988706337.shtml)
-- 2026-06-30 00:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/63158163459.shtml)
-- 2026-06-30 01:09 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/262128.shtml)
-- 2026-06-30 01:06 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/7492275.shtml)
+- 2026-06-30 01:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/176528490.shtml)
+- 2026-06-30 00:54 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/067711015.shtml)
+- 2026-06-30 00:55 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/34506511.shtml)
+- 2026-06-30 00:59 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/97264967.shtml)
+- 2026-06-30 01:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/5658659214.shtml)
+- 2026-06-30 00:49 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/462231977.shtml)
+- 2026-06-30 01:07 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/207598.shtml)
+- 2026-06-30 01:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/01694.shtml)
+- 2026-06-30 01:13 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/4781698.shtml)
+- 2026-06-30 01:09 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/48026.shtml)
+- 2026-06-30 01:00 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/449703.shtml)
+- 2026-06-30 01:03 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/14108553251.shtml)
+- 2026-06-30 00:49 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/09415.shtml)
+- 2026-06-30 00:55 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/953198638.shtml)
+- 2026-06-30 00:50 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/211091.shtml)

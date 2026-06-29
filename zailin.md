@@ -1,56 +1,61 @@
-# 启明创投胡旭波：医疗创新处于目前市场估值体系底部
+# 甘肃民勤以节水“减法”撬动大漠农业“加法”
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。启明创投主管合伙人胡旭波表示，目前AI是一个最大的投资主题，不管是创业者还是LP，大量的注意力都流向AI，这是好事情，我个人也认为AI对未来十年投资而言是很重要的因素。 他介绍，启明创投在医疗创新领域的三大核心布局方向。首先是创新药赛道，“早在五年前我们就提出中国
+中新网兰州5月19日电 (马爱彬)5月中旬，甘肃省武威市民勤县泉山镇新西村千亩蜜瓜种植基地满目生机。田间地膜齐整铺覆，滴灌管网纵横贯通、布设有序。基地全域推行全周期河水滴灌技术，科学统筹调配水资源，有效破解旱区种植发展瓶颈，盘活沙区土地潜力。 “推行河水滴灌种植模式后，田间节水成效十分明显，相较传统大水漫灌，用水量缩减超三分之二。”泉山镇新西村党支部副书记赵平善近日介绍说，该村
 
 ## 正文
 
-专题：2026投资界SuperLink大会 2026投资界SuperLink大会于6月10日-6月11日在苏州举行。
+中新网兰州5月19日电 (马爱彬)5月中旬，甘肃省武威市民勤县泉山镇新西村千亩蜜瓜种植基地满目生机。
 
-启明创投主管合伙人胡旭波表示，目前AI是一个最大的投资主题，不管是创业者还是LP，大量的注意力都流向AI，这是好事情，我个人也认为AI对未来十年投资而言是很重要的因素。
+田间地膜齐整铺覆，滴灌管网纵横贯通、布设有序。
 
-他介绍，启明创投在医疗创新领域的三大核心布局方向。
+基地全域推行全周期河水滴灌技术，科学统筹调配水资源，有效破解旱区种植发展瓶颈，盘活沙区土地潜力。
 
-首先是创新药赛道，“早在五年前我们就提出中国的创新药具备全球价值，那个时候中国的创新药全球BD刚刚起步，我们希望能推动创新药向着全球化方向发展。
+“推行河水滴灌种植模式后，田间节水成效十分明显，相较传统大水漫灌，用水量缩减超三分之二。
 
-” 其次为创新医疗器械赛道，他长期看好国产器械的全球竞争力：“我们一直认为中国的创新医疗器械在创新力和制造方面是有系统性优势的，我们一直在其中培养、支持一些创新医疗器械企业走向全球，也取得了不少成效。
+”泉山镇新西村党支部副书记赵平善近日介绍说，该村在普及全周期河水滴灌标准化种植、持续扩大技术应用范围的同时，依托建成投用的“双源互济”智能泵池，稳步优化灌溉水源结构。
 
-” 第三为AI+医疗融合赛道，也是机构重点发力方向。
+借助智能水利监测、精准调控等配套设施，统筹调配各类水资源，持续提升水资源集约节约利用效能，稳步减轻农业生产对地下水源的依赖程度。
 
-“我们相信AI在医疗创新产业里面扮演着非常重要的角色。
+全周期河水滴灌技术不仅助力蜜瓜产业提质增收，更全面赋能当地茴香特色产业稳健发展。
 
-” 他表示，“以目前的市场估值体系来看，我认为医疗创新处于底部。
+走进民勤县东湖镇东润村河水膜下滴灌茴香示范基地，万亩茴香正值生长旺期。
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 00:43 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 00:53 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 00:46 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 00:44 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 01:08 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 00:55 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 00:59 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 01:04 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 01:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 00:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 01:04 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 00:49 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 01:14 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 01:09 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 01:00 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 00:59 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 00:51 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 00:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 01:06 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 00:49 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 00:56 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 01:07 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 01:07 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 01:11 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:46 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/16741.shtml)
-- 2026-06-30 00:59 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/82794.shtml)
-- 2026-06-30 00:42 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/000802211016.shtml)
-- 2026-06-30 00:52 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/594397.shtml)
-- 2026-06-30 01:11 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/3444701.shtml)
-- 2026-06-30 00:51 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/76968639.shtml)
-- 2026-06-30 01:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/218053707.shtml)
-- 2026-06-30 00:52 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/965630391.shtml)
-- 2026-06-30 01:09 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/8653878732.shtml)
-- 2026-06-30 01:03 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/776025184280.shtml)
-- 2026-06-30 01:10 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/533177.shtml)
-- 2026-06-30 00:44 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/241793.shtml)
-- 2026-06-30 00:53 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/57528746.shtml)
-- 2026-06-30 01:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/31020873378.shtml)
-- 2026-06-30 00:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/830870400.shtml)
+- 2026-06-30 00:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/5448283615.shtml)
+- 2026-06-30 01:12 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/755766915.shtml)
+- 2026-06-30 01:17 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/50249528.shtml)
+- 2026-06-30 01:09 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/950698083.shtml)
+- 2026-06-30 01:13 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/34391331934.shtml)
+- 2026-06-30 01:01 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/960235442076.shtml)
+- 2026-06-30 01:15 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/4745134.shtml)
+- 2026-06-30 01:10 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/0839431.shtml)
+- 2026-06-30 01:11 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/61217.shtml)
+- 2026-06-30 01:02 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/63647.shtml)
+- 2026-06-30 01:12 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/57135.shtml)
+- 2026-06-30 00:57 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/548754.shtml)
+- 2026-06-30 01:00 - [巴西vs日本](https://www.blog.minike.top/Article/details/7914297.shtml)
+- 2026-06-30 01:08 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/315893.shtml)
+- 2026-06-30 00:51 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/24962775655.shtml)

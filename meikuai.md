@@ -1,55 +1,56 @@
-# M4Markets:库存回落难改油价僵持
+# Elliott大举建仓Bio-Rad 推动其股价跳涨盘前飙升13%
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-6月11日，美国原油与汽油库存同步回落后，该平台表示供应端收紧信号已经进一步增强，但油价的即时反应仍偏克制，显示市场对需求与宏观环境仍有保留。 从数据细节看，该机构认为原油库存降幅明显高于预期，而汽油库存也继续下降，这说明成品油去库仍在推进，不过资金并未据此大幅追高能源资产。 如果后续库存继续走低，能源板块的基本面支撑会逐步累积；但在需求预期尚未显著改善前，价格更可能以震荡方式
+生命科学与临床诊断设备供应商Bio-Rad Laboratories股价在周一盘前交易中跳涨13%。此前媒体报道称，激进投资者Elliott Investment Management已在该公司建立了大量头寸。 报道未披露Elliott的具体持股规模及其对公司的详细改革计划。这家管理约800亿美元资产的对冲基金据称将推动Bio-Rad管理层提振持续疲软的股价。 估值洼地效应凸显
 
 ## 正文
 
-6月11日，美国原油与汽油库存同步回落后，该平台表示供应端收紧信号已经进一步增强，但油价的即时反应仍偏克制，显示市场对需求与宏观环境仍有保留。
+生命科学与临床诊断设备供应商Bio-Rad Laboratories股价在周一盘前交易中跳涨13%。
 
-从数据细节看，该机构认为原油库存降幅明显高于预期，而汽油库存也继续下降，这说明成品油去库仍在推进，不过资金并未据此大幅追高能源资产。
+此前媒体报道称，激进投资者Elliott Investment Management已在该公司建立了大量头寸。
 
-如果后续库存继续走低，能源板块的基本面支撑会逐步累积；但在需求预期尚未显著改善前，价格更可能以震荡方式消化这些利多。
+报道未披露Elliott的具体持股规模及其对公司的详细改革计划。
 
-放到接下来一周看，该平台预计交易员会重点关注库存趋势是否延续，以及需求端数据能否跟上，这将决定能源价格能否摆脱当前僵持格局。
+这家管理约800亿美元资产的对冲基金据称将推动Bio-Rad管理层提振持续疲软的股价。
 
-责任编辑：陈平
+估值洼地效应凸显 Bio-Rad股价自2021年底峰值已累计下跌逾70%，目前市值约67亿美元。
+
+引人注目的是，该公司持有德国生物制药设备供应商Sartorius的战略股权，价值约50亿美元，几乎相当于其自身市值。
+
+这也意味着市场对Bio-Rad核心业务的估值仅为约17亿美元，而其年营收超过20亿美元。
+
+Elliott据报同样在Sartorius持有大量头寸，认为后者是“具有强劲增长前景的高质量企业”。
 
 ## 相关推荐
 
-- 2026-06-30 00:59 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 00:55 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 00:53 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 00:53 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 00:59 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 00:48 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 00:47 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 00:53 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 00:52 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 01:11 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 01:00 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 01:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 00:52 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 01:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 00:55 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 01:07 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 01:10 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 01:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 00:59 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 01:16 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 01:04 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 00:50 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 00:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 01:13 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 01:10 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/510017058.shtml)
-- 2026-06-30 00:54 - [刘宇宁 好听](http://www.share.minike.top/Article/details/90130999.shtml)
-- 2026-06-30 00:48 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/7301375046.shtml)
-- 2026-06-30 01:04 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/760591637.shtml)
-- 2026-06-30 01:11 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/4044783.shtml)
-- 2026-06-30 00:45 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/99701.shtml)
-- 2026-06-30 00:50 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/4990621151.shtml)
-- 2026-06-30 00:55 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/579804884.shtml)
-- 2026-06-30 00:46 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/5789963132.shtml)
-- 2026-06-30 00:54 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/387321118587.shtml)
-- 2026-06-30 00:49 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/33429.shtml)
-- 2026-06-30 00:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/840011203594.shtml)
-- 2026-06-30 00:46 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/13457.shtml)
-- 2026-06-30 00:53 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/96292.shtml)
-- 2026-06-30 00:42 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/3435777062.shtml)
+- 2026-06-30 01:10 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/1590734310.shtml)
+- 2026-06-30 00:54 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/95116493452.shtml)
+- 2026-06-30 01:15 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/968086551114.shtml)
+- 2026-06-30 00:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/632968858395.shtml)
+- 2026-06-30 01:02 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/299796284.shtml)
+- 2026-06-30 01:17 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/71435603.shtml)
+- 2026-06-30 00:48 - [我们的少年时代2](https://www.blog.minike.top/Article/details/278896062810.shtml)
+- 2026-06-30 01:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/81225.shtml)
+- 2026-06-30 01:12 - [绘画区你赢了](https://www.share.minike.top/Article/details/7045743771.shtml)
+- 2026-06-30 00:54 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/84407585.shtml)
+- 2026-06-30 01:10 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/10577898.shtml)
+- 2026-06-30 01:15 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/9364012.shtml)
+- 2026-06-30 00:54 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/513232397.shtml)
+- 2026-06-30 01:05 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/478977.shtml)
+- 2026-06-30 01:05 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/61259437974.shtml)

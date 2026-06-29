@@ -1,56 +1,54 @@
-# 讽刺马斯克的充气人口惊现纽约时代广场，首富本人回应
+# 英国将允许进口使用俄罗斯石油提炼的柴油和航空煤油
 
-> 更新时间：2026-06-30 01:12:03 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-当地时间周四早上，纽约人醒来时发现，一个模仿全球首富马斯克形象的巨型充气人偶赫然出现在时代广场。就在一天后，由于SpaceX史上规模最大的IPO，马斯克势将成为全球首位万亿美元富翁。 这座赤裸上身、面带微笑的马斯克半身像连夜出现在时代广场，上面赫然印着对这位SpaceX创始人的尖锐指控。 这座半身像的腹部与后背纹着这样一行字：“SpaceX的 Grok人工智能制作儿童色情内容”
+英国将允许从印度和土耳其等国进口用俄罗斯原油提炼的柴油和航空煤油，从而实际上放松对俄罗斯的部分制裁。 周二晚些时候发布的通用许可将于周三生效，并未设定时间限制。该措施仅适用于这两种燃油，当前大量石油生产仍因伊朗战争而中断，其中柴油和航空煤油受到的冲击尤为严重。 该许可放松了今年早些时候生效的制裁措施，这些制裁旨在遏制俄罗斯从其石油和天然气行业获取资金的能力。 据Vortexa数
 
 ## 正文
 
-当地时间周四早上，纽约人醒来时发现，一个模仿全球首富马斯克形象的巨型充气人偶赫然出现在时代广场。
+英国将允许从印度和土耳其等国进口用俄罗斯原油提炼的柴油和航空煤油，从而实际上放松对俄罗斯的部分制裁。
 
-就在一天后，由于SpaceX史上规模最大的IPO，马斯克势将成为全球首位万亿美元富翁。
+周二晚些时候发布的通用许可将于周三生效，并未设定时间限制。
 
-这座赤裸上身、面带微笑的马斯克半身像连夜出现在时代广场，上面赫然印着对这位SpaceX创始人的尖锐指控。
+该措施仅适用于这两种燃油，当前大量石油生产仍因伊朗战争而中断，其中柴油和航空煤油受到的冲击尤为严重。
 
-这座半身像的腹部与后背纹着这样一行字：“SpaceX的 Grok人工智能制作儿童色情内容”。
+该许可放松了今年早些时候生效的制裁措施，这些制裁旨在遏制俄罗斯从其石油和天然气行业获取资金的能力。
 
-针对有关Grok生成色情内容的投诉，马斯克在1月份表示，“任何使用Grok制作非法内容的人都将承担与上传非法内容相同的后果。
+据Vortexa数据，自1月以来，英国没有从印度进口任何柴油或航空煤油。
 
-” SpaceX官方页面也表示，其政策“对任何形式的儿童性剥削都采取零容忍态度”。
-
-在SpaceX备受瞩目的IPO之前，该公司上个月提交的S-1文件中提到了Grok的“不适宜工作场所观看”（NSFW）功能。
-
-SpaceX警告潜在投资者，Grok的NSFW模式可能带来“更高的风险”和“声誉损害”，部分原因是它可能生成“未经同意或剥削性的图像”。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 00:44 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 00:43 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 00:58 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 00:52 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-30 00:58 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 01:07 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 01:09 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 00:54 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 01:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 01:11 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 01:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 00:56 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-30 00:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 00:55 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 01:16 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 01:00 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 00:49 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 01:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 01:09 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 01:05 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 01:12 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:02 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/592831.shtml)
-- 2026-06-30 00:48 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/44959.shtml)
-- 2026-06-30 01:00 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/39741.shtml)
-- 2026-06-30 01:07 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/637655.shtml)
-- 2026-06-30 01:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/34031.shtml)
-- 2026-06-30 00:45 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/20926.shtml)
-- 2026-06-30 01:11 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/0068611.shtml)
-- 2026-06-30 01:02 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/41167064.shtml)
-- 2026-06-30 01:06 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/4435661.shtml)
-- 2026-06-30 00:55 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/4682517.shtml)
-- 2026-06-30 00:56 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/4718255900.shtml)
-- 2026-06-30 00:51 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/782513.shtml)
-- 2026-06-30 00:45 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/0009212042.shtml)
-- 2026-06-30 00:48 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/183942388453.shtml)
-- 2026-06-30 00:51 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/83645436395.shtml)
+- 2026-06-30 01:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/883553493272.shtml)
+- 2026-06-30 01:04 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/252214.shtml)
+- 2026-06-30 00:51 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/9853376197.shtml)
+- 2026-06-30 01:08 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/270630.shtml)
+- 2026-06-30 01:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/754594456809.shtml)
+- 2026-06-30 01:11 - [扫黑风暴](http://www.blog.minike.top/Article/details/015753396463.shtml)
+- 2026-06-30 01:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/9126400.shtml)
+- 2026-06-30 01:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/64326195.shtml)
+- 2026-06-30 01:09 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/8523505286.shtml)
+- 2026-06-30 01:04 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/0391898386.shtml)
+- 2026-06-30 01:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/5399039.shtml)
+- 2026-06-30 01:11 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/819836.shtml)
+- 2026-06-30 00:49 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/533641008665.shtml)
+- 2026-06-30 01:07 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/91768.shtml)
+- 2026-06-30 01:08 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/65187025199.shtml)

@@ -1,55 +1,61 @@
-# 广州2026年文化和自然遗产日主场活动举行
+# 广州“花城有囍”集体婚礼传递婚俗新风
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-特朗普提名的下任国家情报总监是谁？新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，
+中新网广州5月19日电 (蔡敏婕 林丽玲)19日，在广州举行的集体婚礼仪式上，20对新人携手通过草坪花门通道，踏上了人生中珍贵的旅程。新人相对而立，轻轻揭开洁白的头纱，交换象征爱情的戒指。随后，他们手持红色誓言，在领誓人的带领下，共同许下对未来生活的美好期许和坚定承诺...... 由广州市民政局、白云区人民政府、广州市总工会联合主办的“2026年智联姻缘云享未来——广州市‘花城
 
 ## 正文
 
-特朗普提名的下任国家情报总监是谁？
+中新网广州5月19日电 (蔡敏婕 林丽玲)19日，在广州举行的集体婚礼仪式上，20对新人携手通过草坪花门通道，踏上了人生中珍贵的旅程。
 
-新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
+新人相对而立，轻轻揭开洁白的头纱，交换象征爱情的戒指。
 
-世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
+随后，他们手持红色誓言，在领誓人的带领下，共同许下对未来生活的美好期许和坚定承诺...... 由广州市民政局、白云区人民政府、广州市总工会联合主办的“2026年智联姻缘云享未来——广州市‘花城有囍’集体婚礼”当天在广州举行，近300名市民共同见证20对新人步入幸福殿堂的美好时刻。
 
-鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡“孤女遭亲舅舅阻止高考”系“剧本式”造谣“秦腔一枝梅”：秦腔不全是“吼”，还有委婉缠绵人工智能成为推动中国外贸增长新引擎销量前十再无燃油车 “油退电进”按下加速键中国元素将亮相美加墨世界杯秘鲁前总理：AI时代，何以守护人类基本人权？
+参加活动的叶先生和杨女士夫妇是广州市白云区“百万英才汇南粤”行动计划引进的高层次人才。
 
-岳云鹏：如果人生能多一个镜头，我想留给父亲东北超怎么没有海南呢？
+叶先生说：“广州是一个将浪漫、幸福和包容浸润在烟火气里的城市。
 
-西藏拉萨：运动会上的力量之美“AI医生”上高原 智能诊断系统守护基层官兵健康吉林村民遇东北虎捕食黄牛 危急时刻爬树避险成都一高校免费捞鱼900斤 祝愿毕业生“年年有余”蔡正元入狱2个月最新发声94%得票率！
+我们夫妇两人受邀来广州就业安家，在这山清水秀的地方举办婚礼，和众多新人一起在云溪花海中定格幸福，还有主办方赠送的定制婚书和幸福大礼包。
 
-樊振东当选德甲赛季最佳三峡水库腾出防洪库容 长江万州段水位降至150米南博会上挑战“见手青拿铁” 喝完会不会看见“小人人”河北农业大学毕业典礼上 学生轮番整活把校长“忙坏了”津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了北京：圆明园旁扇面湖荷花盛开 世界杯16座城市16种画风 世界最长高原冻土铁路特大桥稳定运行20年 多图直击2026美加墨世界杯开幕式 “洋景漂”父女的三宝村“陶”源生活 杭州：这里的花期已排满，四时各有专属“花 “中国洮砚之乡”采石人：身贴悬崖绝壁深入 广东揭阳：一纸情书 藏在这座低调古城的烟 分享 评论 顶部
+” 活动现场特设“甜蜜集市”，集市现场，家装家居、婚纱摄影、婚服定制、月子中心等各具特色的展位琳琅满目，吸引新人及市民驻足体验。
+
+一位参加婚庆集市的家装家居企业负责人表示：“新人新生活的开启，往往伴随着新家布置。
 
 ## 相关推荐
 
-- 2026-06-30 01:06 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 00:55 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 00:55 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 00:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 00:48 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 01:04 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 00:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 01:00 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 00:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 01:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 01:02 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 01:04 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 00:57 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 00:55 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 00:53 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 00:52 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 01:05 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 01:09 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 00:53 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 01:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 01:13 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 00:48 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 00:57 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 00:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 00:48 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 00:48 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/825727.shtml)
-- 2026-06-30 01:02 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/084915.shtml)
-- 2026-06-30 00:42 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/663629.shtml)
-- 2026-06-30 01:00 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/519383.shtml)
-- 2026-06-30 00:56 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/149375064092.shtml)
-- 2026-06-30 00:56 - [我们的少年时代2](http://www.blog.minike.top/Article/details/86021004.shtml)
-- 2026-06-30 01:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/175933.shtml)
-- 2026-06-30 00:54 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/401678415.shtml)
-- 2026-06-30 01:05 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/08107.shtml)
-- 2026-06-30 01:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/16677473030.shtml)
-- 2026-06-30 00:59 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/71571889.shtml)
-- 2026-06-30 00:44 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/6084660.shtml)
-- 2026-06-30 01:06 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/183629215.shtml)
-- 2026-06-30 00:59 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/382064551101.shtml)
-- 2026-06-30 01:11 - [请回答王牌2019](https://www.blog.minike.top/Article/details/383383.shtml)
+- 2026-06-30 00:52 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/4584134023.shtml)
+- 2026-06-30 00:58 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/3334271579.shtml)
+- 2026-06-30 00:59 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/47210.shtml)
+- 2026-06-30 01:12 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/173125636.shtml)
+- 2026-06-30 00:52 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/3897390.shtml)
+- 2026-06-30 01:14 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/5846950.shtml)
+- 2026-06-30 00:50 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/184643.shtml)
+- 2026-06-30 00:51 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/47671.shtml)
+- 2026-06-30 01:09 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/15156827733.shtml)
+- 2026-06-30 00:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/8697537566.shtml)
+- 2026-06-30 01:04 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/060817628851.shtml)
+- 2026-06-30 01:03 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/834138.shtml)
+- 2026-06-30 00:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/94779684.shtml)
+- 2026-06-30 00:55 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/40041839.shtml)
+- 2026-06-30 01:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/35724780696.shtml)

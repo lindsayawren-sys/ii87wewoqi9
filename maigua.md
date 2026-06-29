@@ -1,58 +1,56 @@
-# 第39届梅里斯“库木勒”节启幕 非遗作品贴上“原创身份证”
+# 微视频｜在文化遗存前 总书记驻足凝视
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月11日 21:15 来源：中国新闻网 黑龙江省齐齐哈尔市梅里斯达斡尔族区第39届“库木勒”节热力启幕。今年库木勒节以“中华民族一家亲、同心共筑中国梦。”为主题，紧扣“铸牢中华民族共同体意识”主线。各地的游客齐聚哈拉新村，与当地达斡尔族民众一起跳舞、祈福、逛市集、品尝“大片肉”、柳蒿芽汤等美食。“库木勒”在达斡尔语中意为“柳蒿芽”，库木勒节是达斡尔族同胞
+博物馆，方寸之间，一览千年。习近平总书记曾说，“我到地方考察，都会抽时间到博物馆走一走、看一看”。 在习近平总书记心中，博物馆是保护和传承人类文明的重要殿堂，是连接过去、现在、未来的桥梁。 一次次触摸历史，一次次寻访传统，习近平总书记目光深邃、思虑深远，高度重视博物馆在文化传承和历史教育中的重要作用，指出“要推动中华优秀传统文化创造性转化、创新性发展，以时代精神激活中华优秀传统
 
 ## 正文
 
-发布时间：2026年06月11日 21:15 来源：中国新闻网 黑龙江省齐齐哈尔市梅里斯达斡尔族区第39届“库木勒”节热力启幕。
+博物馆，方寸之间，一览千年。
 
-今年库木勒节以“中华民族一家亲、同心共筑中国梦。
+习近平总书记曾说，“我到地方考察，都会抽时间到博物馆走一走、看一看”。
 
-”为主题，紧扣“铸牢中华民族共同体意识”主线。
+在习近平总书记心中，博物馆是保护和传承人类文明的重要殿堂，是连接过去、现在、未来的桥梁。
 
-各地的游客齐聚哈拉新村，与当地达斡尔族民众一起跳舞、祈福、逛市集、品尝“大片肉”、柳蒿芽汤等美食。
+一次次触摸历史，一次次寻访传统，习近平总书记目光深邃、思虑深远，高度重视博物馆在文化传承和历史教育中的重要作用，指出“要推动中华优秀传统文化创造性转化、创新性发展，以时代精神激活中华优秀传统文化的生命力”。
 
-“库木勒”在达斡尔语中意为“柳蒿芽”，库木勒节是达斡尔族同胞心中最为珍视的盛大节日。
+泱泱中华，历史何其悠久，文明何其博大，这是我们的自信之基、力量之源。
 
-节会还将“版权保护”理念融入传统民俗中。
-
-刘锡菊 田德雨 齐齐哈尔报道 责任编辑：【刘湃】
+统筹：韩珅、王志斌 编导：张旻曦、方亚东 记者：尚昆仑、姜亮、吴鸿波、马晓冬 摄制：麻翛然、董敬 配音：王帅龙 海报：王彦凯 新华社音视频部制作
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 00:53 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 00:46 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 00:43 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 01:11 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 00:48 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 01:02 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 00:49 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 00:45 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 00:51 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 01:07 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 00:47 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 00:44 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 00:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 00:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 01:00 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 00:48 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 01:06 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 00:58 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 01:12 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 00:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 00:54 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 00:50 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 00:49 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 00:53 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 00:56 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 01:06 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 00:56 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:02 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/56451.shtml)
-- 2026-06-30 00:45 - [女心理师](http://www.share.minike.top/Article/details/15803.shtml)
-- 2026-06-30 00:46 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/638204.shtml)
-- 2026-06-30 00:55 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/3901389302.shtml)
-- 2026-06-30 00:44 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/20761870.shtml)
-- 2026-06-30 00:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/18486.shtml)
-- 2026-06-30 00:43 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/04554.shtml)
-- 2026-06-30 01:09 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/59938.shtml)
-- 2026-06-30 00:54 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/7191234.shtml)
-- 2026-06-30 00:50 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/51448145555.shtml)
-- 2026-06-30 01:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/68393424.shtml)
-- 2026-06-30 00:55 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/6986866040.shtml)
-- 2026-06-30 00:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/661981340735.shtml)
-- 2026-06-30 00:56 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/067410181.shtml)
-- 2026-06-30 00:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/1865377514.shtml)
+- 2026-06-30 01:09 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/246833300941.shtml)
+- 2026-06-30 01:00 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/26474553164.shtml)
+- 2026-06-30 01:09 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/342956578447.shtml)
+- 2026-06-30 00:54 - [世界杯](https://www.blog.kurohicncr.top/Article/details/4217507.shtml)
+- 2026-06-30 01:03 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/6876381766.shtml)
+- 2026-06-30 00:55 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/98121279.shtml)
+- 2026-06-30 01:11 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/120594.shtml)
+- 2026-06-30 00:58 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/93380444858.shtml)
+- 2026-06-30 01:01 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/910668898.shtml)
+- 2026-06-30 00:58 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/5564718255.shtml)
+- 2026-06-30 00:48 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/01149.shtml)
+- 2026-06-30 01:15 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/596034.shtml)
+- 2026-06-30 01:12 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/10792026151.shtml)
+- 2026-06-30 00:59 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/658716007278.shtml)
+- 2026-06-30 01:08 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/02884113.shtml)

@@ -1,60 +1,53 @@
-# Infosys参与CMMI人工智能成熟度框架制定，获里程碑式认可
+# 黑龙江绥化：寒地黑土育珍馐 产销直播点亮生态好物
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-印度IT服务巨头Infosys周四宣布，已成功完成并参与了CMMI研究院的人工智能成熟度框架及试点评估，成为全球首批完成该试点评估的组织之一。通过此次合作，Infosys为CMMI AIM框架的完善提供了企业级人工智能治理、负责任部署及成果驱动实践方面的深度视角。 CMMI AIM框架旨在帮助组织评估、对标和改进在实际企业及监管环境中人工智能的实施方式，将人工智能实践与治理同可
+发布时间：2026年05月18日 21:51 来源：中国新闻网 近日，在第三十五届哈洽会暨第十届中俄博览会现场。黑龙江绥化正式启动“黑土优品·绥化好物” 产销对接会，“绥化好物·生态珍馐”电商直播活动同步开启。线下展销、线上直播双向联动，将展会流量转化为销售增量。绥化地处世界三大寒地黑土核心区，水土丰沃、生态优良。当地深耕鲜食玉米、黑豆、农特加工食品等优势品类，集聚众多地理标志
 
 ## 正文
 
-印度IT服务巨头Infosys周四宣布，已成功完成并参与了CMMI研究院的人工智能成熟度框架及试点评估，成为全球首批完成该试点评估的组织之一。
+发布时间：2026年05月18日 21:51 来源：中国新闻网 近日，在第三十五届哈洽会暨第十届中俄博览会现场。
 
-通过此次合作，Infosys为CMMI AIM框架的完善提供了企业级人工智能治理、负责任部署及成果驱动实践方面的深度视角。
+黑龙江绥化正式启动“黑土优品·绥化好物” 产销对接会，“绥化好物·生态珍馐”电商直播活动同步开启。
 
-CMMI AIM框架旨在帮助组织评估、对标和改进在实际企业及监管环境中人工智能的实施方式，将人工智能实践与治理同可衡量、可扩展的成果相衔接。
+线下展销、线上直播双向联动，将展会流量转化为销售增量。
 
-此次试点评估覆盖了Infosys各服务线和全球交付中心中由人工智能辅助的软件开发、维护、测试及支持项目。
+绥化地处世界三大寒地黑土核心区，水土丰沃、生态优良。
 
-评估考察了人工智能在整个软件工程生命周期中的嵌入程度，重点关注生产力、质量、治理和负责任的人工智能实践。
+当地深耕鲜食玉米、黑豆、农特加工食品等优势品类，集聚众多地理标志产品、绿色有机食品，持续做强“黑土优品”“生态珍馐”特色品牌。
 
-作为试点的一部分，Infosys与CMMI研究院及毕马威密切合作，验证了人工智能成熟度如何在大型复杂组织中保持一致的评估标准。
-
-Infosys提供的实践实施洞察，强化了可供全球组织应用的、切实可行的企业级人工智能成熟度路径。
-
-这一合作帮助塑造了CMMI AIM模型的关键维度，包括绩效与业务成果的对齐、人工智能实践的一致性、风险与合规管理以及人工智能驱动决策的问责制，为全球企业确立了可供采纳的基准。
+(田德雨） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 00:52 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 00:42 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 00:44 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 00:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 01:06 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 00:45 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 00:57 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 00:59 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 00:58 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 00:57 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 01:02 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 00:54 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 00:50 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 01:10 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 01:17 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 00:52 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 00:55 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 01:04 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 00:57 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 00:57 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 01:08 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 01:07 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 01:10 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 01:15 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 00:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:57 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/079698759.shtml)
-- 2026-06-30 00:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/478134.shtml)
-- 2026-06-30 00:43 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/8005132536.shtml)
-- 2026-06-30 01:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/925354757510.shtml)
-- 2026-06-30 00:45 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/67773.shtml)
-- 2026-06-30 00:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/089610416.shtml)
-- 2026-06-30 01:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/40510.shtml)
-- 2026-06-30 01:08 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/59480062239.shtml)
-- 2026-06-30 00:49 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/4058777.shtml)
-- 2026-06-30 00:43 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/59031.shtml)
-- 2026-06-30 00:42 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/50232616143.shtml)
-- 2026-06-30 01:02 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/5936231.shtml)
-- 2026-06-30 00:50 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/4103905120.shtml)
-- 2026-06-30 01:02 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/6271639.shtml)
-- 2026-06-30 00:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/2641611.shtml)
+- 2026-06-30 01:04 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/19834329468.shtml)
+- 2026-06-30 01:02 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/47362.shtml)
+- 2026-06-30 00:48 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/68761264.shtml)
+- 2026-06-30 00:57 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/10063818.shtml)
+- 2026-06-30 01:11 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/4568002.shtml)
+- 2026-06-30 00:59 - [啊啊啊](http://www.share.minike.top/Article/details/6417054.shtml)
+- 2026-06-30 00:48 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/472982.shtml)
+- 2026-06-30 00:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/875494.shtml)
+- 2026-06-30 01:04 - [时光音乐会](https://www.share.minike.top/Article/details/303810289296.shtml)
+- 2026-06-30 01:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/68105.shtml)
+- 2026-06-30 01:16 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/776387.shtml)
+- 2026-06-30 01:15 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/4401877455.shtml)
+- 2026-06-30 01:00 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/999253858.shtml)
+- 2026-06-30 01:08 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/37610.shtml)
+- 2026-06-30 01:02 - [小娘惹](http://www.share.minike.top/Article/details/381013.shtml)

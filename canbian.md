@@ -1,60 +1,61 @@
-# 上海东昇聚变成立不足一年完成1亿美元A轮融资，工银资本、东方证券等集体押注 | 长三角资本局
+# 江西公开通报3起整治形式主义为基层减负典型问题
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 成立不足一年完成1亿美元融资，启明、工银资本、东方证券齐聚，核聚变重新站上一级市场牌桌。 6月8日，上海东昇聚变宣布完成1亿美元A轮融资，投资方名单里同时出现了启明创投、工银资本、达晨创投、东方证券、百度风投等机构。这也是今年以来国内核聚变领域披露金额较大的融资案例之一。 在过去几年一级市场的热门叙事里，AI、机器人和半导体几乎占据了大部分注意力，而核
+中新网5月19日电 据“廉洁江西”微信公众号消息，日前，江西省委整治形式主义为基层减负专项工作机制办公室会同江西省纪委办公厅对3起整治形式主义为基层减负典型问题进行通报。具体如下： 1.南昌市红谷滩区有的部门征求意见流于形式，过多过频、对象泛化，基层疲于应付。2025年，南昌市红谷滩区3个乡镇(街道)分别收到有关部门征求意见函369件、373件、393件，有的部门征求意见内容多
 
 ## 正文
 
-文|新浪财经上海站 十里 成立不足一年完成1亿美元融资，启明、工银资本、东方证券齐聚，核聚变重新站上一级市场牌桌。
+中新网5月19日电 据“廉洁江西”微信公众号消息，日前，江西省委整治形式主义为基层减负专项工作机制办公室会同江西省纪委办公厅对3起整治形式主义为基层减负典型问题进行通报。
 
-6月8日，上海东昇聚变宣布完成1亿美元A轮融资，投资方名单里同时出现了启明创投、工银资本、达晨创投、东方证券、百度风投等机构。
+具体如下： 1.南昌市红谷滩区有的部门征求意见流于形式，过多过频、对象泛化，基层疲于应付。
 
-这也是今年以来国内核聚变领域披露金额较大的融资案例之一。
+2025年，南昌市红谷滩区3个乡镇(街道)分别收到有关部门征求意见函369件、373件、393件，有的部门征求意见内容多但设定的反馈时间短，基层来不及调研梳理，只能仓促应付；有的征求意见不加区分、对象泛化，对与政策无关或关联度不高的乡镇，广泛“群发”征求意见函，导致基层无法提供有价值的意见。
 
-在过去几年一级市场的热门叙事里，AI、机器人和半导体几乎占据了大部分注意力，而核聚变长期处于“被关注但距离商业化仍然遥远”的位置。
+据统计，征求意见复函中，90%以上均为“无意见”。
 
-如今，随着一批聚变企业接连获得融资，资本重新回到了这个曾经被认为周期漫长、投入巨大的赛道。
+征求意见随意草率或无实际内容反馈，无益于问题解决和工作改进，助长了形式主义、官僚主义，耗费基层的时间精力。
 
-相比融资金额，东昇聚变的背景更值得关注。
+2.宜春市教育体育局盲目建设政务服务系统，造成资源浪费。
 
-这家公司成立时间并不长，其核心团队脱胎于复旦大学聚变研究体系。
+2022年3月，宜春市教体局推动建设智慧教育体育云平台。
 
-成立之初，公司便获得上海未来产业基金、上海科创集团等上海国资力量支持。
+在建设过程中，对系统架构未科学研究论证和严格把关，一些功能设计脱离实际需求，造成资源浪费，违背了厉行节约过紧日子的要求。
 
 ## 相关推荐
 
-- 2026-06-30 00:45 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 01:02 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 00:44 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 00:44 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 00:44 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 01:01 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 01:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 00:57 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 00:49 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 01:06 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 00:52 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 00:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 01:08 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 01:10 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 00:54 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 01:06 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 00:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 01:12 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 01:01 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 01:02 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 01:09 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 00:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 01:03 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 00:59 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-30 00:55 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 00:53 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 01:04 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 01:17 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 01:08 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/958823248548.shtml)
-- 2026-06-30 00:58 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/958451.shtml)
-- 2026-06-30 00:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/88995.shtml)
-- 2026-06-30 00:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/1984281554.shtml)
-- 2026-06-30 00:45 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/3291128.shtml)
-- 2026-06-30 01:00 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/97709579935.shtml)
-- 2026-06-30 01:08 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/147858692139.shtml)
-- 2026-06-30 01:05 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/03752928967.shtml)
-- 2026-06-30 00:43 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/2562087542.shtml)
-- 2026-06-30 00:52 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/9483423.shtml)
-- 2026-06-30 00:46 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/392141.shtml)
-- 2026-06-30 00:47 - [巴西vs日本](http://www.blog.minike.top/Article/details/9434778.shtml)
-- 2026-06-30 00:59 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/15294448.shtml)
-- 2026-06-30 00:51 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/025556.shtml)
-- 2026-06-30 00:45 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/52341797955.shtml)
+- 2026-06-30 01:09 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/4421799958.shtml)
+- 2026-06-30 01:00 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/65474.shtml)
+- 2026-06-30 01:13 - [一生一世](http://www.blog.kurohicncr.top/Article/details/04013339355.shtml)
+- 2026-06-30 01:15 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/0525998509.shtml)
+- 2026-06-30 01:03 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/002458.shtml)
+- 2026-06-30 01:15 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/39158418.shtml)
+- 2026-06-30 01:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/86307.shtml)
+- 2026-06-30 01:01 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/602282874380.shtml)
+- 2026-06-30 00:56 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/96632560799.shtml)
+- 2026-06-30 01:16 - [世界杯](http://www.blog.minike.top/Article/details/05328073.shtml)
+- 2026-06-30 00:56 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/59890479894.shtml)
+- 2026-06-30 00:56 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/35691759004.shtml)
+- 2026-06-30 01:04 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/09035884030.shtml)
+- 2026-06-30 00:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/1878867.shtml)
+- 2026-06-30 01:09 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/01127538.shtml)

@@ -1,58 +1,61 @@
-# 华仪电气（600290）、五粮液（000858）股民索赔案再提交法院立案
+# 小米YU7GT刷新纽北纪录，买车用车这些维权渠道要记好
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年6月9日，上海久诚律师事务所股票索赔律师许峰代理的华仪电气（600290）投资者索赔案已再次向温州中院提交立案，目前正在等待法院的下一步安排。律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托，该案已经进入最后一个月倒计时，“过期作废”。 2024年1月13日，华仪电气公告收
+5月19日，小米YU7 GT以刷新纽博北环SUV圈速纪录的成绩再次引爆汽车圈的关注。与此同时，尚界汽车因疑似遭遇恶意抹黑而选择报警的事件也在持续发酵。每当有重磅新车发布或行业热点出现，都会吸引大量消费者的目光。但对于准车主和现有车主来说，除了关注车型本身，了解汽车消费中的维权渠道同样重要——毕竟买车是一笔不小的开支，用车过程中也可能遇到各种问题。 汽车消费链条长、环节多，从订金
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月19日，小米YU7 GT以刷新纽博北环SUV圈速纪录的成绩再次引爆汽车圈的关注。
 
-2026年6月9日，上海久诚律师事务所股票索赔律师许峰代理的华仪电气（600290）投资者索赔案已再次向温州中院提交立案，目前正在等待法院的下一步安排。
+与此同时，尚界汽车因疑似遭遇恶意抹黑而选择报警的事件也在持续发酵。
 
-律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托，该案已经进入最后一个月倒计时，“过期作废”。
+每当有重磅新车发布或行业热点出现，都会吸引大量消费者的目光。
 
-2024年1月13日，华仪电气公告收到浙江证监局《行政处罚决定书》，经查明，华仪电气存在以下违法事实： 2017年，华仪电气全资子公司华仪风能有限公司对不符合收入确认条件的风机销售业务确认收入，并结转相应的成本，涉及诺木洪、罗家山及渑池二期三个项目，上述事项导致华仪电气2017年年度报告合并财务报表虚增营业收入34，725.64万元，虚增应收账款，并多计提应收账款坏账准备812.58万元，虚增利润总额6，699.05万元。
+但对于准车主和现有车主来说，除了关注车型本身，了解汽车消费中的维权渠道同样重要——毕竟买车是一笔不小的开支，用车过程中也可能遇到各种问题。
 
-华仪电气2017年虚增风机销售收入形成的应收账款一直存续并每年计提坏账准备，导致2018年至2022年年度报告存在虚减利润总额，影响金额分别为959.78万元、3，729.13万元、5.501.49万元、4，600.77万元和6，258.11万元。
+汽车消费链条长、环节多，从订金合同纠纷、到车辆质量和三包售后、再到保险理赔和金融贷款，每个环节都可能产生争议。
 
-上述事项导致华仪电气2017年年度报告、2018年年度报告、2019年年度报告、2020年年度报告、2021年年度报告、2022年年度报告存在虚假记载。
+目前国内主要的官方维权渠道包括：国家市场监督管理总局缺陷产品管理中心（负责召回类质量问题）、中国汽车消费者协会（提供调解服务）、各地12315平台（处理一般性消费纠纷 【下载黑猫投诉客户端】），以及各车企自身的客服体系。
 
-许峰律师认为，在2018年4月10日到2023年6月22日之间买入华仪电气股票，并且在2023年6月22日后卖出或继续持有股票的投资者，目前还可发起索赔，提示注意时效风险。
+在实际维权中，不少车主反映官方渠道流程较长、跨区域协调困难，尤其是在4S店推诿扯皮的情况下，往往需要反复沟通才能得到实质性回应。
 
-除了华仪电气投资者索赔案再次提交法院立案，2026年6月8日、9日，许峰律师代理的五粮液（维权）（000858）投资者索赔案也再提交法院立案，此前已有案件获得立案。
+这时候，借助第三方投诉平台来补充维权手段是一种务实的选择。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 01:10 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 00:48 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 01:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 01:04 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 01:10 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 00:49 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 00:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 01:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 01:05 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 00:55 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 00:51 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 01:13 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 00:59 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 01:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 00:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 01:14 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 00:58 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 01:03 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 00:56 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 00:49 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 01:08 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 00:48 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 01:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 01:01 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 01:04 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 01:10 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:45 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/368549610.shtml)
-- 2026-06-30 00:45 - [乔家的儿女](http://www.share.minike.top/Article/details/633596248.shtml)
-- 2026-06-30 01:07 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/98779031795.shtml)
-- 2026-06-30 00:57 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/0882747.shtml)
-- 2026-06-30 01:01 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/42296603448.shtml)
-- 2026-06-30 00:42 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/71844910776.shtml)
-- 2026-06-30 01:10 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/508150821123.shtml)
-- 2026-06-30 00:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/2753306.shtml)
-- 2026-06-30 01:05 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/1776845597.shtml)
-- 2026-06-30 00:46 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/367213.shtml)
-- 2026-06-30 00:44 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/01662679.shtml)
-- 2026-06-30 00:52 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/5885485966.shtml)
-- 2026-06-30 00:50 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/122988358234.shtml)
-- 2026-06-30 01:11 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/9427486749.shtml)
-- 2026-06-30 00:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/33137.shtml)
+- 2026-06-30 01:09 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/59050.shtml)
+- 2026-06-30 00:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/656273.shtml)
+- 2026-06-30 01:11 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/26660436789.shtml)
+- 2026-06-30 01:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/1932536.shtml)
+- 2026-06-30 01:07 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/0375969.shtml)
+- 2026-06-30 00:51 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/7592013632.shtml)
+- 2026-06-30 01:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/811179078981.shtml)
+- 2026-06-30 00:52 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/5042301.shtml)
+- 2026-06-30 00:50 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/14137.shtml)
+- 2026-06-30 01:02 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/2811022.shtml)
+- 2026-06-30 01:02 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/752797.shtml)
+- 2026-06-30 00:51 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/559956071458.shtml)
+- 2026-06-30 00:51 - [送你一朵小红花](http://www.blog.minike.top/Article/details/2574130.shtml)
+- 2026-06-30 00:50 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/52798911789.shtml)
+- 2026-06-30 01:09 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/0768849.shtml)

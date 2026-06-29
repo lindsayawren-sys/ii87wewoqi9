@@ -1,46 +1,61 @@
-# 国电南瑞：目前公司生产经营一切正常
+# 致公党上海市委会爱心义卖十七载首次走进高校
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯6月11日，国电南瑞在互动平台回答投资者提问时表示，目前公司生产经营一切正常，不存在应披露而未披露的重大事项。关于股份回购相关举措，公司将结合经营情况、资金规划及监管要求综合审慎考量。若后续有明确计划，将严格按照规定及时履行信息披露义务。
+中新网上海5月19日电(范宇斌)近日，致公党上海市委会在复旦大学举办2026年爱心义卖暨“致·青春”活动。上海各级致公党组织的致公党党员、志愿者等500余人参加活动，以公益行动勾勒出一道温暖的奉献风景线。 上海致公爱心义卖始于2009年5月汶川地震一周年之际。当时，致公党青年党员提议以爱心义卖募集善款援助灾区，在致公党上海市委会支持下，当月便落地首场活动。十七载初心不改，该活动
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 证券日报网讯6月11日，国电南瑞在互动平台回答投资者提问时表示，目前公司生产经营一切正常，不存在应披露而未披露的重大事项。
+中新网上海5月19日电(范宇斌)近日，致公党上海市委会在复旦大学举办2026年爱心义卖暨“致·青春”活动。
 
-关于股份回购相关举措，公司将结合经营情况、资金规划及监管要求综合审慎考量。
+上海各级致公党组织的致公党党员、志愿者等500余人参加活动，以公益行动勾勒出一道温暖的奉献风景线。
 
-若后续有明确计划，将严格按照规定及时履行信息披露义务。
+上海致公爱心义卖始于2009年5月汶川地震一周年之际。
+
+当时，致公党青年党员提议以爱心义卖募集善款援助灾区，在致公党上海市委会支持下，当月便落地首场活动。
+
+十七载初心不改，该活动已连续举办17年，成长为致公党上海市委会社会服务工作的一项重要品牌，善款用途也从单一支援汶川地震灾区，逐步拓展至扶弱帮困、民生帮扶等多元公益领域，今年所筹善款将全数纳入上海致公爱心基金，持续传递公益温度。
+
+活动现场，致公党上海市委会专职副主委刘新宇、童丽萍等与参加爱心义卖的致公党党员亲切交流，对致公党党员的热忱参与表示感谢，肯定大家以实际行动传承致公精神的善举，鼓励大家发扬“致力为公、侨海报国”优良传统，在社会服务中奉献爱心。
+
+据了解，今年是该爱心义卖活动首次走进高校。
+
+在复旦大学浓郁的书香氛围中，本次活动以“致·青春”为主题，在打击乐、独唱、武术等精彩节目的轮番上演中温情启幕。
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 00:47 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 01:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 01:01 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 00:48 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 00:43 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 00:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 00:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 01:01 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 00:46 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 01:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 01:08 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 00:48 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 00:48 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 00:58 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 01:16 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 01:05 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 01:05 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 01:11 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 00:59 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 01:13 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-30 01:15 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 00:48 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 01:11 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 01:00 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:06 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/10403483.shtml)
-- 2026-06-30 01:11 - [美股](http://www.share.kurohicncr.top/Article/details/70049572.shtml)
-- 2026-06-30 00:54 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/68788.shtml)
-- 2026-06-30 00:57 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/1545422194.shtml)
-- 2026-06-30 00:45 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/3044859.shtml)
-- 2026-06-30 00:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/87196691.shtml)
-- 2026-06-30 01:04 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/18007.shtml)
-- 2026-06-30 00:51 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/23715727218.shtml)
-- 2026-06-30 00:49 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/2458231879.shtml)
-- 2026-06-30 00:51 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/793600.shtml)
-- 2026-06-30 01:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/3548611160.shtml)
-- 2026-06-30 00:53 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/524904.shtml)
-- 2026-06-30 00:48 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/9809194.shtml)
-- 2026-06-30 00:53 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/306244944033.shtml)
-- 2026-06-30 00:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/4545540949.shtml)
+- 2026-06-30 00:49 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/89690.shtml)
+- 2026-06-30 00:58 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/18655.shtml)
+- 2026-06-30 01:01 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/5838555.shtml)
+- 2026-06-30 01:01 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/546532004169.shtml)
+- 2026-06-30 00:57 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/522135012452.shtml)
+- 2026-06-30 00:57 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/6580366751.shtml)
+- 2026-06-30 00:54 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/03150436206.shtml)
+- 2026-06-30 01:06 - [一生一世](https://www.share.kurohicncr.top/Article/details/1294112.shtml)
+- 2026-06-30 01:15 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/63614252741.shtml)
+- 2026-06-30 01:01 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/562221008321.shtml)
+- 2026-06-30 00:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/2178495868.shtml)
+- 2026-06-30 01:07 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/60268953566.shtml)
+- 2026-06-30 01:16 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/16344948971.shtml)
+- 2026-06-30 00:48 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/638157756195.shtml)
+- 2026-06-30 01:03 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/4718727047.shtml)

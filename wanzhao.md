@@ -1,49 +1,56 @@
-# 京津冀出台九条专项举措 支持雄安技能人才队伍建设高质量发展
+# 数字产品影响孩子视力、注意力等 教育部紧急叫停“电子带娃”
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-今天(11日)，京津冀三地人社部门联合出台推动雄安新区技能人才队伍建设高质量发展九条专项举措。 措施紧扣新区承接北京非首都功能疏解，围绕跨区域技能培训协作、技能人才交流互动、培训评价标准互通、等级评价统考互认等方面健全政策举措。专项举措将有利于整合三地资源优势，为雄安新区高标准建设、重点产业落地投产提供人才保障。 (总台记者 宋小勇)
+今天(19日)，教育部启动2026年全国学前教育宣传月，主题是“共同守护数字时代的童年”，呼吁各地幼儿园“以游戏为基本活动”，不能以伴读、聊天、互动游戏等儿童数字产品替代图画书、玩具，不能用数字产品直接生成儿童观察记录、评价幼儿等。引导广大家长树立“多陪伴、多游戏、多运动、多亲近自然”的育儿理念，自觉识别并抵制早教类App等商业宣传误导，防范“电子带娃”。 当前，部分人群对学前
 
 ## 正文
 
-今天(11日)，京津冀三地人社部门联合出台推动雄安新区技能人才队伍建设高质量发展九条专项举措。
+今天(19日)，教育部启动2026年全国学前教育宣传月，主题是“共同守护数字时代的童年”，呼吁各地幼儿园“以游戏为基本活动”，不能以伴读、聊天、互动游戏等儿童数字产品替代图画书、玩具，不能用数字产品直接生成儿童观察记录、评价幼儿等。
 
-措施紧扣新区承接北京非首都功能疏解，围绕跨区域技能培训协作、技能人才交流互动、培训评价标准互通、等级评价统考互认等方面健全政策举措。
+引导广大家长树立“多陪伴、多游戏、多运动、多亲近自然”的育儿理念，自觉识别并抵制早教类App等商业宣传误导，防范“电子带娃”。
 
-专项举措将有利于整合三地资源优势，为雄安新区高标准建设、重点产业落地投产提供人才保障。
+当前，部分人群对学前领域数字应用存在一些认识误区，部分商业机构存在宣传误导，个别地方和幼儿园存在滥用、误用数字产品现象。
 
-(总台记者 宋小勇)
+大量权威研究证实，幼儿过早、过多接触数字产品，将会对视力健康、注意力集中、语言交往、情感发展等方面带来长期且难以逆转的不利影响。
+
+倡导学前儿童远离数字产品，保护儿童发展权益，也已成为世界各国的广泛共识。
+
+宣传月期间，各地将持续开展系列主题宣传活动，整合多方专业资源与社会力量，聚焦数字时代学前儿童权益保护，推动多方协同联动，构建全方位、立体化的幼儿成长防护屏障。
+
+近年来，我国学前教育普及普惠水平大幅提升，2025年全国学前三年毛入园率达到92.9%，全国普惠性幼儿园覆盖率达到91.5%。
+
+2025年6月1日，学前教育法正式施行，7月底，国家部署逐步推行免费学前教育，我国学前教育进入了有法可依、逐步免费的新时代。
 
 ## 相关推荐
 
-- 2026-06-30 01:07 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 00:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 00:51 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 00:46 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 00:43 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 00:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 00:44 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 01:01 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 00:45 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 00:56 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 00:51 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 01:14 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 01:08 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 01:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 00:52 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 01:17 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 01:03 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 01:17 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 01:10 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 00:51 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 00:58 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:10 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/257247781.shtml)
-- 2026-06-30 01:08 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/8747151857.shtml)
-- 2026-06-30 00:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/74484402.shtml)
-- 2026-06-30 01:06 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/73520937052.shtml)
-- 2026-06-30 00:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/934305547317.shtml)
-- 2026-06-30 00:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/1061708.shtml)
-- 2026-06-30 01:09 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/3359076.shtml)
-- 2026-06-30 01:01 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/20965222.shtml)
-- 2026-06-30 00:59 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/24449.shtml)
-- 2026-06-30 01:10 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/81481.shtml)
-- 2026-06-30 00:43 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/835438069.shtml)
-- 2026-06-30 00:53 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/44097.shtml)
-- 2026-06-30 01:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/231550297.shtml)
-- 2026-06-30 00:56 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/33286.shtml)
-- 2026-06-30 00:44 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/3731189099.shtml)
+- 2026-06-30 01:07 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/43112.shtml)
+- 2026-06-30 01:16 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/903424.shtml)
+- 2026-06-30 01:14 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/01747742.shtml)
+- 2026-06-30 01:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/987919.shtml)
+- 2026-06-30 01:11 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/070649.shtml)
+- 2026-06-30 01:00 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/750069994945.shtml)
+- 2026-06-30 01:16 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/434859664.shtml)
+- 2026-06-30 01:07 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/1946489.shtml)
+- 2026-06-30 00:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/22412985.shtml)
+- 2026-06-30 01:04 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/6252588.shtml)
+- 2026-06-30 00:48 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/467328.shtml)
+- 2026-06-30 00:49 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/597956178.shtml)
+- 2026-06-30 01:17 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/86957452.shtml)
+- 2026-06-30 00:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/9240373525.shtml)
+- 2026-06-30 01:07 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/96037480.shtml)

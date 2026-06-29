@@ -1,59 +1,58 @@
-# 甲骨文盘前重挫10% 财报超预期但融资计划令股价承压
+# 日本财务大臣暗示政府编制补充预算时会考虑债市因素
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-美国软件巨头甲骨文公司周三公布了2026财年第四季度财报，虽然多项财务指标超出市场预期，但由于公司宣布计划额外融资200亿美元用于人工智能基础设施建设，股价在盘后交易中大幅下跌，周四盘前下跌约10%。 财报显示，截至5月31日的第四财季，甲骨文营收同比增长21%至192亿美元，高于市场预期的191亿美元；调整后每股盈利为2.03美元，同样超出预期的1.96美元。云基础设施业务表
+日本财务大臣片山皋月表示，政府在考虑如何为应对中东冲突对经济的不利影响而增加支出时，会将债券市场纳入考量。 “鉴于中东局势，我们必须从最大限度降低风险的角度做好充分准备，”片山皋月周一在巴黎出席七国集团财长会议后对记者表示，“从最大限度降低风险也涉及到市场。整个金融市场本身就是风险之一。” 早前，日本首相高市早苗呼吁编制补充预算，以应对持续的中东冲突推高大宗商品价格，此举标志着
 
 ## 正文
 
-美国软件巨头甲骨文公司周三公布了2026财年第四季度财报，虽然多项财务指标超出市场预期，但由于公司宣布计划额外融资200亿美元用于人工智能基础设施建设，股价在盘后交易中大幅下跌，周四盘前下跌约10%。
+日本财务大臣片山皋月表示，政府在考虑如何为应对中东冲突对经济的不利影响而增加支出时，会将债券市场纳入考量。
 
-财报显示，截至5月31日的第四财季，甲骨文营收同比增长21%至192亿美元，高于市场预期的191亿美元；调整后每股盈利为2.03美元，同样超出预期的1.96美元。
+“鉴于中东局势，我们必须从最大限度降低风险的角度做好充分准备，”片山皋月周一在巴黎出席七国集团财长会议后对记者表示，“从最大限度降低风险也涉及到市场。
 
-云基础设施业务表现尤为强劲，营收同比飙升93%至58亿美元，成为整体业绩增长的核心动力。
+整个金融市场本身就是风险之一。
 
-更令市场关注的是，甲骨文截至季末的剩余履约义务达到创纪录的6380亿美元，同比增长363%。
+” 早前，日本首相高市早苗呼吁编制补充预算，以应对持续的中东冲突推高大宗商品价格，此举标志着其此前坚称无需追加预算立场的明显转变，并推动超长期国债收益率再创新高。
 
-这一衡量未来合约收入的关键指标大幅增长，主要来自大规模人工智能合同，其中超过50%的积压订单来自OpenAI。
+片山皋月并未透露有关新支出规模以及如何筹集资金的明确信息。
 
-然而，支撑如此高速增长的成本同样惊人。
+“从某种意义上说，首相的指示是让我们全面评估形势，并考虑确保资金来源的措施，而这正是我们打算做的，”片山皋月说道，但并未回答有关政府是否需要发行新债的问题。
 
-公司2026财年全年资本支出达557亿美元，自由现金流为负237亿美元。
+日本30年期国债收益率周一跃升，触及自1999年该债券推出以来的最高水平。
 
-公司预计2027财年资本支出将进一步攀升至约700亿美元。
+基准10年期国债和20年期国债收益率也大幅飙升，达到1996年以来的最高水平。
 
 ## 相关推荐
 
-- 2026-06-30 01:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 00:56 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 00:50 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 00:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 00:43 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 01:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 00:57 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 00:42 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 00:47 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 00:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 01:09 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 01:01 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 01:05 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 01:15 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 01:10 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 01:12 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 00:48 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 00:55 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 01:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 01:13 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 01:02 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 00:52 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 01:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 01:09 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 01:02 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:50 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/497802.shtml)
-- 2026-06-30 00:55 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/109098070107.shtml)
-- 2026-06-30 00:51 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/35730377243.shtml)
-- 2026-06-30 00:48 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/439027230.shtml)
-- 2026-06-30 01:11 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/520050467.shtml)
-- 2026-06-30 00:47 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/399007858766.shtml)
-- 2026-06-30 00:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/4013892655.shtml)
-- 2026-06-30 00:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/372202237161.shtml)
-- 2026-06-30 00:50 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/50645910.shtml)
-- 2026-06-30 00:54 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/81520171757.shtml)
-- 2026-06-30 00:49 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/872084941.shtml)
-- 2026-06-30 00:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/89025744412.shtml)
-- 2026-06-30 01:05 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/53548132333.shtml)
-- 2026-06-30 00:57 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/200207657.shtml)
-- 2026-06-30 00:54 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/421279.shtml)
+- 2026-06-30 00:50 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/2869378378.shtml)
+- 2026-06-30 01:11 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/5044364.shtml)
+- 2026-06-30 00:48 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/97145.shtml)
+- 2026-06-30 01:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/7082518399.shtml)
+- 2026-06-30 01:00 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/9594995.shtml)
+- 2026-06-30 01:09 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/19457.shtml)
+- 2026-06-30 01:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/47751.shtml)
+- 2026-06-30 01:12 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/212095716.shtml)
+- 2026-06-30 01:02 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/09469390.shtml)
+- 2026-06-30 01:12 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/01886.shtml)
+- 2026-06-30 01:03 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/105103235978.shtml)
+- 2026-06-30 01:15 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/411099700.shtml)
+- 2026-06-30 01:09 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/48360662.shtml)
+- 2026-06-30 01:13 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/036830798.shtml)
+- 2026-06-30 01:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/0398431440.shtml)

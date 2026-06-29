@@ -1,49 +1,58 @@
-# 伊朗外交部：尚未就伊美协议达成最终结论
+# 早盘：美股涨跌不一 标普500指数上涨0.1%
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-中新网6月12日电 据伊朗媒体12日报道，伊朗外交部发言人表示，迄今为止，伊朗尚未就伊美协议达成最终结论，外界针对该协议传出的说法均为猜测，相关事宜尚未敲定。 另据美国有线电视新闻网(CNN)援引伊朗媒体报道称，伊朗外交部发言人还表示，卡塔尔和巴基斯坦“作为调解方积极参与”，但他补充说，“美国的行动正在影响外交进程。” 据报道，伊朗外交部发言人补充说，伊朗已“证明不会在自己所界
+北京时间5月18日晚，美股周一早盘涨跌不一，标普指数上涨0.1%。交易员正密切关注油价与债券收益率，同时等待中东冲突的进一步进展。本周将迎来繁忙的财报季，英伟达领衔众多企业公布业绩。 道指跌26.65点，跌幅为0.05%，报49499.52点；标普500指数涨11.27点，涨幅为0.15%，报7419.77点；纳指涨44.22点，涨幅为0.17%，报26269.36点。 本周将
 
 ## 正文
 
-中新网6月12日电 据伊朗媒体12日报道，伊朗外交部发言人表示，迄今为止，伊朗尚未就伊美协议达成最终结论，外界针对该协议传出的说法均为猜测，相关事宜尚未敲定。
+北京时间5月18日晚，美股周一早盘涨跌不一，标普指数上涨0.1%。
 
-另据美国有线电视新闻网(CNN)援引伊朗媒体报道称，伊朗外交部发言人还表示，卡塔尔和巴基斯坦“作为调解方积极参与”，但他补充说，“美国的行动正在影响外交进程。
+交易员正密切关注油价与债券收益率，同时等待中东冲突的进一步进展。
 
-” 据报道，伊朗外交部发言人补充说，伊朗已“证明不会在自己所界定的‘红线’问题上做出妥协。
+本周将迎来繁忙的财报季，英伟达领衔众多企业公布业绩。
 
-”
+道指跌26.65点，跌幅为0.05%，报49499.52点；标普500指数涨11.27点，涨幅为0.15%，报7419.77点；纳指涨44.22点，涨幅为0.17%，报26269.36点。
+
+本周将迎来繁忙的财报季，英伟达领衔众多企业公布业绩。
+
+除科技巨头外，零售巨头塔吉特和沃尔玛也将陆续发布财报。
+
+市场关注英伟达的业绩能否支撑当前人工智能驱动的涨势，同时密切追踪零售商在通胀环境下的消费需求表现。
+
+地缘政治风险与财报季的叠加效应使投资者情绪趋于谨慎。
 
 ## 相关推荐
 
-- 2026-06-30 00:45 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 00:45 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 00:52 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 01:10 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 00:56 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 00:51 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 00:54 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 00:56 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 00:56 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 01:05 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 00:57 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 00:53 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 01:03 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 01:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 01:05 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 01:07 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 00:51 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 01:10 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 01:02 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 01:09 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 00:55 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 00:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 00:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:56 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/74572213.shtml)
-- 2026-06-30 00:46 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/1054439.shtml)
-- 2026-06-30 00:43 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/40187.shtml)
-- 2026-06-30 00:52 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/305017228168.shtml)
-- 2026-06-30 01:00 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/2125169615.shtml)
-- 2026-06-30 01:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/351501.shtml)
-- 2026-06-30 00:45 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/94690245431.shtml)
-- 2026-06-30 01:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/217385.shtml)
-- 2026-06-30 00:49 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/21255552.shtml)
-- 2026-06-30 00:51 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/195107978126.shtml)
-- 2026-06-30 01:00 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/60147.shtml)
-- 2026-06-30 00:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/181486.shtml)
-- 2026-06-30 01:07 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/61130543983.shtml)
-- 2026-06-30 01:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/9905465.shtml)
-- 2026-06-30 01:04 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/389813275.shtml)
+- 2026-06-30 01:07 - [小娘惹](https://www.share.kurohicncr.top/Article/details/491276.shtml)
+- 2026-06-30 00:55 - [送你一朵小红花](https://www.share.minike.top/Article/details/31676.shtml)
+- 2026-06-30 01:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/99697318672.shtml)
+- 2026-06-30 01:03 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/17673.shtml)
+- 2026-06-30 00:54 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/35854842.shtml)
+- 2026-06-30 00:50 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/141778367701.shtml)
+- 2026-06-30 01:07 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/593870206243.shtml)
+- 2026-06-30 01:00 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/65920024.shtml)
+- 2026-06-30 01:16 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/81626.shtml)
+- 2026-06-30 00:53 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/091550293.shtml)
+- 2026-06-30 01:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/43041393322.shtml)
+- 2026-06-30 01:00 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/205989.shtml)
+- 2026-06-30 01:01 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/251138597963.shtml)
+- 2026-06-30 01:00 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/4254401149.shtml)
+- 2026-06-30 01:05 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/8891612933.shtml)

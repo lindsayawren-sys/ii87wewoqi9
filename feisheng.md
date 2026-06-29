@@ -1,58 +1,55 @@
-# 聚力协同发展 河北保定“引智入保”为创新“安家”
+# 大麦娱乐盘中涨超6% 预计年度净利润同比增逾7亿元
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-中新网保定6月12日电(李玉素 徐巧明)今年，是京津冀协同发展战略实施第十二年。作为京津冀世界级城市群中的区域性中心城市，保定在服务首都、对接京津、联动雄安中加快发展，借助京津创新资源优势，形成了“京津研发、保定转化”的创新驱动发展格局。 日前，走进位于保定·中关村创新中心的保定诺未科技有限公司，工作人员正在实验室处理提取来自人体的T细胞。这些T细胞将在体外进行激活培养成为“抗
+大麦娱乐（01060）盘中涨超6%，截至发稿，股价上涨4.76%，现报0.66港元，成交额1.07亿港元。 大麦娱乐拟5月27日举行董事会会议，以考虑及批准公司及其附属公司截至2026年3月31日止财政年度的经审核综合末期业绩。该公司此前发盈喜，预期截至2026年3月31日止12个月录得归属于公司所有者的净利润将不低于人民币7.00亿元，而去年同期约为人民币3.64亿元。此外，
 
 ## 正文
 
-中新网保定6月12日电(李玉素 徐巧明)今年，是京津冀协同发展战略实施第十二年。
+大麦娱乐（01060）盘中涨超6%，截至发稿，股价上涨4.76%，现报0.66港元，成交额1.07亿港元。
 
-作为京津冀世界级城市群中的区域性中心城市，保定在服务首都、对接京津、联动雄安中加快发展，借助京津创新资源优势，形成了“京津研发、保定转化”的创新驱动发展格局。
+大麦娱乐拟5月27日举行董事会会议，以考虑及批准公司及其附属公司截至2026年3月31日止财政年度的经审核综合末期业绩。
 
-日前，走进位于保定·中关村创新中心的保定诺未科技有限公司，工作人员正在实验室处理提取来自人体的T细胞。
+该公司此前发盈喜，预期截至2026年3月31日止12个月录得归属于公司所有者的净利润将不低于人民币7.00亿元，而去年同期约为人民币3.64亿元。
 
-这些T细胞将在体外进行激活培养成为“抗肿瘤卫士”，再输送回患者体内，更有针对性地杀伤抑制肿瘤细胞。
+此外，由北京大麦娱乐文化有限公司参与出品的电影《给阿嬷的情书》热度持续发酵，猫眼专业版最新预测《给阿嬷的情书》预计总票房将达16亿元。
 
-据了解，保定诺未科技有限公司是一家专注于细胞技术研究与临床转化的高新技术企业。
-
-该公司总经理孙志娟介绍，2018年，公司总部的研究成果逐步进入转化阶段，在京津冀协同发展的大背景下，总部决定到河北寻找地方建立转化基地，最终选择了保定。
-
-孙志娟补充道，近年来，“北京研发—保定转化”路径进一步深化，北京成果落地保定的通道不断打通。
-
-“目前我们免疫细胞新药研发依赖北京高校的基础研究，临床试验与北京相关医院合作，而未来的生产基地则依托保定成本优势实现规模化生产。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:56 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 01:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 00:56 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 01:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 01:05 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 01:10 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 00:50 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 00:56 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 00:59 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 00:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 00:55 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 01:04 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 01:15 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 00:50 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 00:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 00:57 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 00:51 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 00:48 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 01:12 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 00:55 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 00:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 00:56 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 01:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 01:06 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 01:13 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 01:01 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 00:52 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:47 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/449490844.shtml)
-- 2026-06-30 00:43 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/009310.shtml)
-- 2026-06-30 00:55 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/89842.shtml)
-- 2026-06-30 00:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/1965792.shtml)
-- 2026-06-30 00:51 - [斗破苍穹](https://www.blog.minike.top/Article/details/0659764.shtml)
-- 2026-06-30 00:53 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/706872105.shtml)
-- 2026-06-30 00:54 - [急先锋](https://www.blog.minike.top/Article/details/2461722461.shtml)
-- 2026-06-30 00:44 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/594261268485.shtml)
-- 2026-06-30 01:11 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/9306049.shtml)
-- 2026-06-30 01:10 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/537068.shtml)
-- 2026-06-30 00:48 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/4038793.shtml)
-- 2026-06-30 01:01 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/234381.shtml)
-- 2026-06-30 01:06 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/172190594131.shtml)
-- 2026-06-30 01:04 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/2942964.shtml)
-- 2026-06-30 00:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/743417438.shtml)
+- 2026-06-30 00:58 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/304984.shtml)
+- 2026-06-30 01:17 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/37710.shtml)
+- 2026-06-30 01:14 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/452433101813.shtml)
+- 2026-06-30 00:48 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/562848350.shtml)
+- 2026-06-30 00:56 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/64519037780.shtml)
+- 2026-06-30 01:16 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/3030002.shtml)
+- 2026-06-30 00:50 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/324366.shtml)
+- 2026-06-30 00:57 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/72741362735.shtml)
+- 2026-06-30 00:48 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/958866951045.shtml)
+- 2026-06-30 01:16 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/28395810.shtml)
+- 2026-06-30 00:49 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/2003898388.shtml)
+- 2026-06-30 00:57 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/2082989018.shtml)
+- 2026-06-30 00:56 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/74599.shtml)
+- 2026-06-30 01:15 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/809050647136.shtml)
+- 2026-06-30 00:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/56493.shtml)

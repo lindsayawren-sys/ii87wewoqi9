@@ -1,52 +1,56 @@
-# 美国财政部以所谓“购买军品”为由制裁中方个人和实体 中方回应
+# 起重机械、桩工机械销量全球第一！为什么是徐州这里？
 
-> 更新时间：2026-06-30 01:12:02 UTC+8
+> 更新时间：2026-06-30 01:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月12日电 (记者 张蔚然)中国外交部发言人林剑12日主持例行记者会。 有记者提问：美国财政部宣布制裁9家中国内地以及中国香港的个人及实体，理由是协助伊朗购买“军事用品”。中方有何评论？ 林剑：我们多次说过，中方坚决反对没有国际法依据、未经联合国安理会授权的非法单边制裁。我们将采取一切必要措施，坚定维护本国企业和公民的正当权益。(完)
+这里，工程机械产业规模迈上千亿元新台阶，体量持续领跑； 这里，起重机械、桩工机械销量全球第一，优势不断巩固； 这里，4000吨级起重机七次刷新世界纪录，实力不断彰显…… 这里，就是中国“工程机械之都”的核心腹地——徐州经开区 多年来，徐州始终把工程机械产业作为“一号产业”重点打造。今年2月25日，徐州召开打造世界级工程机械产业集群暨全市产业项目提质增效推进会，释放出加快迈向世界
 
 ## 正文
 
-中新网北京6月12日电 (记者 张蔚然)中国外交部发言人林剑12日主持例行记者会。
+这里，工程机械产业规模迈上千亿元新台阶，体量持续领跑； 这里，起重机械、桩工机械销量全球第一，优势不断巩固； 这里，4000吨级起重机七次刷新世界纪录，实力不断彰显…… 这里，就是中国“工程机械之都”的核心腹地——徐州经开区 多年来，徐州始终把工程机械产业作为“一号产业”重点打造。
 
-有记者提问：美国财政部宣布制裁9家中国内地以及中国香港的个人及实体，理由是协助伊朗购买“军事用品”。
+今年2月25日，徐州召开打造世界级工程机械产业集群暨全市产业项目提质增效推进会，释放出加快迈向世界级的坚定决心。
 
-中方有何评论？
+这不仅是徐州“一号产业”的升级突围，更是中国工程机械产业在全球价值链中攀登制高点的有力冲锋。
 
-林剑：我们多次说过，中方坚决反对没有国际法依据、未经联合国安理会授权的非法单边制裁。
+作为徐州工程机械产业的核心承载区，徐州经开区正全力推进“两园两中心”建设，主动靠前服务，奋力答好这道世界级命题！
 
-我们将采取一切必要措施，坚定维护本国企业和公民的正当权益。
+一种硬核基因 徐州经开区的底气，是靠几十年深耕细作“堆”出来的。
 
-(完)
+自建区以来，徐州经开区立足产业基础，聚焦主责主业，早已将工程机械产业刻入发展基因，逐步构建起“龙头引领、配套完善、创新驱动、全球布局”的工程机械产业生态，成为区域经济的坚实“压舱石”和强劲“增长极”。
+
+在徐州经开区，传统产业早已实现集群变身，协同感直接拉满。
+
+目前，这里集聚了超百家规上工业企业，汇聚徐工、卡特彼勒两大国际龙头企业，带动产业链上下游企业超300家，从业人员达3.5万余人。
 
 ## 相关推荐
 
-- 2026-06-30 00:45 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 00:42 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 01:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 00:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 01:03 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 00:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 01:02 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 00:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 00:49 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 00:48 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 01:02 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 00:53 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 00:50 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 00:58 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 01:08 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 00:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 00:54 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 00:51 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 01:03 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 01:05 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:02 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/92158489.shtml)
-- 2026-06-30 00:47 - [点菜也要教吗](https://www.share.minike.top/Article/details/502466578957.shtml)
-- 2026-06-30 00:51 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/2136957.shtml)
-- 2026-06-30 01:01 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/432355673.shtml)
-- 2026-06-30 00:57 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/572929948369.shtml)
-- 2026-06-30 00:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/403000.shtml)
-- 2026-06-30 01:03 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/9443460158.shtml)
-- 2026-06-30 01:05 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/00983.shtml)
-- 2026-06-30 00:44 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/83623621243.shtml)
-- 2026-06-30 01:00 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/888992364.shtml)
-- 2026-06-30 00:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/20499649308.shtml)
-- 2026-06-30 01:00 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/9478489057.shtml)
-- 2026-06-30 01:01 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/17403612840.shtml)
-- 2026-06-30 01:10 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/114704384.shtml)
-- 2026-06-30 01:07 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/336188857.shtml)
+- 2026-06-30 01:17 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/86625450.shtml)
+- 2026-06-30 00:55 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/75288173.shtml)
+- 2026-06-30 01:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/21805419.shtml)
+- 2026-06-30 01:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/61478.shtml)
+- 2026-06-30 01:10 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/6828569715.shtml)
+- 2026-06-30 00:49 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/64343.shtml)
+- 2026-06-30 01:15 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/92549305166.shtml)
+- 2026-06-30 00:50 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/320910.shtml)
+- 2026-06-30 00:52 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/36527103.shtml)
+- 2026-06-30 00:52 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/18478444636.shtml)
+- 2026-06-30 00:49 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/9269268207.shtml)
+- 2026-06-30 00:50 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/26668.shtml)
+- 2026-06-30 01:13 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/55489852.shtml)
+- 2026-06-30 01:00 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/64794348033.shtml)
+- 2026-06-30 00:58 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/18666.shtml)
