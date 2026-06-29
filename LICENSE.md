@@ -1,2 +1,0 @@
-test
-http://www.baidu.com
