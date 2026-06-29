@@ -1,56 +1,60 @@
-# 安徽对侵害未成年人犯罪“零容忍” 五年起诉1.4万余人
+# 美元指数持续上涨，日线有望收六连阳，根基却悄然松动
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网合肥6月1日电 (记者 赵强)记者1日从安徽省检察院召开的新闻发布会上获悉，安徽检方持续对侵害未成年人犯罪保持“零容忍”高压态势，2021年至2025年共起诉此类犯罪14102人。 安徽省检察院副检察长刘曙光介绍说，五年间，该省检察机关共受理审查起诉涉未成年人案件18648件。自2024年起，受理审查起诉未成年人犯罪数量同比持续下降。 在严惩侵害未成年人犯罪方面，安徽检察
+汇通财经APP讯——周一（5月18日）美元指数延续强势，当前报99.37，涨0.1%，盘中最高触及99.41，创下2026年4月9日以来的新高。过去4周累计上涨超1%，日线已连续收获5连阳，呈现稳步上行态势。中东局势再度紧张推高了油价，加剧通胀担忧，全球债券市场的抛售潮削弱了风险偏好。此外，近期美国通胀数据接连超预期，彻底扭转了市场对美联储降息的预期。4月CPI同比上涨3.8%
 
 ## 正文
 
-中新网合肥6月1日电 (记者 赵强)记者1日从安徽省检察院召开的新闻发布会上获悉，安徽检方持续对侵害未成年人犯罪保持“零容忍”高压态势，2021年至2025年共起诉此类犯罪14102人。
+汇通财经APP讯——周一（5月18日）美元指数延续强势，当前报99.37，涨0.1%，盘中最高触及99.41，创下2026年4月9日以来的新高。
 
-安徽省检察院副检察长刘曙光介绍说，五年间，该省检察机关共受理审查起诉涉未成年人案件18648件。
+过去4周累计上涨超1%，日线已连续收获5连阳，呈现稳步上行态势。
 
-自2024年起，受理审查起诉未成年人犯罪数量同比持续下降。
+中东局势再度紧张推高了油价，加剧通胀担忧，全球债券市场的抛售潮削弱了风险偏好。
 
-在严惩侵害未成年人犯罪方面，安徽检察机关对性侵未成年人案件全面提前介入，对严重侵害案件快捕快诉，依法提出从重量刑建议，对重罪轻判等情况坚决抗诉。
+此外，近期美国通胀数据接连超预期，彻底扭转了市场对美联储降息的预期。
 
-五年间，共批捕侵害未成年人犯罪9639人，起诉14102人，同时用好从业禁止、禁止令等制度，防范再犯风险。
+4月CPI同比上涨3.8%，PPI同比大涨6%，均创下近年新高。
 
-对未成年人犯罪，安徽坚持宽严相济，既依法惩治主观恶性大、情节恶劣的犯罪，又对情节较轻者适用不起诉或附条件不起诉。
+这一背景下，利率期货市场已开始定价美联储可能在2027年前重启加息——到明年1月加息25个基点的概率已升至约60%。
 
-五年批捕未成年人犯罪4136人，起诉7955人，附条件不起诉4782人，助力迷途少年回归正途。
+近期外汇市场呈现一个悖论：尽管2026年全球通胀预期上升、经济增长预期下修的现象，是美国对伊朗发动袭击的副产品，但美元至今却出人意料地经受住了风暴的考验。
 
-此外，安徽深化“四大检察”履职，五年监督立案560件、撤案935件，抗诉168件；推动“六大保护”融通发力，五年开展法治进校园30490场次，联动多部门关爱留守困境儿童，以公益诉讼推动重点领域治理，全方位筑牢未成年人保护法治屏障。
+作为世界霸权储备货币，美元受益于资本流入时优先考虑“本金安全”而非“投资回报”的逻辑。
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 03:42 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 03:52 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 04:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 03:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 04:10 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 03:57 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 04:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 03:48 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 03:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 04:17 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 03:59 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 03:49 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 04:06 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 04:06 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 04:02 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 03:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 04:04 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 04:08 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 04:09 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 04:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 04:14 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 04:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 04:00 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [日本16强魔咒](https://www.share.minike.top/Article/details/9003546307.shtml)
-- 2026-06-30 03:51 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/41842622.shtml)
-- 2026-06-30 03:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/629512002255.shtml)
-- 2026-06-30 03:58 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/1036421015.shtml)
-- 2026-06-30 04:00 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/60161.shtml)
-- 2026-06-30 03:48 - [千与千寻](http://www.share.minike.top/Article/details/192762.shtml)
-- 2026-06-30 03:50 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/01767.shtml)
-- 2026-06-30 03:42 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/6490463927.shtml)
-- 2026-06-30 03:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/809131.shtml)
-- 2026-06-30 03:55 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/380813004.shtml)
-- 2026-06-30 03:48 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/35964823614.shtml)
-- 2026-06-30 03:47 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/843455744507.shtml)
-- 2026-06-30 03:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/81660749.shtml)
-- 2026-06-30 03:57 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/51001.shtml)
-- 2026-06-30 03:52 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/00555725063.shtml)
+- 2026-06-30 04:09 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/73510313131.shtml)
+- 2026-06-30 04:05 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/8309215.shtml)
+- 2026-06-30 04:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/785021779.shtml)
+- 2026-06-30 04:07 - [金刚川](http://www.share.minike.top/Article/details/7606450.shtml)
+- 2026-06-30 03:49 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/776404468112.shtml)
+- 2026-06-30 04:09 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/0552879626.shtml)
+- 2026-06-30 04:02 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/073612818.shtml)
+- 2026-06-30 04:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/657242005.shtml)
+- 2026-06-30 04:07 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/63159105918.shtml)
+- 2026-06-30 03:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/105198.shtml)
+- 2026-06-30 04:04 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/787443.shtml)
+- 2026-06-30 03:52 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/32482477.shtml)
+- 2026-06-30 04:17 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/51154.shtml)
+- 2026-06-30 03:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/054117723.shtml)
+- 2026-06-30 04:02 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/727784326173.shtml)

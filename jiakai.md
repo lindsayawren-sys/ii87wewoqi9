@@ -1,57 +1,57 @@
-# 2026年服贸会专题展将融入前沿技术 展示科技消费新成果
+# 美国特使抵达格陵兰岛首府努克
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 (记者 吕少威)2026年中国国际服务贸易交易会(下称“服贸会”)总体安排新闻发布会1日在北京举行。北辰集团副总经理魏明乾在发布会上表示，2026年服贸会九大专题展将深度融入前沿技术，注重智慧化场景的打造，展示科技消费的新成果。 据介绍，电信、计算机和信息服务专题展将再次推出北京方案展并提质升级，聚焦未来产业与科技出海，重点展示“信息通信+人工智能”融合应
+中新网北京5月18日电 格陵兰岛努克消息：美国格陵兰岛特使杰夫·兰德里17日抵达格陵兰岛首府努克，这是他上任以来首次访问格陵兰岛。 据路透社等媒体报道，兰德里计划参加将于19日至20日举行的“未来格陵兰”商业博览会，美国驻丹麦大使肯·豪厄里将陪同其参加。 格陵兰岛位于北美洲东北部，是世界第一大岛，也是丹麦自治领地，有高度自治权，国防和外交事务由丹麦政府掌管。 美国方面多次表示要
 
 ## 正文
 
-中新网北京6月1日电 (记者 吕少威)2026年中国国际服务贸易交易会(下称“服贸会”)总体安排新闻发布会1日在北京举行。
+中新网北京5月18日电 格陵兰岛努克消息：美国格陵兰岛特使杰夫·兰德里17日抵达格陵兰岛首府努克，这是他上任以来首次访问格陵兰岛。
 
-北辰集团副总经理魏明乾在发布会上表示，2026年服贸会九大专题展将深度融入前沿技术，注重智慧化场景的打造，展示科技消费的新成果。
+据路透社等媒体报道，兰德里计划参加将于19日至20日举行的“未来格陵兰”商业博览会，美国驻丹麦大使肯·豪厄里将陪同其参加。
 
-据介绍，电信、计算机和信息服务专题展将再次推出北京方案展并提质升级，聚焦未来产业与科技出海，重点展示“信息通信+人工智能”融合应用场景、卫星互联网、6G、量子科技等前沿方向。
+格陵兰岛位于北美洲东北部，是世界第一大岛，也是丹麦自治领地，有高度自治权，国防和外交事务由丹麦政府掌管。
 
-文旅服务专题展将集中展示北京文化产业数字化升级、科技赋能、文脉活化传承的标杆案例，集聚AIGC、VR、电竞、脑机接口等前沿技术，借助8K超高清摄制设备与大屏硬件，联动环球影城等优质文旅资源搭建“AI+”沉浸式互动场景。
+美国方面多次表示要得到格陵兰岛，遭到丹麦及多方强烈反对。
 
-体育服务专题展将集中展示AI赛事直播、体育机器人智慧应用等前沿科技，覆盖赛事的版权交易、赞助、IP运营等核心业态。
+2025年12月，兰德里被任命为美国格陵兰岛特使。
 
-健康卫生服务专题展首次设立“未来产业医疗科技前沿展区”。
-
-同时，专题将深度打造医工融合、协同创新的智慧健康消费新高地。
-
-魏明乾提到，今年服贸会数字平台将围绕三大方向对中英文网站进行改版升级，围绕“永不落幕服贸会”，构建智能化、国际化、高效能的智慧生态。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 04:09 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 04:02 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 03:55 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 04:00 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 04:08 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 03:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 03:53 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 03:58 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 04:03 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 04:05 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 03:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 04:04 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 03:58 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 03:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 04:16 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 04:08 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 04:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 04:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 04:16 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 04:08 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 03:53 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 04:10 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 03:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 03:48 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 03:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/99745943.shtml)
-- 2026-06-30 04:07 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/407942.shtml)
-- 2026-06-30 04:08 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/01206139.shtml)
-- 2026-06-30 03:56 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/202790.shtml)
-- 2026-06-30 04:00 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/60955361583.shtml)
-- 2026-06-30 03:50 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/74225115.shtml)
-- 2026-06-30 04:04 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/73811336.shtml)
-- 2026-06-30 04:04 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/22777855614.shtml)
-- 2026-06-30 04:11 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/06247.shtml)
-- 2026-06-30 04:07 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/804144127.shtml)
-- 2026-06-30 03:50 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/824579450.shtml)
-- 2026-06-30 03:43 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/457097.shtml)
-- 2026-06-30 03:43 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/51914259136.shtml)
-- 2026-06-30 04:04 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/839198.shtml)
-- 2026-06-30 03:51 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/91115.shtml)
+- 2026-06-30 04:14 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/54347885.shtml)
+- 2026-06-30 03:48 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/33973350690.shtml)
+- 2026-06-30 04:00 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/8129525960.shtml)
+- 2026-06-30 04:14 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/54819.shtml)
+- 2026-06-30 04:02 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/024287.shtml)
+- 2026-06-30 04:15 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/7341858831.shtml)
+- 2026-06-30 04:17 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/9070101869.shtml)
+- 2026-06-30 03:58 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/34440415680.shtml)
+- 2026-06-30 03:56 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/299256381.shtml)
+- 2026-06-30 04:10 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/679208.shtml)
+- 2026-06-30 04:06 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/43292.shtml)
+- 2026-06-30 04:18 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/037325268552.shtml)
+- 2026-06-30 03:50 - [我和我的家乡](https://www.blog.minike.top/Article/details/524438309480.shtml)
+- 2026-06-30 04:09 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/7129391.shtml)
+- 2026-06-30 04:04 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/822336039.shtml)

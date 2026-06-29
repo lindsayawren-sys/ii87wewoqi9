@@ -1,61 +1,47 @@
-# 俄方称对乌克兰实施大规模打击 乌方称已致100多人伤亡
+# 现场直击：广西柳州5.2级地震 民众户外避险
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 综合报道，当地时间2日，俄罗斯国防部表示，俄军当天凌晨对乌克兰实施大规模报复性打击。乌克兰方面称，此次袭击已造成至少17人死亡，100多人受伤。 俄方：实施大规模打击 俄国防部2日发布消息称，俄军使用包括高超音速巡航导弹在内的空基、陆基和海基高精度远程武器，对基辅、扎波罗热、哈尔科夫、第聂伯罗彼得罗夫斯克等多地的目标进行打击。 消息称，俄军还对乌军使用的燃料设
+发布时间：2026年05月18日 09:21 来源：中国新闻网 责任编辑：【王祎】
 
 ## 正文
 
-中新网6月2日电 综合报道，当地时间2日，俄罗斯国防部表示，俄军当天凌晨对乌克兰实施大规模报复性打击。
-
-乌克兰方面称，此次袭击已造成至少17人死亡，100多人受伤。
-
-俄方：实施大规模打击 俄国防部2日发布消息称，俄军使用包括高超音速巡航导弹在内的空基、陆基和海基高精度远程武器，对基辅、扎波罗热、哈尔科夫、第聂伯罗彼得罗夫斯克等多地的目标进行打击。
-
-消息称，俄军还对乌军使用的燃料设施、运输基础设施和军用机场实施打击。
-
-俄国防部表示，所有预定目标均被击中。
-
-据基辅《独立报》报道，乌克兰总统泽连斯基2日说，乌国家紧急情况局已出动500多人应对俄罗斯1日晚至2日清晨发动的大规模袭击。
-
-报道援引乌克兰官员的话称，此次袭击已造成至少17人死亡，100多人受伤。
-
-其中，乌克兰首都基辅至少有6人死亡，数十人受伤。
+发布时间：2026年05月18日 09:21 来源：中国新闻网 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 03:46 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 03:52 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 03:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 03:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 04:03 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 03:52 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 03:58 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 04:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 03:45 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 03:57 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 04:06 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 03:57 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 03:45 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 04:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 03:54 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 03:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 04:17 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-30 03:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 04:14 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 04:11 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 04:10 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 03:48 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 04:05 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 04:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 03:53 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 03:55 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 03:53 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 03:48 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 03:56 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/8844575.shtml)
-- 2026-06-30 03:49 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/4406577474.shtml)
-- 2026-06-30 04:02 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/371593923351.shtml)
-- 2026-06-30 03:43 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/26039479.shtml)
-- 2026-06-30 03:58 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/6002043444.shtml)
-- 2026-06-30 03:49 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/35111.shtml)
-- 2026-06-30 04:05 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/585313.shtml)
-- 2026-06-30 03:54 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/87915.shtml)
-- 2026-06-30 03:45 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/85699811939.shtml)
-- 2026-06-30 03:58 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/286754872843.shtml)
-- 2026-06-30 04:08 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/94835558156.shtml)
-- 2026-06-30 03:54 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/31279.shtml)
-- 2026-06-30 03:43 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/483729.shtml)
-- 2026-06-30 04:06 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/03008478.shtml)
-- 2026-06-30 03:55 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/4775228.shtml)
+- 2026-06-30 03:59 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/10785.shtml)
+- 2026-06-30 04:14 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/3436968.shtml)
+- 2026-06-30 04:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/806304.shtml)
+- 2026-06-30 03:49 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/89448.shtml)
+- 2026-06-30 03:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/5369752055.shtml)
+- 2026-06-30 04:04 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/082150100933.shtml)
+- 2026-06-30 03:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/914995.shtml)
+- 2026-06-30 04:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/656324.shtml)
+- 2026-06-30 04:08 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/66941.shtml)
+- 2026-06-30 03:50 - [世界杯](https://www.share.kurohicncr.top/Article/details/09873.shtml)
+- 2026-06-30 04:10 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/2166454.shtml)
+- 2026-06-30 03:52 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/651648.shtml)
+- 2026-06-30 03:53 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/27716.shtml)
+- 2026-06-30 03:48 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/8290745630.shtml)
+- 2026-06-30 04:13 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/01791974.shtml)

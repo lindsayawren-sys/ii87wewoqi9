@@ -1,60 +1,57 @@
-# 高考临近，多部门集中开展打击手机作弊等专项行动
+# 我国储能产业发展势头强劲
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电(记者 袁秀月)记者从教育部获悉，2026年高考在即，教育部会同网信、公安等部门部署开展“2026年高考护航行动”，全面做好考试组织、宣传引导、考生服务等各项工作，全力护航“平安高考”。2026年高考期间，各地教育部门、招生考试机构将联合网信、公安等部门集中开展打击手机作弊、净化涉考网络环境、打击销售作弊器材、打击替考作弊、净化考点周边环境、清理整顿涉考培训
+央视网消息(新闻联播)：今年，我国储能产业发展势头强劲，装机规模快速增长，新技术持续涌现，有力支撑了新能源开发利用，增强了电力保供能力。 5月16日，我国首台国产抽水蓄能变速机组在广东肇庆启动电气安装。通过精准控制抽水速度，这个变速机组能利用新能源发出的电，每小时把28万立方米的水存进蓄水池，需要时再转化为绿色电力。 今年以来，伴随着新能源装机持续快速增长，全国抽水蓄能工程加快
 
 ## 正文
 
-中新网北京6月2日电(记者 袁秀月)记者从教育部获悉，2026年高考在即，教育部会同网信、公安等部门部署开展“2026年高考护航行动”，全面做好考试组织、宣传引导、考生服务等各项工作，全力护航“平安高考”。
+央视网消息(新闻联播)：今年，我国储能产业发展势头强劲，装机规模快速增长，新技术持续涌现，有力支撑了新能源开发利用，增强了电力保供能力。
 
-2026年高考期间，各地教育部门、招生考试机构将联合网信、公安等部门集中开展打击手机作弊、净化涉考网络环境、打击销售作弊器材、打击替考作弊、净化考点周边环境、清理整顿涉考培训机构和助考中介等多个专项行动，清理处置助考犯罪、招生诈骗、虚假宣传、网络谣言等不实有害信息，加强治安、出行、食宿、医疗卫生、噪音治理、心理辅导等多方面综合服务保障，营造良好考试环境，坚决维护教育考试公平。
+5月16日，我国首台国产抽水蓄能变速机组在广东肇庆启动电气安装。
 
-此外，教育部还发布2026年高考预警信息，梳理汇总了近年来典型的高考诈骗案例与谣言，提醒广大考生和家长明辨高考谣言，诚信参加考试，谨防上当受骗。
+通过精准控制抽水速度，这个变速机组能利用新能源发出的电，每小时把28万立方米的水存进蓄水池，需要时再转化为绿色电力。
 
-案例3中，2022年高考期间，某考生故意避开入场安检，违规携带手机进入考场，开考后拍摄试卷发至QQ群寻求解答未果，并被公安机关第一时间依法查获。
+今年以来，伴随着新能源装机持续快速增长，全国抽水蓄能工程加快建设，截至3月底，已投运的抽水蓄能装机规模达到6709万千瓦。
 
-依据相关规定，违规考生被严肃处理。
+一季度，全国抽水蓄能机组发电量达到214亿千瓦时，同比增长12.8%。
 
-教育部提醒，无论何种理由、无论是否使用，携带手机、智能手表(手环)、智能眼镜等进入考场即构成作弊。
+与此同时，我国新型储能建设也跑出“加速度”。
 
-近年来，高考安检措施持续升级，多地考点已全面实行“智能安检门+人工安检”的模式。
+在江苏淮安，全球最大规模的压缩空气储能电站2号机组正在进行并入电网前的调试。
 
-提醒广大考生，务必要遵守考场规则，违禁物品一旦携带进入考场，无论是否使用，都将被认定为考试作弊，切勿因小失大，自毁前途。
+截至3月底，全国已投运的新型储能装机规模超1.4亿千瓦。
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 04:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 04:10 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 03:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 03:52 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 03:51 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 04:10 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 03:44 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 03:50 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 04:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 04:07 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 04:10 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 03:43 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 04:04 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 04:01 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 04:17 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 04:02 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 03:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 04:17 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 04:04 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 03:53 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 04:11 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 03:54 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 03:54 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 03:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:50 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/149621015.shtml)
-- 2026-06-30 03:53 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/46584859995.shtml)
-- 2026-06-30 03:52 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/63968799586.shtml)
-- 2026-06-30 04:05 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/83535563.shtml)
-- 2026-06-30 04:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/063130337.shtml)
-- 2026-06-30 03:57 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/81127.shtml)
-- 2026-06-30 03:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/2265003.shtml)
-- 2026-06-30 03:50 - [巴西扳平比分](http://www.blog.minike.top/Article/details/2851653.shtml)
-- 2026-06-30 04:09 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/6398907.shtml)
-- 2026-06-30 04:05 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/022644.shtml)
-- 2026-06-30 03:51 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/22303045398.shtml)
-- 2026-06-30 04:05 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/29615330597.shtml)
-- 2026-06-30 03:57 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/3748644460.shtml)
-- 2026-06-30 03:57 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/218135946.shtml)
-- 2026-06-30 03:55 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/098377606.shtml)
+- 2026-06-30 04:06 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/0647516511.shtml)
+- 2026-06-30 04:03 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/6551925647.shtml)
+- 2026-06-30 04:09 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/3493691937.shtml)
+- 2026-06-30 04:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/981355.shtml)
+- 2026-06-30 03:59 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/813592543.shtml)
+- 2026-06-30 04:14 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/205596613.shtml)
+- 2026-06-30 04:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/27116078.shtml)
+- 2026-06-30 03:58 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/970368672.shtml)
+- 2026-06-30 04:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/661983019131.shtml)
+- 2026-06-30 04:07 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/187323095.shtml)
+- 2026-06-30 04:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/032948.shtml)
+- 2026-06-30 04:00 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/1031626463.shtml)
+- 2026-06-30 03:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/4506820667.shtml)
+- 2026-06-30 03:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/97553.shtml)
+- 2026-06-30 03:48 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/344305.shtml)

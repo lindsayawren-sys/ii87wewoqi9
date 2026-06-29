@@ -1,59 +1,59 @@
-# 霍尼韦尔旗下昆腾拟扩大美股IPO规模，目标估值达143亿美元
+# 蔚来李斌谈为何不搞增程：错误归因会忽略真正原因，建换电站比装增程器更高效
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-霍尼韦尔旗下量子计算公司 昆腾（Quantinuum） 计划扩大美国首次公开募股（IPO）规模，目标最高估值达 143 亿美元，足见投资者对量子计算领域的高涨热情。 这家总部位于美国科罗拉多州布鲁姆菲尔德的企业于周一宣布，本次拟发行 2650 万股股票，发行价区间定为每股 53 至 55 美元，最高募资 14.6 亿美元。 公司此前规划为发行约 2110 万股，发行价每股 45
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。蔚来创始人、董事长、CEO李斌线上参与对话。 被问及蔚来为何一直坚持纯电路线而不搞增程时，李斌回应称，搞增程的话销量可能会比现在更多，但很多时候不能错误归因。一旦错误归因，该坚持什么、该改变什么就会搞错。 李斌指出，全世界十几年来公认做得最成功的汽车企业，比如特斯
 
 ## 正文
 
-霍尼韦尔旗下量子计算公司 昆腾（Quantinuum） 计划扩大美国首次公开募股（IPO）规模，目标最高估值达 143 亿美元，足见投资者对量子计算领域的高涨热情。
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-这家总部位于美国科罗拉多州布鲁姆菲尔德的企业于周一宣布，本次拟发行 2650 万股股票，发行价区间定为每股 53 至 55 美元，最高募资 14.6 亿美元。
+蔚来创始人、董事长、CEO李斌线上参与对话。
 
-公司此前规划为发行约 2110 万股，发行价每股 45 至 50 美元，最高募资 10.5 亿美元。
+被问及蔚来为何一直坚持纯电路线而不搞增程时，李斌回应称，搞增程的话销量可能会比现在更多，但很多时候不能错误归因。
 
-多家企业借当前向好的市场环境推进上市，赶在太空探索技术公司（SpaceX）重磅 IPO 前完成募资，美股 6 月 IPO 市场开局火热。
+一旦错误归因，该坚持什么、该改变什么就会搞错。
 
-本周共有七家来自国防、能源等领域的企业将确定发行价。
+李斌指出，全世界十几年来公认做得最成功的汽车企业，比如特斯拉，一直也是纯电路线，并没有影响卖车。
 
-摩根大通与摩根士丹利担任本次 IPO 的联席主承销商。
+也有一些搞增程的企业，车也没有卖好。
 
-昆腾预计于本周四在纳斯达克交易所挂牌上市，股票代码为QNT。
+“并不是说搞了增程就一定能卖好。
 
-责任编辑：郭明煜
+如果错误归因，前两年销量最高的是油车，难道去搞油车吗？
 
 ## 相关推荐
 
-- 2026-06-30 04:10 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 04:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 03:49 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 03:54 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 03:54 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 03:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 04:08 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 03:56 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 03:42 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 04:09 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 04:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 04:07 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 03:58 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 03:49 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 03:59 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 03:49 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 04:11 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 04:06 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 04:00 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 04:13 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 04:01 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 04:15 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 04:15 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 04:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 04:05 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 03:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/346278005280.shtml)
-- 2026-06-30 03:59 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/939284.shtml)
-- 2026-06-30 04:01 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/169012.shtml)
-- 2026-06-30 03:54 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/73969990775.shtml)
-- 2026-06-30 04:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/56665536877.shtml)
-- 2026-06-30 03:44 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/38707.shtml)
-- 2026-06-30 04:07 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/33349.shtml)
-- 2026-06-30 04:01 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/40991.shtml)
-- 2026-06-30 04:09 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/299968296.shtml)
-- 2026-06-30 03:47 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/763498.shtml)
-- 2026-06-30 03:52 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/5599088840.shtml)
-- 2026-06-30 04:00 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/2476994.shtml)
-- 2026-06-30 03:55 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/573867.shtml)
-- 2026-06-30 04:08 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/00117.shtml)
-- 2026-06-30 03:56 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/6169122.shtml)
+- 2026-06-30 04:09 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/8093886.shtml)
+- 2026-06-30 03:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/832703301.shtml)
+- 2026-06-30 04:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/20908356239.shtml)
+- 2026-06-30 03:58 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/90911.shtml)
+- 2026-06-30 04:02 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/2458848.shtml)
+- 2026-06-30 04:12 - [恋与深空回应争议](http://www.share.minike.top/Article/details/1495873847.shtml)
+- 2026-06-30 03:50 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/0618641318.shtml)
+- 2026-06-30 03:48 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/01607198203.shtml)
+- 2026-06-30 04:09 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/30329407.shtml)
+- 2026-06-30 04:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/233157.shtml)
+- 2026-06-30 03:52 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/22325113274.shtml)
+- 2026-06-30 04:14 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/6116607.shtml)
+- 2026-06-30 03:48 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/50667494234.shtml)
+- 2026-06-30 03:56 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/07003.shtml)
+- 2026-06-30 04:10 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/3126283985.shtml)

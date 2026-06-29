@@ -1,54 +1,56 @@
-# 战场“分身”帅爆了！直击无人机实战化作战训练现场
+# TrueCar快速采纳新定价披露规则，领先FTC合规要求
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:09 来源：中国新闻网 凌空砺羽，智战沙场。为全面锤炼官兵遂行多样化任务能力，夯实智能化作战基础，近日，武警内蒙古总队兴安支队扎实开展无人机实战化作战训练。训练全程紧贴实战标准，围绕无人机起降操控、空中侦察、目标锁定、协同打击、应急处置等课目展开专攻精练。参训人员严格依规操作、精细研判态势、默契协同配合，在近似实战的环境中突破技能难点、打
+平台全面升级，超越监管标准 TrueCar近日宣布实施一系列产品和政策更新，以符合并超越美国联邦贸易委员会（FTC）最新的《真实广告》标准及各州车辆定价透明度要求。此次改革的核心是实现“全包定价”（all-in pricing），将所有强制性经销商费用和附加费直接纳入向消费者展示的标价中。TrueCar创始人兼首席执行官Scott Painter表示：“TrueCar一直建立在
 
 ## 正文
 
-发布时间：2026年06月02日 10:09 来源：中国新闻网 凌空砺羽，智战沙场。
+平台全面升级，超越监管标准 TrueCar近日宣布实施一系列产品和政策更新，以符合并超越美国联邦贸易委员会（FTC）最新的《真实广告》标准及各州车辆定价透明度要求。
 
-为全面锤炼官兵遂行多样化任务能力，夯实智能化作战基础，近日，武警内蒙古总队兴安支队扎实开展无人机实战化作战训练。
+此次改革的核心是实现“全包定价”（all-in pricing），将所有强制性经销商费用和附加费直接纳入向消费者展示的标价中。
 
-训练全程紧贴实战标准，围绕无人机起降操控、空中侦察、目标锁定、协同打击、应急处置等课目展开专攻精练。
+TrueCar创始人兼首席执行官Scott Painter表示：“TrueCar一直建立在价格透明的基础上，这是我们的创始原则。
 
-参训人员严格依规操作、精细研判态势、默契协同配合，在近似实战的环境中突破技能难点、打磨战术素养，有效提升无人机班组空中作战、立体侦察和全域支援能力。
+FTC当前的执法行动验证了这一方法。
 
-全体参训人员斗志昂扬、刻苦钻研，在真训实练中补齐能力短板，以推动部队作战力量建设再上新台阶。
+” 行业监管压力升级 此举是对FTC持续加强汽车广告审查的主动回应。
 
-(作者：张嘉方 刘景琪 庞娇) 责任编辑：【魏聪聪】
+2026年3月，FTC已向近百家经销商集团发出警告信。
+
+在州层面，加州拟议的《CARS法案》与FTC要求保持一致，康涅狄格州已颁布法规要求所有费用必须包含在标价内，预示着汽车零售行业将迎来全面透明的定价体系。
+
+持续推动经销商改革 Painter强调：“监管机构明确表示模糊定价不再被接受。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 04:10 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 04:04 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 03:55 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 04:11 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 03:45 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 04:08 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 03:52 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 03:45 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 03:46 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 03:53 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 04:04 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 04:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 03:50 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 03:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-30 04:13 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 03:58 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 04:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 03:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 04:11 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 03:58 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 04:17 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/5809624137.shtml)
-- 2026-06-30 03:44 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/86440915332.shtml)
-- 2026-06-30 04:06 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/007677850.shtml)
-- 2026-06-30 03:50 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/362756842811.shtml)
-- 2026-06-30 04:09 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/3621474890.shtml)
-- 2026-06-30 03:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/56417.shtml)
-- 2026-06-30 04:09 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/44254.shtml)
-- 2026-06-30 04:08 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/986412.shtml)
-- 2026-06-30 03:57 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/7023063089.shtml)
-- 2026-06-30 04:05 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/66374544119.shtml)
-- 2026-06-30 04:05 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/081044.shtml)
-- 2026-06-30 03:50 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/2132017.shtml)
-- 2026-06-30 03:51 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/0829188776.shtml)
-- 2026-06-30 04:08 - [起风了](http://www.blog.minike.top/Article/details/76634613.shtml)
-- 2026-06-30 03:59 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/74483822.shtml)
+- 2026-06-30 03:54 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/6780335.shtml)
+- 2026-06-30 04:13 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/91841602.shtml)
+- 2026-06-30 04:01 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/443734658.shtml)
+- 2026-06-30 04:13 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/20227.shtml)
+- 2026-06-30 03:53 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/56722.shtml)
+- 2026-06-30 04:17 - [《共患难》](https://www.share.kurohicncr.top/Article/details/906755116676.shtml)
+- 2026-06-30 04:06 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/383513135.shtml)
+- 2026-06-30 03:50 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/298138.shtml)
+- 2026-06-30 04:14 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/36943218.shtml)
+- 2026-06-30 04:03 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/5159926.shtml)
+- 2026-06-30 03:48 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/4311752402.shtml)
+- 2026-06-30 03:57 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/4983044207.shtml)
+- 2026-06-30 03:52 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/427097.shtml)
+- 2026-06-30 03:50 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/9464820.shtml)
+- 2026-06-30 03:52 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/6034235277.shtml)

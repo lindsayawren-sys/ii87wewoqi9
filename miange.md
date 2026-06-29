@@ -1,54 +1,60 @@
-# Anthropic已保密提交IPO注册文件草案 最快今秋登陆美股
+# 外交部：“倚外谋独”“以武谋独”最终只是痴心妄想
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-Anthropic已保密提交IPO注册文件草案，力争最快于今年秋季登陆美股市场。 该公司周一在博客文章中表示：“拟发行股份数量及发行价格尚未确定。” 这家Claude聊天机器人开发商近期完成一轮融资，对公司估值（含本轮融资）达到9650亿美元，首次超过竞争对手OpenAI。 近几个月来，Anthropic与OpenAI在上市进程上你追我赶，双方都在推进IPO计划。此前有报道称，
+中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。 有记者提问：据报道，5月17日晚，赖清德在社交媒体发文，回应美国总统特朗普在结束访华后有关美国不支持台湾走向“独立”的表态，赖妄称“台湾是台海及区域和平稳定现状的‘维护者’”，“中华民国台湾是一个主权独立的民主国家”，“没有‘台独’问题”。中方对此有何评论？ 郭嘉昆：赖清德此番表演欲盖弥
 
 ## 正文
 
-Anthropic已保密提交IPO注册文件草案，力争最快于今年秋季登陆美股市场。
+中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。
 
-该公司周一在博客文章中表示：“拟发行股份数量及发行价格尚未确定。
+有记者提问：据报道，5月17日晚，赖清德在社交媒体发文，回应美国总统特朗普在结束访华后有关美国不支持台湾走向“独立”的表态，赖妄称“台湾是台海及区域和平稳定现状的‘维护者’”，“中华民国台湾是一个主权独立的民主国家”，“没有‘台独’问题”。
 
-” 这家Claude聊天机器人开发商近期完成一轮融资，对公司估值（含本轮融资）达到9650亿美元，首次超过竞争对手OpenAI。
+中方对此有何评论？
 
-近几个月来，Anthropic与OpenAI在上市进程上你追我赶，双方都在推进IPO计划。
+郭嘉昆：赖清德此番表演欲盖弥彰，再次暴露其顽固坚持推行“台独”分裂的本质和意图。
 
-此前有报道称，OpenAI正准备在未来数周内保密提交IPO申请文件，并计划于今年秋季上市。
+世界上只有一个中国，台湾从来不是一个国家，过去不是，今后更加绝无可能。
 
-责任编辑：李桐
+大陆和台湾同属一个中国。
+
+这是台海真正的现状。
+
+赖清德当局不断勾连外部势力谋“独”挑衅，企图推动台湾问题“国际化”，是台海现状的最大破坏者，是台海和平稳定的最大乱源。
 
 ## 相关推荐
 
-- 2026-06-30 03:45 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 03:47 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 04:06 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 04:03 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 03:57 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 03:49 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 03:44 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 04:10 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 03:46 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 03:54 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 03:53 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 04:11 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 03:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 03:53 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 04:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 03:54 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 04:14 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 04:01 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 03:57 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 03:49 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 04:07 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 03:53 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 04:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 04:11 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 03:54 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 03:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/330210424.shtml)
-- 2026-06-30 03:44 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/9462379.shtml)
-- 2026-06-30 04:07 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/23824273.shtml)
-- 2026-06-30 04:00 - [巴西扳平比分](http://www.blog.minike.top/Article/details/15526.shtml)
-- 2026-06-30 03:56 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/94575049856.shtml)
-- 2026-06-30 03:49 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/404516.shtml)
-- 2026-06-30 03:43 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/970349.shtml)
-- 2026-06-30 03:59 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/81402.shtml)
-- 2026-06-30 03:43 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/56876207.shtml)
-- 2026-06-30 04:02 - [日本16强魔咒](https://www.blog.minike.top/Article/details/921491113.shtml)
-- 2026-06-30 04:10 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/8395462.shtml)
-- 2026-06-30 03:50 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/84482216837.shtml)
-- 2026-06-30 03:43 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/22177.shtml)
-- 2026-06-30 03:43 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/7844048580.shtml)
-- 2026-06-30 03:59 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/21521921919.shtml)
+- 2026-06-30 04:14 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/21582312301.shtml)
+- 2026-06-30 03:57 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/76493238339.shtml)
+- 2026-06-30 04:14 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/7723069.shtml)
+- 2026-06-30 04:09 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/563626779249.shtml)
+- 2026-06-30 04:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/72957526457.shtml)
+- 2026-06-30 04:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/44586531688.shtml)
+- 2026-06-30 03:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/68739682849.shtml)
+- 2026-06-30 03:58 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/46131766433.shtml)
+- 2026-06-30 03:53 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/70497.shtml)
+- 2026-06-30 03:51 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/020321.shtml)
+- 2026-06-30 04:11 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/3579706.shtml)
+- 2026-06-30 03:48 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/0994056568.shtml)
+- 2026-06-30 03:58 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/83314263739.shtml)
+- 2026-06-30 03:48 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/3608315858.shtml)
+- 2026-06-30 03:57 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/08252849597.shtml)

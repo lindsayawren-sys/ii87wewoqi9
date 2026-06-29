@@ -1,56 +1,54 @@
-# iSTART儿童艺术节：打开读懂孩童世界的窗口
+# 深圳海关机关办公区玻璃幕墙安全性鉴定项目中标结果公告
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网成都6月1日电(单鹏)“很久以前，有一座岛上一本书都没有，也没有知识，所以叫作‘不知岛’。” “后来岛上长出了许多书，但岛主们发现知道的越多，不知道的反而更多。于是，这里依然叫作‘不知岛’。” 这是第十二届iSTART儿童艺术节上，一座名为“不知岛”的主题展区的叙事起点。在这座“岛”上，孩子们不只是读书，也发明书、管理书、重新想象书的形态。80本《小小书》、关于麓湖水生态
+一、项目编号：CB-BS-2026-0324-01 二、项目名称：深圳海关机关办公区玻璃幕墙安全性鉴定项目 三、中标信息 供应商名称：广州建设工程质量安全检测中心有限公司 供应商地址：广州市白云区白云大道北833号一、三、四层 中标金额：人民币贰拾柒万叁仟玖佰捌拾壹元零伍分(273,981.05元) 四、主要标的信息 五、评审专家名单：胡永红、赖向前、王钢波、何仁辉、张志刚。
 
 ## 正文
 
-中新网成都6月1日电(单鹏)“很久以前，有一座岛上一本书都没有，也没有知识，所以叫作‘不知岛’。
+一、项目编号：CB-BS-2026-0324-01 二、项目名称：深圳海关机关办公区玻璃幕墙安全性鉴定项目 三、中标信息 供应商名称：广州建设工程质量安全检测中心有限公司 供应商地址：广州市白云区白云大道北833号一、三、四层 中标金额：人民币贰拾柒万叁仟玖佰捌拾壹元零伍分(273,981.05元) 四、主要标的信息 五、评审专家名单：胡永红、赖向前、王钢波、何仁辉、张志刚。
 
-” “后来岛上长出了许多书，但岛主们发现知道的越多，不知道的反而更多。
+六、代理服务收费标准及金额：按照招标文件规定执行，金额：5,000.00元。
 
-于是，这里依然叫作‘不知岛’。
+七、公告期限 自本公告发布之日起1个工作日。
 
-” 这是第十二届iSTART儿童艺术节上，一座名为“不知岛”的主题展区的叙事起点。
+八、其它补充事宜 九、凡对本次公告内容提出询问，请按以下方式联系。
 
-在这座“岛”上，孩子们不只是读书，也发明书、管理书、重新想象书的形态。
-
-80本《小小书》、关于麓湖水生态的共创桌游《小水滴麓湖奇遇记》、由视障儿童制作的触摸书《赵老师的音符》，以及用AI设计银河星际列车的10岁“工程师”，都汇聚于此。
-
-“六一”国际儿童节是属于孩童的烂漫时刻，也是倾听少年心声、看见儿童力量的最佳契机。
-
-在成都，由A4儿童艺术馆主办的第十二届iSTART儿童艺术节聚焦童心与思考，在节日里为大众打开一扇读懂孩童世界的窗口。
+1.采购人信息 名称：中华人民共和国深圳海关 地址：深圳市福田区深南大道2006号 联系人：谭小姐 联系方式：0755-84398741 2.社会招标代理机构 名称：深圳市加乐咨询有限公司 地址：深圳市福田区深南大道1003号大中华国际金融中心A座10楼(岗厦北站14口) 联系方式：0755-82997987 3.项目联系方式 项目负责人：袁驰、王捷、康娇艳、范舜矩、王丽 项目联系人电话：0755-82997987 邮箱：yuanc@calebcn.com 深圳市加乐咨询有限公司 2026年5月15日
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 04:06 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 03:44 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 03:46 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 03:58 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 03:42 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 03:52 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 04:06 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 03:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 03:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 04:15 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-30 04:10 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 04:04 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 03:51 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 03:51 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 03:48 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 03:52 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 04:03 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 04:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 03:50 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 04:10 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 04:06 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 04:04 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 04:16 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/600365940323.shtml)
-- 2026-06-30 04:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/646579757405.shtml)
-- 2026-06-30 03:43 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/401428320329.shtml)
-- 2026-06-30 04:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/493169.shtml)
-- 2026-06-30 04:01 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/5073316794.shtml)
-- 2026-06-30 03:59 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/8211817884.shtml)
-- 2026-06-30 03:51 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/98176.shtml)
-- 2026-06-30 04:09 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/3862570458.shtml)
-- 2026-06-30 04:02 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/48652653.shtml)
-- 2026-06-30 03:50 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/035403.shtml)
-- 2026-06-30 03:44 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/806756.shtml)
-- 2026-06-30 04:06 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/187508.shtml)
-- 2026-06-30 04:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/7974487.shtml)
-- 2026-06-30 03:53 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/1411006.shtml)
-- 2026-06-30 03:48 - [《共患难》](https://www.share.minike.top/Article/details/88068828.shtml)
+- 2026-06-30 03:49 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/187303.shtml)
+- 2026-06-30 03:52 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/51581185.shtml)
+- 2026-06-30 03:59 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/16240.shtml)
+- 2026-06-30 04:10 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/4694175.shtml)
+- 2026-06-30 03:54 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/277147356.shtml)
+- 2026-06-30 04:00 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/65113.shtml)
+- 2026-06-30 03:50 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/3541537.shtml)
+- 2026-06-30 04:08 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/489027928135.shtml)
+- 2026-06-30 04:06 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/97937.shtml)
+- 2026-06-30 04:05 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/80124385.shtml)
+- 2026-06-30 03:54 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/3567331135.shtml)
+- 2026-06-30 04:16 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/87663.shtml)
+- 2026-06-30 04:08 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/9013603.shtml)
+- 2026-06-30 03:53 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/0621576857.shtml)
+- 2026-06-30 03:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/642900108970.shtml)

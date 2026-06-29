@@ -1,51 +1,57 @@
-# 上海：做强金融基础设施和多层次金融市场
+# 紫砂雕刻传人以刀代笔雕雅器 心承文脉传非遗
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-人民财讯6月1日电，上海市人民政府办公厅印发《上海市服务业发展“十五五”规划》，其中提到，着力丰富金融服务高质量供给。做强金融基础设施和多层次金融市场，提高人民币跨境支付系统（CIPS）全球网络覆盖度，支持银行间市场交易报告库建设；深化实施股票发行注册制改革，健全常态化退市机制；深化发展“一带一路”债券和熊猫债、玉兰债市场；推动期货和衍生品市场产品创新，推进人民币外汇期货交易试
+中新网上海5月16日电 题：紫砂雕刻传人以刀代笔雕雅器 心承文脉传非遗 作者 范宇斌 “玩壶尚志彬心游艺”贺志斌紫砂雕刻展16日在上海朵云轩开幕。本次展览展出江苏省溧阳市紫砂雕刻非遗代表性传承人、一级(高级)陶艺师、中华文化促进会紫砂产业工作委员会副秘书长贺志斌的220余件作品，展现海派紫砂雕刻的独特艺术精髓与深厚文化内涵。 贺志斌出身书香门第，自幼接受传统文化熏陶，师承海派雕
 
 ## 正文
 
-人民财讯6月1日电，上海市人民政府办公厅印发《上海市服务业发展“十五五”规划》，其中提到，着力丰富金融服务高质量供给。
+中新网上海5月16日电 题：紫砂雕刻传人以刀代笔雕雅器 心承文脉传非遗 作者 范宇斌 “玩壶尚志彬心游艺”贺志斌紫砂雕刻展16日在上海朵云轩开幕。
 
-做强金融基础设施和多层次金融市场，提高人民币跨境支付系统（CIPS）全球网络覆盖度，支持银行间市场交易报告库建设；深化实施股票发行注册制改革，健全常态化退市机制；深化发展“一带一路”债券和熊猫债、玉兰债市场；推动期货和衍生品市场产品创新，推进人民币外汇期货交易试点；深化信托财产登记制度试点。
+本次展览展出江苏省溧阳市紫砂雕刻非遗代表性传承人、一级(高级)陶艺师、中华文化促进会紫砂产业工作委员会副秘书长贺志斌的220余件作品，展现海派紫砂雕刻的独特艺术精髓与深厚文化内涵。
 
-提升金融市场开放度和国际化服务竞争力，深化临港离岸贸易金融服务综合改革试点，持续增强国际再保险、全球资产管理等重点中心功能，不断提升“上海价格”“上海指数”以及主要大宗商品和重要能源品种期现货价格的国际影响力；拓展自由贸易账户功能及应用场景。
+贺志斌出身书香门第，自幼接受传统文化熏陶，师承海派雕刻大师、上海市文史研究馆馆员龚展。
 
-提高金融服务实体经济质效，加快构建全周期、多元化、接力式科技金融服务体系；推动绿色金融标准、相关可持续金融标准的多领域应用；加强政策性融资担保和普惠保险体系支持，积极发展普惠金融；丰富养老金融产品，提升金融服务适老化水平；稳步发展数字人民币，提升金融科技创新服务水平。
+在艺术修行之路上，他深耕宋元明清历代书画，坚守“以意趣为尚”的创作理念，精通以刀代笔的雕刻技法，将文人写意美学巧妙融合于紫砂器物创作中，让作品兼具古朴金石气与清雅书卷气，形成独有的艺术风格。
 
-责任编辑：李琳琳
+贺志斌当日接受中新网专访时介绍，紫砂雕刻创作最难的并非技法本身，而在于创作者的文化底蕴以及对书画艺术的理解。
+
+区别于侧重制壶工艺的宜兴紫砂，溧阳紫砂雕刻最大的特色是将传统书画艺术融入紫砂器物。
+
+他潜心钻研古代书画流派风格与文化内核，结合紫砂器物造型，对书画艺术进行二次创作，让书画艺术在紫砂载体上焕发新生。
+
+在创作方面，贺志斌坚持无草稿直接雕刻。
 
 ## 相关推荐
 
-- 2026-06-30 04:06 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 03:45 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 03:56 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 03:54 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 03:45 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 04:02 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 03:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 03:58 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 04:08 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 04:09 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 03:57 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 03:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 04:12 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 04:17 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 04:10 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 03:52 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 04:02 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 04:04 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 04:09 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 04:10 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 03:57 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 04:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/45034251.shtml)
-- 2026-06-30 03:42 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/88608287070.shtml)
-- 2026-06-30 03:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/708620659.shtml)
-- 2026-06-30 04:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/18346495.shtml)
-- 2026-06-30 03:59 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/53500360.shtml)
-- 2026-06-30 03:58 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/807228309.shtml)
-- 2026-06-30 04:03 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/841884.shtml)
-- 2026-06-30 04:00 - [月亮](https://www.share.kurohicncr.top/Article/details/48844.shtml)
-- 2026-06-30 04:10 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/267773968956.shtml)
-- 2026-06-30 03:44 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/0465050182.shtml)
-- 2026-06-30 03:42 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/276648757.shtml)
-- 2026-06-30 04:09 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/7446670654.shtml)
-- 2026-06-30 04:06 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/570833745.shtml)
-- 2026-06-30 04:06 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/656238.shtml)
-- 2026-06-30 03:51 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/65833347.shtml)
+- 2026-06-30 04:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/7637844.shtml)
+- 2026-06-30 03:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/18837.shtml)
+- 2026-06-30 04:08 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/36817510036.shtml)
+- 2026-06-30 03:53 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/835139.shtml)
+- 2026-06-30 04:01 - [一生一世](http://www.share.kurohicncr.top/Article/details/96985599.shtml)
+- 2026-06-30 03:57 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/45358837.shtml)
+- 2026-06-30 04:16 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/12531658.shtml)
+- 2026-06-30 03:48 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/7118969.shtml)
+- 2026-06-30 04:00 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/22430.shtml)
+- 2026-06-30 04:13 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/421214369.shtml)
+- 2026-06-30 03:49 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/857505.shtml)
+- 2026-06-30 03:52 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/0214262.shtml)
+- 2026-06-30 04:11 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/369403.shtml)
+- 2026-06-30 04:14 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/3097782110.shtml)
+- 2026-06-30 03:48 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/08427.shtml)

@@ -1,57 +1,56 @@
-# 棉花期货走高 受供应缺口扩大预期叠加油价上涨影响
+# 300658，重大资产重组终止
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-受全球棉花缺口预期加剧及油价反弹提振，纽约棉花期货连续第三个交易日上涨。 最活跃合约一度上涨2.5%，至每磅81.61美分，创5月20日以来新高。今年以来，受油价上涨提振棉花相对于石油基合成纤维的竞争力，加之市场预期供应紧张，棉花期货价格持续走高。 市场分析机构Cotlook上周将2026-27年度全球棉花缺口预测上调至65.7万吨，这是该机构第三次上调预测，理由是孟加拉国、印
+来源：中国基金报 【导读】延江股份宣布终止重大资产重组事项，未能在关键核心条款达成一致 中国基金报记者 忆山 5月18日，延江股份发布公告称，公司董事会于当日审议通过《关于终止发行股份及支付现金购买资产并募集配套资金暨关联交易的议案》，同意公司终止本次重大资产重组事项。 今年1月，延江股份宣布，公司拟以发行股份及支付现金的方式购买宁波甬强科技有限公司（以下简称甬强科技）98.5
 
 ## 正文
 
-受全球棉花缺口预期加剧及油价反弹提振，纽约棉花期货连续第三个交易日上涨。
+来源：中国基金报 【导读】延江股份宣布终止重大资产重组事项，未能在关键核心条款达成一致 中国基金报记者 忆山 5月18日，延江股份发布公告称，公司董事会于当日审议通过《关于终止发行股份及支付现金购买资产并募集配套资金暨关联交易的议案》，同意公司终止本次重大资产重组事项。
 
-最活跃合约一度上涨2.5%，至每磅81.61美分，创5月20日以来新高。
+今年1月，延江股份宣布，公司拟以发行股份及支付现金的方式购买宁波甬强科技有限公司（以下简称甬强科技）98.54%股权，并募集配套资金。
 
-今年以来，受油价上涨提振棉花相对于石油基合成纤维的竞争力，加之市场预期供应紧张，棉花期货价格持续走高。
+本次交易构成关联交易，预计构成重大资产重组，不构成重组上市。
 
-市场分析机构Cotlook上周将2026-27年度全球棉花缺口预测上调至65.7万吨，这是该机构第三次上调预测，理由是孟加拉国、印度和越南的需求增强。
+官网资料显示，甬强科技成立于2019年12月，公司主要研发生产IC载板、高端显示基板、高速高频载板等，高端产品已通过Intel、华为、浪潮、曙光、新华三、旭创等国内外头部企业性能认证。
 
-这使得看涨前景更加强劲。
+自成立以来，公司已获得多家产业资本及知名基金参与的三轮总额达2.1亿元的市场化投资，估值超10亿元。
 
-价格：纽约棉花期货上涨1.3%，至每磅80.65美分。
+在最新公告中，延江股份表示，在本次交易筹划期间，公司严格按照相关法律法规及规范性文件要求，积极组织标的公司、交易对方、中介服务机构等相关方一起积极、有序地推进本次交易有关各项工作。
 
-纽约可可期货上涨4%。
+延江股份称，经与交易对方就本次重大资产重组交易方案进行多轮商洽，各方未能就业绩对赌、并购估值定价等关键核心条款达成一致，本次并购交易进度在执行上具有较大的不确定性。
 
-责任编辑：江学思
+考虑到在有效时间窗口内难以形成满足各方诉求的可行方案，为切实维护公司及全体股东利益，经审慎研究并与交易相关方协商，公司拟终止本次重大资产重组交易。
 
 ## 相关推荐
 
-- 2026-06-30 03:45 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 03:47 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 03:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 04:00 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 04:02 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 03:44 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-30 03:55 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 03:45 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 04:12 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 03:47 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 04:05 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 03:57 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 04:02 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 04:05 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 04:04 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 04:03 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 03:59 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 04:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 04:12 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 03:52 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 04:08 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:07 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/80331325.shtml)
-- 2026-06-30 03:48 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/83141641723.shtml)
-- 2026-06-30 03:44 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/15252631131.shtml)
-- 2026-06-30 04:05 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/94154.shtml)
-- 2026-06-30 04:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/602518.shtml)
-- 2026-06-30 03:55 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/119431308.shtml)
-- 2026-06-30 04:07 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/941899.shtml)
-- 2026-06-30 03:43 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/4981516488.shtml)
-- 2026-06-30 03:43 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/20497664066.shtml)
-- 2026-06-30 04:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/77854979996.shtml)
-- 2026-06-30 03:51 - [苗族银饰](https://www.share.minike.top/Article/details/24710815544.shtml)
-- 2026-06-30 03:46 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/49318173174.shtml)
-- 2026-06-30 04:06 - [锐评T1零封KC](https://www.share.minike.top/Article/details/5341835218.shtml)
-- 2026-06-30 03:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/1755346306.shtml)
-- 2026-06-30 03:57 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/8896134183.shtml)
+- 2026-06-30 03:59 - [扬名立万](https://www.blog.minike.top/Article/details/81573866805.shtml)
+- 2026-06-30 03:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/214359949929.shtml)
+- 2026-06-30 03:53 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/9238725.shtml)
+- 2026-06-30 04:02 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/570663765.shtml)
+- 2026-06-30 04:00 - [女心理师](https://www.blog.kurohicncr.top/Article/details/43776035479.shtml)
+- 2026-06-30 04:05 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/097258290453.shtml)
+- 2026-06-30 04:01 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/87869.shtml)
+- 2026-06-30 04:03 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/296826974.shtml)
+- 2026-06-30 03:57 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/6025470907.shtml)
+- 2026-06-30 04:12 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/2404159.shtml)
+- 2026-06-30 04:13 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/71675391.shtml)
+- 2026-06-30 04:00 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/81764.shtml)
+- 2026-06-30 03:55 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/159739.shtml)
+- 2026-06-30 03:57 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/011254604.shtml)
+- 2026-06-30 04:11 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/3646406.shtml)

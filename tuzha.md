@@ -1,59 +1,57 @@
-# 海智在线佘莹：AI不是效率工具，它就是取代人
+# 民生人寿总资产缩水160亿，船大难掉头
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-专题：SWCC首届女性CEO大会 上海市工商联女企业家联合会第一届第一次会员大会暨SWCC首届女性CEO大会5月31日在上海举行。上海海智在线网络科技有限公司创始人兼董事长佘莹表示，AI在倒逼我自己更诚实的做决策。 佘莹指出，正是AI先让她感受到它可以放大并代替自己做很多原来做不到的事情，她才真正下决心在公司层面推行All in AI的改革。她强调，所有的变革不应是因为害怕被行
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 文|辛苔 编辑|言生 民生人寿的二十余载历程，可以说是中国民营资本逐鹿金融保险行业的缩影。早期，便经历了两大派系——“万向系”与“泛海系”的资本博弈。而由于股权架构的不稳定，直接波及了公司管理层的稳定性，一度出现了长期的“群龙无首”状态，坎坷不断。 如今，历史遗留问题犹存，公司经营大起大落、合规漏洞频出，再次将这
 
 ## 正文
 
-专题：SWCC首届女性CEO大会 上海市工商联女企业家联合会第一届第一次会员大会暨SWCC首届女性CEO大会5月31日在上海举行。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 文|辛苔 编辑|言生 民生人寿的二十余载历程，可以说是中国民营资本逐鹿金融保险行业的缩影。
 
-上海海智在线网络科技有限公司创始人兼董事长佘莹表示，AI在倒逼我自己更诚实的做决策。
+早期，便经历了两大派系——“万向系”与“泛海系”的资本博弈。
 
-佘莹指出，正是AI先让她感受到它可以放大并代替自己做很多原来做不到的事情，她才真正下决心在公司层面推行All in AI的改革。
+而由于股权架构的不稳定，直接波及了公司管理层的稳定性，一度出现了长期的“群龙无首”状态，坎坷不断。
 
-她强调，所有的变革不应是因为害怕被行业后来者干掉，而是因为AI放大了很多原来做不到的事，让人看见了更多的机会。
+如今，历史遗留问题犹存，公司经营大起大落、合规漏洞频出，再次将这家老牌民营险企推向大众视野。
 
-佘莹直言：“在我眼里，我觉得AI不是效率工具，我觉得它就是取代人，让我们拥抱更高级的人。
+01 经营难题 单看2026年一季度数据，民生人寿的经营表现中规中矩。
 
-” 新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+具体而言，截至一季度末，公司实现保险业务收入38.59亿元，同比微降6.49%；实现净利润6143.38万元，同比大幅增长947.43%。
 
-责任编辑：李思阳
+图源：2026年第一季度偿付能力报告 渠道端来看，一季度里，个人渠道狂揽38.94亿元，占比高达93.5%；而银保渠道仅2.22亿元，渠道结构存在严重“偏科”。
+
+值得注意的是，公司期末个人营销员数量仅为6892人。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 04:07 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 04:03 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 04:08 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 04:00 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 03:59 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 04:08 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 03:52 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 03:54 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 04:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 03:51 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 03:42 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 04:08 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 04:07 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 03:55 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 04:14 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 04:06 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 03:55 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 04:17 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 03:51 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 04:10 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 03:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 03:59 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 04:03 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 04:15 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 03:50 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/5487100530.shtml)
-- 2026-06-30 03:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/199164.shtml)
-- 2026-06-30 03:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/931205.shtml)
-- 2026-06-30 03:55 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/6952253.shtml)
-- 2026-06-30 03:54 - [啊啊啊](http://www.share.minike.top/Article/details/08791958504.shtml)
-- 2026-06-30 03:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/820614.shtml)
-- 2026-06-30 03:53 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/066273.shtml)
-- 2026-06-30 03:56 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/7219260.shtml)
-- 2026-06-30 04:03 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/38899681342.shtml)
-- 2026-06-30 04:09 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/451583817.shtml)
-- 2026-06-30 03:45 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/42355.shtml)
-- 2026-06-30 04:11 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/674339665.shtml)
-- 2026-06-30 04:00 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/893167283.shtml)
-- 2026-06-30 04:03 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/691801.shtml)
-- 2026-06-30 04:03 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/6053944.shtml)
+- 2026-06-30 03:53 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/1625438.shtml)
+- 2026-06-30 04:14 - [极限挑战第一季](http://www.share.minike.top/Article/details/535869.shtml)
+- 2026-06-30 03:57 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/835456784373.shtml)
+- 2026-06-30 03:48 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/8491502752.shtml)
+- 2026-06-30 03:52 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/8634953.shtml)
+- 2026-06-30 03:55 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/3896255723.shtml)
+- 2026-06-30 04:14 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/1178413198.shtml)
+- 2026-06-30 03:58 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/237924260.shtml)
+- 2026-06-30 03:51 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/549542.shtml)
+- 2026-06-30 04:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/22332.shtml)
+- 2026-06-30 03:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/61346053234.shtml)
+- 2026-06-30 04:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/82144324916.shtml)
+- 2026-06-30 03:57 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/42104650838.shtml)
+- 2026-06-30 03:49 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/5956523.shtml)
+- 2026-06-30 03:49 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/503037.shtml)

@@ -1,52 +1,58 @@
-# A股收评：超3700只个股飘红，三大指数集体收跌
+# ETF失守5万亿元大关，5家头部公募一周“瘦身”超百亿元 | ETF规模周报
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-A股收评：超3700只个股飘红，三大指数集体收跌，科创50跌5%；半导体板块全天下跌，通信设备大跌，煤炭、能源设备、石油化工上涨 1日，A股三大指数开盘涨跌不一，全天震荡，集体收跌。截至收盘，沪指跌0.27%，深证成指跌1.51%，创业板指跌2.15%，科创50跌5%。 全市成交额2.90万亿，超3700只个股上涨。 板块方面，煤炭板块全天爆发，石油化工、能源设备、软件、文化传
+每经记者|彭水萍 每经编辑|叶峰 5月11日~5月15日，A股先扬后抑，主要指数均在创出阶段新高后回落，沪深300指数周跌0.25%，中证A500指数跌0.79%；创业板指周涨3.5%，科创50指数涨3.4%；港股震荡回落，恒生指数周跌1.63%，恒生科技指数跌3.17%。 股指创新高后迅速回撤，ETF市场深受影响。本周全市场ETF规模骤减超1500亿元，5万亿元大关防线失守，
 
 ## 正文
 
-A股收评：超3700只个股飘红，三大指数集体收跌，科创50跌5%；半导体板块全天下跌，通信设备大跌，煤炭、能源设备、石油化工上涨 1日，A股三大指数开盘涨跌不一，全天震荡，集体收跌。
+每经记者|彭水萍 每经编辑|叶峰 5月11日~5月15日，A股先扬后抑，主要指数均在创出阶段新高后回落，沪深300指数周跌0.25%，中证A500指数跌0.79%；创业板指周涨3.5%，科创50指数涨3.4%；港股震荡回落，恒生指数周跌1.63%，恒生科技指数跌3.17%。
 
-截至收盘，沪指跌0.27%，深证成指跌1.51%，创业板指跌2.15%，科创50跌5%。
+股指创新高后迅速回撤，ETF市场深受影响。
 
-全市成交额2.90万亿，超3700只个股上涨。
+本周全市场ETF规模骤减超1500亿元，5万亿元大关防线失守，华夏、易方达等5家头部公募ETF规模集体“瘦身”超百亿元。
 
-板块方面，煤炭板块全天爆发，石油化工、能源设备、软件、文化传媒、燃气等上涨；半导体、通信设备领跌，电子元器件、电脑硬件等跌幅居前。
+不过，热门主题指数表现出较强韧性，半导体材料设备指数逆袭成“增量王”，黄金ETF避险属性再度显现，多只产品因“跌得少”而实现排名提升。
 
-(“中新经纬”微信公众号)
+股指创新高后回落，最受伤的却是ETF市场。
+
+本周，除货币型ETF微增3.77亿元外，其余各大分类ETF均出现规模缩水。
+
+其中，股票型ETF全周缩水1204.27亿元，跨境ETF也缩水218.35亿元，权益产品受影响较为严重；债券型ETF本周缩水34.76亿元，商品型ETF规模也下滑105.7亿元。
+
+股债双杀背景下，全市场ETF规模本周缩水1559.3亿元，总规模跌破5万亿元至4.97万亿元。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 04:09 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 04:04 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 04:00 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 04:11 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 03:48 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 04:08 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 03:58 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 04:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 04:04 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 03:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 03:56 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 03:53 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 03:58 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 03:50 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 03:48 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 03:51 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 04:03 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 03:51 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 03:55 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-30 03:56 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 03:54 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 03:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 04:00 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [扬名立万](https://www.blog.minike.top/Article/details/159995354.shtml)
-- 2026-06-30 03:56 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/7242016043.shtml)
-- 2026-06-30 03:45 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/6083738569.shtml)
-- 2026-06-30 03:59 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/963848054.shtml)
-- 2026-06-30 04:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/2416454035.shtml)
-- 2026-06-30 04:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/97750.shtml)
-- 2026-06-30 03:55 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/07135820549.shtml)
-- 2026-06-30 03:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/79395.shtml)
-- 2026-06-30 03:58 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/921829.shtml)
-- 2026-06-30 03:55 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/051807.shtml)
-- 2026-06-30 04:01 - [千与千寻](https://www.share.kurohicncr.top/Article/details/97785264.shtml)
-- 2026-06-30 03:45 - [房价什么时候能涨](https://www.share.minike.top/Article/details/45786.shtml)
-- 2026-06-30 03:53 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/4917279091.shtml)
-- 2026-06-30 04:11 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/0068338.shtml)
-- 2026-06-30 04:04 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/188223772975.shtml)
+- 2026-06-30 03:49 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/82025470664.shtml)
+- 2026-06-30 03:54 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/548950619.shtml)
+- 2026-06-30 04:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/142688908580.shtml)
+- 2026-06-30 03:49 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/60093.shtml)
+- 2026-06-30 04:14 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/02154.shtml)
+- 2026-06-30 03:50 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/53792739507.shtml)
+- 2026-06-30 03:49 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/51008.shtml)
+- 2026-06-30 03:51 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/75509841419.shtml)
+- 2026-06-30 03:59 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/725008978.shtml)
+- 2026-06-30 04:08 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/827745226546.shtml)
+- 2026-06-30 03:49 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/08299043.shtml)
+- 2026-06-30 03:50 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/473851125334.shtml)
+- 2026-06-30 03:52 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/835361.shtml)
+- 2026-06-30 04:09 - [周生如故](http://www.blog.minike.top/Article/details/0839710905.shtml)
+- 2026-06-30 04:11 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/059660933608.shtml)

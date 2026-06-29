@@ -1,61 +1,50 @@
-# 中本聪摊上官司？价值837亿美元BTC要被人“合法招领”了
+# 中金公司发布未来三年股东回报规划，现金分红比例不低于30%
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-文章来源：Odaily 没有密钥也能夺权？若此案原告胜诉，任何休眠比特币都可能被他人通过法院认领。 原文：Galaxy；译者：Golem；编辑：秦晓峰 出品 | Odaily星球日报（ID：o-daily） 万万没想到，比特币创始人中本聪有一天也会摊上官司，钱包地址“所有权”可能被人夺走。而此刻正在看文章的你，可能也是“被告”之一，只要你也有休眠的比特币地址。 今年三月，纽约州
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！人民财讯5月18日电，5月18日，中金公司在披露吸收合并东兴、信达草案的同时，发布《未来三年（2026—2028年）股东回报规划》。根据规划，如无重大投资计划或重大现金支出等事项发生，且实施现金分红后公司各项风险控制指标可以符合监管规定并满足公司正常经营的资金需求情况下，在任意连续的3个年度内，中金公司以现
 
 ## 正文
 
-文章来源：Odaily 没有密钥也能夺权？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-若此案原告胜诉，任何休眠比特币都可能被他人通过法院认领。
+人民财讯5月18日电，5月18日，中金公司在披露吸收合并东兴、信达草案的同时，发布《未来三年（2026—2028年）股东回报规划》。
 
-原文：Galaxy；译者：Golem；编辑：秦晓峰 出品 | Odaily星球日报（ID：o-daily） 万万没想到，比特币创始人中本聪有一天也会摊上官司，钱包地址“所有权”可能被人夺走。
+根据规划，如无重大投资计划或重大现金支出等事项发生，且实施现金分红后公司各项风险控制指标可以符合监管规定并满足公司正常经营的资金需求情况下，在任意连续的3个年度内，中金公司以现金方式累计分配的利润不少于该3年实现的年均可分配利润的30%。
 
-而此刻正在看文章的你，可能也是“被告”之一，只要你也有休眠的比特币地址。
+间隔上，中金公司表示，原则上每年度进行一次利润分配，董事会可以根据公司盈利情况及资金需求状况和有关条件提议公司进行中期利润分配。
 
-今年三月，纽约州最高法院受理了一起诉讼：原告试图确认其对与 39，069 个比特币地址关联的超过 370 万枚比特币（约合 2740 亿美元）的所有权，原告化名 Noah Doe 和两家未具名的怀俄明州有限责任公司（化名“ABC 公司”和“XYZ 公司”）。
-
-原告请求纽约州最高法院，根据纽约州失物招领法通过宣告判决诉讼，确认他们拥有这些休眠的的所有权。
-
-更重要的是，这 39，069 个地址中还包括疑似属于比特币创始人中本聪的地址（共 21，744 个地址，持有约 109 万枚比特币，按当前价格计算价值约 837 亿美元）。
-
-简单来说，一位匿名人士及其在怀俄明州注册的公司正试图让纽约法院裁定，比特币创始人中本聪的比特币（以及许多其他加密货币）属于遗失财产，他们理应因“捡到”这些比特币而合法拥有所有权。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 04:04 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 04:01 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 03:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 03:56 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 03:58 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 03:43 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 03:43 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 03:56 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 03:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 03:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 04:11 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 03:52 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 04:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 04:00 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 03:52 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 04:06 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 03:56 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 04:08 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 03:54 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 04:06 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 03:50 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 04:02 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 03:56 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 03:54 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 04:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:48 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/3373506357.shtml)
-- 2026-06-30 03:54 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/6742632552.shtml)
-- 2026-06-30 03:52 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/8523959.shtml)
-- 2026-06-30 03:52 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/3398197.shtml)
-- 2026-06-30 04:05 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/6865028.shtml)
-- 2026-06-30 03:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/410722.shtml)
-- 2026-06-30 03:44 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/1416768.shtml)
-- 2026-06-30 04:04 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/520439.shtml)
-- 2026-06-30 03:59 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/318531.shtml)
-- 2026-06-30 03:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/79632.shtml)
-- 2026-06-30 03:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/840518754260.shtml)
-- 2026-06-30 04:06 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/41190.shtml)
-- 2026-06-30 04:10 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/5429395150.shtml)
-- 2026-06-30 03:49 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/37519714.shtml)
-- 2026-06-30 03:42 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/8488682.shtml)
+- 2026-06-30 03:57 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/859873.shtml)
+- 2026-06-30 03:56 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/2499996884.shtml)
+- 2026-06-30 04:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/0888162.shtml)
+- 2026-06-30 03:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/02957.shtml)
+- 2026-06-30 04:11 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/27426.shtml)
+- 2026-06-30 04:16 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/208637875745.shtml)
+- 2026-06-30 04:13 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/296185387.shtml)
+- 2026-06-30 04:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/29856881.shtml)
+- 2026-06-30 04:03 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/75185.shtml)
+- 2026-06-30 04:04 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/871504628.shtml)
+- 2026-06-30 03:56 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/1568206198.shtml)
+- 2026-06-30 04:02 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/65207829.shtml)
+- 2026-06-30 04:00 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/29817.shtml)
+- 2026-06-30 03:59 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/4510216.shtml)
+- 2026-06-30 03:59 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/178994755.shtml)

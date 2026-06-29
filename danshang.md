@@ -1,56 +1,60 @@
-# 首届澳门国际网络视听节开幕 业界共议打造跨文化传播“转化器”
+# 存储芯片龙头，资金爆买，已连续5周获加仓
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新社澳门6月2日电 (记者 郑嘉伟)首届澳门国际网络视听节2日开幕，来自中国内地、港澳及葡语国家等地的政府代表、平台机构与创作者齐聚澳门，围绕网络视听产业的国际化发展展开研讨。与会嘉宾认为，澳门应利用“一国两制”及中葡平台优势，主动升级为“文明转化器”，助力中华文化出海。多位嘉宾指出，澳门不应仅是活动的举办地，更应成为跨文化传播的“翻译层”与“转化器”。 澳门网络视听协会会长
+澜起科技获南向资金净买入超10亿港元。 本周（5月11日至15日），港股市场主要股指集体下跌，恒生指数跌1.63%，恒生科技指数跌3.17%，恒生中国企业指数跌2.23%。据证券时报·数据宝统计，本周南向资金合计成交净买入93.33亿港元。 连续五周净买入澜起科技 从本周成交活跃股来看，共有22只个股上榜，阿里巴巴-W本周港股通合计买卖总额最高，达到382.9亿港元， 腾讯控股
 
 ## 正文
 
-中新社澳门6月2日电 (记者 郑嘉伟)首届澳门国际网络视听节2日开幕，来自中国内地、港澳及葡语国家等地的政府代表、平台机构与创作者齐聚澳门，围绕网络视听产业的国际化发展展开研讨。
+澜起科技获南向资金净买入超10亿港元。
 
-与会嘉宾认为，澳门应利用“一国两制”及中葡平台优势，主动升级为“文明转化器”，助力中华文化出海。
+本周（5月11日至15日），港股市场主要股指集体下跌，恒生指数跌1.63%，恒生科技指数跌3.17%，恒生中国企业指数跌2.23%。
 
-多位嘉宾指出，澳门不应仅是活动的举办地，更应成为跨文化传播的“翻译层”与“转化器”。
+据证券时报·数据宝统计，本周南向资金合计成交净买入93.33亿港元。
 
-澳门网络视听协会会长陆波表示，短视频、微短剧、网络直播等正在重塑全球文化生产与传播方式，也为不同国家和地区之间的交流合作打开了更加广阔的空间。
+连续五周净买入澜起科技 从本周成交活跃股来看，共有22只个股上榜，阿里巴巴-W本周港股通合计买卖总额最高，达到382.9亿港元， 腾讯控股紧随其后，为336.52亿港元，其他还有中芯国际、长飞光纤光缆买卖总额均超过200亿港元。
 
-澳门要把握机遇，更好地把国家发展战略转化为文化产业发展动能，以数字视频连接中国与世界，讲好中国故事和澳门故事。
+从成交净买入金额来看，澜起科技获南向资金净买入10.31亿港元。
 
-澳门基金会行政委员会主席吴志良指出，澳门400多年的中西交融史证明，不同文明并非必然冲突，而是可以在保持主体性的前提下和谐共处。
+互联网科技巨头以净卖出为主，阿里巴巴-W遭南向资金净卖出44.54亿港元，小米集团-W、腾讯控股、美团-W分别遭净卖出15.52亿港元、12.07亿港元、7.07亿港元。
 
-他认为，澳门善于将抽象的价值理念转化为可感知可体验的生活场景，未来应借助更多用全球化语言讲述融合精神的作品，主动升级为提供方案的“文明转化器”。
+澜起科技（06809）已获得南向资金连续五周持股量增长，最新持股量为638.66万股，占自由流通股本比例为19.32%。
 
-在具体落地层面，与会者聚焦利用数字科技激活文化资源，并通过政策扶持构建产业生态。
+公司在投资者调研活动中表示，今年第一季度，随着DDR5渗透率提高且子代持续迭代，公司DDR5 RCD芯片出货量显著增加，其中第三、第四子代RCD芯片的出货占比进一步提升。
 
 ## 相关推荐
 
-- 2026-06-30 04:01 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 03:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 03:59 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 04:05 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 03:55 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 03:48 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 04:01 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 03:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 04:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 03:59 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 04:15 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 03:54 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 04:00 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 03:52 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 04:09 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 03:56 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 04:06 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 04:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 04:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 04:04 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 03:56 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 04:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 03:57 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-30 03:52 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/0001651.shtml)
-- 2026-06-30 03:49 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/5037509166.shtml)
-- 2026-06-30 03:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/034754930.shtml)
-- 2026-06-30 04:08 - [金刚川](http://www.share.minike.top/Article/details/487574.shtml)
-- 2026-06-30 03:44 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/4664786907.shtml)
-- 2026-06-30 03:43 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/8193093.shtml)
-- 2026-06-30 03:59 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/227156.shtml)
-- 2026-06-30 03:49 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/91652116195.shtml)
-- 2026-06-30 04:06 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/377766.shtml)
-- 2026-06-30 03:49 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/36133595.shtml)
-- 2026-06-30 03:57 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/3778401026.shtml)
-- 2026-06-30 04:05 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/2942773118.shtml)
-- 2026-06-30 04:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/129959.shtml)
-- 2026-06-30 04:04 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/705072.shtml)
-- 2026-06-30 03:47 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/02603642.shtml)
+- 2026-06-30 04:01 - [电影后室值得看吗](http://www.share.minike.top/Article/details/603082502.shtml)
+- 2026-06-30 04:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/574015.shtml)
+- 2026-06-30 03:52 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/73453709.shtml)
+- 2026-06-30 04:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/740193080121.shtml)
+- 2026-06-30 04:12 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/76852.shtml)
+- 2026-06-30 03:49 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/4976080.shtml)
+- 2026-06-30 04:10 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/2905596000.shtml)
+- 2026-06-30 04:07 - [张凌赫 客串](https://www.share.minike.top/Article/details/180667647184.shtml)
+- 2026-06-30 03:51 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/29945224.shtml)
+- 2026-06-30 03:50 - [世界杯](http://www.blog.minike.top/Article/details/13300090769.shtml)
+- 2026-06-30 04:08 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/2891458287.shtml)
+- 2026-06-30 03:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/8278929801.shtml)
+- 2026-06-30 03:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/0699059.shtml)
+- 2026-06-30 04:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/70733844.shtml)
+- 2026-06-30 03:48 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/346704.shtml)

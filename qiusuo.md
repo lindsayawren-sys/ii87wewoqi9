@@ -1,58 +1,60 @@
-# 云南昆明：欢乐足球过“六一”
+# 2026“茶和天下·雅集”暨“中国旅游日”活动在莫斯科举办
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-日本在野党批高市政府推动修宪扩军：背离民众真实诉求除了《给阿嬷的情书》，这些涉侨电影也值得一看！质量差、退费难、价格高......租赁手机小心暗藏玄机日本启动第20次核污染水排海 排放量约7800吨领取失业保险金期间，城乡居民医疗保险受影响吗？人社部回应“鞠萍姐姐”正式退休，网友：我的童年毕业了带娃出行怎么购票乘车？攻略来了！让别国文物回家，西方博物馆们敢回答这个问题吗？ 这些
+中新网莫斯科5月17日电 (记者 田冰)茶香盈园，墨韵传心。2026“茶和天下·雅集”暨“中国旅游日”庆祝活动当地时间15日在俄罗斯首都莫斯科举行。 本次活动由莫斯科中国文化中心、中国驻莫斯科旅游办事处与莫斯科大学植物园联合主办。中国驻俄使馆、俄外交部、俄自然资源与生态部、俄中友好协会、莫斯科大学、莫斯科市旅游委、俄旅行商协会、多家当地旅行商及书法爱好者等代表参与活动。 中国驻
 
 ## 正文
 
-日本在野党批高市政府推动修宪扩军：背离民众真实诉求除了《给阿嬷的情书》，这些涉侨电影也值得一看！
+中新网莫斯科5月17日电 (记者 田冰)茶香盈园，墨韵传心。
 
-质量差、退费难、价格高......租赁手机小心暗藏玄机日本启动第20次核污染水排海 排放量约7800吨领取失业保险金期间，城乡居民医疗保险受影响吗？
+2026“茶和天下·雅集”暨“中国旅游日”庆祝活动当地时间15日在俄罗斯首都莫斯科举行。
 
-人社部回应“鞠萍姐姐”正式退休，网友：我的童年毕业了带娃出行怎么购票乘车？
+本次活动由莫斯科中国文化中心、中国驻莫斯科旅游办事处与莫斯科大学植物园联合主办。
 
-攻略来了！
+中国驻俄使馆、俄外交部、俄自然资源与生态部、俄中友好协会、莫斯科大学、莫斯科市旅游委、俄旅行商协会、多家当地旅行商及书法爱好者等代表参与活动。
 
-让别国文物回家，西方博物馆们敢回答这个问题吗？
+中国驻俄使馆公使衔文化参赞、莫斯科中国文化中心主任封立涛致辞表示，当前，俄罗斯民众赴华旅游需求持续升温，中国已稳居俄罗斯第二大出境游目的地。
 
-这些不起眼的习惯 可能让你的血脂“直线上升”中东战火纷飞，这些孩子没有儿童节事关幼儿园食品安全！
+诚挚欢迎更多俄罗斯朋友走进中国，亲身感知中国的历史底蕴和现代活力。
 
-新规6月1日起施行大巴黎卫冕！
+伴随古琴悠扬，民歌婉转，茶艺师先后展示和冲泡三款经典中国茶，现场演绎传统冲泡技艺。
 
-阿森纳点球惜败，队史仍缺欧冠冠军外资加仓中国，对中国市场投下信任票灵隐寺，你变了！
+在茶艺师的悉心指导下，嘉宾们依循传统，依次闻香、品茗，感受舌尖上的东方韵味，亲手体验泡茶之趣。
 
 ## 相关推荐
 
-- 2026-06-30 03:56 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 03:45 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 03:52 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 04:02 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 03:52 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 03:46 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 03:44 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 03:59 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 03:47 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 04:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 03:53 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 04:08 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 04:07 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 03:58 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 04:09 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 04:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 03:54 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 04:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 04:05 - [日本领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 03:59 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 04:12 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 04:00 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 04:04 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 04:06 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 04:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 03:52 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/9968676.shtml)
-- 2026-06-30 03:50 - [锐评T1零封KC](http://www.share.minike.top/Article/details/61596356.shtml)
-- 2026-06-30 03:54 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/179831488.shtml)
-- 2026-06-30 03:45 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/35735.shtml)
-- 2026-06-30 03:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/59859.shtml)
-- 2026-06-30 04:09 - [《共患难》](http://www.share.kurohicncr.top/Article/details/9211021.shtml)
-- 2026-06-30 03:59 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/03285.shtml)
-- 2026-06-30 04:04 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/22673683785.shtml)
-- 2026-06-30 04:06 - [一生一世](http://www.blog.minike.top/Article/details/65871699642.shtml)
-- 2026-06-30 03:57 - [85花告别古偶](http://www.blog.minike.top/Article/details/95459223008.shtml)
-- 2026-06-30 03:51 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/4393666409.shtml)
-- 2026-06-30 03:46 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/174142210.shtml)
-- 2026-06-30 04:05 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/79711225327.shtml)
-- 2026-06-30 04:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/955990475043.shtml)
-- 2026-06-30 03:43 - [绘画区你赢了](http://www.blog.minike.top/Article/details/472808.shtml)
+- 2026-06-30 04:17 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/119432525.shtml)
+- 2026-06-30 03:54 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/48722.shtml)
+- 2026-06-30 04:02 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/837192.shtml)
+- 2026-06-30 03:50 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/35691833.shtml)
+- 2026-06-30 03:58 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/65436647810.shtml)
+- 2026-06-30 04:16 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/89709919.shtml)
+- 2026-06-30 04:03 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/980465.shtml)
+- 2026-06-30 04:16 - [苗族银饰](http://www.share.minike.top/Article/details/629961698843.shtml)
+- 2026-06-30 04:14 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/69258745994.shtml)
+- 2026-06-30 03:59 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/810685334560.shtml)
+- 2026-06-30 04:06 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/91009687.shtml)
+- 2026-06-30 03:59 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/155420600547.shtml)
+- 2026-06-30 04:04 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/61041.shtml)
+- 2026-06-30 03:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/507850.shtml)
+- 2026-06-30 04:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/36954882784.shtml)

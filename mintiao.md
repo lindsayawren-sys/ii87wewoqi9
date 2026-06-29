@@ -1,58 +1,56 @@
-# 俄军对乌克兰境内多地发动大规模报复性打击
+# 首次，首项，首个！本周我国多领域实现突破 创新实力亮眼
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科6月2日电 俄罗斯国防部2日发表声明说，俄军当日凌晨对乌克兰境内多地发动大规模报复性打击，使用高超音速导弹等武器打击了乌军工企业等设施。 俄国防部在社交媒体上发表声明表示，当日凌晨，为回应乌方的恐怖袭击，俄武装力量使用包括高超音速导弹等在内的空基、陆基、海基高精度远程武器和攻击型无人机，对基辅、扎波罗热、哈尔科夫和第聂伯罗彼得罗夫斯克等城市，以及波尔塔瓦州、赫梅利尼
+本周 天舟十号带“人工胚胎”奔赴太空 超高产奶山羊实现批量克隆 …… 我国在多领域取得重大突破 彰显科技创新的硬核实力与蓬勃活力 “人工胚胎”首次进太空 我国多项发射任务圆满成功 本周，我国航天领域捷报频传。天舟十号携“人工胚胎”实验样本成功对接空间站，此外，多项发射任务圆满成功。 天舟十号发射任务圆满成功 “人工胚胎”实验进展顺利 5月11日，搭载天舟十号货运飞船的长征七号遥
 
 ## 正文
 
-中新社莫斯科6月2日电 俄罗斯国防部2日发表声明说，俄军当日凌晨对乌克兰境内多地发动大规模报复性打击，使用高超音速导弹等武器打击了乌军工企业等设施。
+本周 天舟十号带“人工胚胎”奔赴太空 超高产奶山羊实现批量克隆 …… 我国在多领域取得重大突破 彰显科技创新的硬核实力与蓬勃活力 “人工胚胎”首次进太空 我国多项发射任务圆满成功 本周，我国航天领域捷报频传。
 
-俄国防部在社交媒体上发表声明表示，当日凌晨，为回应乌方的恐怖袭击，俄武装力量使用包括高超音速导弹等在内的空基、陆基、海基高精度远程武器和攻击型无人机，对基辅、扎波罗热、哈尔科夫和第聂伯罗彼得罗夫斯克等城市，以及波尔塔瓦州、赫梅利尼茨基州和苏梅州的乌克兰军工企业设施目标实施密集打击。
+天舟十号携“人工胚胎”实验样本成功对接空间站，此外，多项发射任务圆满成功。
 
-此外，俄军还对乌军燃料设施、运输基础设施和军用机场实施打击。
+天舟十号发射任务圆满成功 “人工胚胎”实验进展顺利 5月11日，搭载天舟十号货运飞船的长征七号遥十一运载火箭在我国文昌航天发射场点火发射，发射任务圆满成功。
 
-所有预定目标均被击中。
+包括“人工胚胎”在内的41项空间科学实验项目，随天舟十号货运飞船抵达空间站。
 
-俄国防部当天稍早前通报称，从莫斯科时间1日20时到2日7时，俄防空系统在别尔哥罗德州、布良斯克州、伏尔加格勒州、库尔斯克州、奥廖尔州、罗斯托夫州、斯摩棱斯克州、克拉斯诺达尔边疆区、克里米亚以及亚速海和黑海上空拦截并摧毁了148架乌克兰无人机。
+这是世界首次在太空开展的人类“人工胚胎”实验。
 
-俄方称，5月22日凌晨，位于卢甘斯克地区的学校遭乌克兰无人机袭击，造成21人死亡，45人不同程度受伤。
+记者13日从中国科学院空间应用工程与技术中心了解到，随天舟十号上行太空的人类“人工胚胎”实验样本已装置于中国空间站实验模块，目前实验进展顺利。
 
-俄总统普京1日在克里姆林宫主持召开会议，听取学校遭袭事件调查进展及善后工作的报告。
+千帆极轨09组卫星发射 5月12日，我国在太原卫星发射中心使用长征六号改运载火箭，成功将千帆极轨09组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-他强调，所有犯罪者必须受到应有惩罚，并表示乌克兰领导层蓄意犯下针对儿童和青少年的最严重罪行，乌方决意“赋予整个冲突新的性质”，“这是他们的选择”。
+朱雀二号改进型遥五运载火箭发射 5月14日，朱雀二号改进型遥五运载火箭在东风商业航天创新试验区发射升空，运载火箭全程飞行正常，二子级进入预定轨道，飞行试验任务取得圆满成功。
 
 ## 相关推荐
 
-- 2026-06-30 03:59 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 03:51 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 03:56 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 03:43 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 03:44 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 04:11 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 04:08 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 04:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 04:07 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 04:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 04:11 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 03:48 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 04:14 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 03:48 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 04:10 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 04:12 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 03:58 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 03:50 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 03:50 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 03:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 04:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 04:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/629618291.shtml)
-- 2026-06-30 04:07 - [小娘惹](http://www.blog.minike.top/Article/details/8625569159.shtml)
-- 2026-06-30 03:59 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/301665.shtml)
-- 2026-06-30 03:54 - [小娘惹](http://www.share.kurohicncr.top/Article/details/4877346.shtml)
-- 2026-06-30 03:53 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/54946927.shtml)
-- 2026-06-30 03:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/50926841394.shtml)
-- 2026-06-30 03:56 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/0365397.shtml)
-- 2026-06-30 04:11 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/380157226.shtml)
-- 2026-06-30 03:46 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/4447487.shtml)
-- 2026-06-30 04:12 - [《贺子珍》](https://www.blog.minike.top/Article/details/06322.shtml)
-- 2026-06-30 03:44 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/75560141.shtml)
-- 2026-06-30 04:10 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/56311070442.shtml)
-- 2026-06-30 03:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/30425.shtml)
-- 2026-06-30 03:45 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/785414781416.shtml)
-- 2026-06-30 04:09 - [起风了](http://www.share.minike.top/Article/details/22825589.shtml)
+- 2026-06-30 03:56 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/07285085.shtml)
+- 2026-06-30 04:08 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/9492656.shtml)
+- 2026-06-30 03:49 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/308002580.shtml)
+- 2026-06-30 04:07 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/71570.shtml)
+- 2026-06-30 04:01 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/421773952.shtml)
+- 2026-06-30 04:09 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/85452583.shtml)
+- 2026-06-30 04:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/1629442.shtml)
+- 2026-06-30 04:02 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/6491488466.shtml)
+- 2026-06-30 03:59 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/566381229.shtml)
+- 2026-06-30 04:16 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/379553.shtml)
+- 2026-06-30 03:59 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/3366718170.shtml)
+- 2026-06-30 03:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/840056655.shtml)
+- 2026-06-30 04:00 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/8321566345.shtml)
+- 2026-06-30 04:15 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/65746676308.shtml)
+- 2026-06-30 04:09 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/110851977715.shtml)

@@ -1,59 +1,59 @@
-# 2026“工体杯”全国部分城市职工匹克球邀请赛在厦门举行
+# 广西贵港发现汉代铜鼓
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网厦门6月1日电(林永传 李丽欣)2026“工体杯”全国部分城市职工匹克球邀请赛5月29日至31日在厦门工人体育馆举行。 赛事以“工运同心 匹克同行”为主题，汇聚全国24个城市的86支队伍、近700名职工选手及港台同胞同台竞技，助力全民健身与两岸融合发展。 正值厦门总工会成立100周年，本次赛事旨在以体育为纽带，深化两岸融合发展与全国职工文体交流。赛事设全国邀请组、福建公开
+中新网贵港5月18日电(张庆杰 熊耀章)近日，广西贵港市覃塘区黄练镇新何村村民意外发现一面汉代铜鼓，并将铜鼓无偿上交至贵港博物馆。 经贵港市文物部门初步鉴定，该铜鼓年代为汉代，为北流型铜鼓，面径97厘米，高55厘米。鼓胸和鼓足各有一处破损，其他位置保存较为完好。鼓面饰4个立体蛙纹，鼓面中心饰七芒太阳纹，通体以云雷纹为主。鼓胸对称，有两对圆茎环耳。 铜鼓是中国古代一种打击乐器和祭
 
 ## 正文
 
-中新网厦门6月1日电(林永传 李丽欣)2026“工体杯”全国部分城市职工匹克球邀请赛5月29日至31日在厦门工人体育馆举行。
+中新网贵港5月18日电(张庆杰 熊耀章)近日，广西贵港市覃塘区黄练镇新何村村民意外发现一面汉代铜鼓，并将铜鼓无偿上交至贵港博物馆。
 
-赛事以“工运同心 匹克同行”为主题，汇聚全国24个城市的86支队伍、近700名职工选手及港台同胞同台竞技，助力全民健身与两岸融合发展。
+经贵港市文物部门初步鉴定，该铜鼓年代为汉代，为北流型铜鼓，面径97厘米，高55厘米。
 
-正值厦门总工会成立100周年，本次赛事旨在以体育为纽带，深化两岸融合发展与全国职工文体交流。
+鼓胸和鼓足各有一处破损，其他位置保存较为完好。
 
-赛事设全国邀请组、福建公开组、厦门职工组三大组别，严控专业选手参赛，保障普通职工公平参与，展现新时代劳动者昂扬风貌。
+鼓面饰4个立体蛙纹，鼓面中心饰七芒太阳纹，通体以云雷纹为主。
 
-赛事突出两岸交流与闽南文化特色，特邀中国台湾地区6个城市代表队、香港2支队伍参赛，以球会友、以赛传情，促进两岸同胞心灵契合，共绘融合发展新图景。
+鼓胸对称，有两对圆茎环耳。
 
-赛场融入红砖古厝、燕尾脊等闽南元素，奖牌融合工运百年、海浪、白鹭等意象，奖杯采用国家级非遗影雕技艺手工制作，文化底蕴浓厚。
+铜鼓是中国古代一种打击乐器和祭祀用品，迄今已有2700余年历史，是中国南方多个民族的文化符号和象征。
 
-赛事同期举办闽南文化汇演、主题市集、匹克球体验与公益教学等活动，推动运动普及。
+据了解，新中国成立以来，贵港市覃塘区曾多次发现汉代铜鼓。
 
-本届赛事全程数智赋能，实现报名、抽签、计分、统计全流程数字化，开幕式上演《数智非遗 人机共武》特色节目，全域高清直播让民众云端观赛。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:51 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 03:50 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 03:45 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 04:09 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 03:49 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 04:07 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 03:58 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 04:11 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 03:43 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 04:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 03:48 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 03:46 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 04:10 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 03:59 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 04:02 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 03:58 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 03:59 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 04:16 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 04:00 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 04:14 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 03:57 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 04:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 04:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 03:55 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 03:49 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 04:10 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:43 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/14054429011.shtml)
-- 2026-06-30 03:42 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/98208.shtml)
-- 2026-06-30 04:04 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/514078878082.shtml)
-- 2026-06-30 03:48 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/5429637.shtml)
-- 2026-06-30 04:01 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/844707340.shtml)
-- 2026-06-30 03:50 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/64937.shtml)
-- 2026-06-30 03:45 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/51339.shtml)
-- 2026-06-30 03:49 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/3027006860.shtml)
-- 2026-06-30 03:48 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/88636265710.shtml)
-- 2026-06-30 04:11 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/289816058.shtml)
-- 2026-06-30 04:04 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/167206017.shtml)
-- 2026-06-30 03:44 - [急先锋](https://www.blog.kurohicncr.top/Article/details/74613612.shtml)
-- 2026-06-30 04:09 - [《贺子珍》](http://www.share.minike.top/Article/details/3911742.shtml)
-- 2026-06-30 03:56 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/942028350801.shtml)
-- 2026-06-30 04:08 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/2161524779.shtml)
+- 2026-06-30 03:55 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/12860104990.shtml)
+- 2026-06-30 04:16 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/10859361443.shtml)
+- 2026-06-30 04:11 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/75418925.shtml)
+- 2026-06-30 03:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/5882076.shtml)
+- 2026-06-30 03:57 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/2057387288.shtml)
+- 2026-06-30 04:16 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/539481908.shtml)
+- 2026-06-30 04:16 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/968907793931.shtml)
+- 2026-06-30 03:58 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/03355239.shtml)
+- 2026-06-30 04:06 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/660005649.shtml)
+- 2026-06-30 03:48 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/58715.shtml)
+- 2026-06-30 04:17 - [金刚川](https://www.share.kurohicncr.top/Article/details/2472266.shtml)
+- 2026-06-30 04:03 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/0058766.shtml)
+- 2026-06-30 04:17 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/1711627.shtml)
+- 2026-06-30 03:55 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/33281.shtml)
+- 2026-06-30 03:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/7378833533.shtml)

@@ -1,56 +1,52 @@
-# 华泰期货：鸡蛋期现双涨 供需分化静待拐点
+# 内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-市场要闻：期货方面2026年5月29日收盘鸡蛋期货主力2607合约收盘4198元/500千克，环比上涨178，涨幅4.43%。现货方面，辽宁地区鸡蛋现货价格4.75元/斤，环比上涨0.45元/斤，现货基差JD07+552，环比上涨272；河北地区鸡蛋现货价格4.93元/斤，环比上涨0.46元/斤，现货基差JD07+729，环比上涨286；山东地区鸡蛋现货价格4.80元/斤，环比
+中新网5月16日电 据内蒙古自治区纪委监委消息：经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法问题进行了立案审查调查。 经查，刘学武丧失理想信念，背弃初心使命，政绩观错位，违背新发展理念、背离高质量发展要求，违规开展融资性贸易；无视中央八项规定精神，违规收受礼品、礼金、消费卡，借用管理和服务对象车辆，接受可能影响
 
 ## 正文
 
-市场要闻：期货方面2026年5月29日收盘鸡蛋期货主力2607合约收盘4198元/500千克，环比上涨178，涨幅4.43%。
+中新网5月16日电 据内蒙古自治区纪委监委消息：经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法问题进行了立案审查调查。
 
-现货方面，辽宁地区鸡蛋现货价格4.75元/斤，环比上涨0.45元/斤，现货基差JD07+552，环比上涨272；河北地区鸡蛋现货价格4.93元/斤，环比上涨0.46元/斤，现货基差JD07+729，环比上涨286；山东地区鸡蛋现货价格4.80元/斤，环比上涨0.40元/斤，现货基差JD07+602，环比上涨222。
+经查，刘学武丧失理想信念，背弃初心使命，政绩观错位，违背新发展理念、背离高质量发展要求，违规开展融资性贸易；无视中央八项规定精神，违规收受礼品、礼金、消费卡，借用管理和服务对象车辆，接受可能影响公正执行公务的宴请；组织观念淡漠，不如实报告个人有关事项，在干部、职工录用、职务晋升等工作中为他人谋取利益并收受财物，为亲属在职工录用方面提供帮助；廉洁底线失守，利用职务便利为他人谋取利益并收受财物，借用管理和服务对象钱款，违规从事营利活动，经商办企业；失职失责，违规干预和插手工程项目招投标；毫无纪法底线，将公权力异化为谋取私利的工具，利用职务便利为他人在项目承揽、工程款拨付等方面谋利，并非法收受巨额财物。
 
-供应方面，4月全国在产蛋鸡存栏量约为12.9亿只，较3月减少0.11 亿只，环比减幅 0.84%，同比增幅 3.51%。
+刘学武严重违反党的政治纪律、组织纪律、廉洁纪律和工作纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，特别是党的二十大后仍不知止，情节严重，影响恶劣，应予严肃处理。
 
-本周淘汰鸡出栏量35.09 万只，环比增加 0.63%，同比减少26.83%；本周平均出栏日龄 513 天，环比增加 0.59%，同比减少0.77%。
-
-需求方面，本周北京市场到货 82 车，较上周到车量增加 3车，环比增幅3.80%，同比减幅 16.33%；本周广东市场到货 433车，较上周到车量增加 7车，环比增幅1.64%，同比减幅 21.56%。
-
-库存方面，本周全国重点地区生产环节库存为0.74天，环比增幅34.55%，同比减幅31.48%；流通环节库存为0.85天，环比减幅2.30%，同比减幅47.20%。
-
-参考咨询来源：钢联数据 市场分析 本周鸡蛋现货价格仍延续偏强态势，本次拉动主要为产区端午备货带动，市场走货速率加快后进一步凸显当地供应紧张局势。
-
-销区对高价蛋接货情绪总体偏谨慎，蛋价在产区带动下亦呈现跟随上行趋势，当地供应偏紧局势与产区有所分化。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经内蒙古自治区纪委常委会会议研究并报内蒙古自治区党委批准，决定给予刘学武开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 04:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 03:52 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 03:44 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 03:54 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 04:00 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 04:03 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 03:42 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 04:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 04:03 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 03:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 04:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 04:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 03:52 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 04:03 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 03:55 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 04:09 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 03:51 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 04:03 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 04:02 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 04:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 03:55 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 04:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 04:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:08 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/3338184.shtml)
-- 2026-06-30 03:51 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/19144757.shtml)
-- 2026-06-30 04:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/6227407507.shtml)
-- 2026-06-30 03:51 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/5176577742.shtml)
-- 2026-06-30 03:49 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/323422088.shtml)
-- 2026-06-30 03:52 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/02012741.shtml)
-- 2026-06-30 04:00 - [明星大侦探第一季](https://www.share.minike.top/Article/details/474379862030.shtml)
-- 2026-06-30 04:04 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/9979744.shtml)
-- 2026-06-30 03:51 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/7588051135.shtml)
-- 2026-06-30 04:07 - [第一炉香](http://www.blog.minike.top/Article/details/02202.shtml)
-- 2026-06-30 03:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/2347085.shtml)
-- 2026-06-30 03:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/4692375615.shtml)
-- 2026-06-30 03:46 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/73029.shtml)
-- 2026-06-30 03:57 - [扫黑风暴](https://www.blog.minike.top/Article/details/62861.shtml)
-- 2026-06-30 03:44 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/12884.shtml)
+- 2026-06-30 04:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/458029693.shtml)
+- 2026-06-30 04:03 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/4890805070.shtml)
+- 2026-06-30 04:15 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/01650.shtml)
+- 2026-06-30 03:54 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/946996.shtml)
+- 2026-06-30 04:00 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/107313201.shtml)
+- 2026-06-30 04:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/198999.shtml)
+- 2026-06-30 03:51 - [金刚川](https://www.share.minike.top/Article/details/1919384341.shtml)
+- 2026-06-30 04:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/22696938894.shtml)
+- 2026-06-30 04:10 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/16446710.shtml)
+- 2026-06-30 03:52 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/860693224273.shtml)
+- 2026-06-30 03:55 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/094060.shtml)
+- 2026-06-30 04:00 - [田曦薇没招了](https://www.share.minike.top/Article/details/166417866.shtml)
+- 2026-06-30 03:51 - [金刚川](http://www.blog.kurohicncr.top/Article/details/863593044.shtml)
+- 2026-06-30 04:10 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/497178809926.shtml)
+- 2026-06-30 04:07 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/1798029898.shtml)

@@ -1,47 +1,60 @@
-# 中金：汇丰控股维持跑赢行业评级 目标价170.80港元
+# Voyager宣布参与四场投资者会议，深化资本市场沟通
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中金发布研报称，维持汇丰控股（00005）盈利预测基本不变。公司交易于1.8x/1.7x 2026E/2027EP/B，该行维持170.80港元目标价不变，对应2.1x/2.0x2026E/2027EP/B与17.71%上行空间，维持跑赢行业评级。责任编辑：卢昱君
+Voyager Technologies， Inc． 宣布将参与四场在美英两国举办的投资会议。公司管理层计划于5月19日在纽约出席Wolfe Research第19届年度全球运输与工业大会；随后于5月31日在波士顿参与KeyBanc资本市场工业与基础材料大会；6月10日将转往芝加哥参加富国银行2026年工业大会；并于6月22日在伦敦出席德意志银行国防会议。活动形式均以投资者会议
 
 ## 正文
 
-中金发布研报称，维持汇丰控股（00005）盈利预测基本不变。
+Voyager Technologies， Inc． 宣布将参与四场在美英两国举办的投资会议。
 
-公司交易于1.8x/1.7x 2026E/2027EP/B，该行维持170.80港元目标价不变，对应2.1x/2.0x2026E/2027EP/B与17.71%上行空间，维持跑赢行业评级。
+公司管理层计划于5月19日在纽约出席Wolfe Research第19届年度全球运输与工业大会；随后于5月31日在波士顿参与KeyBanc资本市场工业与基础材料大会；6月10日将转往芝加哥参加富国银行2026年工业大会；并于6月22日在伦敦出席德意志银行国防会议。
 
-责任编辑：卢昱君
+活动形式均以投资者会议为主。
+
+战略意义与公司背景 参与这些会议正值公司年度股东大会前夕，旨在向投资者阐述其整合国防技术与空间解决方案的战略。
+
+Voyager是一家专注于国防技术与空间解决方案的公司，业务涵盖国防与国家安全、空间解决方案及Starlab空间站三大板块，拥有约800名员工。
+
+公司股票于2025年6月在纽约证券交易所上市，近期完成了从Voyager Space Holdings， Inc．的更名。
+
+核心业务动态 值得关注的是，Voyager的核心项目包括计划接替国际空间站的Starlab商业空间站，以及为美国国防部提供的信号情报、推进子系统等关键技术。
+
+公司表示，此次系列会议将有助于展示其在航天与防务领域的整合能力，并与潜在合作伙伴及投资者建立更深联系。
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 04:09 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 03:50 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-30 03:49 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 04:00 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 03:44 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 04:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 03:45 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 03:45 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 04:07 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 04:05 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 03:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 04:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 04:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 03:48 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 04:15 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 04:15 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 03:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 03:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 03:50 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 04:05 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 04:16 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 04:17 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 03:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 04:16 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:11 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/28887259.shtml)
-- 2026-06-30 03:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/0059707.shtml)
-- 2026-06-30 03:43 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/7237976.shtml)
-- 2026-06-30 03:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/69477.shtml)
-- 2026-06-30 04:07 - [金刚川](https://www.share.kurohicncr.top/Article/details/83350.shtml)
-- 2026-06-30 04:09 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/30174.shtml)
-- 2026-06-30 03:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/954842.shtml)
-- 2026-06-30 04:08 - [蔚来车主罚站](http://www.share.minike.top/Article/details/025003831.shtml)
-- 2026-06-30 04:00 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/825863922.shtml)
-- 2026-06-30 03:43 - [金刚川](http://www.share.kurohicncr.top/Article/details/355815996630.shtml)
-- 2026-06-30 03:45 - [美股](https://www.blog.minike.top/Article/details/207113904.shtml)
-- 2026-06-30 04:03 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/76775418449.shtml)
-- 2026-06-30 03:47 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/953512645.shtml)
-- 2026-06-30 03:42 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/06315052.shtml)
-- 2026-06-30 03:51 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/3281334805.shtml)
+- 2026-06-30 03:48 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/625754860.shtml)
+- 2026-06-30 03:52 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/768789962805.shtml)
+- 2026-06-30 04:16 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/87363.shtml)
+- 2026-06-30 04:13 - [《贺子珍》](https://www.blog.minike.top/Article/details/4715261822.shtml)
+- 2026-06-30 04:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/350624.shtml)
+- 2026-06-30 03:51 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/7620519.shtml)
+- 2026-06-30 03:59 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/54241866.shtml)
+- 2026-06-30 04:15 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/2739131.shtml)
+- 2026-06-30 04:02 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/86183175438.shtml)
+- 2026-06-30 03:50 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/69598516.shtml)
+- 2026-06-30 04:16 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/3771529034.shtml)
+- 2026-06-30 04:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/99053015120.shtml)
+- 2026-06-30 03:55 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/3087549426.shtml)
+- 2026-06-30 03:55 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/24070.shtml)
+- 2026-06-30 03:53 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/84092.shtml)

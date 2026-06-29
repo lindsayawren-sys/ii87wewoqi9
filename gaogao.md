@@ -1,54 +1,59 @@
-# 大摩：美团亏损收窄速度快于预期 目标价维持在120港元
+# 山东邹城举行及笄礼 以礼仪创新赋能文明实践
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-摩根士丹利称，美团即时配送业务的亏损收窄是个利好，且预计外卖业务的单位经济（UE）将在二季度实现盈亏平衡，但到店业务面临竞争压力。维持对公司的超配评级，目标价120港元。 摩根士丹利Gary Yu等分析师在报告中指出，预计美团二季度亏损将环比小幅扩大，主要源于小象超市扩张和在Keeta上的投资。 到店业务尽管目前维持稳定，但仍看到与抖音的竞争日益加剧带来的利润率下行风险。责任编
+中新网山东邹城5月18日电 (沙见龙 王珊珊 吴琳琳)5月18日，农历四月初二，在2026孟子故里(邹城)母亲文化节期间，由邹城市委宣传部、尼山世界儒学中心孟子研究院、邹城市文化和旅游局等单位联合举办的“笄礼承风·礼润成长”女子成人礼展示活动在位于邹城的孟府举行。 邹城是邹鲁文化的核心发源地、亚圣孟子故里，崇文重礼、崇德向善的文化底蕴深厚悠远。及笄礼作为中华传统成人礼仪的重要组
 
 ## 正文
 
-摩根士丹利称，美团即时配送业务的亏损收窄是个利好，且预计外卖业务的单位经济（UE）将在二季度实现盈亏平衡，但到店业务面临竞争压力。
+中新网山东邹城5月18日电 (沙见龙 王珊珊 吴琳琳)5月18日，农历四月初二，在2026孟子故里(邹城)母亲文化节期间，由邹城市委宣传部、尼山世界儒学中心孟子研究院、邹城市文化和旅游局等单位联合举办的“笄礼承风·礼润成长”女子成人礼展示活动在位于邹城的孟府举行。
 
-维持对公司的超配评级，目标价120港元。
+邹城是邹鲁文化的核心发源地、亚圣孟子故里，崇文重礼、崇德向善的文化底蕴深厚悠远。
 
-摩根士丹利Gary Yu等分析师在报告中指出，预计美团二季度亏损将环比小幅扩大，主要源于小象超市扩张和在Keeta上的投资。
+及笄礼作为中华传统成人礼仪的重要组成，象征着女子告别懵懂少年时期，正式步入成年，肩负起家庭与社会责任。
 
-到店业务尽管目前维持稳定，但仍看到与抖音的竞争日益加剧带来的利润率下行风险。
+为突破传统礼仪展演形式单一、传播范围有限的瓶颈，本次活动创新传播模式，面向全国发起“最美笄者”海选招募。
 
-责任编辑：于健 SF069
+招募活动聚焦18周岁至20周岁青年，采取线上报名与线下推荐相结合的方式，综合考察参选者的礼仪认知、仪容仪态及品德素养，择优选拔20名优秀青年参与现场仪式。
+
+当天，正值亚圣孟子诞辰日，女子及笄礼展示活动在孟府内举行。
+
+活动摒弃简单复刻古礼的旧有模式，在保留加笄祝辞、参拜先师等核心传统仪程的基础上，深度融入新时代德育理念，将孝亲尊师、品行端正、责任担当等现代道德素养纳入礼仪内涵，实现传统礼制与当代文明实践的有机融合，使古老礼仪焕发出时代生机。
+
+活动现场，礼乐悠扬、庄重典雅。
 
 ## 相关推荐
 
-- 2026-06-30 04:04 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 03:48 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 03:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 03:42 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 04:04 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 04:09 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 03:49 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 04:10 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 04:00 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 03:43 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 03:58 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 04:00 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 03:48 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 03:51 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 03:52 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 03:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 03:58 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 04:15 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 04:12 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 03:53 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 04:15 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 04:10 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 04:17 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 03:56 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 03:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 03:52 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 04:11 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/88820896.shtml)
-- 2026-06-30 03:58 - [起风了](https://www.blog.kurohicncr.top/Article/details/38652571.shtml)
-- 2026-06-30 03:47 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/102004141180.shtml)
-- 2026-06-30 04:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/297271311280.shtml)
-- 2026-06-30 04:09 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/3001906.shtml)
-- 2026-06-30 03:50 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/0088790.shtml)
-- 2026-06-30 04:08 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/99090346.shtml)
-- 2026-06-30 04:01 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/79135586051.shtml)
-- 2026-06-30 03:52 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/5438013.shtml)
-- 2026-06-30 03:45 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/83996.shtml)
-- 2026-06-30 04:00 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/577408.shtml)
-- 2026-06-30 03:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/11237.shtml)
-- 2026-06-30 04:08 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/8760609929.shtml)
-- 2026-06-30 03:56 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/2417865631.shtml)
-- 2026-06-30 04:06 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/2179448559.shtml)
+- 2026-06-30 03:51 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/88215.shtml)
+- 2026-06-30 04:02 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/14587.shtml)
+- 2026-06-30 04:16 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/065452687.shtml)
+- 2026-06-30 03:51 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/52149271433.shtml)
+- 2026-06-30 04:05 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/017509675.shtml)
+- 2026-06-30 03:58 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/98060224166.shtml)
+- 2026-06-30 04:17 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/2993676294.shtml)
+- 2026-06-30 03:49 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/058643.shtml)
+- 2026-06-30 04:17 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/932727783.shtml)
+- 2026-06-30 03:48 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/11950699.shtml)
+- 2026-06-30 04:09 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/6985979544.shtml)
+- 2026-06-30 03:54 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/41354139.shtml)
+- 2026-06-30 03:54 - [刘念回应](http://www.share.minike.top/Article/details/7216862423.shtml)
+- 2026-06-30 03:56 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/418002769.shtml)
+- 2026-06-30 04:04 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/721532622.shtml)

@@ -1,59 +1,59 @@
-# 新疆伊昭公路正式恢复通车
+# 浙商策略：双创冲高回落大盘调整 短线或震荡、中线暂无忧
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网新疆察布查尔6月1日电 (张璐 赵金秀)6月1日，素有“小独库”之称的新疆伊昭公路正式恢复季节性通车，贯通伊宁市、察布查尔锡伯自治县(简称“察布查尔县”)至昭苏县的百里景观公路全线迎客。 伊昭公路全长120余公里，是新疆极具代表性的山区景观公路。公路沿途翻越天山支脉，串联雪山、草甸、山谷、林海、草原等多元地貌。受山区冬季降雪、结冰天气影响，该公路仅每年夏季限时通行。 当天
+来源：浙商证券 核心观点 本周双创指数继续强势引领市场，但在特朗普访华“利好兑现”后冲高回落。展望后市，考虑到近期美元和石油上涨，加之前期表现最强的韩国股市出现高位回调，在“全球AI基建共振”情景下，预计短期或有震荡整理诉求。以目前“领头羊”创业板指而言，4月8日以来的上升趋势依旧完好，若20日均线在调整中不破，则短期调整过后仍有继续冲高可能，其走势大概率会“牵引”科创50和其
 
 ## 正文
 
-中新网新疆察布查尔6月1日电 (张璐 赵金秀)6月1日，素有“小独库”之称的新疆伊昭公路正式恢复季节性通车，贯通伊宁市、察布查尔锡伯自治县(简称“察布查尔县”)至昭苏县的百里景观公路全线迎客。
+来源：浙商证券 核心观点 本周双创指数继续强势引领市场，但在特朗普访华“利好兑现”后冲高回落。
 
-伊昭公路全长120余公里，是新疆极具代表性的山区景观公路。
+展望后市，考虑到近期美元和石油上涨，加之前期表现最强的韩国股市出现高位回调，在“全球AI基建共振”情景下，预计短期或有震荡整理诉求。
 
-公路沿途翻越天山支脉，串联雪山、草甸、山谷、林海、草原等多元地貌。
+以目前“领头羊”创业板指而言，4月8日以来的上升趋势依旧完好，若20日均线在调整中不破，则短期调整过后仍有继续冲高可能，其走势大概率会“牵引”科创50和其他指数。
 
-受山区冬季降雪、结冰天气影响，该公路仅每年夏季限时通行。
+拉长周期来看，在市场找到“牛4”低点后，主要指数只要不跌破“924行情”以来的上升趋势线，那么整个行情结构就是安全的。
 
-当天上午，随着道路管制解除，首批自驾车辆在摩托车队的带领下，有序驶入伊昭公路。
+这意味着，当前仍处于“中线走势安全”的格局中，中线持仓仍可坚定信心。
 
-山西游客陈橙说：“我特意把摩托车从山西托运过来，等了好几天，就为了能在通车首日体验伊昭公路。
+配置方面，基于“利好落地市场回落，短线或震荡、中线暂无忧”的判断，我们建议：择时方面，当前中线仓可继续持有，新仓宜等待大盘调整、形成“黄金右脚”时再行增配；行业方面，双创相关可继续持有但不宜过分追高，短线留意20日线得失，中线关注“上升趋势线”存续。
 
-” 为保障道路安全畅通、服务优质，察布查尔县交通、公安、路政、养护等多部门联动，提前完成全线清雪除障、道路隐患排查、护栏检修、路面养护等工作。
+内容摘要 1、本周（2026-05-11至2026-05-15）行情概况 （1）主要指数：双创继续强势引领市场，特朗普访华“利好兑现”后冲高回落。
 
-通车期间，执勤警力、养护人员将常态化分段巡查值守，严查交通违法行为，及时疏导车流、处置突发情况，同时做好路况提示、游客咨询、应急救援等便民服务。
+（2）板块观察：AI相关继续吸金，风偏下降行业普跌。
 
 ## 相关推荐
 
-- 2026-06-30 04:00 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 03:50 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 03:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 04:00 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 03:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 03:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 04:05 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 04:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 03:48 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 04:04 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 04:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 03:49 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 03:59 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 04:16 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 04:05 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 04:14 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 04:12 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-30 03:49 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 04:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 03:49 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-30 04:11 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 04:00 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 04:07 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 04:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 04:01 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 04:10 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:49 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/7298962753.shtml)
-- 2026-06-30 04:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/1285481.shtml)
-- 2026-06-30 04:03 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/496202072307.shtml)
-- 2026-06-30 03:52 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/003753101869.shtml)
-- 2026-06-30 03:58 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/06977.shtml)
-- 2026-06-30 03:55 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/03976.shtml)
-- 2026-06-30 03:50 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/80458876728.shtml)
-- 2026-06-30 03:52 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/4691209.shtml)
-- 2026-06-30 03:47 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/94104963.shtml)
-- 2026-06-30 03:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/8315441.shtml)
-- 2026-06-30 04:07 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/541494529850.shtml)
-- 2026-06-30 04:05 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/1074931697.shtml)
-- 2026-06-30 03:45 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/50467474004.shtml)
-- 2026-06-30 04:11 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/6782840.shtml)
-- 2026-06-30 03:53 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/829707.shtml)
+- 2026-06-30 04:07 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/15806995530.shtml)
+- 2026-06-30 03:50 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/37195570696.shtml)
+- 2026-06-30 03:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/21140.shtml)
+- 2026-06-30 04:12 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/11526.shtml)
+- 2026-06-30 04:13 - [爱很美味](https://www.share.minike.top/Article/details/9271720.shtml)
+- 2026-06-30 03:51 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/56255.shtml)
+- 2026-06-30 04:16 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/9761831214.shtml)
+- 2026-06-30 03:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/9960905.shtml)
+- 2026-06-30 03:55 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/3836124.shtml)
+- 2026-06-30 04:14 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/7639410968.shtml)
+- 2026-06-30 03:58 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/75264165429.shtml)
+- 2026-06-30 03:51 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/708206.shtml)
+- 2026-06-30 03:53 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/64353058787.shtml)
+- 2026-06-30 04:03 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/527378842.shtml)
+- 2026-06-30 04:08 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/9962601274.shtml)

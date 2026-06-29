@@ -1,59 +1,59 @@
-# 让儿童手表回归定位与通话，怎么就这么难？
+# 北京启动防汛四级应急响应 本轮降雨时间长累计雨量大
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-给孩子戴上手表本是为了多一分安全保障，怎么反而成了一个防不胜防的隐患源头？ 在我国，儿童智能手表普及率近三成，相当于每三个孩子中就有一人佩戴。实时定位、一键通话等功能，确实为家庭联络提供了便利。然而，当防沉迷系统形同虚设、支付漏洞频频发生、不适宜的有害内容隐匿其中时，我们不得不追问：这块戴在孩子手腕上的智能设备，究竟是在守护安全，还是在算计儿童？ 针对行业乱象，国家层面已经出台
+今天（5月17日）起，北京市将迎来一次明显降水过程，目前北京市暴雨蓝色预警信号生效中，北京市启动全市防汛四级应急响应。 北京市气象台发布16日12时至17日8时降水量（毫米）：全市平均8.7，城区平均（朝，海，丰，石，东，西）7.7，西南（门，房）14.5，西北（延，昌）9.1，东北（密，顺，平，怀）7.3，东南（通，大）5.5。城区最大海淀挂甲塔15.5，全市最大房山史家营4
 
 ## 正文
 
-给孩子戴上手表本是为了多一分安全保障，怎么反而成了一个防不胜防的隐患源头？
+今天（5月17日）起，北京市将迎来一次明显降水过程，目前北京市暴雨蓝色预警信号生效中，北京市启动全市防汛四级应急响应。
 
-在我国，儿童智能手表普及率近三成，相当于每三个孩子中就有一人佩戴。
+北京市气象台发布16日12时至17日8时降水量（毫米）：全市平均8.7，城区平均（朝，海，丰，石，东，西）7.7，西南（门，房）14.5，西北（延，昌）9.1，东北（密，顺，平，怀）7.3，东南（通，大）5.5。
 
-实时定位、一键通话等功能，确实为家庭联络提供了便利。
+城区最大海淀挂甲塔15.5，全市最大房山史家营42.5，最大小时降水强度房山三流水8.7毫米/小时（16日15时-16时）。
 
-然而，当防沉迷系统形同虚设、支付漏洞频频发生、不适宜的有害内容隐匿其中时，我们不得不追问：这块戴在孩子手腕上的智能设备，究竟是在守护安全，还是在算计儿童？
+今天至明天早晨有明显降雨过程，降雨持续时间长，累计雨量大，但雨势平缓。
 
-针对行业乱象，国家层面已经出台了硬约束。
+预计，5月17日白天至夜间，大兴、通州、朝阳、海淀、丰台、石景山、东城、西城、顺义、平谷、房山、门头沟大部、怀柔南部、昌平东部、密云南部将出现累计雨量50毫米以上的暴雨，部分地区可达70毫米以上。
 
-我国首部儿童手表领域强制性国家标准——《儿童手表安全技术要求》已正式批准发布，并将于2027年1月1日起全面实施。
+气象部门提醒，降雨容易造成路面湿滑、能见度下降，公众出行需做好防雨、防滑措施，注意交通安全。
 
-这份覆盖了内容安全、防沉迷、付费管控等领域的国家标准，为长期野蛮生长的市场划定了不可逾越的底线。
-
-但一纸标准仅是治理的起点，要让标准穿透到日常使用场景中，就必须看清那些急需被规范的乱象背后，本质上是商业逻辑对安全边界的持续蚕食。
+（来源：气象北京） 责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-30 03:50 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 04:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 04:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 04:11 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 03:46 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 04:03 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 03:47 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 04:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 03:48 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 04:04 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 04:02 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 03:56 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 04:07 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 03:58 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 03:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 03:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 04:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 04:05 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 03:53 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 04:11 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 03:59 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 04:16 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 03:57 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 04:04 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 03:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 03:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 04:11 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 03:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:08 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/839556354.shtml)
-- 2026-06-30 03:58 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/405770189.shtml)
-- 2026-06-30 04:10 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/01077934661.shtml)
-- 2026-06-30 03:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/175586.shtml)
-- 2026-06-30 04:10 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/616187696961.shtml)
-- 2026-06-30 04:04 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/4280673937.shtml)
-- 2026-06-30 04:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/378444.shtml)
-- 2026-06-30 04:01 - [女心理师](https://www.blog.minike.top/Article/details/32625102667.shtml)
-- 2026-06-30 03:45 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/3640914269.shtml)
-- 2026-06-30 04:10 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/84649375569.shtml)
-- 2026-06-30 04:01 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/632501943906.shtml)
-- 2026-06-30 04:03 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/548348466009.shtml)
-- 2026-06-30 04:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/238828873.shtml)
-- 2026-06-30 03:43 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/83737505.shtml)
-- 2026-06-30 04:02 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/9420894563.shtml)
+- 2026-06-30 04:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/5057185.shtml)
+- 2026-06-30 04:01 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/26110857194.shtml)
+- 2026-06-30 03:53 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/2006402.shtml)
+- 2026-06-30 03:59 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/24310.shtml)
+- 2026-06-30 04:02 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/338639688492.shtml)
+- 2026-06-30 03:56 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/875302478.shtml)
+- 2026-06-30 04:07 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/9063458.shtml)
+- 2026-06-30 03:53 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/8978686.shtml)
+- 2026-06-30 04:09 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/556000285651.shtml)
+- 2026-06-30 04:06 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/3132852.shtml)
+- 2026-06-30 04:02 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/982022.shtml)
+- 2026-06-30 04:16 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/6305152793.shtml)
+- 2026-06-30 04:00 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/158394.shtml)
+- 2026-06-30 04:03 - [爱很美味](http://www.share.minike.top/Article/details/405594450.shtml)
+- 2026-06-30 04:14 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/31917838620.shtml)

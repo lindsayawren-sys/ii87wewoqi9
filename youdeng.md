@@ -1,61 +1,61 @@
-# 中外媒体向浙江提问 三组关系揭示创新“密码”
+# 分析师警示：股市或低估通胀与地缘政治动荡风险
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月1日电 (张斌)中国国务院新闻办公室6月1日在浙江杭州举行中外记者见面会，浙江省副省长何中伟及相关部门负责人介绍科技创新和产业创新相关情况，并回答记者提问。 问答之间，三组关系揭示浙江的创新“密码”。 长期与短期：没有大投入就没有大产出 浙江官方强调，科技创新没有大投入就没有大产出，需要以长期主义者的坚定久久为功。2025年，浙江全省GDP同比增长5.5%、高于全
+投资者警示，当前处于高位的美国股市尚未计入通胀飙升带来的风险，同时极易受到债券收益率大幅走高的冲击。 一季度企业财报表现亮眼，叠加人工智能有望提振经济的市场预期，持续助推美股走强，也让高企的能源价格、美伊战事迟迟未能收尾等风险遭到市场忽视。 过去一周债券收益率大幅攀升，30年期美国国债收益率突破5%，10年期基准国债收益率站上4.5%，市场格局或将就此改写，也令周五股市整体趋于
 
 ## 正文
 
-中新网杭州6月1日电 (张斌)中国国务院新闻办公室6月1日在浙江杭州举行中外记者见面会，浙江省副省长何中伟及相关部门负责人介绍科技创新和产业创新相关情况，并回答记者提问。
+投资者警示，当前处于高位的美国股市尚未计入通胀飙升带来的风险，同时极易受到债券收益率大幅走高的冲击。
 
-问答之间，三组关系揭示浙江的创新“密码”。
+一季度企业财报表现亮眼，叠加人工智能有望提振经济的市场预期，持续助推美股走强，也让高企的能源价格、美伊战事迟迟未能收尾等风险遭到市场忽视。
 
-长期与短期：没有大投入就没有大产出 浙江官方强调，科技创新没有大投入就没有大产出，需要以长期主义者的坚定久久为功。
+过去一周债券收益率大幅攀升，30年期美国国债收益率突破5%，10年期基准国债收益率站上4.5%，市场格局或将就此改写，也令周五股市整体趋于谨慎。
 
-2025年，浙江全省GDP同比增长5.5%、高于全国平均增速，高新技术产业增加值同比增长7.9%。
+自二月下旬美伊冲突爆发初期短暂下跌后，美股各大指数迎来强势反弹。
 
-结合产学研协同创新的经验，何中伟在见面会上介绍，浙江已构建“企业出题、政府助题、平台答题、车间验题、市场评价”的协同攻关机制。
+基准收益率上行通常会压制股市估值，企业与民众借贷成本随之增加，不仅拖累经济增长、压缩企业利润，也会让债券收益相比股票更具吸引力。
 
-此外，该省计划强化企业创新主体地位，引导企业主动参与前沿技术研发，培育企业内生创新动能，“到2030年力争规上工业企业的研发机构设置率达65%以上。
+当前股市估值处于高位，这一影响会愈发明显。
 
-” 在科创长期投入方面，浙江有何举措？
+据伦敦证券交易所集团数据统计，截至周四，标普500指数未来12个月预期市盈率达21.3倍，远高于该指数16倍的长期均值；虽低于去年10月23.5倍的峰值，但企业盈利预期向好仅小幅稳住估值水平。
 
-面对中新社提问，浙江省科学技术厅厅长佟桂莉介绍，2025年，浙江全省科技创新投入达7232亿元(人民币，下同)。
+投资组合经理们表示，股市之所以保持强势，核心驱动力在于企业盈利。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 04:05 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 04:06 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 03:53 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 04:06 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 04:11 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-30 04:03 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 03:57 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 03:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 03:50 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 03:51 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 03:56 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 03:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 03:48 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 03:55 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 04:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 03:52 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 03:55 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 03:49 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 03:51 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 04:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 04:09 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 04:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 04:11 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 04:05 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 03:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 04:07 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 03:59 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 04:01 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 04:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/1975694.shtml)
-- 2026-06-30 04:07 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/409526494.shtml)
-- 2026-06-30 03:59 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/70447305.shtml)
-- 2026-06-30 03:45 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/99664644.shtml)
-- 2026-06-30 04:05 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/676692.shtml)
-- 2026-06-30 03:52 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/6019298777.shtml)
-- 2026-06-30 03:49 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/511679550.shtml)
-- 2026-06-30 04:01 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/03687941276.shtml)
-- 2026-06-30 03:54 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/5072082989.shtml)
-- 2026-06-30 04:07 - [速度与激情9](http://www.share.minike.top/Article/details/39410424663.shtml)
-- 2026-06-30 03:45 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/7442279.shtml)
-- 2026-06-30 03:55 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/81821.shtml)
-- 2026-06-30 03:50 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/658218308.shtml)
-- 2026-06-30 03:42 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/233537.shtml)
-- 2026-06-30 04:09 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/367280.shtml)
+- 2026-06-30 03:48 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/540672468.shtml)
+- 2026-06-30 04:00 - [我和我的家乡](http://www.share.minike.top/Article/details/78925928.shtml)
+- 2026-06-30 04:09 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/60197.shtml)
+- 2026-06-30 03:52 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/23855939728.shtml)
+- 2026-06-30 03:50 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/176348138353.shtml)
+- 2026-06-30 04:07 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/49641977.shtml)
+- 2026-06-30 04:11 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/1062993.shtml)
+- 2026-06-30 04:15 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/6360896865.shtml)
+- 2026-06-30 03:58 - [扫黑风暴](https://www.share.minike.top/Article/details/43765189.shtml)
+- 2026-06-30 04:13 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/83141764117.shtml)
+- 2026-06-30 04:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/395943.shtml)
+- 2026-06-30 04:09 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/2164355585.shtml)
+- 2026-06-30 04:06 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/832942885985.shtml)
+- 2026-06-30 03:57 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/1841025.shtml)
+- 2026-06-30 04:09 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/17648.shtml)

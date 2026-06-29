@@ -1,49 +1,53 @@
-# 2026年“服务消费季”活动在杭州启动
+# 十四届全国政协常委王晓东被查 曾任湖北省省长
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 据商务部，2026年“服务消费季”活动于1日在浙江省杭州市启动。 据了解，由商务部牵头开展的2026年“服务消费季”系列促消费活动，以“乐享美好服务，共创幸福生活”为主题，围绕居民日常生活需要、高品质生活追求、多样化消费需求，发挥各地方、有关部门、行业协会、平台企业合力，贯穿全年举办160余场特色服务消费促进活动，培育场景丰富、层次分明、覆盖广泛的服务消费
+中新社北京5月17日电 中国官方17日通报，十四届全国政协常委、农业和农村委员会副主任王晓东涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。 公开资料显示，王晓东，1960年1月出生，江西信丰人，曾任贵州省贵阳市委书记，贵州省委常委，贵州省政府副省长、党组副书记，湖北省委副书记，湖北省政府省长、党组书记等职。2023年，王晓东任十四届全国政协常委、农业和农村委员
 
 ## 正文
 
-中新网北京6月2日电 据商务部，2026年“服务消费季”活动于1日在浙江省杭州市启动。
+中新社北京5月17日电 中国官方17日通报，十四届全国政协常委、农业和农村委员会副主任王晓东涉嫌严重违纪违法，目前正接受中央纪委国家监委纪律审查和监察调查。
 
-据了解，由商务部牵头开展的2026年“服务消费季”系列促消费活动，以“乐享美好服务，共创幸福生活”为主题，围绕居民日常生活需要、高品质生活追求、多样化消费需求，发挥各地方、有关部门、行业协会、平台企业合力，贯穿全年举办160余场特色服务消费促进活动，培育场景丰富、层次分明、覆盖广泛的服务消费促进活动体系，进一步释放服务消费潜能。
+公开资料显示，王晓东，1960年1月出生，江西信丰人，曾任贵州省贵阳市委书记，贵州省委常委，贵州省政府副省长、党组副书记，湖北省委副书记，湖北省政府省长、党组书记等职。
 
-启动仪式上，商务部发布2026年全国“服务消费季”活动方案，中央广播电视总台发布促进服务消费系列创新举措，浙江省、杭州市分别发布服务消费提质惠民四大行动、促进服务消费高质量发展创新举措；商务部研究院、国际商报、中国饭店协会分别发布《中国服务消费发展报告(2025)》、创新多元化服务消费场景实践案例、“住宿+”休闲度假新业态新模式新场景典型案例；美团、支付宝等平台企业发布支持服务消费发展有关行动方案。
+2023年，王晓东任十四届全国政协常委、农业和农村委员会副主任。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-30 04:08 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 03:47 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 04:01 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 03:56 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 04:05 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 03:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 04:04 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 04:07 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 03:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 04:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 03:48 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 03:56 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 04:12 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 03:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 03:48 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 04:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 04:00 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 04:17 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 04:06 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 03:53 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 03:54 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 03:48 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 04:02 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 04:13 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 03:50 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 03:58 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/571210334.shtml)
-- 2026-06-30 03:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/480074.shtml)
-- 2026-06-30 03:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/3242068357.shtml)
-- 2026-06-30 03:58 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/95371998312.shtml)
-- 2026-06-30 03:43 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/1582518.shtml)
-- 2026-06-30 03:47 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/32281.shtml)
-- 2026-06-30 03:51 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/5069155719.shtml)
-- 2026-06-30 03:43 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/4686831008.shtml)
-- 2026-06-30 04:00 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/9983305.shtml)
-- 2026-06-30 04:01 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/662819.shtml)
-- 2026-06-30 03:51 - [起风了](http://www.blog.minike.top/Article/details/9795291777.shtml)
-- 2026-06-30 03:48 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/58368729232.shtml)
-- 2026-06-30 03:58 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/712128366.shtml)
-- 2026-06-30 04:02 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/51705352860.shtml)
-- 2026-06-30 03:45 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/7711980851.shtml)
+- 2026-06-30 03:53 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/11243.shtml)
+- 2026-06-30 03:51 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/39022948.shtml)
+- 2026-06-30 03:55 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/71352614.shtml)
+- 2026-06-30 03:55 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/9769102.shtml)
+- 2026-06-30 04:07 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/94774544.shtml)
+- 2026-06-30 03:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/626637025673.shtml)
+- 2026-06-30 03:50 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/214407.shtml)
+- 2026-06-30 03:57 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/0728898.shtml)
+- 2026-06-30 04:16 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/37454660.shtml)
+- 2026-06-30 03:54 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/068041394316.shtml)
+- 2026-06-30 04:17 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/89706.shtml)
+- 2026-06-30 04:13 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/374931129.shtml)
+- 2026-06-30 04:17 - [扬名立万](http://www.share.minike.top/Article/details/7950296.shtml)
+- 2026-06-30 04:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/46143.shtml)
+- 2026-06-30 04:05 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/99432305859.shtml)

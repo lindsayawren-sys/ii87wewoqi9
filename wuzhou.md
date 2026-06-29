@@ -1,58 +1,57 @@
-# 中信证券：全球能源转型加速 锂电供需格局料将迎景气度上行
+# 汛期遭遇急流、山洪怎么办？掌握这些知识 关键时刻能救命
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信证券研究 文|吴威辰 许英博 刘海博 尹欣驰 李景涛 王喆 敖翀 拜俊飞 汪浩 柯迈 於学鑫 贾玉潇 展望2026年下半年，锂电行业整体供需格局料将迎来景气度上行。需求端，受益我国内需修复以及全球油价上行，全球动力电池需求高景气料将延续；此外，收益模式丰富、新型应用领域等因素推动储能装机经济性继续提升，
+汛期来临，水边游玩风险也随之增大，一旦意外落水或遭遇急流，掌握科学的自救方式极为重要。 遭遇急流需冷静 科学自救是关键 画面中，消防员模拟不慎落水遭遇急流的场景，演示了仰面漂浮的正确自救方法。消防员介绍，入水后身体应尽量保持放松，背部朝下、仰起头部露出水面，收紧核心，双腿自然伸直，借助水流漂浮，稳定住自身重心，避免身体被水流冲击翻转。 安徽省马鞍山市消防救援支队消防员 夏子祥：
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+汛期来临，水边游玩风险也随之增大，一旦意外落水或遭遇急流，掌握科学的自救方式极为重要。
 
-中信证券研究 文|吴威辰 许英博 刘海博 尹欣驰 李景涛 王喆 敖翀 拜俊飞 汪浩 柯迈 於学鑫 贾玉潇 展望2026年下半年，锂电行业整体供需格局料将迎来景气度上行。
+遭遇急流需冷静 科学自救是关键 画面中，消防员模拟不慎落水遭遇急流的场景，演示了仰面漂浮的正确自救方法。
 
-需求端，受益我国内需修复以及全球油价上行，全球动力电池需求高景气料将延续；此外，收益模式丰富、新型应用领域等因素推动储能装机经济性继续提升，全球储能迎来国内外需求共振向上的发展阶段。
+消防员介绍，入水后身体应尽量保持放松，背部朝下、仰起头部露出水面，收紧核心，双腿自然伸直，借助水流漂浮，稳定住自身重心，避免身体被水流冲击翻转。
 
-供给端，电池和中游材料环节新增扩产主要聚焦于高端产品及海外产能，我们预计2026年下半年行业供需有望进一步改善，产业链价格企稳回升，高端产品有望攫取更高的技术溢价。
+安徽省马鞍山市消防救援支队消防员 夏子祥：遇险后首先要保持冷静，切勿惊慌失措、盲目挣扎，慌乱挣扎会加速体力消耗，还可能被水流卷入水下或撞击礁石，反而加剧危险。
 
-此外，固态电池产业化加速，有望带来电池、材料、设备环节的投资机会。
+消防员表示，夏季是水域事故高发期，在户外游玩或涉水通行时，一定要提前观察水域情况，切勿擅自前往未开发或无安全防护的水域野泳。
 
-重点关注技术差异化程度更高、成本控制能力更强的供应链优质头部企业。
+如果收到山洪或地质灾害预警，应迅速撤离到安全地带，不要抱有侥幸心理停留原地。
 
-▍新能源汽车：电动化渗透率持续提升，单车带电量持续增长。
+汛期户外游玩需注意 警惕突发山洪风险 消防部门还提示：汛期户外游玩时务必远离山区沟口、野外河道等高危地带，警惕山洪突发风险。
 
-国内市场，根据中汽协数据，2026年1-4月我国新能源车批发销量达到430.6万辆，同比+0.2%，剔除出口销量后则同比下滑约20%，主要受到购置税、原材料成本上涨等因素带来的购车成本提升影响。
+山洪的突发性和破坏性极强，往往由短时间强降水或上游降雨引发。
 
 ## 相关推荐
 
-- 2026-06-30 03:46 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 03:57 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 04:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 03:59 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 04:04 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 04:06 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 03:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 04:10 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 03:44 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 04:00 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 03:48 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 04:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 03:58 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 03:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 04:05 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 04:10 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 03:48 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 03:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 04:05 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 03:51 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 04:05 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 03:57 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 03:55 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/551222031.shtml)
-- 2026-06-30 03:42 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/101371575006.shtml)
-- 2026-06-30 03:43 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/60905566.shtml)
-- 2026-06-30 04:08 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/813012.shtml)
-- 2026-06-30 04:03 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/939989657965.shtml)
-- 2026-06-30 03:52 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/58999.shtml)
-- 2026-06-30 03:54 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/93925355679.shtml)
-- 2026-06-30 04:07 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/16829315781.shtml)
-- 2026-06-30 03:57 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/12815102800.shtml)
-- 2026-06-30 03:50 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/797327.shtml)
-- 2026-06-30 03:57 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/53121320.shtml)
-- 2026-06-30 04:08 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/879844962695.shtml)
-- 2026-06-30 03:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/370074.shtml)
-- 2026-06-30 03:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/26308054.shtml)
-- 2026-06-30 04:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/760977325295.shtml)
+- 2026-06-30 04:17 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/50831828.shtml)
+- 2026-06-30 04:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/2186370609.shtml)
+- 2026-06-30 04:10 - [日本 高位逼抢](https://www.share.minike.top/Article/details/0078615929.shtml)
+- 2026-06-30 03:51 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/38235.shtml)
+- 2026-06-30 04:04 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/67478271524.shtml)
+- 2026-06-30 04:03 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/372917649.shtml)
+- 2026-06-30 04:00 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/665655802970.shtml)
+- 2026-06-30 04:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/34018836.shtml)
+- 2026-06-30 04:13 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/331049627.shtml)
+- 2026-06-30 04:06 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/618348395.shtml)
+- 2026-06-30 04:09 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/75057483504.shtml)
+- 2026-06-30 04:17 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/503074119.shtml)
+- 2026-06-30 04:10 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/947913762765.shtml)
+- 2026-06-30 04:17 - [日本进球](http://www.share.minike.top/Article/details/32761617301.shtml)
+- 2026-06-30 04:08 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/0646041981.shtml)

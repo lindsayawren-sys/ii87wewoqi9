@@ -1,61 +1,60 @@
-# Teleflex宣布私募发行5亿美元2032年到期优先票据
+# 中国自主研发赛事级燃油实现突破
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-Teleflex Incorporated今日宣布，将启动一项非公开发行计划，拟发行本金总额为5亿美元的2032年到期优先票据。 此次发行的票据将由Teleflex现有及未来全资国内子公司提供担保。票据的利率、发行价格及其他条款将在发行定价时确定，并将面向依据1933年证券法第144A条规则被认为是合格机构买家的投资者，以及依据S条例向美国境外的非美国人士发售。 Telefle
+中新社北京5月16日电 (记者 刘亮)中国石化自主研发生产的爱跑103号赛级燃油16日正式发布，这是中国自主研发赛级燃油首次实现突破，填补了国内高性能赛车燃油的空白，结束了中国顶级赛事用油长期依赖进口的局面。据悉，这也是中国国内首批实现工业化生产的103号高标号赛级汽油。汽油的标号一般是指其辛烷值，而辛烷值是衡量汽油抗爆性的一个重要参数，直接决定发动机的动力输出极限和运行稳定性
 
 ## 正文
 
-Teleflex Incorporated今日宣布，将启动一项非公开发行计划，拟发行本金总额为5亿美元的2032年到期优先票据。
+中新社北京5月16日电 (记者 刘亮)中国石化自主研发生产的爱跑103号赛级燃油16日正式发布，这是中国自主研发赛级燃油首次实现突破，填补了国内高性能赛车燃油的空白，结束了中国顶级赛事用油长期依赖进口的局面。
 
-此次发行的票据将由Teleflex现有及未来全资国内子公司提供担保。
+据悉，这也是中国国内首批实现工业化生产的103号高标号赛级汽油。
 
-票据的利率、发行价格及其他条款将在发行定价时确定，并将面向依据1933年证券法第144A条规则被认为是合格机构买家的投资者，以及依据S条例向美国境外的非美国人士发售。
+汽油的标号一般是指其辛烷值，而辛烷值是衡量汽油抗爆性的一个重要参数，直接决定发动机的动力输出极限和运行稳定性。
 
-Teleflex计划将本次发行的净收益连同现有现金，用于赎回公司全部未偿还的2027年到期4.625%优先票据。
+此次投用的103号赛级汽油，是专门针对赛车发动机高转速、大负荷、长时间连续运行的极端工况定向开发的高端产品。
 
-该赎回预计将优化公司的债务结构并降低利息支出。
+产品研究法辛烷值在103以上，较市售98号车用汽油高出5个标号，可有效降低赛车发动机在高压缩比、高负荷环境下发生爆震的风险。
 
-与此同时，Teleflex正在推进一系列重大战略转型。
+同时，这一产品不含铅、锰等金属添加剂，燃烧后产生的沉积物很少，满足高性能需求和赛事环保标准。
 
-公司此前宣布计划出售其急性护理、介入泌尿及OEM业务，合计交易金额约20.3亿美元，预计于2026年下半年完成交割。
+103号燃油还特别添加抗静电成分，能有效降低大流量加油过程中的静电积聚风险，确保赛事补给安全高效。
 
-所得净收益约18亿美元，其中10亿美元将用于股份回购，8亿美元用于偿还债务。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 04:06 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 03:57 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 03:59 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 04:05 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 03:49 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 03:53 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 03:51 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 04:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 03:54 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 04:09 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 03:44 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 03:49 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 04:11 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 03:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 03:50 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 04:14 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 04:12 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 04:01 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 04:13 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 04:14 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 04:08 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 04:16 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 03:53 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 04:08 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 03:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 04:09 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 04:00 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 04:11 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:45 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/621316120.shtml)
-- 2026-06-30 04:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/02237780.shtml)
-- 2026-06-30 03:54 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/9516794.shtml)
-- 2026-06-30 03:51 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/922678329.shtml)
-- 2026-06-30 03:52 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/71343436.shtml)
-- 2026-06-30 04:04 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/669667374.shtml)
-- 2026-06-30 03:50 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/799658559055.shtml)
-- 2026-06-30 03:49 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/24049740322.shtml)
-- 2026-06-30 04:05 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/30721068.shtml)
-- 2026-06-30 04:05 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/99984006.shtml)
-- 2026-06-30 03:45 - [斗破苍穹](https://www.share.minike.top/Article/details/947207457237.shtml)
-- 2026-06-30 03:47 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/9259915193.shtml)
-- 2026-06-30 04:07 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/9822697645.shtml)
-- 2026-06-30 03:51 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/722851850.shtml)
-- 2026-06-30 03:43 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/1174763170.shtml)
+- 2026-06-30 03:57 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/949904945.shtml)
+- 2026-06-30 04:01 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/4533321.shtml)
+- 2026-06-30 04:15 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/550281.shtml)
+- 2026-06-30 04:06 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/0046520013.shtml)
+- 2026-06-30 04:04 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/49423277284.shtml)
+- 2026-06-30 04:15 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/555958027.shtml)
+- 2026-06-30 03:59 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/65799239.shtml)
+- 2026-06-30 04:10 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/2965051193.shtml)
+- 2026-06-30 04:11 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/180661.shtml)
+- 2026-06-30 03:49 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/575274.shtml)
+- 2026-06-30 04:12 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/17881690.shtml)
+- 2026-06-30 04:11 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/68285518157.shtml)
+- 2026-06-30 03:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/447494197.shtml)
+- 2026-06-30 04:11 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/65411.shtml)
+- 2026-06-30 04:05 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/614959.shtml)

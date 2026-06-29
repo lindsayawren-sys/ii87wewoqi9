@@ -1,56 +1,47 @@
-# 5月中国百城新房价格环比微涨 二手房价降幅收窄
+# 广西柳州发生5.2级地震 柳州启动地震Ⅲ级应急响应
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月1日电 (记者 庞无忌)5月份，中国主要城市房价延续回稳势头。 中指研究院1日发布的数据显示，5月份中国百城新房价格保持环比微涨，二手房价降幅收窄。 从新房来看，受深圳、上海、成都、杭州、武汉、天津等重点城市优质楼盘加快入市推动，5月份百城新房价格环比延续结构性上涨态势。数据显示，5月份，中国百城新建住宅均价为每平方米17156元(人民币，下同)，环比上涨0.16
+发布时间：2026年05月18日 08:58 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新社北京6月1日电 (记者 庞无忌)5月份，中国主要城市房价延续回稳势头。
-
-中指研究院1日发布的数据显示，5月份中国百城新房价格保持环比微涨，二手房价降幅收窄。
-
-从新房来看，受深圳、上海、成都、杭州、武汉、天津等重点城市优质楼盘加快入市推动，5月份百城新房价格环比延续结构性上涨态势。
-
-数据显示，5月份，中国百城新建住宅均价为每平方米17156元(人民币，下同)，环比上涨0.16%，同比上涨2.03%；1-5月百城新建住宅均价累计上涨0.42%。
-
-二手房方面，核心城市二手房市场交易保持较高活跃度。
-
-5月，百城二手住宅均价为每平方米12692元，环比下跌0.32%，跌幅较上月收窄0.14个百分点；1-5月百城二手住宅均价累计下跌2.49%。
-
-5月，二手房价上涨城市个数较上月增加，核心城市中，上海二手房挂牌均价环比连续3个月上涨。
-
-今年5月，多个核心城市二手房市场热度强于往年同期。
+发布时间：2026年05月18日 08:58 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 03:46 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 04:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 03:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 04:04 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 03:42 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 04:00 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 04:10 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 03:58 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 03:48 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 04:01 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 04:10 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 04:01 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 03:52 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 03:59 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 04:04 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 03:52 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 03:59 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 04:17 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-30 04:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 04:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 04:17 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 03:49 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 03:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 04:09 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/33516023097.shtml)
-- 2026-06-30 03:55 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/86275410.shtml)
-- 2026-06-30 04:05 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/523501596790.shtml)
-- 2026-06-30 03:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/0286873.shtml)
-- 2026-06-30 03:44 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/46832579922.shtml)
-- 2026-06-30 04:11 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/57035.shtml)
-- 2026-06-30 04:11 - [明星大侦探第一季](http://www.share.minike.top/Article/details/44841487.shtml)
-- 2026-06-30 04:02 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/228899692559.shtml)
-- 2026-06-30 03:55 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/3937304.shtml)
-- 2026-06-30 03:50 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/72530.shtml)
-- 2026-06-30 03:52 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/55179936.shtml)
-- 2026-06-30 04:00 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/6740484.shtml)
-- 2026-06-30 03:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/1721005759.shtml)
-- 2026-06-30 04:08 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/64847042.shtml)
-- 2026-06-30 03:59 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/68409705.shtml)
+- 2026-06-30 04:00 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/48016824.shtml)
+- 2026-06-30 04:03 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/006099652.shtml)
+- 2026-06-30 03:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/4887461.shtml)
+- 2026-06-30 04:01 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/162014.shtml)
+- 2026-06-30 04:12 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/489429567.shtml)
+- 2026-06-30 03:55 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/06906369.shtml)
+- 2026-06-30 04:07 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/22132617.shtml)
+- 2026-06-30 04:15 - [起风了](http://www.blog.minike.top/Article/details/4326119760.shtml)
+- 2026-06-30 03:50 - [恋与深空 日服](https://www.share.minike.top/Article/details/19522.shtml)
+- 2026-06-30 04:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/72930.shtml)
+- 2026-06-30 03:53 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/128879.shtml)
+- 2026-06-30 04:06 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/59593964.shtml)
+- 2026-06-30 04:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/08054.shtml)
+- 2026-06-30 04:02 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/9752770.shtml)
+- 2026-06-30 03:58 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/900196711243.shtml)

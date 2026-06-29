@@ -1,52 +1,61 @@
-# 快讯：恒指低开0.01% 科指涨0.22% AI应用股高开 创新药概念股活跃
+# 国泰海通研究所宏观首席梁中华离职
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-美股上周五继续破顶，市场憧憬中东战争结束，刺激大市创新高，三大指数均录得升幅收市。美元表现回落，美国十年期债息下滑至4.43厘水平，金价走势向好，油价则持续偏软。 今日港股三大指数涨跌不一，恒指开盘跌0.01%，报25180.05点，恒科指涨0.22%，国企指数跌0.07%。盘面上，科网股涨多跌少，美团涨超2%，快手、腾讯、百度涨超1%，京东、网易跌超1%；创新药概念股活跃，康
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金融人事mini 国泰君安与海通证券完成吸收合并后，两家旗下的研究所整合成为证券行业关注的重点事项，截至2026年4月，国泰海通证券研究所完成合并已满一年。 近日，券商人事获悉，国泰海通研究所宏观首席梁中华离职，已加入易方达基金发展研究中心。 梁中华2011年获得北京大学金融学学士、统计学双学士学位，
 
 ## 正文
 
-美股上周五继续破顶，市场憧憬中东战争结束，刺激大市创新高，三大指数均录得升幅收市。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-美元表现回落，美国十年期债息下滑至4.43厘水平，金价走势向好，油价则持续偏软。
+来源：金融人事mini 国泰君安与海通证券完成吸收合并后，两家旗下的研究所整合成为证券行业关注的重点事项，截至2026年4月，国泰海通证券研究所完成合并已满一年。
 
-今日港股三大指数涨跌不一，恒指开盘跌0.01%，报25180.05点，恒科指涨0.22%，国企指数跌0.07%。
+近日，券商人事获悉，国泰海通研究所宏观首席梁中华离职，已加入易方达基金发展研究中心。
 
-盘面上，科网股涨多跌少，美团涨超2%，快手、腾讯、百度涨超1%，京东、网易跌超1%；创新药概念股活跃，康方生物涨超9%；内房股部分上涨，远洋集团涨超4%；AI应用股高开，Minimax涨超5%。
+梁中华2011年获得北京大学金融学学士、统计学双学士学位，2015年获得北京大学经济学博士学位，毕业后加盟海通证券。
 
-责任编辑：郝欣煜
+2018年，梁中华从海通辞职，入职中泰担任宏观首席分析师一职，但2020年底，后梁中华又回归海通。
+
+自合并后，国泰海通证券研究所人事一直在持续调整中。
+
+2025年4月，路颖从海富通基金回归，出任国泰海通研究与机构业务委员会副总裁、研究所所长；原海通证券研究所所长荀玉根，出任国泰海通首席经济学家、政策和产业研究院联席院长，但两个月后，国泰海通内部下发人事调整通知，荀玉根正式离职；后续荀玉根加盟国信证券，担任首席经济学家兼经济研究所所长。
+
+同期，原国泰君安副总裁、研究所所长陈忠义，继续担任国泰海通副总裁，同时担任公司研究与机构业务委员会总裁，统筹研究与机构业务全条线；原国泰君安首席经济学家何海峰在合并期间离职，后续入职清华大学五道口金融学院。
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 04:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 03:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 04:04 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 04:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 03:52 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 03:55 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 03:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 03:51 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 03:56 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 03:47 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 03:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 03:50 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 04:13 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 04:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 04:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 04:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 03:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 03:54 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 03:48 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 04:15 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 03:54 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 04:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 04:04 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 04:04 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 03:56 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 03:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/8197619.shtml)
-- 2026-06-30 03:44 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/4842119.shtml)
-- 2026-06-30 04:04 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/326617223.shtml)
-- 2026-06-30 03:54 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/818119207.shtml)
-- 2026-06-30 03:54 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/506481618.shtml)
-- 2026-06-30 03:57 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/39339.shtml)
-- 2026-06-30 03:46 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/71315742252.shtml)
-- 2026-06-30 03:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/7180032.shtml)
-- 2026-06-30 03:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/62230.shtml)
-- 2026-06-30 03:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/11273064.shtml)
-- 2026-06-30 03:57 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/68743.shtml)
-- 2026-06-30 03:43 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/88494755.shtml)
-- 2026-06-30 03:58 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/002055.shtml)
-- 2026-06-30 03:55 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/1323226915.shtml)
-- 2026-06-30 03:49 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/52944916907.shtml)
+- 2026-06-30 04:04 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/14916952.shtml)
+- 2026-06-30 04:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/3766177.shtml)
+- 2026-06-30 03:58 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/02306921476.shtml)
+- 2026-06-30 04:04 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/5285648492.shtml)
+- 2026-06-30 04:10 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/49362.shtml)
+- 2026-06-30 04:14 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/696551452.shtml)
+- 2026-06-30 04:03 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/97857788284.shtml)
+- 2026-06-30 04:15 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/327005103.shtml)
+- 2026-06-30 03:58 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/9257086.shtml)
+- 2026-06-30 03:50 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/06143786.shtml)
+- 2026-06-30 03:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/63361185.shtml)
+- 2026-06-30 04:05 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/068941.shtml)
+- 2026-06-30 03:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/70166.shtml)
+- 2026-06-30 03:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/7561510.shtml)
+- 2026-06-30 03:58 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/61438.shtml)

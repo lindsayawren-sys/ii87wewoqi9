@@ -1,55 +1,46 @@
-# 时政微纪录丨“自古英雄出少年” 总书记心中的温柔牵挂
+# 关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-在“六一”国际儿童节到来之际，习近平总书记给中共一大纪念馆、南湖革命纪念馆少先队红领巾讲解员回信，对他们予以亲切勉励，并祝他们和全国的少年儿童节日快乐。 视频：时政微纪录丨“自古英雄出少年” 总书记心中的温柔牵挂来源：央视新闻客户端 党的十八大以来，以习近平同志为核心的党中央高度重视少年儿童工作，关心少年儿童成长成才。每一次暖心互动、每一句殷殷嘱托，都饱含着对下一代的深情期许。
+发布时间：2026年05月18日 11:01 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-在“六一”国际儿童节到来之际，习近平总书记给中共一大纪念馆、南湖革命纪念馆少先队红领巾讲解员回信，对他们予以亲切勉励，并祝他们和全国的少年儿童节日快乐。
-
-视频：时政微纪录丨“自古英雄出少年” 总书记心中的温柔牵挂来源：央视新闻客户端 党的十八大以来，以习近平同志为核心的党中央高度重视少年儿童工作，关心少年儿童成长成才。
-
-每一次暖心互动、每一句殷殷嘱托，都饱含着对下一代的深情期许。
-
-以梦为马，不负韶华。
-
-广大少年儿童当牢记殷殷嘱托，以少年意气承时代使命，以蓬勃朝气赴复兴之约，在祖国的沃土上茁壮成长、逐梦远航。
-
-总监制丨申勇 监制丨龚雪辉 策划丨史伟 王鹏飞 彭汉明 编导丨卢心雨 黄茜 制作丨郭鹏 统筹丨晏琴 柏杨 薄亚楠 王丰 傅蕾 温超 邓丽娟 卜晓菲 杨海灵 白廷俊
+发布时间：2026年05月18日 11:01 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 03:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 04:04 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 03:45 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 03:49 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 03:50 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 03:50 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 03:42 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 03:57 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 03:57 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 04:11 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 04:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 04:01 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 04:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 03:57 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 03:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 04:02 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 04:07 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 03:58 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 03:55 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 04:17 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 04:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 03:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 04:11 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 03:57 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 04:13 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 03:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [恋与深空回应争议](http://www.share.minike.top/Article/details/796361.shtml)
-- 2026-06-30 03:48 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/523453442779.shtml)
-- 2026-06-30 03:52 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/79384066.shtml)
-- 2026-06-30 03:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/06320062197.shtml)
-- 2026-06-30 03:56 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/57205027.shtml)
-- 2026-06-30 04:05 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/468875945307.shtml)
-- 2026-06-30 04:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/313076236.shtml)
-- 2026-06-30 04:00 - [请回答王牌2019](http://www.share.minike.top/Article/details/8592133.shtml)
-- 2026-06-30 03:54 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/426279.shtml)
-- 2026-06-30 04:05 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/46731002500.shtml)
-- 2026-06-30 04:01 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/47508.shtml)
-- 2026-06-30 03:43 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/439904043.shtml)
-- 2026-06-30 03:50 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/49539.shtml)
-- 2026-06-30 04:06 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/6025591.shtml)
-- 2026-06-30 04:07 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/998225620993.shtml)
+- 2026-06-30 04:13 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/44340477639.shtml)
+- 2026-06-30 04:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/439300.shtml)
+- 2026-06-30 03:57 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/72954423757.shtml)
+- 2026-06-30 04:02 - [日本16强魔咒](http://www.blog.minike.top/Article/details/60092682123.shtml)
+- 2026-06-30 04:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/2173392.shtml)
+- 2026-06-30 03:50 - [田曦薇没招了](http://www.blog.minike.top/Article/details/1820967.shtml)
+- 2026-06-30 04:14 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/859726989576.shtml)
+- 2026-06-30 04:13 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/9548988.shtml)
+- 2026-06-30 03:59 - [千与千寻](http://www.share.minike.top/Article/details/085508584.shtml)
+- 2026-06-30 04:08 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/35058.shtml)
+- 2026-06-30 04:02 - [世界杯](http://www.share.kurohicncr.top/Article/details/529552.shtml)
+- 2026-06-30 04:16 - [刘念回应](https://www.share.minike.top/Article/details/70242.shtml)
+- 2026-06-30 04:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/5159242752.shtml)
+- 2026-06-30 03:50 - [沙丘](http://www.share.kurohicncr.top/Article/details/62262.shtml)
+- 2026-06-30 04:12 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/891156185.shtml)

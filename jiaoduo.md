@@ -1,55 +1,56 @@
-# 韩正会见英国外交大臣库珀
+# 工业遗产焕新 活化利用释放新活力
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-新华社北京6月2日电 6月2日，国家副主席韩正在北京会见英国外交大臣库珀。 韩正表示，今年1月，习近平主席同斯塔默首相一致同意发展中英长期稳定的全面战略伙伴关系，开启两国关系新篇章。中英关系改善发展符合两国人民利益。双方要携手承担大国责任，加强战略沟通，巩固双边关系良好势头，不断挖掘新机遇，孕育新动能，促进人文交流和民心相通。共同践行真正的多边主义，携手推进全球治理体系改革，为
+央视网消息(新闻联播)：今年以来，全国多地城市更新提速推进，一大批闲置、废弃的老厂房、矿区遗址，经改造提升后，变身热门打卡地、便民空间与创业园区。在留住城市工业记忆的同时，让老空间长出了新生活、新消费、新产业。 正在演出的，是湖北大冶铜绿山古铜矿遗址推出的沉浸式戏剧。演出不在传统舞台，而是在废弃千年的露天老矿场里。经过生态修复与场景再造，这里成为文旅打卡地。 不仅是大冶，如今很
 
 ## 正文
 
-新华社北京6月2日电 6月2日，国家副主席韩正在北京会见英国外交大臣库珀。
+央视网消息(新闻联播)：今年以来，全国多地城市更新提速推进，一大批闲置、废弃的老厂房、矿区遗址，经改造提升后，变身热门打卡地、便民空间与创业园区。
 
-韩正表示，今年1月，习近平主席同斯塔默首相一致同意发展中英长期稳定的全面战略伙伴关系，开启两国关系新篇章。
+在留住城市工业记忆的同时，让老空间长出了新生活、新消费、新产业。
 
-中英关系改善发展符合两国人民利益。
+正在演出的，是湖北大冶铜绿山古铜矿遗址推出的沉浸式戏剧。
 
-双方要携手承担大国责任，加强战略沟通，巩固双边关系良好势头，不断挖掘新机遇，孕育新动能，促进人文交流和民心相通。
+演出不在传统舞台，而是在废弃千年的露天老矿场里。
 
-共同践行真正的多边主义，携手推进全球治理体系改革，为世界注入更多稳定性和确定性。
+经过生态修复与场景再造，这里成为文旅打卡地。
 
-库珀表示，英中在经贸投资、人工智能、绿色发展、应对气变等领域拥有广泛共同利益和合作潜力。
+不仅是大冶，如今很多地方都把工业遗址改造成文旅景点，有的直接变成了百姓身边的休闲公园、便民空间。
 
-英方愿同中方推进落实两国领导人达成的重要共识，开展建设性对话和合作，共同应对挑战。
+在山东济南，数十年历史的老模具厂通过精细化“微更新”，变身潮流文创园，年客流量超290万人次；在湖南长沙，闲置老旧车间直接改成便民健身乐园。
+
+除了打造文旅项目和公共空间，不少老厂房还被改造成年轻人创业创新的活力园区。
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 03:52 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 04:09 - [日本淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 03:49 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 03:59 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 03:56 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 03:59 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 04:06 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 04:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 03:52 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 04:09 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 04:03 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 03:51 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 04:07 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 04:02 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 03:55 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 03:57 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 03:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 03:52 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-30 04:16 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 03:48 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:49 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/6642232095.shtml)
-- 2026-06-30 03:46 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/07392732494.shtml)
-- 2026-06-30 04:01 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/96120398.shtml)
-- 2026-06-30 03:59 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/3848011.shtml)
-- 2026-06-30 03:45 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/712689474333.shtml)
-- 2026-06-30 03:44 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/1060761.shtml)
-- 2026-06-30 04:00 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/909642548973.shtml)
-- 2026-06-30 04:09 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/24504.shtml)
-- 2026-06-30 04:05 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/147247787892.shtml)
-- 2026-06-30 03:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/4542439066.shtml)
-- 2026-06-30 03:57 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/094321242.shtml)
-- 2026-06-30 04:03 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/7043324600.shtml)
-- 2026-06-30 03:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/666418319.shtml)
-- 2026-06-30 03:50 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/531252.shtml)
-- 2026-06-30 04:07 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/49047.shtml)
+- 2026-06-30 04:13 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/025537448.shtml)
+- 2026-06-30 04:03 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/5720284450.shtml)
+- 2026-06-30 03:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/85441212.shtml)
+- 2026-06-30 03:59 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/31566130419.shtml)
+- 2026-06-30 03:57 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/0604657734.shtml)
+- 2026-06-30 04:08 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/83503306.shtml)
+- 2026-06-30 04:18 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/4327737017.shtml)
+- 2026-06-30 03:48 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/090724360472.shtml)
+- 2026-06-30 04:14 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/731344.shtml)
+- 2026-06-30 04:14 - [起风了](http://www.share.minike.top/Article/details/050526645.shtml)
+- 2026-06-30 04:17 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/17688817.shtml)
+- 2026-06-30 04:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/6775359899.shtml)
+- 2026-06-30 03:49 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/6962466.shtml)
+- 2026-06-30 04:06 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/53539062.shtml)
+- 2026-06-30 04:02 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/847992188366.shtml)

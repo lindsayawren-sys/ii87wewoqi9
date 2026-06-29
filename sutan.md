@@ -1,61 +1,54 @@
-# 重庆啤酒的增长“困局”
+# 世界卫生组织宣布刚果埃博拉疫情构成全球卫生紧急事件
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-本文由酒业家团队原创策划丨埼玉编辑丨一凡 编审丨云顶经历2024年营收、净利双降的低谷之后，重庆啤酒在2025年迎来了阶段性业绩修复。从年报披露的公开数据来看，公司全年实现销量299.52万千升，同比增长0.68%；营业收入147.22亿元，同比增长0.53%；净利润12.31亿元，同比增长10.43%。单从账面数据而言，重庆啤酒扭转了前一年的下滑态势，在存量竞争激烈的啤酒行业
+世界卫生组织宣布刚果民主共和国和乌干达宣布发生的埃博拉疫情为国际关注的公共卫生紧急事件，并警告称这种罕见的病毒株目前尚无批准的疫苗或治疗方法，但其传播范围可能已经比检测到的情况更为广泛。 世界卫生组织周日表示，由于存在跨境传播、无法解释的聚集性死亡以及疫情规模的重大不确定性，此次博拉病毒引起的疫情已达到国际卫生条例规定的最高警戒级别标准。 此前，乌干达首都坎帕拉和刚果（金）首都
 
 ## 正文
 
-本文由酒业家团队原创策划丨埼玉编辑丨一凡 编审丨云顶经历2024年营收、净利双降的低谷之后，重庆啤酒在2025年迎来了阶段性业绩修复。
+世界卫生组织宣布刚果民主共和国和乌干达宣布发生的埃博拉疫情为国际关注的公共卫生紧急事件，并警告称这种罕见的病毒株目前尚无批准的疫苗或治疗方法，但其传播范围可能已经比检测到的情况更为广泛。
 
-从年报披露的公开数据来看，公司全年实现销量299.52万千升，同比增长0.68%；营业收入147.22亿元，同比增长0.53%；净利润12.31亿元，同比增长10.43%。
+世界卫生组织周日表示，由于存在跨境传播、无法解释的聚集性死亡以及疫情规模的重大不确定性，此次博拉病毒引起的疫情已达到国际卫生条例规定的最高警戒级别标准。
 
-单从账面数据而言，重庆啤酒扭转了前一年的下滑态势，在存量竞争激烈的啤酒行业中实现了企稳回升。
+此前，乌干达首都坎帕拉和刚果（金）首都金沙萨（该城市人口约2000万）均确诊了埃博拉病例，这证实了该病毒已蔓延到最初发现疫情的偏远矿区之外。
 
-但透过表层的复苏数据深入内核，其经营隐患也暴露在外：近三年营收几近零增长，扣非净利润延续2024年下滑趋势，2025年四季度出现亏损，营销费用持续攀升，中区“大本营”市场营收下滑......增长疲态也在今年一季度财报中显露：重庆啤酒实现营收43.50亿元，同比下降0.12%；归母净利润为4.38亿元，同比下降7.40%。
+“这次事件是非同寻常的，”世界卫生组织总干事在声明中指出，由于缺乏已批准的针对此次毒株的疫苗或治疗方法，刚果东部局势持续不安，以及有证据表明疫情规模可能比官方病例数要大得多。
 
-营收、净利润双降，重庆啤酒仍陷增长“困局”。
+根据非洲疾病控制和预防中心数据，截至5月16日，刚果在伊图里省报告了8例实验室确诊病例、336例疑似感染病例和87例疑似死亡病例。
 
-三年营收近乎“停滞”，扣非净利连续两年下滑重庆啤酒连续两年被反超中国啤酒市场此前已经形成了以TOP5企业（华润啤酒、青岛啤酒、百威亚太、燕京啤酒、重庆啤酒）为高集中度龙头代表、数以万计微小生产单位分散式发展的产业格局。
+乌干达已确认坎帕拉出现两例病例，其中一例死亡，患者均为从刚果入境的旅客。
 
-从营收看，TOP5企业已占据超90%的市场份额。
-
-然而，TOP5的格局也在发生变化，其中，重庆啤酒重组后，曾位列华润啤酒、青岛啤酒、百威亚太之后，但2024年营收被燕京啤酒反超，2025年也未能实现赶超。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 04:04 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 04:10 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 03:50 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 03:58 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 03:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 03:59 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 03:44 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 04:08 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 03:59 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 03:58 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 03:55 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 04:08 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 03:55 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 03:46 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 03:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 04:14 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 04:16 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 03:52 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 04:10 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 03:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 03:59 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 04:17 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 03:53 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 04:07 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 04:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/35309069742.shtml)
-- 2026-06-30 03:45 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/80331.shtml)
-- 2026-06-30 04:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/595901955.shtml)
-- 2026-06-30 03:46 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/6577620.shtml)
-- 2026-06-30 03:47 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/892007.shtml)
-- 2026-06-30 04:01 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/623158909740.shtml)
-- 2026-06-30 03:42 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/251982561.shtml)
-- 2026-06-30 03:53 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/237859.shtml)
-- 2026-06-30 04:03 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/9707073.shtml)
-- 2026-06-30 03:48 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/4051995.shtml)
-- 2026-06-30 04:00 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/32762144047.shtml)
-- 2026-06-30 03:54 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/837078890.shtml)
-- 2026-06-30 03:43 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/8509618.shtml)
-- 2026-06-30 04:07 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/54288296.shtml)
-- 2026-06-30 04:11 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/021680400.shtml)
+- 2026-06-30 03:58 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/7905682.shtml)
+- 2026-06-30 04:15 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/489620415.shtml)
+- 2026-06-30 04:16 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/54586079994.shtml)
+- 2026-06-30 04:00 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/192208.shtml)
+- 2026-06-30 03:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/92376169.shtml)
+- 2026-06-30 04:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/9439984.shtml)
+- 2026-06-30 04:16 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/091720458559.shtml)
+- 2026-06-30 03:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/811772654.shtml)
+- 2026-06-30 04:02 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/88703186434.shtml)
+- 2026-06-30 04:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/24575.shtml)
+- 2026-06-30 04:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/459196426872.shtml)
+- 2026-06-30 04:11 - [张凌赫 客串](https://www.share.minike.top/Article/details/445109.shtml)
+- 2026-06-30 03:50 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/40578453.shtml)
+- 2026-06-30 04:05 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/66183148615.shtml)
+- 2026-06-30 04:01 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/262391708471.shtml)

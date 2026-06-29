@@ -1,61 +1,59 @@
-# 中东战火纷飞，这些孩子没有儿童节
+# 国产特种光纤第一股，来了
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电(记者 刁炜)今天，本该是属于所有孩子们的节日，但在中东，许多儿童却连活着都需要运气。 联合国儿童基金会近日称，加沙冲突对当地儿童伤害巨大，已致超6.4万名孩子死去或伤残。 同时期，约旦河西岸暴力活动升级，造成200多名巴勒斯坦儿童丧生。 令人心痛的是，战火非但没有熄灭，反而扩散波及到更多国家和地区。 今年早些时候，局势升级蔓延至伊朗，该国约180名儿童遭袭遇难
+【导读】下周有2只新股可申购，分别是北交所新股龙辰科技和上交所科创板新股长进光子 中国基金报记者 闻言 A股打新投资者注意啦！ 根据目前发行安排，下周有2只新股可申购，分别是北交所新股龙辰科技、上交所科创板新股长进光子，申购时间均在5月18日。 龙辰科技：薄膜电容器用BOPP基膜龙头企业 龙辰科技的申购代码是920161，发行价为9.21元/股，发行市盈率为14.98倍，参考行
 
 ## 正文
 
-中新网6月1日电(记者 刁炜)今天，本该是属于所有孩子们的节日，但在中东，许多儿童却连活着都需要运气。
+【导读】下周有2只新股可申购，分别是北交所新股龙辰科技和上交所科创板新股长进光子 中国基金报记者 闻言 A股打新投资者注意啦！
 
-联合国儿童基金会近日称，加沙冲突对当地儿童伤害巨大，已致超6.4万名孩子死去或伤残。
+根据目前发行安排，下周有2只新股可申购，分别是北交所新股龙辰科技、上交所科创板新股长进光子，申购时间均在5月18日。
 
-同时期，约旦河西岸暴力活动升级，造成200多名巴勒斯坦儿童丧生。
+龙辰科技：薄膜电容器用BOPP基膜龙头企业 龙辰科技的申购代码是920161，发行价为9.21元/股，发行市盈率为14.98倍，参考行业市盈率为70.47倍。
 
-令人心痛的是，战火非但没有熄灭，反而扩散波及到更多国家和地区。
+龙辰科技此次发行股份总数为3400万股，网上发行股份数量为3060万股。
 
-今年早些时候，局势升级蔓延至伊朗，该国约180名儿童遭袭遇难，其中大多是正上课的小学生。
+投资者参与网上申购龙辰科技，申购股份数量上限为152.99万股。
 
-而在黎巴嫩和叙利亚，激烈冲突让几十万孩子流离失所，数以千计的无辜儿童饱受磨难。
+龙辰科技从事薄膜电容器相关BOPP（双向拉伸聚丙烯薄膜）薄膜材料研发、生产和销售。
 
-这些劫后余生的孩子，不该只剩恐惧和饥饿，国际社会亟待采取行动，让和平的曙光早日来临。
+BOPP薄膜材料作为薄膜电容器的核心原材料之一，是由聚丙烯树脂经过双向拉伸工艺制成的一种绝缘介质材料。
 
-(完)
+2021年，龙辰科技被认定为国家级专精特新“小巨人”企业。
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 04:00 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 03:56 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 03:48 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 03:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 04:01 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 04:00 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 03:59 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 03:54 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 03:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 03:54 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 03:57 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 03:55 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 04:05 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 04:07 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 04:10 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 04:06 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 04:09 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 03:57 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-30 04:02 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 03:54 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 04:02 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 04:17 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 04:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 04:00 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 04:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 04:01 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 04:16 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/73286366421.shtml)
-- 2026-06-30 04:07 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/82058.shtml)
-- 2026-06-30 03:56 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/302660.shtml)
-- 2026-06-30 04:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/774323.shtml)
-- 2026-06-30 03:56 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/60173473.shtml)
-- 2026-06-30 03:59 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/03045.shtml)
-- 2026-06-30 03:46 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/3416764140.shtml)
-- 2026-06-30 04:00 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/38115280524.shtml)
-- 2026-06-30 03:42 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/174465.shtml)
-- 2026-06-30 04:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/1303838732.shtml)
-- 2026-06-30 03:42 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/637121.shtml)
-- 2026-06-30 04:00 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/85024.shtml)
-- 2026-06-30 03:43 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/87616175664.shtml)
-- 2026-06-30 04:09 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/00019018228.shtml)
-- 2026-06-30 03:42 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/998819.shtml)
+- 2026-06-30 03:55 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/22465.shtml)
+- 2026-06-30 04:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/80690836578.shtml)
+- 2026-06-30 03:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/8786921807.shtml)
+- 2026-06-30 04:09 - [绘画区你赢了](http://www.blog.minike.top/Article/details/84695.shtml)
+- 2026-06-30 04:12 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/715789.shtml)
+- 2026-06-30 04:15 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/38298990317.shtml)
+- 2026-06-30 04:03 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/27614727255.shtml)
+- 2026-06-30 04:11 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/97542.shtml)
+- 2026-06-30 04:04 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/9700106.shtml)
+- 2026-06-30 03:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/26439466918.shtml)
+- 2026-06-30 03:59 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/050429252959.shtml)
+- 2026-06-30 03:51 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/0757158.shtml)
+- 2026-06-30 04:03 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/620373.shtml)
+- 2026-06-30 04:13 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/9548259693.shtml)
+- 2026-06-30 04:15 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/39058.shtml)

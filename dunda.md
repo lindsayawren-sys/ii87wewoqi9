@@ -1,58 +1,60 @@
-# 化工板块深V反转，华宝基金化工ETF（516020）午后翻红！主力狂买超30亿，机构：行业盈利能力正走出底部
+# 存储概念，集体爆发！
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-化工板块今日（6月2日）下探回升，反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速走弱，盘中场内价格一度跌超1%，午后拉升翻红，截至发稿，涨0.45%。 成份股方面，截至发稿，圣泉集团涨停，易普力涨超7%，宏达股份、巨化股份、藏格矿业、昊华科技等亦涨幅居前。 资金面上，化工板块获主力资金大举加码。数据显示，截至发稿，基础化工板块单日获主力资金净流入额已超过30亿元
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月18日，A股主要股指再度回落，沪指盘中逼近4100点，创业板指一度跌超1%，尾盘跌幅明显收窄；港股大幅下挫，恒生科技指数跌超2%。 具体来看，两市主要股指盘中震荡回落，科创综指逆市上扬。截至收盘，沪指微跌0.09%报4131.53点，深证成指跌0.2%，创业板指跌0.36%，科创综指涨0.95%，沪深北
 
 ## 正文
 
-化工板块今日（6月2日）下探回升，反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速走弱，盘中场内价格一度跌超1%，午后拉升翻红，截至发稿，涨0.45%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-成份股方面，截至发稿，圣泉集团涨停，易普力涨超7%，宏达股份、巨化股份、藏格矿业、昊华科技等亦涨幅居前。
+5月18日，A股主要股指再度回落，沪指盘中逼近4100点，创业板指一度跌超1%，尾盘跌幅明显收窄；港股大幅下挫，恒生科技指数跌超2%。
 
-资金面上，化工板块获主力资金大举加码。
+具体来看，两市主要股指盘中震荡回落，科创综指逆市上扬。
 
-数据显示，截至发稿，基础化工板块单日获主力资金净流入额已超过30亿元，净流入额在30个中信一级行业中位居第6。
+截至收盘，沪指微跌0.09%报4131.53点，深证成指跌0.2%，创业板指跌0.36%，科创综指涨0.95%，沪深北三市合计成交约2.92万亿元，较此前一日减少4532亿元。
 
-华源证券认为，化工PPI持续3年下行，固定资产投资增速降至历史低位，供需有望逐步改善。
+A股市场约3000股飘绿，化纤、保险、医药、银行等板块走低，煤炭板块逆市拉升，辽宁能源、新大洲A涨停；电力板块强势，京能电力斩获4连板，浙江新能、江苏新能午后涨停；存储芯片概念再度活跃，同有科技、大普微20%涨停创历史新高；联讯仪器涨约15%，盘中一度攀升至1361元/股，超越贵州茅台，晋级成为A股第一高价股；兆易创新盘中一度涨停，再创新高，全日成交278.8亿元，位居A股成交额首位；算力概念强势，弘信电子20%涨停，平治信息、朗科科技涨超10%。
 
-地缘冲突中东原料供应受阻，行业被动减产，供需加速改善。
+港股方面，截至发稿，理想汽车跌超14%，零跑汽车跌约8%，老铺黄金、京东健康等跌超5%。
 
-看好受益于高油价的煤化工和天然气化工，农化产品如钾肥和农药，化纤如涤纶长丝和粘胶短纤；看好成本转嫁能力强的寡头格局产品如MDI等。
+资源股拉升 煤炭板块盘中强势拉升，截至收盘，辽宁能源、新大洲A涨停，昊华能源涨超6%，晋控煤业、兖矿能源等涨逾4%。
 
-西部证券表示，回顾2022-2025年，基础化工板块毛利率从22%以上的高位持续下滑至16%左右，净利率从13%以上跌至2%-7%的区间震荡，侧面反映了上游成本高企、下游需求疲软、产能过剩三重压力的持续挤压。
+机构表示，受益于地缘冲突对于煤化工的战略性提振、印尼减产对于海外低卡煤市场的冲击、夏季厄尔尼诺预期下高温拉动电煤需求等利好，同时度夏需求带动煤炭需求增长，后续用煤旺季有望维持。
 
 ## 相关推荐
 
-- 2026-06-30 04:02 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-30 03:55 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 04:06 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 03:52 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-30 03:49 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 04:08 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 03:48 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 04:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 03:51 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 03:51 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 04:07 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 03:56 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 04:01 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 03:55 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 04:01 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 04:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 03:54 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 03:53 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 03:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 03:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 04:14 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 04:12 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 04:08 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 03:52 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 03:58 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 04:15 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/037357480.shtml)
-- 2026-06-30 04:09 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/6705168752.shtml)
-- 2026-06-30 03:48 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/1749426701.shtml)
-- 2026-06-30 04:08 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/35874.shtml)
-- 2026-06-30 03:46 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/438697288.shtml)
-- 2026-06-30 03:53 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/52683.shtml)
-- 2026-06-30 03:56 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/414565296214.shtml)
-- 2026-06-30 03:47 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/12472663.shtml)
-- 2026-06-30 03:42 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/21016464.shtml)
-- 2026-06-30 04:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/583209691446.shtml)
-- 2026-06-30 04:11 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/62016064666.shtml)
-- 2026-06-30 04:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/045133.shtml)
-- 2026-06-30 04:09 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/919404435.shtml)
-- 2026-06-30 03:49 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/20179.shtml)
-- 2026-06-30 04:04 - [斗破苍穹](https://www.blog.minike.top/Article/details/865060911.shtml)
+- 2026-06-30 04:05 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/7255108.shtml)
+- 2026-06-30 04:03 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/37947297818.shtml)
+- 2026-06-30 03:51 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/4070648.shtml)
+- 2026-06-30 04:09 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/94199.shtml)
+- 2026-06-30 03:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/6984128.shtml)
+- 2026-06-30 03:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/11974361.shtml)
+- 2026-06-30 03:53 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/29292612.shtml)
+- 2026-06-30 04:10 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/1736157.shtml)
+- 2026-06-30 03:51 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/787087315.shtml)
+- 2026-06-30 04:03 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/288801.shtml)
+- 2026-06-30 04:06 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/75153.shtml)
+- 2026-06-30 04:16 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/26282.shtml)
+- 2026-06-30 04:06 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/62679559101.shtml)
+- 2026-06-30 04:07 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/565002.shtml)
+- 2026-06-30 03:57 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/69251314.shtml)

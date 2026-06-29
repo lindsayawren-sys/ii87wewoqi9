@@ -1,54 +1,57 @@
-# 意法半导体将今年数据中心业务营收预期上调至10亿美元
+# 全国重点文保单位福胜寺公开征集文化研究成果
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-意法半导体公司周二上调了其数据中心业务的营收目标，理由是人工智能基础设施的持续强劲需求以及产能扩张方面的进展。 该公司表示，目前预计2026年数据中心业务营收将达到约10亿美元，而此前的预测为“远超”5亿美元。 意法半导体在一份声明中表示：“假设目前的增长势头持续，并且我们目前的业务进展顺利，那么到2027年，营收有望翻番。”该公司此前曾设定明年的营收目标为“远超10亿美元”。
+中新网运城5月17日电 (陆祁国)全国重点文物保护单位福胜寺正在等待各界人士揭开神秘面纱。5月16日，山西省新绛县文化和旅游局发布公告，公开征集福胜寺及三佛洞文化研究阐释成果，旨在推进福胜寺的文物保护、文脉传承与活化利用工作。 福胜寺位于新绛县泽掌镇光村，始建于北齐天统年间(565—569年)，现存主要建筑为元代建筑遗构，系《黑神话：悟空》游戏画面取景地之一。寺内弥陀殿及后大殿
 
 ## 正文
 
-意法半导体公司周二上调了其数据中心业务的营收目标，理由是人工智能基础设施的持续强劲需求以及产能扩张方面的进展。
+中新网运城5月17日电 (陆祁国)全国重点文物保护单位福胜寺正在等待各界人士揭开神秘面纱。
 
-该公司表示，目前预计2026年数据中心业务营收将达到约10亿美元，而此前的预测为“远超”5亿美元。
+5月16日，山西省新绛县文化和旅游局发布公告，公开征集福胜寺及三佛洞文化研究阐释成果，旨在推进福胜寺的文物保护、文脉传承与活化利用工作。
 
-意法半导体在一份声明中表示：“假设目前的增长势头持续，并且我们目前的业务进展顺利，那么到2027年，营收有望翻番。
+福胜寺位于新绛县泽掌镇光村，始建于北齐天统年间(565—569年)，现存主要建筑为元代建筑遗构，系《黑神话：悟空》游戏画面取景地之一。
 
-”该公司此前曾设定明年的营收目标为“远超10亿美元”。
+寺内弥陀殿及后大殿内保存有元、明时期彩塑、悬塑30余尊，其中包括元代悬塑“中国最美菩萨”渡海观音。
 
-意法半导体在数据中心领域的投资重点并非用于训练人工智能模型的图形处理器，而是为这些处理器供电和管理所需的周边基础设施。
+2001年6月，被公布为第五批全国重点文物保护单位。
 
-该公司表示，更高的营收目标也反映了工厂产能提升的进展。
+福胜寺内三佛洞历经近70年保护性封闭，洞内元明彩塑、建筑遗存等珍贵文物长期未向公众开放，其历史脉络、艺术内涵、文化价值亟待系统挖掘梳理。
 
-责任编辑：于健 SF069
+2025年10月，三佛洞单体洞窟试行开放后，引发社会各界广泛关注，得到相关领域专家学者高度评价。
+
+为进一步做好剩余洞窟保护展示筹备工作，完善整体文化阐释体系，夯实文物展陈、科普宣传、学术研究基础，新绛县文化和旅游局决定开展相关文物征集和文化遗产活化利用宣传创作活动。
 
 ## 相关推荐
 
-- 2026-06-30 04:12 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 03:52 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 04:01 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 03:43 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 03:58 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 03:53 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 03:43 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 03:45 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 03:47 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 03:54 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 04:01 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 03:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 04:02 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 03:59 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 03:58 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 04:12 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 04:05 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-30 04:08 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 03:55 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 03:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 03:48 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:50 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/2231116.shtml)
-- 2026-06-30 04:11 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/991857617.shtml)
-- 2026-06-30 03:46 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/1746582.shtml)
-- 2026-06-30 03:55 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/040298716.shtml)
-- 2026-06-30 03:43 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/001516.shtml)
-- 2026-06-30 03:53 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/5769279148.shtml)
-- 2026-06-30 03:55 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/57590207268.shtml)
-- 2026-06-30 04:02 - [TOP Prada](http://www.share.minike.top/Article/details/09020.shtml)
-- 2026-06-30 03:42 - [小娘惹](https://www.share.minike.top/Article/details/5781526337.shtml)
-- 2026-06-30 04:09 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/26485211821.shtml)
-- 2026-06-30 04:04 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/31429.shtml)
-- 2026-06-30 03:44 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/001933170198.shtml)
-- 2026-06-30 03:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/809304328840.shtml)
-- 2026-06-30 03:54 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/5850726061.shtml)
-- 2026-06-30 03:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/0332843179.shtml)
+- 2026-06-30 04:15 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/6148307413.shtml)
+- 2026-06-30 03:54 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/30629031472.shtml)
+- 2026-06-30 03:48 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/8299896.shtml)
+- 2026-06-30 03:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/34453.shtml)
+- 2026-06-30 04:12 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/38041459368.shtml)
+- 2026-06-30 03:53 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/91015.shtml)
+- 2026-06-30 04:05 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/448230829859.shtml)
+- 2026-06-30 03:50 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/277068.shtml)
+- 2026-06-30 04:09 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/681141635.shtml)
+- 2026-06-30 04:04 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/37709461201.shtml)
+- 2026-06-30 04:17 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/81176204.shtml)
+- 2026-06-30 04:05 - [第一炉香](https://www.share.minike.top/Article/details/2620000.shtml)
+- 2026-06-30 04:15 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/37072715.shtml)
+- 2026-06-30 04:13 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/271528955.shtml)
+- 2026-06-30 04:01 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/8770282.shtml)

@@ -1,56 +1,57 @@
-# 黎巴嫩：确认真主党同意美国的提议
+# 二代接班仅1年就把公司卖了，股价提前涨停！周一复牌
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-黎巴嫩总统府在X平台援引驻华盛顿使馆的声明称，黎巴嫩当局收到确认，真主党已同意美国对该军事组织与以色列停止相互攻击的提议。 根据该提议，以色列计划对贝鲁特南郊的袭击将停止，真主党作为交换将停止袭击。 停火范围将扩大至黎巴嫩全境。 美国总统唐纳德·特朗普告知黎巴嫩驻美大使，以色列总理内塔尼亚胡同意这一安排。 美国国务卿鲁比奥早些时候与黎巴嫩总统约瑟夫·奥恩通话，后者将会谈结果告知
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨李益文 编辑丨叶映橙 在停牌近一周后，空气过滤材料龙头金海高科（603311.SH）的控制权变更方案正式敲定。 5月15日晚间，公司公告控股股东汇投控股及其一致行动人诸暨三三投资拟将合计持有的29.60%股份转让给具有深厚游戏产业背景的自然人金丹良和陈永聪，总交易对价约14.52亿元。公司股票将于5月
 
 ## 正文
 
-黎巴嫩总统府在X平台援引驻华盛顿使馆的声明称，黎巴嫩当局收到确认，真主党已同意美国对该军事组织与以色列停止相互攻击的提议。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-根据该提议，以色列计划对贝鲁特南郊的袭击将停止，真主党作为交换将停止袭击。
+记者丨李益文 编辑丨叶映橙 在停牌近一周后，空气过滤材料龙头金海高科（603311.SH）的控制权变更方案正式敲定。
 
-停火范围将扩大至黎巴嫩全境。
+5月15日晚间，公司公告控股股东汇投控股及其一致行动人诸暨三三投资拟将合计持有的29.60%股份转让给具有深厚游戏产业背景的自然人金丹良和陈永聪，总交易对价约14.52亿元。
 
-美国总统唐纳德·特朗普告知黎巴嫩驻美大使，以色列总理内塔尼亚胡同意这一安排。
+公司股票将于5月18日开市起复牌。
 
-美国国务卿鲁比奥早些时候与黎巴嫩总统约瑟夫·奥恩通话，后者将会谈结果告知真主党。
+然而，在这起金额超14亿元的“跨界易主”案背后，停牌前股价的“精准涨停”、延迟停牌的蹊跷程序，以及上交所的“火速追问”，正将这家老牌制造企业推向资本市场的聚光灯下。
 
-谈判将于周二和周三继续，讨论进展情况并继续推进。
+14亿跨界交易敲定 停牌前股价异动引监管介入 根据金海高科5月15日晚间披露的相关公告，本次交易每股转让价格定为20.79元，较公司停牌前最后一个交易日收盘价23.10元/股折价约10%。
 
-责任编辑：丁文武
+金丹良受让24.60%股份，需支付12.06亿元，资金全部来源于自有资金；陈永聪作为一致行动人，受让5.00%股份，需支付2.45亿元，资金一半为自有、一半为自筹。
+
+交易完成后，原控股股东汇投控股持股比例从46.98%降至14.90%，退居第二大股东；诸暨三三则完全退出金海高科股东行列。
 
 ## 相关推荐
 
-- 2026-06-30 03:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 03:42 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 04:08 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 03:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 04:09 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 04:08 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 03:57 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 04:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 03:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 03:49 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 03:43 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 04:06 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 03:54 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 03:51 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 03:52 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 04:16 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 03:51 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 04:01 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 04:03 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 04:14 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 04:09 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 03:49 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 04:00 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:03 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/074493.shtml)
-- 2026-06-30 03:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/738644083.shtml)
-- 2026-06-30 03:52 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/1032237903.shtml)
-- 2026-06-30 03:45 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/980043.shtml)
-- 2026-06-30 04:11 - [第一炉香](http://www.blog.minike.top/Article/details/2068376689.shtml)
-- 2026-06-30 03:42 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/52543.shtml)
-- 2026-06-30 03:59 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/20869249952.shtml)
-- 2026-06-30 03:49 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/965764.shtml)
-- 2026-06-30 03:47 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/050493075.shtml)
-- 2026-06-30 04:03 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/311631535.shtml)
-- 2026-06-30 03:46 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/8605070.shtml)
-- 2026-06-30 04:00 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/342593648351.shtml)
-- 2026-06-30 03:48 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/030909.shtml)
-- 2026-06-30 04:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/225869471.shtml)
-- 2026-06-30 03:52 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/2436012.shtml)
+- 2026-06-30 04:11 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/340241124.shtml)
+- 2026-06-30 04:09 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/561498559.shtml)
+- 2026-06-30 04:09 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/9821594275.shtml)
+- 2026-06-30 04:11 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/78048.shtml)
+- 2026-06-30 04:08 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/11486552556.shtml)
+- 2026-06-30 03:52 - [一生一世](https://www.share.minike.top/Article/details/817027842319.shtml)
+- 2026-06-30 03:58 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/04765117820.shtml)
+- 2026-06-30 04:17 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/89030.shtml)
+- 2026-06-30 04:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/6539818.shtml)
+- 2026-06-30 04:16 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/179991689.shtml)
+- 2026-06-30 03:50 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/40931098.shtml)
+- 2026-06-30 04:10 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/150702541622.shtml)
+- 2026-06-30 04:01 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/83496609.shtml)
+- 2026-06-30 03:57 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/62007.shtml)
+- 2026-06-30 03:51 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/2850951044.shtml)

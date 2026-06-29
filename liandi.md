@@ -1,57 +1,42 @@
-# 哈根达斯中国内地门店被出售
+# 河南省举办高校残疾大学生就业双选会
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电(记者 左雨晴)6月1日，全球知名食品公司通用磨坊宣布，公司已达成最终协议，将其在中国内地的所有哈根达斯门店出售给包括本土茶饮连锁运营商柠季在内的投资者集团。根据协议，买方将从通用磨坊获得在中国内地冰淇淋店及相关礼品业务中使用哈根达斯品牌的独家许可。通用磨坊将继续在中国内地持有并运营哈根达斯的零售及餐饮业务。通用磨坊表示，该拟议交易预计将于2026年完成，但
+发布时间：2026年05月18日 09:36 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网北京6月2日电(记者 左雨晴)6月1日，全球知名食品公司通用磨坊宣布，公司已达成最终协议，将其在中国内地的所有哈根达斯门店出售给包括本土茶饮连锁运营商柠季在内的投资者集团。
-
-根据协议，买方将从通用磨坊获得在中国内地冰淇淋店及相关礼品业务中使用哈根达斯品牌的独家许可。
-
-通用磨坊将继续在中国内地持有并运营哈根达斯的零售及餐饮业务。
-
-通用磨坊表示，该拟议交易预计将于2026年完成，但尚需获得必要的监管批准并满足其他惯例成交条件。
-
-交易的财务条款尚未披露。
-
-柠季官网显示，柠季于2021年2月8日在长沙开设第一家门店，2021年7月完成数千万A轮融资，投资机构为字节跳动、顺为资本；2022年1月完成数亿元A+轮融资，投资机构为腾讯，老股东超额认购。
-
-截至2024年，柠季全国签约门店超3000家。
-
-(完)
+发布时间：2026年05月18日 09:36 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 03:59 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 03:43 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 04:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 04:00 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 03:53 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 04:07 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 04:05 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 04:03 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 03:47 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 03:59 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 03:54 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-30 03:54 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 03:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 03:50 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 03:58 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 04:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 04:14 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 03:53 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 03:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 03:59 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 04:07 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/93433749259.shtml)
-- 2026-06-30 03:53 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/9093383722.shtml)
-- 2026-06-30 03:46 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/257283834.shtml)
-- 2026-06-30 03:54 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/720832.shtml)
-- 2026-06-30 04:01 - [蔚来车主罚站](http://www.share.minike.top/Article/details/4467325.shtml)
-- 2026-06-30 03:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/6325724214.shtml)
-- 2026-06-30 03:52 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/5311991.shtml)
-- 2026-06-30 03:58 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/94311778400.shtml)
-- 2026-06-30 03:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/728651.shtml)
-- 2026-06-30 03:52 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/712497691.shtml)
-- 2026-06-30 04:00 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/34669016988.shtml)
-- 2026-06-30 03:51 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/969486419005.shtml)
-- 2026-06-30 04:03 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/86182.shtml)
-- 2026-06-30 04:10 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/9601830655.shtml)
-- 2026-06-30 04:03 - [刘念回应](http://www.share.kurohicncr.top/Article/details/58021089.shtml)
+- 2026-06-30 03:48 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/5551383.shtml)
+- 2026-06-30 04:07 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/3539057.shtml)
+- 2026-06-30 03:51 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/43095.shtml)
+- 2026-06-30 03:52 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/5268122301.shtml)
+- 2026-06-30 03:57 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/545626.shtml)
+- 2026-06-30 04:00 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/0480161.shtml)
+- 2026-06-30 03:58 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/07823.shtml)
+- 2026-06-30 04:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/68092508248.shtml)
+- 2026-06-30 03:59 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/370498375.shtml)
+- 2026-06-30 03:53 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/309599227.shtml)
+- 2026-06-30 03:51 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/4348232758.shtml)
+- 2026-06-30 03:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/93087.shtml)
+- 2026-06-30 04:02 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/2076424072.shtml)
+- 2026-06-30 04:12 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/45209626912.shtml)
+- 2026-06-30 04:16 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/323220.shtml)

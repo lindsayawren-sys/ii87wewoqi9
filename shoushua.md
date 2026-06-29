@@ -1,59 +1,52 @@
-# 韩国股市不断超车 已越过印度成为世界第六大股市
+# 美众议员提议征收每年130美元的电动汽车费，用于道路维修
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-随着全球人工智能建设所依赖的芯片巨头股价持续飙升，韩国股市已超越印度股市，排到世界第六。 彭博汇编的数据显示，今年在韩上市公司总市值飙升86%，达到5万亿美元，而在印上市公司总市值则下降至4.8万亿美元。 新晋万亿美元市值俱乐部成员三星电子和SK海力士，是韩股涨势的主要推手，凭借它们在AI存储芯片领域的主导地位，推动韩国KOSPI指数在2026年上涨了逾100%。韩国股市今年已
+美国众议院议员提出了一项两党共同支持的法案，要求电动汽车每年缴纳130美元的道路维修费，部分插电式混合动力车型则需缴纳35美元。 在现行法律9月30日到期之前，众议院正在制定一项为期五年的公路授权法案，预计耗资将超过5000亿美元。联邦资助的道路维修资金主要通过柴油和汽油税筹集，而电动汽车并不缴纳这些税款。责任编辑：李桐
 
 ## 正文
 
-随着全球人工智能建设所依赖的芯片巨头股价持续飙升，韩国股市已超越印度股市，排到世界第六。
+美国众议院议员提出了一项两党共同支持的法案，要求电动汽车每年缴纳130美元的道路维修费，部分插电式混合动力车型则需缴纳35美元。
 
-彭博汇编的数据显示，今年在韩上市公司总市值飙升86%，达到5万亿美元，而在印上市公司总市值则下降至4.8万亿美元。
+在现行法律9月30日到期之前，众议院正在制定一项为期五年的公路授权法案，预计耗资将超过5000亿美元。
 
-新晋万亿美元市值俱乐部成员三星电子和SK海力士，是韩股涨势的主要推手，凭借它们在AI存储芯片领域的主导地位，推动韩国KOSPI指数在2026年上涨了逾100%。
+联邦资助的道路维修资金主要通过柴油和汽油税筹集，而电动汽车并不缴纳这些税款。
 
-韩国股市今年已陆续超过了加拿大、德国、英国和法国股市。
-
-“对于一个不久前还把5000点设为雄心勃勃的KOSPI目标的市场来说，赶上印度是一个意义非凡的里程碑，”Asset Value Investors高级投资分析师Ross McGarry表示。
-
-“不过，今年的上涨行情主要归功于存储周期 —— 三星和SK海力士挑起了大梁。
-
-真正的考验在于，韩国能否通过真正的公司治理改革来维持这一价值重估势头。
-
-” 反观印度，其股市则受到卢比贬值、创纪录的外资流出以及匮乏与AI基础设施直接相关的公司等因素的困扰。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 03:48 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 03:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 03:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 03:49 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 03:44 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 03:52 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 04:10 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 03:48 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 04:04 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 04:00 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 03:45 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 03:57 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 03:51 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 04:16 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 04:10 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 04:06 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 04:11 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 03:54 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-30 04:03 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 03:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 04:14 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 03:55 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 03:57 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 04:06 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 04:00 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 03:58 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:52 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/909618211.shtml)
-- 2026-06-30 03:47 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/09145169.shtml)
-- 2026-06-30 04:11 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/62124.shtml)
-- 2026-06-30 04:10 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/03892.shtml)
-- 2026-06-30 03:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/0612888723.shtml)
-- 2026-06-30 04:05 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/398692.shtml)
-- 2026-06-30 03:59 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/067953.shtml)
-- 2026-06-30 04:06 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/2310419.shtml)
-- 2026-06-30 03:49 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/8358114.shtml)
-- 2026-06-30 03:55 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/649577.shtml)
-- 2026-06-30 03:42 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/5484546461.shtml)
-- 2026-06-30 03:54 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/342288.shtml)
-- 2026-06-30 04:07 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/6631453.shtml)
-- 2026-06-30 04:10 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/59293837.shtml)
-- 2026-06-30 03:44 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/350281.shtml)
+- 2026-06-30 03:58 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/32937.shtml)
+- 2026-06-30 04:15 - [房价什么时候能涨](http://www.share.minike.top/Article/details/8061464744.shtml)
+- 2026-06-30 04:05 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/83294.shtml)
+- 2026-06-30 04:01 - [巴西2比1日本](http://www.blog.minike.top/Article/details/3819597.shtml)
+- 2026-06-30 03:53 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/318085852997.shtml)
+- 2026-06-30 04:03 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/91648.shtml)
+- 2026-06-30 04:11 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/6695036.shtml)
+- 2026-06-30 04:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/547323094.shtml)
+- 2026-06-30 04:15 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/454855188.shtml)
+- 2026-06-30 04:17 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/32059.shtml)
+- 2026-06-30 03:53 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/61966.shtml)
+- 2026-06-30 03:58 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/8079657.shtml)
+- 2026-06-30 04:17 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/1532618.shtml)
+- 2026-06-30 04:09 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/37323539.shtml)
+- 2026-06-30 04:05 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/809164681872.shtml)

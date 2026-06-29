@@ -1,61 +1,57 @@
-# 2026世界智能产业博览会｜现场观察：智行天下，何以能动未来
+# 芯片巨头，大消息！韩国总理警告
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-津云新闻讯：5月31日，2026世界智能产业博览会迎来公众开放日，现场人头攒动，气氛热烈。相比2024年在天津举办的那一届，本届智博会有3个尤为深刻的变化。 第一个变化，是观众的“年龄线”在向下延伸。 从学龄前儿童到中小学生，再到高校学子，年轻面孔随处可见。观众结构的显著低龄化，折射出智能科技正以更具亲和力的方式走进下一代的生活。这不仅是技术的普及，更是希望的播种——青少年一代
+三星电子劳资双方将重启谈判。 据韩联社报道，三星电子及工会官员表示，双方将于周一（5月18日）重启由政府主导的调解谈判。 此前，在13日劳资谈判失败后，三星电子工会宣布，将于5月21日启动为期18天的大罢工。韩联社13日对此报道称，这恐将造成40万亿韩元（约合1820亿元人民币）的损失，并殃及半导体产业。 据悉，周一即将重启的谈判被视为双方为解决奖金发放僵局做出的最后努力。此前
 
 ## 正文
 
-津云新闻讯：5月31日，2026世界智能产业博览会迎来公众开放日，现场人头攒动，气氛热烈。
+三星电子劳资双方将重启谈判。
 
-相比2024年在天津举办的那一届，本届智博会有3个尤为深刻的变化。
+据韩联社报道，三星电子及工会官员表示，双方将于周一（5月18日）重启由政府主导的调解谈判。
 
-第一个变化，是观众的“年龄线”在向下延伸。
+此前，在13日劳资谈判失败后，三星电子工会宣布，将于5月21日启动为期18天的大罢工。
 
-从学龄前儿童到中小学生，再到高校学子，年轻面孔随处可见。
+韩联社13日对此报道称，这恐将造成40万亿韩元（约合1820亿元人民币）的损失，并殃及半导体产业。
 
-观众结构的显著低龄化，折射出智能科技正以更具亲和力的方式走进下一代的生活。
+据悉，周一即将重启的谈判被视为双方为解决奖金发放僵局做出的最后努力。
 
-这不仅是技术的普及，更是希望的播种——青少年一代对智能产业的关注，正是中国未来竞争力的生动注脚。
+此前，三星电子会长李在镕于16日就公司内部问题引发外界担忧公开致歉，同时呼吁公司内部团结。
 
-第二个变化，是观众停留的“时间线”在不断拉长。
+韩国总理对三星电子劳资双方重启对话表示支持，并警告称，若罢工造成损失，将启动紧急仲裁程序。
 
-不少展区前，父亲把孩子扛在肩头久久不愿离去。
+三星电子劳资双方自去年12月起开展谈判，但由于分歧一直未能缩小，谈判于今年3月破裂。
 
 ## 相关推荐
 
-- 2026-06-30 03:49 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 03:52 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 03:56 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 03:58 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 04:01 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 04:02 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 03:46 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 03:48 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 03:57 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 03:57 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 03:49 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 04:02 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 04:00 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 04:00 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 03:50 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 04:08 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 03:51 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 04:17 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 03:48 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 04:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 04:07 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 04:17 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 03:53 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 04:16 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 04:09 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 04:06 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:51 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/65051227.shtml)
-- 2026-06-30 03:51 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/03340158588.shtml)
-- 2026-06-30 03:50 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/725799197.shtml)
-- 2026-06-30 03:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/79542105001.shtml)
-- 2026-06-30 04:05 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/2078270.shtml)
-- 2026-06-30 03:42 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/906538389687.shtml)
-- 2026-06-30 03:51 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/8047678805.shtml)
-- 2026-06-30 03:48 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/697385.shtml)
-- 2026-06-30 04:01 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/65801023921.shtml)
-- 2026-06-30 03:42 - [日本16强魔咒](https://www.share.minike.top/Article/details/00831.shtml)
-- 2026-06-30 03:50 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/7688035110.shtml)
-- 2026-06-30 03:43 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/41141372.shtml)
-- 2026-06-30 03:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/412262.shtml)
-- 2026-06-30 04:11 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/6597600.shtml)
-- 2026-06-30 03:42 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/85983.shtml)
+- 2026-06-30 04:11 - [青春环游记第三季](http://www.share.minike.top/Article/details/2590287302.shtml)
+- 2026-06-30 04:04 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/13885263083.shtml)
+- 2026-06-30 03:51 - [第一炉香](https://www.blog.minike.top/Article/details/17962792.shtml)
+- 2026-06-30 04:15 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/433219238132.shtml)
+- 2026-06-30 03:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/381589850716.shtml)
+- 2026-06-30 04:14 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/100742668505.shtml)
+- 2026-06-30 03:56 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/0253247.shtml)
+- 2026-06-30 03:50 - [斛珠夫人](https://www.blog.minike.top/Article/details/00841342707.shtml)
+- 2026-06-30 04:05 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/786057.shtml)
+- 2026-06-30 04:01 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/86697250291.shtml)
+- 2026-06-30 04:10 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/533980109.shtml)
+- 2026-06-30 04:14 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/604058145.shtml)
+- 2026-06-30 04:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/985289.shtml)
+- 2026-06-30 04:10 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/9425097.shtml)
+- 2026-06-30 03:54 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/91421471278.shtml)

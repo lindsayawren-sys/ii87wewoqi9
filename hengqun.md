@@ -1,51 +1,45 @@
-# 伊朗称与阿曼在霍尔木兹海峡管控方面取得“良好进展”
+# 伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-伊朗外交部副部长Kazem Gharibabadi在接受伊朗国家电视台采访时表示，伊朗和阿曼有权对霍尔木兹海峡行使主权。 重申伊朗已制定新的战时船舶通过霍尔木兹海峡的管制条例，绝不允许任何国家干涉。 他说，任何安排都必须与阿曼协调。责任编辑：江学思
+发布时间：2026年05月18日 08:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-伊朗外交部副部长Kazem Gharibabadi在接受伊朗国家电视台采访时表示，伊朗和阿曼有权对霍尔木兹海峡行使主权。
-
-重申伊朗已制定新的战时船舶通过霍尔木兹海峡的管制条例，绝不允许任何国家干涉。
-
-他说，任何安排都必须与阿曼协调。
-
-责任编辑：江学思
+发布时间：2026年05月18日 08:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 04:02 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 03:55 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 04:01 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 03:50 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 04:05 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 03:58 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 03:51 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 03:43 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 04:03 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 03:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 04:05 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 03:52 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 04:03 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 03:49 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 04:12 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 03:58 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 03:58 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 04:03 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 04:09 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 04:08 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 04:07 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 04:01 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 04:05 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 03:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 04:16 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 04:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:05 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/51607590897.shtml)
-- 2026-06-30 04:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/402979.shtml)
-- 2026-06-30 03:45 - [啊啊啊](http://www.share.minike.top/Article/details/422419149680.shtml)
-- 2026-06-30 03:54 - [天道](http://www.share.kurohicncr.top/Article/details/94042768984.shtml)
-- 2026-06-30 04:05 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/5633172681.shtml)
-- 2026-06-30 03:54 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/910134431.shtml)
-- 2026-06-30 04:03 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/48422830.shtml)
-- 2026-06-30 03:45 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/05942728411.shtml)
-- 2026-06-30 03:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/026781042575.shtml)
-- 2026-06-30 03:54 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/761111908051.shtml)
-- 2026-06-30 04:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/52809.shtml)
-- 2026-06-30 04:08 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/101391724659.shtml)
-- 2026-06-30 04:02 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/76349749375.shtml)
-- 2026-06-30 04:05 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/23988.shtml)
-- 2026-06-30 04:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/372428308.shtml)
+- 2026-06-30 04:03 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/1864985.shtml)
+- 2026-06-30 04:00 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/22033580534.shtml)
+- 2026-06-30 03:52 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/4149616050.shtml)
+- 2026-06-30 03:48 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/38706.shtml)
+- 2026-06-30 04:01 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/721098535055.shtml)
+- 2026-06-30 04:15 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/028930.shtml)
+- 2026-06-30 04:17 - [世界杯](https://www.share.kurohicncr.top/Article/details/71175.shtml)
+- 2026-06-30 04:12 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/30137875.shtml)
+- 2026-06-30 03:48 - [千香](https://www.share.minike.top/Article/details/25305.shtml)
+- 2026-06-30 04:04 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/8689714.shtml)
+- 2026-06-30 04:12 - [日本16强魔咒](http://www.blog.minike.top/Article/details/2914628755.shtml)
+- 2026-06-30 03:58 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/8163544309.shtml)
+- 2026-06-30 04:09 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/10035.shtml)
+- 2026-06-30 03:48 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/97539780.shtml)
+- 2026-06-30 04:04 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/3898787244.shtml)

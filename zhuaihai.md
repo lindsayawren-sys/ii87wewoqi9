@@ -1,55 +1,59 @@
-# 伊朗指责美国谈判立场多变导致和谈拖延
+# 刚刚！美国航母，传来大消息！
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-伊朗外交部发言人伊斯梅尔・巴加埃表示，和谈迟迟未能敲定，责任在于美国的谈判方式。 巴加埃在例行记者会上称：“谈判自始至终深陷猜忌与不信任，双方的沟通也始终笼罩在这种氛围之中。” 他补充说，谈判进程之所以“一拖再拖”，是因为美国“不断变卦，反复提出新要求或自相矛盾的诉求”。 多位官员透露，尽管美伊双方上周看似即将就延长60天停火达成共识，但相关谅解备忘录仍需唐纳德・特朗普批准。责
+美国航母有新动向！ 据最新消息，此前部署在中东地区的美国海军“福特”号航空母舰已返回位于美国弗吉尼亚州的诺福克海军基地。此前，该航母曾参与针对伊朗的军事行动。 另据报道，一艘满载200万桶伊拉克原油、原定驶往越南的超级油轮，此前遭美军拦截后在阿曼湾滞留数日，目前已恢复航行。 值得注意的是，伊朗战事导致霍尔木兹海峡航运近乎中断，引发全球油气价格上涨，各国纷纷重新启用煤炭这种污染程
 
 ## 正文
 
-伊朗外交部发言人伊斯梅尔・巴加埃表示，和谈迟迟未能敲定，责任在于美国的谈判方式。
+美国航母有新动向！
 
-巴加埃在例行记者会上称：“谈判自始至终深陷猜忌与不信任，双方的沟通也始终笼罩在这种氛围之中。
+据最新消息，此前部署在中东地区的美国海军“福特”号航空母舰已返回位于美国弗吉尼亚州的诺福克海军基地。
 
-” 他补充说，谈判进程之所以“一拖再拖”，是因为美国“不断变卦，反复提出新要求或自相矛盾的诉求”。
+此前，该航母曾参与针对伊朗的军事行动。
 
-多位官员透露，尽管美伊双方上周看似即将就延长60天停火达成共识，但相关谅解备忘录仍需唐纳德・特朗普批准。
+另据报道，一艘满载200万桶伊拉克原油、原定驶往越南的超级油轮，此前遭美军拦截后在阿曼湾滞留数日，目前已恢复航行。
 
-责任编辑：陈钰嘉
+值得注意的是，伊朗战事导致霍尔木兹海峡航运近乎中断，引发全球油气价格上涨，各国纷纷重新启用煤炭这种污染程度高但供应稳定的能源。
+
+“福特”号航母返回美国 当地时间5月16日，美国海军“福特”号航空母舰返回位于美国弗吉尼亚州的诺福克海军基地，结束为期11个月的部署。
+
+据央视新闻援引美媒消息，“福特”号航母本次部署时长达到326天，打破了越南战争后美军航母的部署时长纪录。
+
+自去年6月以来，“福特”号航母先后参与美国对委内瑞拉、对伊朗的军事行动。
 
 ## 相关推荐
 
-- 2026-06-30 03:45 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 04:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 03:46 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 03:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 03:43 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 04:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 04:05 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 03:58 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 03:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 03:57 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 03:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 04:07 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 03:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 03:51 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 03:46 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 03:48 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 03:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 04:02 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 03:53 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 04:02 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 04:07 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 03:50 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 03:55 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 04:05 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-30 03:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 04:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 04:12 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 03:58 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:43 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/61355345578.shtml)
-- 2026-06-30 03:58 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/13242288074.shtml)
-- 2026-06-30 03:59 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/01189087787.shtml)
-- 2026-06-30 03:47 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/8387081.shtml)
-- 2026-06-30 03:56 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/86340703053.shtml)
-- 2026-06-30 03:42 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/284178.shtml)
-- 2026-06-30 03:50 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/441350.shtml)
-- 2026-06-30 03:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/324216934230.shtml)
-- 2026-06-30 03:49 - [巴西2比1日本](http://www.blog.minike.top/Article/details/68809.shtml)
-- 2026-06-30 03:51 - [沉睡花园](https://www.share.minike.top/Article/details/46390.shtml)
-- 2026-06-30 03:54 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/2444547303.shtml)
-- 2026-06-30 03:58 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/25382.shtml)
-- 2026-06-30 03:47 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.kurohicncr.top/Article/details/10043311073.shtml)
-- 2026-06-30 04:10 - [巴西扳平比分](https://www.share.minike.top/Article/details/1942086.shtml)
-- 2026-06-30 03:55 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/170328930.shtml)
+- 2026-06-30 04:12 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/66754.shtml)
+- 2026-06-30 04:15 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/828179194.shtml)
+- 2026-06-30 04:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/204486.shtml)
+- 2026-06-30 04:10 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/82439177641.shtml)
+- 2026-06-30 03:55 - [刘念回应](https://www.share.minike.top/Article/details/80971698786.shtml)
+- 2026-06-30 03:55 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/8833938.shtml)
+- 2026-06-30 03:56 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/57726737644.shtml)
+- 2026-06-30 04:07 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/4310909725.shtml)
+- 2026-06-30 04:06 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/03582973.shtml)
+- 2026-06-30 04:02 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/552131277.shtml)
+- 2026-06-30 03:49 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/887636472843.shtml)
+- 2026-06-30 03:59 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/308281.shtml)
+- 2026-06-30 04:09 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/5282006000.shtml)
+- 2026-06-30 04:11 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/1443189882.shtml)
+- 2026-06-30 04:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/055150900.shtml)

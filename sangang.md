@@ -1,59 +1,60 @@
-# 耐世特早盘涨逾3% 瑞银维持“买入”评级
+# 通胀担忧引发加息预期，全球债券抛售潮进一步加剧
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-耐世特（01316）盘中涨超3%，截至发稿，股价上涨2.81%，现报5.13港元，成交额2941.13万港元。 瑞银发表研报指，耐世特管理层在亚洲投资会议2026上透露，今年至今已启动两个线控转向（SbW）项目，预期2026年将获得更多SbW及电子机械制动（EMB）订单，后轮转向（RWS）项目则计划于今年下半年投产。管理层预期2026财年收入将实现稳定按年增长，但指出大宗商品价
+受中东战事推高能源价格影响，市场通胀忧虑升温，投资者押注全球央行加息，周一从东京到纽约各地债券持续走低。 与价格走势反向变动的美国10年期国债收益率攀升至4.631%，创2025年2月以来新高，上周累计上行超20个基点。 对通胀与利率预期最为敏感的两年期美债收益率触及4.102%，创下14个月高点；30年期美债收益率升至5.159%，创下一年新高。 收益率走高助推美元走强，也令
 
 ## 正文
 
-耐世特（01316）盘中涨超3%，截至发稿，股价上涨2.81%，现报5.13港元，成交额2941.13万港元。
+受中东战事推高能源价格影响，市场通胀忧虑升温，投资者押注全球央行加息，周一从东京到纽约各地债券持续走低。
 
-瑞银发表研报指，耐世特管理层在亚洲投资会议2026上透露，今年至今已启动两个线控转向（SbW）项目，预期2026年将获得更多SbW及电子机械制动（EMB）订单，后轮转向（RWS）项目则计划于今年下半年投产。
+与价格走势反向变动的美国10年期国债收益率攀升至4.631%，创2025年2月以来新高，上周累计上行超20个基点。
 
-管理层预期2026财年收入将实现稳定按年增长，但指出大宗商品价格上升可能会对盈利增长构成压力，尤其是中国业务。
+对通胀与利率预期最为敏感的两年期美债收益率触及4.102%，创下14个月高点；30年期美债收益率升至5.159%，创下一年新高。
 
-该公司正加大成本及产能优化力度以提升盈利能力。
+收益率走高助推美元走强，也令近几周借着人工智能热潮大涨的股市承压。
 
-今年第一季度，耐世特取得16亿美元新订单，同时进一步扩展与北美客户的REPS业务，并在中国维持强劲的核心产品订单势头。
+周一油价上涨进一步加剧债券抛售行情，布伦特原油期货价格升至每桶111美元。
 
-瑞银认为，SbW的发展及耐世特进一步获得SbW订单，可能成为股价催化剂；耐世特目标价由8.6港元降至7.6港元，维持“买入”评级。
+阿联酋一处核电站遭遇无人机袭击后，伊朗局势停火谈判陷入停滞。
 
-责任编辑：卢昱君
+中东冲突已持续两个多月，通胀压力不断加剧，投资者愈发担忧冲突带来的经济冲击，以及其对全球利率走势造成的影响。
+
+盛宝银行首席投资策略师查鲁・查纳纳表示：“即便市场主流预期尚未认定央行会实质性加息，但利率长期维持高位的市场论调再度回归。
 
 ## 相关推荐
 
-- 2026-06-30 04:07 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 03:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 03:59 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 03:49 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 03:44 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 03:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 04:04 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 03:54 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 03:58 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 04:05 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 03:50 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 03:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 03:49 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 04:08 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 03:58 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 04:17 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 03:50 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 03:50 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 03:51 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 04:11 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 03:54 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 04:05 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 03:49 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 04:13 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 04:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 04:11 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 03:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 03:57 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 04:04 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:05 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/280033967332.shtml)
-- 2026-06-30 03:43 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/758331622.shtml)
-- 2026-06-30 03:51 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/87868.shtml)
-- 2026-06-30 03:57 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/073461639821.shtml)
-- 2026-06-30 03:46 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/2016963.shtml)
-- 2026-06-30 04:01 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/4631562580.shtml)
-- 2026-06-30 04:09 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/8081653.shtml)
-- 2026-06-30 03:49 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/749533889.shtml)
-- 2026-06-30 03:45 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/64548768973.shtml)
-- 2026-06-30 03:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/46009976.shtml)
-- 2026-06-30 04:03 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/731778.shtml)
-- 2026-06-30 04:07 - [啊啊啊](https://www.share.minike.top/Article/details/910123213.shtml)
-- 2026-06-30 03:46 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/7358508744.shtml)
-- 2026-06-30 04:09 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/5781896.shtml)
-- 2026-06-30 03:43 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/888418.shtml)
+- 2026-06-30 04:09 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/651571965859.shtml)
+- 2026-06-30 04:06 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/5539331703.shtml)
+- 2026-06-30 03:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/645007597.shtml)
+- 2026-06-30 03:58 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/67248968.shtml)
+- 2026-06-30 04:17 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/207049.shtml)
+- 2026-06-30 04:14 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/8663751.shtml)
+- 2026-06-30 03:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/810820.shtml)
+- 2026-06-30 04:01 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/2339360146.shtml)
+- 2026-06-30 04:08 - [月亮](https://www.blog.minike.top/Article/details/6615028.shtml)
+- 2026-06-30 03:51 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/3887199880.shtml)
+- 2026-06-30 04:00 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/7394072.shtml)
+- 2026-06-30 04:07 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/24355591.shtml)
+- 2026-06-30 04:17 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/8996629.shtml)
+- 2026-06-30 04:00 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/8512739319.shtml)
+- 2026-06-30 04:09 - [内马尔替补](http://www.share.minike.top/Article/details/00742.shtml)

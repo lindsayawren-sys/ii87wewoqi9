@@ -1,57 +1,59 @@
-# 观点综述：AI热将浇灭沃什快速降息的希望 亚洲科技股超级周期未见顶
+# 日赚近3亿！存储龙头加速冲刺IPO，A股朋友圈集体狂欢
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-Apollo首席经济学家称AI热潮将浇灭美联储新任主席沃什快速降息的希望。纽约联储研究显示，比起人工智能，远程办公对年轻毕业生求职影响更大。法国巴黎银行表示亚洲科技股超级周期远未见顶。 Apollo首席经济学家称AI热潮将浇灭美联储新任主席沃什快速降息的希望 Apollo Global Management Inc．首席经济学家Torsten Slok表示，人工智能基础设施建设
+5月17日，国产DRAM龙头长鑫科技用一份堪称“炸裂”的成绩单，向科创板发起冲刺。 据上交所官网，长鑫科技已完成财报更新工作，并更新科创板IPO招股说明书（申报稿），审核状态恢复为“已受理”。但真正让业界沸腾的，是那份“爆表”的财务数据： 今年一季度实现营业收入508亿元，同比增长719.13%；实现归属于母公司所有者的净利润247.62亿元，2025年同期亏损15.59亿元，
 
 ## 正文
 
-Apollo首席经济学家称AI热潮将浇灭美联储新任主席沃什快速降息的希望。
+5月17日，国产DRAM龙头长鑫科技用一份堪称“炸裂”的成绩单，向科创板发起冲刺。
 
-纽约联储研究显示，比起人工智能，远程办公对年轻毕业生求职影响更大。
+据上交所官网，长鑫科技已完成财报更新工作，并更新科创板IPO招股说明书（申报稿），审核状态恢复为“已受理”。
 
-法国巴黎银行表示亚洲科技股超级周期远未见顶。
+但真正让业界沸腾的，是那份“爆表”的财务数据： 今年一季度实现营业收入508亿元，同比增长719.13%；实现归属于母公司所有者的净利润247.62亿元，2025年同期亏损15.59亿元，同比大幅扭亏为盈。
 
-Apollo首席经济学家称AI热潮将浇灭美联储新任主席沃什快速降息的希望 Apollo Global Management Inc．首席经济学家Torsten Slok表示，人工智能基础设施建设在初期将推高通胀，这将使新任美联储主席凯文·沃什无法以他此前所暗示的可能的速度那样迅速降息。
+对比A股上市公司（剔除银行及金融股）来看，今年一季度归母净利润超过这一规模的仅有中国石油（483.32亿元）、中国海油（391.44亿元）、中国移动（293.42亿元）、贵州茅台（272.43亿元）4家公司。
 
-Slok周一在节目Surveillance上表示：“我们可能还得再等一段时间，因为在初期，AI热潮肯定会推升通胀。
+长鑫科技预计2026年上半年实现营业收入1100亿元至1200亿元，同比增长612.53%至677.31%；实现归母净利润500亿元至570亿元。
 
-”他说，从半导体价格、能源价格和劳动力成本来看，价格压力风险“非常明确”。
+按预计业绩中位数计算，这家国产存储巨头上半年预计日赚接近3亿元。
 
-纽约联储研究：比起人工智能 远程办公对年轻毕业生求职影响更大 纽约联储银行的一项研究显示，相较于人工智能的普及，远程办公的兴起更能解释近期年轻大学毕业生失业率上升的原因。
+从年亏百亿到日赚3亿 时间拨回三年前。
 
-纽约联储经济学家Natalia Emanuel等研究人员周一在纽约联储官网发布的博客文章中表示，29岁以下拥有大学学历劳动者的失业率较疫情前水平上升，其中约64%可归因于居家办公趋势。
+2023年，长鑫科技归母净利润亏损高达163.4亿元，2024年继续亏损71.45亿元。
 
 ## 相关推荐
 
-- 2026-06-30 04:07 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 03:55 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 03:42 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 04:02 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 04:01 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 04:11 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 03:56 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 03:52 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 03:47 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 03:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 04:00 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 03:50 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 03:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 03:51 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 03:55 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 04:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 04:00 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 03:48 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 04:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 04:17 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 03:48 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 03:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 03:53 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 04:05 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:48 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/13609.shtml)
-- 2026-06-30 04:09 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/043381730677.shtml)
-- 2026-06-30 03:44 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/759898328.shtml)
-- 2026-06-30 03:46 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/00952049872.shtml)
-- 2026-06-30 03:53 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/902870.shtml)
-- 2026-06-30 04:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/597089637140.shtml)
-- 2026-06-30 04:11 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/408759048198.shtml)
-- 2026-06-30 03:59 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/718004.shtml)
-- 2026-06-30 03:52 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/4615029379.shtml)
-- 2026-06-30 03:57 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/12869401.shtml)
-- 2026-06-30 04:03 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/890039.shtml)
-- 2026-06-30 04:06 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/87991147.shtml)
-- 2026-06-30 03:52 - [张凌赫 客串](http://www.share.minike.top/Article/details/60478083440.shtml)
-- 2026-06-30 04:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/646889.shtml)
-- 2026-06-30 03:44 - [田曦薇没招了](http://www.blog.minike.top/Article/details/51274924104.shtml)
+- 2026-06-30 04:16 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/8633250.shtml)
+- 2026-06-30 04:12 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/383265.shtml)
+- 2026-06-30 04:09 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/0224154.shtml)
+- 2026-06-30 03:48 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/724681104.shtml)
+- 2026-06-30 04:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/594247780.shtml)
+- 2026-06-30 04:15 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/9240554.shtml)
+- 2026-06-30 03:56 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/3111029.shtml)
+- 2026-06-30 04:10 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/302682358.shtml)
+- 2026-06-30 04:14 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/2903997072.shtml)
+- 2026-06-30 03:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/41858.shtml)
+- 2026-06-30 04:16 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/47417277475.shtml)
+- 2026-06-30 04:16 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/04229.shtml)
+- 2026-06-30 04:04 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/23356357436.shtml)
+- 2026-06-30 04:07 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/159566.shtml)
+- 2026-06-30 03:53 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/8756299920.shtml)

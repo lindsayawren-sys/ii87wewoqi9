@@ -1,59 +1,59 @@
-# 重庆90%以上珍稀濒危野生动植物资源得到有效保护
+# 同江水运口岸西部作业区明水期对俄水上跨境航运通航
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月2日电 (梁钦卿)重庆市政府新闻办2日举行新闻发布会。会上透露，近年来，重庆市划定多处陆生野生动物重要栖息地和候鸟迁飞通道，建成多处林木种质资源库，有效保护全市90%以上的珍稀濒危野生动植物资源，生态系统多样性、稳定性、持续性向好发展。在植物保护方面，针对崖柏、珙桐、红豆杉、伯乐树、连香树及本土兰科植物等十余种珍稀濒危物种，建设种质资源保育基地和人工繁育研究基地，
+中新网佳木斯5月17日电(赵鹏 鲁春光 徐志强)16日，随着满载货物的“龙推610”轮拖带3艘千吨级驳船缓缓驶离同江水运口岸西部作业区泊位，驶往俄罗斯口岸，标志着同江市2026年夏季明水期对俄水上跨境航运航线全面恢复通航。 “‘龙推610’是同江水运口岸西部作业区今年明水期首艘出境中国籍船舶。”据同江海关物流监控二科一级行政执法员尤聪尧介绍，同江海关开展口岸智慧化建设，让该船承
 
 ## 正文
 
-中新网重庆6月2日电 (梁钦卿)重庆市政府新闻办2日举行新闻发布会。
+中新网佳木斯5月17日电(赵鹏 鲁春光 徐志强)16日，随着满载货物的“龙推610”轮拖带3艘千吨级驳船缓缓驶离同江水运口岸西部作业区泊位，驶往俄罗斯口岸，标志着同江市2026年夏季明水期对俄水上跨境航运航线全面恢复通航。
 
-会上透露，近年来，重庆市划定多处陆生野生动物重要栖息地和候鸟迁飞通道，建成多处林木种质资源库，有效保护全市90%以上的珍稀濒危野生动植物资源，生态系统多样性、稳定性、持续性向好发展。
+“‘龙推610’是同江水运口岸西部作业区今年明水期首艘出境中国籍船舶。
 
-在植物保护方面，针对崖柏、珙桐、红豆杉、伯乐树、连香树及本土兰科植物等十余种珍稀濒危物种，建设种质资源保育基地和人工繁育研究基地，攻克规模化人工繁育、种苗驯化、野外回归等关键技术，稳步恢复野外种群数量，有效扭转了物种野生资源衰退趋势。
+”据同江海关物流监控二科一级行政执法员尤聪尧介绍，同江海关开展口岸智慧化建设，让该船承运的水泥等大宗散货通过智能卡口进入港区，卡口可精准匹配货物舱单状态，自动完成入区核验，推动出口商品实现“抵港直装”，大幅简化通关流程，提高通关效率。
 
-在动物保护方面，重庆重点攻关本土野外灭绝或濒临灭绝的动物物种恢复工作，全力推进白冠长尾雉、勺鸡、红腹角雉等的繁育与野化放归，建立起全国领先的珍稀濒危雉类繁育野化研究基地，持续开展人工繁育、野化训练、适应性放归试验，稳步重建野外种群，推动本土珍稀濒危野生动物重返巴山渝水。
+“2026年我们计划全年完成运量20万吨。
 
-依托成熟的珍稀物种人工繁育和驯化技术，重庆把实验室的研究成果落地到山野乡村。
+主要以水泥及其他杂货为出口。
 
-重庆合理利用规模化培育的人工种质资源，带动周边群众参与苗木培育、生态修复、野外监测等科研辅助工作，让群众就近稳定增收。
+有机肥、江砂、木材等为进口货物。
 
-同时，依托珍稀物种的生态修复、景观观赏、自然科普价值，科学发展苗木培育、自然教育、生态轻康养等绿色业态，把多年的科研保护成果转化为可持续的生态产业优势。
+”佳木斯龙航港务局有限公司总经理郭凤辉表示，下一步将采取提升安全管理能力、提高服务效率等一系列举措，保障同江西部作业区至俄罗斯哈巴港的国际水上物流通道畅通，促进同江口岸外经贸发展。
 
-下一步，重庆将持续推广成熟的物种保护与价值转化模式，结合缙云山等自然保护区资源特色，针对不同珍稀物种制定科学化、差异化的保护利用方案，推动珍稀濒危物种从“被动守护”向“主动赋能”转变，持续打通生态保护与绿色发展双向通道。
+同江市商务和口岸局口岸综合业务股股长张艳艳表示，随着此次明水期首航顺利启航，同江水运口岸西部作业区正式拉开航运作业大幕，辖区建材出口货运业务迎来稳步上行态势。
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 04:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 03:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 03:44 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 04:01 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 03:52 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 04:03 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 03:49 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 04:00 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 04:00 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 03:51 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 04:07 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 04:08 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 03:55 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 04:16 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 04:06 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 03:57 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 04:15 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 04:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 04:15 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 03:56 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 04:07 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 03:57 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 04:02 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 03:58 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 04:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/39680650.shtml)
-- 2026-06-30 04:05 - [乔家的儿女](http://www.blog.minike.top/Article/details/8287847.shtml)
-- 2026-06-30 03:51 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/54161535.shtml)
-- 2026-06-30 04:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/69750770895.shtml)
-- 2026-06-30 03:52 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/66586638.shtml)
-- 2026-06-30 04:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/835516.shtml)
-- 2026-06-30 04:06 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/22085896776.shtml)
-- 2026-06-30 04:05 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/36494.shtml)
-- 2026-06-30 03:58 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/5290544265.shtml)
-- 2026-06-30 03:43 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/72364674080.shtml)
-- 2026-06-30 04:02 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/9224108.shtml)
-- 2026-06-30 03:56 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/36852.shtml)
-- 2026-06-30 04:09 - [刘念回应](http://www.blog.minike.top/Article/details/886695.shtml)
-- 2026-06-30 04:06 - [女心理师](https://www.share.kurohicncr.top/Article/details/30463191004.shtml)
-- 2026-06-30 04:08 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/85873324.shtml)
+- 2026-06-30 03:51 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/918269.shtml)
+- 2026-06-30 04:08 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/242620920133.shtml)
+- 2026-06-30 04:16 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/8066843494.shtml)
+- 2026-06-30 04:02 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/812192809811.shtml)
+- 2026-06-30 04:02 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/824748.shtml)
+- 2026-06-30 03:56 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/4289189.shtml)
+- 2026-06-30 04:13 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/40743332.shtml)
+- 2026-06-30 04:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/678236947575.shtml)
+- 2026-06-30 03:50 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/9050642.shtml)
+- 2026-06-30 04:17 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/95041749583.shtml)
+- 2026-06-30 04:04 - [急先锋](https://www.share.kurohicncr.top/Article/details/656071.shtml)
+- 2026-06-30 04:06 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/2518410.shtml)
+- 2026-06-30 03:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/37038.shtml)
+- 2026-06-30 04:16 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/23065389026.shtml)
+- 2026-06-30 04:11 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/177023513.shtml)

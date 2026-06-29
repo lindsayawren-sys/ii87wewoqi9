@@ -1,58 +1,44 @@
-# 贵州给古建筑做“生物病害专项体检”
+# 黄河壶口瀑布再现浊浪翻滚壮美景观
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网贵阳6月1日电 (应腾 周燕玲)记者1日从贵州省文物保护研究中心了解到，该省日前已完成文物保护单位生物病害危害普查，共为63个国保、15个省保做了“生物病害专项体检”。 中国古建筑普遍以木构架为主体，对生物侵害极为敏感。从生态环境上看，贵州是天然虫害的“培养皿”，全省92.5%的面积为山地丘陵，年平均湿度达80%，是白蚁、木蜂、天牛等“吃木大户”的“快乐老家”。 本次普查
+发布时间：2026年05月18日 19:03 来源：中国新闻网 5月18日，山西临汾，受近期强降雨影响，黄河壶口瀑布水量明显增大，再现浊浪翻滚的壮美画面，吸引众多游客打卡参观。(张立程 吕桂明刘贵明） 责任编辑：【李季】
 
 ## 正文
 
-中新网贵阳6月1日电 (应腾 周燕玲)记者1日从贵州省文物保护研究中心了解到，该省日前已完成文物保护单位生物病害危害普查，共为63个国保、15个省保做了“生物病害专项体检”。
+发布时间：2026年05月18日 19:03 来源：中国新闻网 5月18日，山西临汾，受近期强降雨影响，黄河壶口瀑布水量明显增大，再现浊浪翻滚的壮美画面，吸引众多游客打卡参观。
 
-中国古建筑普遍以木构架为主体，对生物侵害极为敏感。
-
-从生态环境上看，贵州是天然虫害的“培养皿”，全省92.5%的面积为山地丘陵，年平均湿度达80%，是白蚁、木蜂、天牛等“吃木大户”的“快乐老家”。
-
-本次普查由贵州省文物局牵头，贵州省文物事业发展中心、贵州省文物保护研究中心联合中国林科院木材工业研究所、清华大学、贵州大学组建“技术天团”，共派出3支专家领衔的田野调查队，近30名队员奔赴贵州九个市(州)进行调查。
-
-以国保、省保木结构古建为主，涵盖近现代建筑，对古寺庙、传统民居、风雨桥、鼓楼、古粮仓、红色革命遗址等进行全覆盖排查。
-
-调查队通过仪器+人工双排查，通过三维扫描仪记录木构件典型病害三维影像，并记录受损木构件病害种类、位置和扩散范围，共收集100余件建筑维修替换的残损木构件标本，并逐一建档，以此评估现有维修措施的有效性。
-
-对木建构的古建来说，“看着完好”往往是最大的错觉，内里可能上演着一场持久的，涵盖白蚁、蠹虫、木蜂、天牛的组团“啃老”大战。
-
-在贵州黄平县飞云崖，一根被白蚁侵蚀的大木梁外表尚存，内里却早已危如累卵，存在突发坍塌风险。
+(张立程 吕桂明刘贵明） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 03:51 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 03:47 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 04:07 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 04:07 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 04:00 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 04:02 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 03:57 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 04:05 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 04:05 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 03:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 03:48 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 03:53 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 04:05 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 04:05 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 04:11 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 04:12 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 04:06 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 03:59 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 04:05 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 03:58 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 03:52 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 04:14 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/6037027711.shtml)
-- 2026-06-30 03:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/90448216359.shtml)
-- 2026-06-30 04:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/215567658.shtml)
-- 2026-06-30 03:57 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/473613499599.shtml)
-- 2026-06-30 03:43 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/0385588897.shtml)
-- 2026-06-30 03:59 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/77843.shtml)
-- 2026-06-30 03:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/241311369919.shtml)
-- 2026-06-30 03:53 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/487907658.shtml)
-- 2026-06-30 04:01 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/47424790963.shtml)
-- 2026-06-30 03:45 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/05256713.shtml)
-- 2026-06-30 03:53 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/01050071.shtml)
-- 2026-06-30 04:06 - [明星大侦探第一季](http://www.share.minike.top/Article/details/662992636.shtml)
-- 2026-06-30 04:03 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/2457432.shtml)
-- 2026-06-30 04:06 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/71974.shtml)
-- 2026-06-30 03:44 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/36319.shtml)
+- 2026-06-30 04:03 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/339675.shtml)
+- 2026-06-30 04:14 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/9782732594.shtml)
+- 2026-06-30 04:12 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/9694079389.shtml)
+- 2026-06-30 03:57 - [《贺子珍》](https://www.blog.minike.top/Article/details/9984255.shtml)
+- 2026-06-30 04:03 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/86742552.shtml)
+- 2026-06-30 03:56 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/837006.shtml)
+- 2026-06-30 04:05 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/66892918518.shtml)
+- 2026-06-30 03:51 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/998823044.shtml)
+- 2026-06-30 04:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/74196180.shtml)
+- 2026-06-30 03:58 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/74028477.shtml)
+- 2026-06-30 03:50 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/07193995130.shtml)
+- 2026-06-30 03:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/23589.shtml)
+- 2026-06-30 03:49 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/46856143.shtml)
+- 2026-06-30 04:16 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/3551004598.shtml)
+- 2026-06-30 04:05 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/5667702978.shtml)

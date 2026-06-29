@@ -1,59 +1,56 @@
-# 中国国际动漫节再设“香港馆” 16家香港企业携原创IP参展
+# “雪龙2”号极地科考船靠泊中国极地科考基地码头
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网香港6月2日电(记者 张祥毅)香港数码娱乐协会2日在香港举行记者招待会表示，该协会将以“潮游动漫”为主题，于6月17日至21日在杭州举办的第二十二届中国国际动漫节设立“香港馆”。16家来自动漫、游戏及潮玩等领域的香港企业将携近20个IP(知识产权)参展，并以角色扮演、游戏试玩、漫画大师速画等形式，全面推广香港动画、漫画、游戏及潮玩的创意和实力。 香港数码娱乐协会主席彭子杰
+中新网上海5月18日电 (陈静 宫兴)18日，中国第42次南极考察队“雪龙2”号极地科考船缓缓靠泊在位于上海外高桥的中国极地科考基地码头。 上海边检总站外高桥边检站(下称：外高桥边检站)开启全流程通关保障，护航“雪龙2”号及人员高效通关、顺利抵沪。 据悉，中国第42次南极考察队“雪龙”号和“雪龙2”号于2025年11月1日从上海出发，“雪龙”号于2026年4月9日返回，“雪龙2
 
 ## 正文
 
-中新网香港6月2日电(记者 张祥毅)香港数码娱乐协会2日在香港举行记者招待会表示，该协会将以“潮游动漫”为主题，于6月17日至21日在杭州举办的第二十二届中国国际动漫节设立“香港馆”。
+中新网上海5月18日电 (陈静 宫兴)18日，中国第42次南极考察队“雪龙2”号极地科考船缓缓靠泊在位于上海外高桥的中国极地科考基地码头。
 
-16家来自动漫、游戏及潮玩等领域的香港企业将携近20个IP(知识产权)参展，并以角色扮演、游戏试玩、漫画大师速画等形式，全面推广香港动画、漫画、游戏及潮玩的创意和实力。
+上海边检总站外高桥边检站(下称：外高桥边检站)开启全流程通关保障，护航“雪龙2”号及人员高效通关、顺利抵沪。
 
-香港数码娱乐协会主席彭子杰表示，经历两届的锻炼，今年着力以设计原创性、品质、以及商业认受性三大准则挑选出16家即将到杭州参展的企业，务求以质量并重的方式，展现香港数码娱乐产业的最高水准。
+据悉，中国第42次南极考察队“雪龙”号和“雪龙2”号于2025年11月1日从上海出发，“雪龙”号于2026年4月9日返回，“雪龙2”号在南极普里兹湾执行“秋季南大洋生态系统”联合航次任务后返回上海。
 
-香港行声制作有限公司IP主理人李诗婷向记者表示，这是公司第三次参加中国国际动漫节，她认为内地生产与供应链齐全，香港具备联通世界的贸易优势和拥有汇聚东西方文化的品牌特色，相信可以一起携手做好潮玩IP出海。
+当天，外高桥边检站专项勤务组提前抵达码头，完成信息核对、通道规划、在港监护等准备工作。
 
-继中国国际动漫节后，今年在广州举行的中国国际漫画节动漫游戏展也将设立“香港馆”。
+待“雪龙2”号靠泊后，民警第一时间登轮，在船上设立临时查验点，为40余名科考队员和船员“一站式”办结入境边检手续。
 
-16家香港数码娱乐企业，将通过以创意成果交易和人才推介为主要内容的动漫产业平台，深化粤港澳大湾区融合，推动与区内同行及潜在业务伙伴加强交流与合作。
+“以前要在窗口和码头之间来回跑，现在边检机关直接把查验窗口设在船舱，科考队员不用下船就轻松办理入境通关手续，省时又省力。
 
-(完)
+”船舶代理人缪志浩说。
+
+外高桥边检站民警宋巍说，外高桥边检站多次保障极地科考船高效通关，总结提炼了“前置信息梳理、合理规划通道、暖心服务引导、靠前办理手续”全流程通关保障模式。
 
 ## 相关推荐
 
-- 2026-06-30 04:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 04:08 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 04:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 03:56 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 04:03 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 03:56 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 03:53 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 03:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 04:06 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 04:04 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 03:43 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 04:01 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 03:53 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 03:57 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 03:47 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 04:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 04:04 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 04:16 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 04:06 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 04:03 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 04:12 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 04:17 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 04:03 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 03:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 04:14 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/6545941321.shtml)
-- 2026-06-30 04:03 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/170403.shtml)
-- 2026-06-30 04:08 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/73203224145.shtml)
-- 2026-06-30 04:10 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/86133794758.shtml)
-- 2026-06-30 03:55 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/6404231.shtml)
-- 2026-06-30 04:07 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/60458366361.shtml)
-- 2026-06-30 03:58 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/72431.shtml)
-- 2026-06-30 03:45 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/39713.shtml)
-- 2026-06-30 03:58 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/08862099835.shtml)
-- 2026-06-30 03:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/712269.shtml)
-- 2026-06-30 03:57 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/1002224.shtml)
-- 2026-06-30 04:05 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/21039800.shtml)
-- 2026-06-30 04:00 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/51189508762.shtml)
-- 2026-06-30 03:52 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/35035435171.shtml)
-- 2026-06-30 03:58 - [起风了](https://www.blog.kurohicncr.top/Article/details/228670914071.shtml)
+- 2026-06-30 03:48 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/139368554.shtml)
+- 2026-06-30 03:54 - [恋与深空 日服](https://www.blog.minike.top/Article/details/080841.shtml)
+- 2026-06-30 04:06 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/987419828.shtml)
+- 2026-06-30 04:06 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/261444.shtml)
+- 2026-06-30 03:54 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/107467.shtml)
+- 2026-06-30 04:00 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/17774971325.shtml)
+- 2026-06-30 03:50 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/345261629.shtml)
+- 2026-06-30 04:05 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/496403.shtml)
+- 2026-06-30 04:08 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/682204825931.shtml)
+- 2026-06-30 04:09 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/85023469.shtml)
+- 2026-06-30 03:57 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/358023222.shtml)
+- 2026-06-30 04:12 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/706267806.shtml)
+- 2026-06-30 04:17 - [金刚川](https://www.share.kurohicncr.top/Article/details/40432.shtml)
+- 2026-06-30 03:55 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/717422942945.shtml)
+- 2026-06-30 04:05 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/27816422917.shtml)

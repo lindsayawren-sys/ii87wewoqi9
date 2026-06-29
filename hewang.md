@@ -1,61 +1,57 @@
-# 机器面穿上“手擀”马甲，克明食品致歉难掩主业萎缩之痛
+# 离职的基金名将，都去哪儿了？
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 近日，克明食品（002661.SZ）在其官方微博发布了一则“致歉声明”，就“手擀”商标相关问题向消费者公开致歉，宣布即日起全面停止生产、销售带有“手擀”相关表述的产品，并同步启动产品包装及宣传物料的整改。 就在此前一天，央视《法治在线》栏目曝出克明食品将“手擀”二字注册为商标用于机器制面的包
+【导读】离职基金经理最新迁徙图全景：一半去头部公募、一半选择“奔私”见习记者 闫军A股市场持续向好，公募基金行业“抢人大战”愈演愈烈，近期甚至传出某头部公募出手挖人反被其他公司“截胡”的消息。薪酬改革之下的人才挤出、头部平台的“虹吸效应”同时发力，再次勾勒出一幅“人往高处”的基金经理迁徙图。这一波的人才流动依然是两个方向，公募之间的横向平移与追逐更高收益的“奔私”。所不同的是，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+【导读】离职基金经理最新迁徙图全景：一半去头部公募、一半选择“奔私”见习记者 闫军A股市场持续向好，公募基金行业“抢人大战”愈演愈烈，近期甚至传出某头部公募出手挖人反被其他公司“截胡”的消息。
 
-来源：证券之星 近日，克明食品（002661.SZ）在其官方微博发布了一则“致歉声明”，就“手擀”商标相关问题向消费者公开致歉，宣布即日起全面停止生产、销售带有“手擀”相关表述的产品，并同步启动产品包装及宣传物料的整改。
+薪酬改革之下的人才挤出、头部平台的“虹吸效应”同时发力，再次勾勒出一幅“人往高处”的基金经理迁徙图。
 
-就在此前一天，央视《法治在线》栏目曝出克明食品将“手擀”二字注册为商标用于机器制面的包装上，搭配“就像儿时妈妈做的手擀面”的广告语和醒目的擀面杖图案，易误导消费者将该款产品与传统手工工艺产品联系在一起。
+这一波的人才流动依然是两个方向，公募之间的横向平移与追逐更高收益的“奔私”。
 
-证券之星注意到，公司道歉当天，“陈克明食品道歉”词条一度冲上微博热搜第一。
+所不同的是，人才聚集的“马太效应”更加明显。
 
-而在喧闹的舆情背后，这家“挂面第一股”正面临着远比一纸道歉声明更为严峻的考验。
+有公募基金人士调侃：“半个基金圈的离职基金经理都跑到易方达、天弘、广发、富国、中欧、永赢了。
 
-01． 手擀商标非手擀 天眼查查询显示，早在2020年2月，克明食品申请注册了两个名称为“陈克明手擀”的商标，但前述商标均在2025年10月24日被依职权宣告无效，即商标局在未接到任何单位或个人申请的前提下，主动对已经注册的商标作出宣告无效的行政决定。
+”玩笑的背后，是当下公募行业人才的深度洗牌。
 
-但令人意外的是，商标被宣告无效后，相关产品仍在线下渠道持续销售。
+绩优基金经理流向公募大厂和特色化公司人才流动成为常态，基金公司投研人员的争夺已经白热化。
 
-并且，克明食品服务热线工作人员回复称，“手擀”大宽挂面是机器制造，是参照手感揉面的工艺成型，还原手擀面的口感。
+观察这一波行情启动之前和当下的基金经理流动，易方达、天弘、广发、富国、中欧、永赢等公司的吸引力尤为明显。
 
 ## 相关推荐
 
-- 2026-06-30 03:49 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 03:49 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 03:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 03:48 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 03:46 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 03:58 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 03:43 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 03:47 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 04:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 04:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 04:05 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 03:55 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 04:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 04:01 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 04:08 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 03:48 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 04:02 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 03:49 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 04:12 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 04:17 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 03:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 04:03 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 03:51 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 04:16 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 03:55 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 04:12 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/2248975732.shtml)
-- 2026-06-30 04:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/73612.shtml)
-- 2026-06-30 04:08 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/89965611.shtml)
-- 2026-06-30 03:48 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/27926933.shtml)
-- 2026-06-30 03:42 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/74012.shtml)
-- 2026-06-30 03:42 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/89700.shtml)
-- 2026-06-30 03:58 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/921215911648.shtml)
-- 2026-06-30 03:53 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/363497587.shtml)
-- 2026-06-30 04:05 - [请回答王牌2019](https://www.blog.minike.top/Article/details/39413976271.shtml)
-- 2026-06-30 03:54 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/84069999.shtml)
-- 2026-06-30 04:04 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/78293174.shtml)
-- 2026-06-30 04:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/574129129075.shtml)
-- 2026-06-30 03:58 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/73234605.shtml)
-- 2026-06-30 03:58 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/41981111890.shtml)
-- 2026-06-30 04:01 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/19079221977.shtml)
+- 2026-06-30 03:50 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/132395.shtml)
+- 2026-06-30 04:14 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/22913709.shtml)
+- 2026-06-30 04:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/465557094.shtml)
+- 2026-06-30 03:49 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/4257871524.shtml)
+- 2026-06-30 04:13 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/1281833358.shtml)
+- 2026-06-30 04:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/85155436127.shtml)
+- 2026-06-30 04:06 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/6277637604.shtml)
+- 2026-06-30 04:11 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/90112606.shtml)
+- 2026-06-30 03:59 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/382724987363.shtml)
+- 2026-06-30 04:03 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/71843589323.shtml)
+- 2026-06-30 04:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/67064898.shtml)
+- 2026-06-30 03:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/81021.shtml)
+- 2026-06-30 03:52 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/731550.shtml)
+- 2026-06-30 03:58 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/2759432.shtml)
+- 2026-06-30 03:53 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/56269886976.shtml)

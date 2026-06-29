@@ -1,57 +1,46 @@
-# 股东交售股票数量据悉已可使裕信银行对德国商业银行持股比例远超30%
+# 广西柳州发生5.2级地震 广西地震局迅速调派救援力量紧急驰援
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，裕信银行已获得足够承诺，将使其对德国商业银行的持股比例明显升破30%，为其以386亿欧元（450亿美元）收购这家德国竞争对手的方案增添了动能。 知情人士称，股东已就裕信银行的收购要约交售足够数量的股票，可使该行的直接持股比例从26.8%升至30%以上。由于信息尚未公开，知情人士要求匿名。 对裕信银行首席执行官Andrea Orcel来说，跨过30%这一门槛具有重
+发布时间：2026年05月18日 08:58 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-据知情人士透露，裕信银行已获得足够承诺，将使其对德国商业银行的持股比例明显升破30%，为其以386亿欧元（450亿美元）收购这家德国竞争对手的方案增添了动能。
-
-知情人士称，股东已就裕信银行的收购要约交售足够数量的股票，可使该行的直接持股比例从26.8%升至30%以上。
-
-由于信息尚未公开，知情人士要求匿名。
-
-对裕信银行首席执行官Andrea Orcel来说，跨过30%这一门槛具有重要意义。
-
-过去近两年里，他一直在推进对德国商业银行的收购。
-
-这将增强Orcel的影响力，也会让目标公司更难抵御其攻势，尽管德国政府也坚定支持反对这宗收购交易的阵营。
-
-此番进展也表明，至少有部分投资者对这项收购提议存在一定兴趣，尽管其隐含估值低于德国商业银行当前的市场价格。
-
-这项自5月初起向投资者开放的收购要约将持续至6月16日。
+发布时间：2026年05月18日 08:58 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 03:54 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-30 04:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 03:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 03:42 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 03:56 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 03:46 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 03:43 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 03:48 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 03:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 03:56 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 04:00 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 04:06 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 04:13 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 03:50 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 04:08 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 04:01 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 03:56 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 03:59 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 03:48 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 03:53 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 04:08 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 04:01 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 03:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 04:10 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/07792779407.shtml)
-- 2026-06-30 03:49 - [沉睡花园](http://www.blog.minike.top/Article/details/2540689496.shtml)
-- 2026-06-30 04:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/92667817837.shtml)
-- 2026-06-30 04:08 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/380844672.shtml)
-- 2026-06-30 04:11 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/31525350431.shtml)
-- 2026-06-30 04:03 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/68787.shtml)
-- 2026-06-30 04:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/6093736.shtml)
-- 2026-06-30 04:09 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/202097.shtml)
-- 2026-06-30 04:05 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/90527194.shtml)
-- 2026-06-30 03:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/263768.shtml)
-- 2026-06-30 03:57 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/822513.shtml)
-- 2026-06-30 04:10 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/150129888496.shtml)
-- 2026-06-30 03:59 - [女心理师](http://www.share.kurohicncr.top/Article/details/779085563077.shtml)
-- 2026-06-30 03:50 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/9087195442.shtml)
-- 2026-06-30 04:11 - [日本反击率先破门](https://www.blog.minike.top/Article/details/67695104577.shtml)
+- 2026-06-30 04:10 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/86235.shtml)
+- 2026-06-30 03:59 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/40701194960.shtml)
+- 2026-06-30 04:03 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/9386737.shtml)
+- 2026-06-30 04:09 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/382528422654.shtml)
+- 2026-06-30 03:50 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/43821914.shtml)
+- 2026-06-30 03:51 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/01121193.shtml)
+- 2026-06-30 03:50 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/414305657340.shtml)
+- 2026-06-30 03:52 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/887601717.shtml)
+- 2026-06-30 03:56 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/99023.shtml)
+- 2026-06-30 03:56 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/7805340542.shtml)
+- 2026-06-30 04:08 - [扬名立万](https://www.share.minike.top/Article/details/121668527118.shtml)
+- 2026-06-30 03:57 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/88850508403.shtml)
+- 2026-06-30 04:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/0298034699.shtml)
+- 2026-06-30 04:04 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/817570.shtml)
+- 2026-06-30 04:11 - [《共患难》](http://www.blog.minike.top/Article/details/69983005.shtml)

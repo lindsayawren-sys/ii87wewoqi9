@@ -1,51 +1,54 @@
-# Anthropic向美国证交会保密提交IPO文件草案
+# 礼来将出席伯恩斯坦第42届年度战略决策会议
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-Anthropic已向美国证券交易委员会（SEC）保密提交S-1表格注册声明草案，为拟议中的首次公开募股（IPO）做准备。 此次提交使Anthropic在SEC审核结束后拥有启动上市的选择权，拟发行股票数量尚未确定，股票发行价格区间也尚未确定，拟议中的IPO仍将取决于市场状况及其他因素。责任编辑：李桐
+参会详情 礼来公司宣布，将出席于2026年5月28日举行的伯恩斯坦第42届年度战略决策会议。礼来首席科学官、礼来研究实验室总裁Daniel M． Skovronsky医学博士将在美国东部时间下午1：30参加炉边谈话。 线上参与方式 届时，礼来投资者网站“网络广播与演示”栏目将提供现场音频直播。会议重播将在同一网站在线保存约90天。 礼来公司总部位于印第安纳波利斯，目前市值超过1
 
 ## 正文
 
-Anthropic已向美国证券交易委员会（SEC）保密提交S-1表格注册声明草案，为拟议中的首次公开募股（IPO）做准备。
+参会详情 礼来公司宣布，将出席于2026年5月28日举行的伯恩斯坦第42届年度战略决策会议。
 
-此次提交使Anthropic在SEC审核结束后拥有启动上市的选择权，拟发行股票数量尚未确定，股票发行价格区间也尚未确定，拟议中的IPO仍将取决于市场状况及其他因素。
+礼来首席科学官、礼来研究实验室总裁Daniel M． Skovronsky医学博士将在美国东部时间下午1：30参加炉边谈话。
 
-责任编辑：李桐
+线上参与方式 届时，礼来投资者网站“网络广播与演示”栏目将提供现场音频直播。
+
+会议重播将在同一网站在线保存约90天。
+
+礼来公司总部位于印第安纳波利斯，目前市值超过1万亿美元，是全球最大的制药公司之一。
+
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 04:08 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 04:03 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 04:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 04:07 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 03:54 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 03:59 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 03:46 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 03:43 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 03:42 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 04:05 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 03:52 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 03:54 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 04:07 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 04:04 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 04:07 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 04:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 04:12 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 03:57 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 03:56 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 04:15 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 04:13 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 03:49 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 04:05 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 03:59 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 04:02 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 03:50 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 04:01 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/3881073.shtml)
-- 2026-06-30 03:45 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/869851.shtml)
-- 2026-06-30 03:56 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/826466.shtml)
-- 2026-06-30 04:02 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/553372.shtml)
-- 2026-06-30 04:00 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/0896568.shtml)
-- 2026-06-30 03:52 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/4242075420.shtml)
-- 2026-06-30 03:48 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/73963.shtml)
-- 2026-06-30 04:10 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/66528.shtml)
-- 2026-06-30 04:04 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/726235885488.shtml)
-- 2026-06-30 03:58 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/69972676.shtml)
-- 2026-06-30 03:45 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/4730841994.shtml)
-- 2026-06-30 03:45 - [一见倾心](https://www.share.minike.top/Article/details/447823.shtml)
-- 2026-06-30 04:02 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/3257462770.shtml)
-- 2026-06-30 03:52 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/71457.shtml)
-- 2026-06-30 04:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/74507.shtml)
+- 2026-06-30 03:53 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/178657048381.shtml)
+- 2026-06-30 03:53 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/6955855043.shtml)
+- 2026-06-30 03:59 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/1853435.shtml)
+- 2026-06-30 04:03 - [世界杯](http://www.blog.minike.top/Article/details/12486684117.shtml)
+- 2026-06-30 04:00 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/0426281374.shtml)
+- 2026-06-30 03:52 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/20783.shtml)
+- 2026-06-30 03:57 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/620143663.shtml)
+- 2026-06-30 03:58 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/32416.shtml)
+- 2026-06-30 03:48 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/062389584.shtml)
+- 2026-06-30 03:56 - [金刚川](https://www.share.kurohicncr.top/Article/details/93924.shtml)
+- 2026-06-30 04:00 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/269115808.shtml)
+- 2026-06-30 03:55 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/075138.shtml)
+- 2026-06-30 03:55 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/091933.shtml)
+- 2026-06-30 04:00 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/42513.shtml)
+- 2026-06-30 03:49 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/90079.shtml)

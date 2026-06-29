@@ -1,58 +1,57 @@
-# 京沈智造企业深挖机器人多场景应用合作
+# “湖北襄阳特大暴雨致道路及车辆被淹”系谣言（2026·05·18）
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月2日电(姜月恒 姚小辉)2026沈阳机器人大会核心应用场景对接活动之一的京沈智能制造企业合作对接座谈会2日在沈阳市沈河区举行，活动旨在聚焦机器人、人工智能、高端装备制造领域，搭建两地精准对接、务实合作的高端平台，助力两地产业链、创新链、供应链协同联动，为沈阳智能制造产业集群发展注入新动能。 本次座谈会汇聚众多行业优质资源，北京人形机器人创新中心、首科腾飞等来自北京
+辟谣 “湖北襄阳特大暴雨致道路及车辆被淹”系谣言！ 详情：近日，有网民在社交平台发布帖文称“2026年5月16日晚上襄阳地区遭遇特大暴雨，部分路段和小区积水导致车辆泡水”，并配以一段暴雨中大量车辆被积水淹没的视频，引发关注。经警方核实，该帖文中出现内涝、车辆被淹的视频素材并非湖北襄阳地区，确为谣言。视频发布者程某承认自己为博取眼球、吸引流量，从互联网搜集各类外省暴雨受灾视频进行
 
 ## 正文
 
-中新网沈阳6月2日电(姜月恒 姚小辉)2026沈阳机器人大会核心应用场景对接活动之一的京沈智能制造企业合作对接座谈会2日在沈阳市沈河区举行，活动旨在聚焦机器人、人工智能、高端装备制造领域，搭建两地精准对接、务实合作的高端平台，助力两地产业链、创新链、供应链协同联动，为沈阳智能制造产业集群发展注入新动能。
+辟谣 “湖北襄阳特大暴雨致道路及车辆被淹”系谣言！
 
-本次座谈会汇聚众多行业优质资源，北京人形机器人创新中心、首科腾飞等来自北京的智能制造头部企业和中煤科工、优必选创新科技等本地龙头企业，以及深圳逐际动力齐聚活动现场，50余家知名企业共同探讨产业合作新路径。
+详情：近日，有网民在社交平台发布帖文称“2026年5月16日晚上襄阳地区遭遇特大暴雨，部分路段和小区积水导致车辆泡水”，并配以一段暴雨中大量车辆被积水淹没的视频，引发关注。
 
-北京拥有顶尖科创资源、前沿技术成果与专业研发团队，沈阳具备雄厚的制造业基底、完善的产业链配套和丰富的应用场景。
+经警方核实，该帖文中出现内涝、车辆被淹的视频素材并非湖北襄阳地区，确为谣言。
 
-座谈交流中，北京企业重点推介工业自动化、智能传感器等前沿技术产品，沈阳本地企业围绕人形机器人研发、智能制造升级、数字化转型等领域提出合作构想，双方就强强联合开展技术研发、产业链配套、成果落地转化、资源共享等方面深度洽谈。
+视频发布者程某承认自己为博取眼球、吸引流量，从互联网搜集各类外省暴雨受灾视频进行剪辑拼接，未经核实便编造本地虚假汛情信息，误导大量网民关注和讨论，扰乱社会公共秩序。
 
-北京金福德润科技有限责任公司总经理王晓兰在交流会上表示，企业深耕垃圾分类业务，在智能分拣设备选型上有着刚需，希望业内专家围绕轻量化智能设备开展技术攻关，推出适配的实用机型。
+目前，程某已被公安机关依法予以行政拘留。
 
-中国食品工业协会品牌战略工作委员会副秘书长广静川发言称，海内外市场涌现新需求，国外因用人成本高昂，市场需要具备全流程操作、自主调配清洗功能的智能咖啡机，目前已有不少合作意向。
+(来源：@襄阳网警) 科普 地震来袭，这份“自救指南”一定要牢记 详情：据广西地震台网正式测定，北京时间2026年5月18日0时21分在广西柳州市柳南区(北纬24.38度，东经109.26度)发生5.2级地震，震源深度8公里。
 
-广静川表示，餐饮直面消费者，家用智能设备或将成为后续重点拓展方向。
+地震发生后，柳州市区许多居民纷纷到广场空旷处避险。
 
-奇点智能机器人(沈阳)科技有限公司总经理谢文君介绍，企业主营高智能水下机器人，目前公司面向全行业寻求定制开发、联合研发合作伙伴，同步推进股权融资事宜。
+地震来袭，到底应该怎么躲？
 
 ## 相关推荐
 
-- 2026-06-30 03:42 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 04:03 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 03:49 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 04:10 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 03:57 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 03:50 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 04:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 03:47 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 03:52 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 04:11 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 03:51 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 04:02 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 04:02 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 03:53 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 03:57 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 04:10 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 03:49 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 04:15 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 04:11 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 04:09 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 04:08 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 04:09 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 03:56 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:05 - [明星大侦探第四季](http://www.share.minike.top/Article/details/209966262771.shtml)
-- 2026-06-30 03:46 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/149804854735.shtml)
-- 2026-06-30 03:46 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/909383424052.shtml)
-- 2026-06-30 03:42 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/56122.shtml)
-- 2026-06-30 03:56 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/0715282.shtml)
-- 2026-06-30 03:54 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/334094268169.shtml)
-- 2026-06-30 03:55 - [我和我的家乡](http://www.blog.minike.top/Article/details/61925985081.shtml)
-- 2026-06-30 03:50 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/081809.shtml)
-- 2026-06-30 03:51 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/5933867.shtml)
-- 2026-06-30 03:53 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/24028918.shtml)
-- 2026-06-30 04:10 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/22067613546.shtml)
-- 2026-06-30 04:08 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/22684452846.shtml)
-- 2026-06-30 04:05 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/937959874.shtml)
-- 2026-06-30 04:05 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/5160301399.shtml)
-- 2026-06-30 03:54 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/07779902.shtml)
+- 2026-06-30 04:14 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/24753.shtml)
+- 2026-06-30 03:49 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/630966681.shtml)
+- 2026-06-30 04:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/398462.shtml)
+- 2026-06-30 04:11 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/675816818896.shtml)
+- 2026-06-30 04:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/598104808.shtml)
+- 2026-06-30 04:05 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/68836542786.shtml)
+- 2026-06-30 04:11 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/65491043.shtml)
+- 2026-06-30 04:09 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/09672.shtml)
+- 2026-06-30 04:08 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/067291.shtml)
+- 2026-06-30 03:58 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/49000588.shtml)
+- 2026-06-30 04:17 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/5866444.shtml)
+- 2026-06-30 03:59 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/086539.shtml)
+- 2026-06-30 04:07 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/29079.shtml)
+- 2026-06-30 04:05 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/77972850.shtml)
+- 2026-06-30 04:05 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/86966810.shtml)

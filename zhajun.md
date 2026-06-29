@@ -1,54 +1,58 @@
-# 传习录丨“孩子们成长得更好，是我们最大的心愿”
+# 新买家增长与“带娃度假”热潮支撑夏季旺季，希尔顿分时度假俱乐部财测乐观
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-视频：传习录丨“孩子们成长得更好，是我们最大的心愿”来源：央视新闻客户端 少年强则国强，少年兴则国兴。少年儿童是祖国的未来，是中华民族的希望。习近平总书记始终牵挂着孩子们的成长，一句句节日问候、一次次悉心叮嘱，满是对少年儿童的深情期许。 “你们就像小树苗一样，最后要长成参天大树”“自古英雄出少年，长江后浪推前浪。希望你们有志向，有梦想”……一句句亲切的叮咛，深情寄望一株株“小树
+一季度业绩亮眼，新买家成增长引擎 希尔顿分时度假俱乐部（Hilton Grand Vacations，HGV） 近日公布的2026年第一季度财报显示，其业务正迎来强劲的增长拐点。尽管合同销售额为7.19亿美元，但多项指标远超市场预期。营收达12.85亿美元，同比增长11.9%。由于成本控制和运营效率提升，运营利润率成功翻倍至11.1%，调整后每股收益达到0.99美元，较市场预期
 
 ## 正文
 
-视频：传习录丨“孩子们成长得更好，是我们最大的心愿”来源：央视新闻客户端 少年强则国强，少年兴则国兴。
+一季度业绩亮眼，新买家成增长引擎 希尔顿分时度假俱乐部（Hilton Grand Vacations，HGV） 近日公布的2026年第一季度财报显示，其业务正迎来强劲的增长拐点。
 
-少年儿童是祖国的未来，是中华民族的希望。
+尽管合同销售额为7.19亿美元，但多项指标远超市场预期。
 
-习近平总书记始终牵挂着孩子们的成长，一句句节日问候、一次次悉心叮嘱，满是对少年儿童的深情期许。
+营收达12.85亿美元，同比增长11.9%。
 
-“你们就像小树苗一样，最后要长成参天大树”“自古英雄出少年，长江后浪推前浪。
+由于成本控制和运营效率提升，运营利润率成功翻倍至11.1%，调整后每股收益达到0.99美元，较市场预期高出67.5%。
 
-希望你们有志向，有梦想”……一句句亲切的叮咛，深情寄望一株株“小树苗”早日成为栋梁之材。
+值得注意的是，公司成功实现了用户结构的优化。
 
-“六一”国际儿童节到来之际，祝所有的小朋友们节日快乐，茁壮成长！
+来自“新买家”的合同销售额占比提升至26%，同比增长160个基点。
 
-总监制丨王涵 监制丨李浙 王元 制片人丨吴晓振 制作丨刘浩臣
+这表明HGV正有效摆脱对现有会员的过度依赖，其营销策略和品牌吸引力正成功转化为真正的增量需求。
+
+CFO看好夏季趋势：为什么旅行与多代同游 HGV首席财务官对即将到来的夏季旅游旺季表达了强烈的乐观态度，这背后有坚实的宏观趋势支撑。
 
 ## 相关推荐
 
-- 2026-06-30 04:08 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 03:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 03:46 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 04:09 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 03:47 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 04:10 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 03:43 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 03:58 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 03:56 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 04:02 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 03:59 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 04:06 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 03:53 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 03:59 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 04:02 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 04:07 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 03:55 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 04:12 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 04:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 03:55 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 04:09 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 04:06 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [小娘惹](https://www.blog.minike.top/Article/details/26772565.shtml)
-- 2026-06-30 03:53 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/09053926522.shtml)
-- 2026-06-30 04:09 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/9445853620.shtml)
-- 2026-06-30 04:10 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/655487.shtml)
-- 2026-06-30 03:46 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/64100321939.shtml)
-- 2026-06-30 03:45 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/43494212300.shtml)
-- 2026-06-30 04:08 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/2367756.shtml)
-- 2026-06-30 03:45 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/1194702.shtml)
-- 2026-06-30 04:05 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/8090931331.shtml)
-- 2026-06-30 03:50 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/5005312.shtml)
-- 2026-06-30 03:58 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/150278.shtml)
-- 2026-06-30 03:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/9288886617.shtml)
-- 2026-06-30 04:10 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/4510335.shtml)
-- 2026-06-30 04:04 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/523156.shtml)
-- 2026-06-30 03:56 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/74628.shtml)
+- 2026-06-30 04:09 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/61862904439.shtml)
+- 2026-06-30 03:53 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/001498219.shtml)
+- 2026-06-30 04:09 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/49579242516.shtml)
+- 2026-06-30 04:10 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/652935235417.shtml)
+- 2026-06-30 03:51 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/12222.shtml)
+- 2026-06-30 04:15 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/55997.shtml)
+- 2026-06-30 04:15 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/2592216349.shtml)
+- 2026-06-30 03:48 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/4735559.shtml)
+- 2026-06-30 04:11 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/5085518672.shtml)
+- 2026-06-30 03:55 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/0170888463.shtml)
+- 2026-06-30 04:08 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/03663753.shtml)
+- 2026-06-30 04:02 - [《男人至死是傻得儿》](http://www.share.minike.top/Article/details/4795714006.shtml)
+- 2026-06-30 04:01 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/041342304.shtml)
+- 2026-06-30 04:13 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/77275.shtml)
+- 2026-06-30 04:16 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/817321905428.shtml)

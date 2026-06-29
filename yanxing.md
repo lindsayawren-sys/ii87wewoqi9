@@ -1,57 +1,47 @@
-# Gossamer Bio证券集体诉讼截止日期今晚到期，Faruqi & Faruqi鼓励受损投资者联系
+# 湖北荆州遭遇特大暴雨 中心城区实施“五停”措施
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-纽约知名国家安全诉讼律所Faruqi & Faruqi， LLP正在对Gossamer Bio， Inc．展开调查，并提醒投资者，在该公司证券集体诉讼中寻求担任首席原告的截止日期为2026年6月1日。 该诉讼代表在2025年6月16日至2026年2月20日期间购买或以其他方式收购Gossamer Bio证券的所有个人和实体提起。 诉讼指控称，在整个集体诉讼期内，被告做出了虚假和
+昨天至今天凌晨，湖北荆州市遭遇持续性强降雨天气。昨天8时到今天6时，荆州市荆州区、沙市区、公安县10个乡镇出现特大暴雨，最大雨量为357.3毫米，出现在公安县斑竹垱长河村。 今天(18日)一早，荆州市政府启动极端降雨城市内涝应急响应，中心城区严格落实“停工、停产、停业、停运、停课”措施。
 
 ## 正文
 
-纽约知名国家安全诉讼律所Faruqi & Faruqi， LLP正在对Gossamer Bio， Inc．展开调查，并提醒投资者，在该公司证券集体诉讼中寻求担任首席原告的截止日期为2026年6月1日。
+昨天至今天凌晨，湖北荆州市遭遇持续性强降雨天气。
 
-该诉讼代表在2025年6月16日至2026年2月20日期间购买或以其他方式收购Gossamer Bio证券的所有个人和实体提起。
+昨天8时到今天6时，荆州市荆州区、沙市区、公安县10个乡镇出现特大暴雨，最大雨量为357.3毫米，出现在公安县斑竹垱长河村。
 
-诉讼指控称，在整个集体诉讼期内，被告做出了虚假和/或误导性陈述，且/或未能披露以下事项：公司3期PROSERA试验的设计存在缺陷，特别是在控制拉丁美洲试验点的安慰剂反应方面存在不足。
-
-2026年2月23日，Gossamer Bio公布了PROSERA试验的顶线结果，该试验评估了seralutinib治疗肺动脉高压的疗效。
-
-结果显示，试验未能达到第24周改善六分钟步行距离的主要终点，经安慰剂校正后的改善仅为13.3米，p值为0.0320，未能达到0.025的预设统计学阈值。
-
-公司将这一失败归因于拉丁美洲试验点患者表现出的“超大安慰剂反应”。
-
-据披露，这些地区的患者属于“经过大量治疗的低风险人群”，在安慰剂对照下表现异常出色，包括一些“超级反应者”在仅使用安慰剂的情况下步行改善超过100米。
-
-试验失败的消息导致Gossamer Bio股价从2月20日的每股2.13美元收盘价暴跌至2月23日的0.42美元，单日跌幅超过80%。
+今天(18日)一早，荆州市政府启动极端降雨城市内涝应急响应，中心城区严格落实“停工、停产、停业、停运、停课”措施。
 
 ## 相关推荐
 
-- 2026-06-30 04:00 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 04:02 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 03:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 04:08 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 03:53 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 03:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 04:09 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 03:44 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 04:09 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 04:04 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 03:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 04:03 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 04:10 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 04:11 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 04:03 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 04:06 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 03:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 03:50 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 03:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 04:10 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 04:08 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 03:49 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:45 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/245080.shtml)
-- 2026-06-30 03:43 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/49515750278.shtml)
-- 2026-06-30 03:55 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/0200990.shtml)
-- 2026-06-30 04:08 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/18648.shtml)
-- 2026-06-30 03:45 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/490537.shtml)
-- 2026-06-30 03:49 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/466587.shtml)
-- 2026-06-30 04:09 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/52587.shtml)
-- 2026-06-30 03:47 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/53152.shtml)
-- 2026-06-30 03:46 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/66831023410.shtml)
-- 2026-06-30 04:07 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/48269421.shtml)
-- 2026-06-30 03:59 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/2842883613.shtml)
-- 2026-06-30 03:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/27385866126.shtml)
-- 2026-06-30 04:01 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/4975943.shtml)
-- 2026-06-30 04:04 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/630589.shtml)
-- 2026-06-30 04:01 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/6630839749.shtml)
+- 2026-06-30 04:01 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/165366704.shtml)
+- 2026-06-30 04:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/2594721.shtml)
+- 2026-06-30 04:11 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/57730827189.shtml)
+- 2026-06-30 04:06 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/0866594.shtml)
+- 2026-06-30 03:53 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/84434.shtml)
+- 2026-06-30 03:59 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/9908287449.shtml)
+- 2026-06-30 04:00 - [斗破苍穹](https://www.blog.minike.top/Article/details/077224099.shtml)
+- 2026-06-30 03:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/752976755343.shtml)
+- 2026-06-30 03:59 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/442235720546.shtml)
+- 2026-06-30 03:58 - [千香](https://www.share.minike.top/Article/details/14973.shtml)
+- 2026-06-30 04:14 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/0053909.shtml)
+- 2026-06-30 03:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/88994.shtml)
+- 2026-06-30 04:06 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/599006087364.shtml)
+- 2026-06-30 03:53 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/110202390.shtml)
+- 2026-06-30 04:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/339574.shtml)

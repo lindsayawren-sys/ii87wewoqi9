@@ -1,61 +1,61 @@
-# 日本拟自2027年4月下调食品消费税
+# 广州乡村以旅为媒铺就振兴路 粤韵乡村“藏着”文明新景
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-据日本《每日新闻》报道，日本政府商讨从 2027 年 4 月起，对食品实施为期两年的消费税减免政策，该举措或将令投资者再度聚焦日本持续恶化的财政状况。 该报周一援引不愿具名的政府官员消息称，政府计划把现行 8% 的食品消费税率降至 1%。本轮减税落地时点恰逢地方选举前夕，偏向宽松财政的首相高市早苗可借此政策拉抬选情。 目前政策最大难点在于减税资金筹措。债券市场投资者持续施压，考
+探索城乡融合 助推高质量发展 广州乡村以旅为媒铺就振兴路 粤韵乡村“藏着”文明新景 在第16个中国旅游日来临之际，广州乡村以文明创建为笔，绘就了一幅美丽乡村的崭新画卷。从白山村的绿美步道到瑞岭村的百年盆景，从湴湄村的星海红韵到龙潭村的旧墟新生，再到上九陂村的文旅融合……一个个典型村如珠落玉盘，在片区化、组团化的发展新格局中，实现了资源互补、产业联动与生态增值。 文明创建的涓涓细
 
 ## 正文
 
-据日本《每日新闻》报道，日本政府商讨从 2027 年 4 月起，对食品实施为期两年的消费税减免政策，该举措或将令投资者再度聚焦日本持续恶化的财政状况。
+探索城乡融合 助推高质量发展 广州乡村以旅为媒铺就振兴路 粤韵乡村“藏着”文明新景 在第16个中国旅游日来临之际，广州乡村以文明创建为笔，绘就了一幅美丽乡村的崭新画卷。
 
-该报周一援引不愿具名的政府官员消息称，政府计划把现行 8% 的食品消费税率降至 1%。
+从白山村的绿美步道到瑞岭村的百年盆景，从湴湄村的星海红韵到龙潭村的旧墟新生，再到上九陂村的文旅融合……一个个典型村如珠落玉盘，在片区化、组团化的发展新格局中，实现了资源互补、产业联动与生态增值。
 
-本轮减税落地时点恰逢地方选举前夕，偏向宽松财政的首相高市早苗可借此政策拉抬选情。
+文明创建的涓涓细流，汇聚成乡村全面振兴的澎湃动力，让各地的生动实践，成为广州探索城乡融合、助推高质量发展的鲜活注脚。
 
-目前政策最大难点在于减税资金筹措。
+文、图/广州日报全媒体记者叶卡斯 特色引领 百花齐放 白云区太和镇白山村： 白山村位于白云区北部、太和镇东部、帽峰山森林公园南部，村内白山涌穿村而过，森林覆盖率达75%以上，是帽峰山山脚的一颗璀璨明珠。
 
-债券市场投资者持续施压，考验高市早苗在严控新增发债规模前提下推行扩张型财政的决心。
+该村通过党群服务中心改造工作，将党群服务、文明实践、志愿服务、村史展览等功能融为一体，举办“我们的端午”、暑期大学生下乡支教助力“百千万工程”等活动，打造成为群众想来、爱来、常来的“红色家园”。
 
-野村综合研究所经济学家木内孝英表示：“减税议题的核心困局是，资金来源方案的磋商几乎毫无进展。
+白山村以绿美公园+森林步道建设为推手撬动休闲健身事业，以客家坞、八社古村落等项目为载体吸引研学科普、民宿康养等运营主体谋求合作，构建新型乡村农旅体商产业体系。
 
-” “两年优惠期结束后再度上调税率阻力巨大，民众会将税率回升视作变相加税并加以抵制。
+同时，白山村大力响应绿美广东生态建设，累计种植苗木920棵，完成绿化美化面积约45.14亩，景观改造面积超10000平方米，“艺美白山”精品线路持续优化，助推文旅产业蓬勃发展。
 
-” 早在今年 1 月，高市早苗曾承诺全额免除两年食品 8% 消费税，以此缓解民众物价上涨压力，受新增发债担忧冲击，当时日本国债收益率大幅飙升。
+花都区赤坭镇瑞岭村： 瑞岭村深挖百年盆景文化，从引进高端盆景创意园入手，接续擦亮打响盆景艺术节、电商直播节等金字招牌，全力打造成为集种植栽培、交易交流、创作培训、科普展览、休闲旅游于一体的岭南盆景园艺文化艺术名村。
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 03:48 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 04:01 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 03:42 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 03:42 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 04:01 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 03:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 04:03 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 03:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 04:02 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 04:06 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 03:58 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 03:52 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 04:06 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 03:56 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 03:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 04:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 04:05 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 04:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 04:17 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 04:15 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 03:55 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 04:13 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 04:15 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 03:57 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 04:03 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 04:14 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 03:54 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 04:15 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 04:11 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:48 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/8583374503.shtml)
-- 2026-06-30 03:42 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/54731991.shtml)
-- 2026-06-30 03:44 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/802361287979.shtml)
-- 2026-06-30 04:10 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/971753.shtml)
-- 2026-06-30 04:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/77932380353.shtml)
-- 2026-06-30 03:50 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/0025648.shtml)
-- 2026-06-30 03:43 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/33535891565.shtml)
-- 2026-06-30 03:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/601019360.shtml)
-- 2026-06-30 04:00 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/83775.shtml)
-- 2026-06-30 03:48 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/68667460.shtml)
-- 2026-06-30 03:51 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/51833.shtml)
-- 2026-06-30 03:56 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/968664276200.shtml)
-- 2026-06-30 03:59 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/684456.shtml)
-- 2026-06-30 03:59 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/070164045166.shtml)
-- 2026-06-30 04:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/8183734.shtml)
+- 2026-06-30 04:07 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/56972.shtml)
+- 2026-06-30 04:09 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/4541020387.shtml)
+- 2026-06-30 04:10 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/948329184350.shtml)
+- 2026-06-30 03:48 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/60736915.shtml)
+- 2026-06-30 04:00 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/283849.shtml)
+- 2026-06-30 04:11 - [恋与深空 日服](https://www.share.minike.top/Article/details/95071.shtml)
+- 2026-06-30 04:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/21928.shtml)
+- 2026-06-30 04:05 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/131138569.shtml)
+- 2026-06-30 04:08 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/292153744912.shtml)
+- 2026-06-30 04:11 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/185821.shtml)
+- 2026-06-30 03:57 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/43911229.shtml)
+- 2026-06-30 04:06 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/0828859.shtml)
+- 2026-06-30 04:09 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/28442042772.shtml)
+- 2026-06-30 03:52 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/767191839.shtml)
+- 2026-06-30 03:55 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/75055.shtml)

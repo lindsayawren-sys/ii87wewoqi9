@@ -1,60 +1,54 @@
-# 江风里听交响 “乐汇两江”点亮重庆艺术之夜
+# 湖南石门强降雨灾害已造成1人死亡、2人失联
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月1日电 (记者 钟旖)两江之畔，晚风之中，交响与歌声相和。5月31日晚，作为第四届重庆都市艺术节“江·岸艺术现场”的重头戏之一，“乐汇两江”城市音乐会在弹子石广场奏响。 重庆交响乐团携手王丽达、谭学胜、张宇、沈晶晶、姜明、刘广、赵丹妮等声乐名家，以壮阔的江岸夜景为幕，为市民和游客献上一场高雅与烟火交融的视听盛宴。 没有传统剧院的围墙，只有晚风、江涛和满天星光。20
+中新网5月18日电 据“石门融媒”微信公众号消息，湖南省常德市石门县应急和安全生产委员会发布情况通报，5月17日7时起，石门县遭遇极端强降雨天气，降雨瞬时雨量大、致灾风险高，突破历史极值。 县委、县政府第一时间启动应急处置机制，根据雨情汛情调整为防汛Ⅱ级应急响应，迅速统筹各方救援力量，全力开展群众转移、抢险救援、基础设施抢修等工作，已紧急转移安置群众18406人，受灾区域群众基
 
 ## 正文
 
-中新网重庆6月1日电 (记者 钟旖)两江之畔，晚风之中，交响与歌声相和。
+中新网5月18日电 据“石门融媒”微信公众号消息，湖南省常德市石门县应急和安全生产委员会发布情况通报，5月17日7时起，石门县遭遇极端强降雨天气，降雨瞬时雨量大、致灾风险高，突破历史极值。
 
-5月31日晚，作为第四届重庆都市艺术节“江·岸艺术现场”的重头戏之一，“乐汇两江”城市音乐会在弹子石广场奏响。
+县委、县政府第一时间启动应急处置机制，根据雨情汛情调整为防汛Ⅱ级应急响应，迅速统筹各方救援力量，全力开展群众转移、抢险救援、基础设施抢修等工作，已紧急转移安置群众18406人，受灾区域群众基本生活得到保障。
 
-重庆交响乐团携手王丽达、谭学胜、张宇、沈晶晶、姜明、刘广、赵丹妮等声乐名家，以壮阔的江岸夜景为幕，为市民和游客献上一场高雅与烟火交融的视听盛宴。
+截至5月18日19时，强降雨灾害已造成1人死亡、2人失联。
 
-没有传统剧院的围墙，只有晚风、江涛和满天星光。
+石门县将持续做好群众转移、巡查排险、抢险救灾、受灾群众生活保障等工作，及时发布相关信息。
 
-20时整，重庆交响乐团以一曲欢快热烈的《蝙蝠序曲》拉开序幕，弦乐与铜管交相呼应，瞬间点燃现场气氛。
-
-这支深耕“交响乐中国化、重庆化”的乐团，展现出扎实的艺术功底与昂扬的时代风貌。
-
-音乐会曲目中西合璧、精彩纷呈，既有《九儿》《天路》《亲吻祖国》等民族金曲，也有《春之声圆舞曲》《斗牛士之歌》等世界名篇。
-
-张宇一曲《父亲的草原母亲的河》清澈悠远，沈晶晶演唱《天上雾腾腾》尽显民歌韵味，谭学胜献唱《天路》高亢磅礴，赵丹妮的花腔演绎华丽灵动，刘广带来《贝加尔湖畔》温暖醇厚，王丽达以《亲吻祖国》《共圆中国梦》将全场气氛推向高潮……每位艺术家都以独特的声音，在江风中留下难忘的回响。
+在此提醒广大群众密切关注天气预警，远离河道、山体陡坡、低洼易涝等危险区域，切实做好自身安全防护。
 
 ## 相关推荐
 
-- 2026-06-30 04:09 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 04:09 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 03:43 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 03:52 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 03:57 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 03:48 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 04:10 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 04:03 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 04:07 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 03:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 03:54 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 04:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 03:53 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 03:56 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 04:04 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 04:13 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 03:52 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 04:03 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 04:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 04:14 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 04:10 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 03:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 04:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 03:54 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 03:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 04:07 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 04:06 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 04:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:56 - [千香](http://www.blog.kurohicncr.top/Article/details/86981465.shtml)
-- 2026-06-30 03:47 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/745839.shtml)
-- 2026-06-30 03:59 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/24243232983.shtml)
-- 2026-06-30 03:42 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/629787.shtml)
-- 2026-06-30 03:53 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/5550238924.shtml)
-- 2026-06-30 03:42 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/9160877.shtml)
-- 2026-06-30 03:54 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/451720.shtml)
-- 2026-06-30 03:45 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/7981068458.shtml)
-- 2026-06-30 04:01 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/57875701.shtml)
-- 2026-06-30 04:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/97846773962.shtml)
-- 2026-06-30 03:57 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/533292513.shtml)
-- 2026-06-30 03:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/06211175285.shtml)
-- 2026-06-30 03:49 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/9126040.shtml)
-- 2026-06-30 03:52 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/63960519525.shtml)
-- 2026-06-30 04:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/723815538.shtml)
+- 2026-06-30 04:14 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/2423349212.shtml)
+- 2026-06-30 03:49 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/804457542.shtml)
+- 2026-06-30 03:54 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/25763184.shtml)
+- 2026-06-30 04:15 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/6251333432.shtml)
+- 2026-06-30 04:11 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/5838258.shtml)
+- 2026-06-30 04:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/2704805.shtml)
+- 2026-06-30 04:05 - [孙兴慜道歉](http://www.share.minike.top/Article/details/8050749418.shtml)
+- 2026-06-30 03:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/9206232831.shtml)
+- 2026-06-30 03:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/2525943123.shtml)
+- 2026-06-30 03:52 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/75508695504.shtml)
+- 2026-06-30 04:01 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/3643863.shtml)
+- 2026-06-30 04:01 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/25786241.shtml)
+- 2026-06-30 04:15 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/519784.shtml)
+- 2026-06-30 04:08 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/10089475993.shtml)
+- 2026-06-30 04:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/28506288.shtml)

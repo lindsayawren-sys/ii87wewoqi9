@@ -1,56 +1,56 @@
-# 6月2日美股成交额前20：英伟达再次进军PC芯片市场
+# “核宇宙科学大冒险”公众科学日：探秘大科学装置兰州重离子加速器
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-周一美股成交额第1名美光收高6.56%，成交470.18亿美元。美光科技股价周一延续涨势，此前Raymond James将该股目标价从530美元大幅上调至1100美元，维持“跑赢大盘”评级，理由是AI驱动的强劲内存需求及持续紧张的供应格局。 Raymond James的新目标价意味着较美光5月29日收盘价971美元约有13%的上涨空间。该股在过去12个月中飙升超过800%，市值
+中新网北京5月18日电 (记者 孙自法)中国科学院第二十二届公众科学日5月16日至17日顺利举行，中国科学院近代物理研究所推出“核宇宙科学大冒险”主题开放活动，带领公众探秘大科学装置兰州重离子加速器，共同感受核科学的魅力。 兰州重离子加速器是中国科学院近代物理所开展核物理、核技术、核医学等领域研究的重要平台。在讲解员的引导下，观众通过实地参观，直观了解离子加速器的工作原理、科研
 
 ## 正文
 
-周一美股成交额第1名美光收高6.56%，成交470.18亿美元。
+中新网北京5月18日电 (记者 孙自法)中国科学院第二十二届公众科学日5月16日至17日顺利举行，中国科学院近代物理研究所推出“核宇宙科学大冒险”主题开放活动，带领公众探秘大科学装置兰州重离子加速器，共同感受核科学的魅力。
 
-美光科技股价周一延续涨势，此前Raymond James将该股目标价从530美元大幅上调至1100美元，维持“跑赢大盘”评级，理由是AI驱动的强劲内存需求及持续紧张的供应格局。
+兰州重离子加速器是中国科学院近代物理所开展核物理、核技术、核医学等领域研究的重要平台。
 
-Raymond James的新目标价意味着较美光5月29日收盘价971美元约有13%的上涨空间。
+在讲解员的引导下，观众通过实地参观，直观了解离子加速器的工作原理、科研进展和成果应用，近距离感受大国重器带来的科技震撼。
 
-该股在过去12个月中飙升超过800%，市值已突破1万亿美元。
+公众科学日活动上，一场特殊的“薪火对话”引人注目：中国科学院近代物理所“两弹一星”亲历科学家、86岁高龄的侯明东研究员与青少年对话，通过讲述计算尺时代的科研故事，分享老一辈科学家“干惊天动地事，做隐姓埋名人”的奋斗历程，点燃青少年的科技强国梦想。
 
-此轮上调紧随一波分析师调高目标价的浪潮——瑞银给出了华尔街最高目标价1625美元，Susquehanna将目标价从600美元上调至1750美元，DA Davidson上调至1500美元，瑞穗证券也将其目标价上调至1150美元。
+科普报告环节，中国科学院近代物理所姚存峰研究员作《探秘核能：小原子中蕴藏的大能量》主题报告，带领听众开启一场脑力大冒险。
 
-分析师指出，AI基础设施支出正推动对高带宽内存和先进DRAM的结构性需求。
+“魔法学院”科学实验互动展演环节，高温超导磁悬浮、电磁感应现象演示、微观粒子径迹捕捉、“两弹一星”探索训练营、机器人与人工智能教育等项目内容丰富，人形机器人足球互动、四足机器狗越障、AI下棋机器人对弈、航模拼装等现场体验活动更是精彩纷呈。
 
-美光已售罄2026年全部HBM4供应，客户长期协议的兴趣日益浓厚。
+活动现场还专门策划准备了“粒子特工训练基地”沉浸式挑战、与NPC进行“诗词中的物理学”互动、在“原子核之环”套圈游戏中认识元素周期表等多种科学游戏，让少年儿童观众边玩边学，寓教于乐。
 
-瑞穗分析师Vijay Rakesh在与美光高管会面后重申，AI驱动的强劲内存需求是推动2026至2027年市场供应紧张的核心因素。
+中国科学院近代物理所透露，未来将持续常态化开放科普资源，以“猫小野科普星球”自主品牌为引领，构筑更具辨识度的科普活动矩阵，让科学可知可感、可触可及。
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-30 03:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 03:53 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 03:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 04:07 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 04:05 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 03:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 04:05 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 03:55 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 03:42 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 04:09 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 04:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 03:50 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 04:00 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 04:16 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 04:10 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 04:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 04:09 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 04:05 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 04:06 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:11 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/5089076.shtml)
-- 2026-06-30 04:00 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/02596.shtml)
-- 2026-06-30 03:43 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/66802857915.shtml)
-- 2026-06-30 04:06 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/12549335769.shtml)
-- 2026-06-30 03:59 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/718511.shtml)
-- 2026-06-30 03:56 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/218301148.shtml)
-- 2026-06-30 04:10 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/27086340.shtml)
-- 2026-06-30 03:46 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/12274824.shtml)
-- 2026-06-30 03:51 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/012795308.shtml)
-- 2026-06-30 04:12 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/74487534.shtml)
-- 2026-06-30 03:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/0515903944.shtml)
-- 2026-06-30 03:48 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/106945043902.shtml)
-- 2026-06-30 03:55 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/897062986.shtml)
-- 2026-06-30 03:57 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/46503.shtml)
-- 2026-06-30 04:11 - [毒液2](http://www.share.minike.top/Article/details/15416381.shtml)
+- 2026-06-30 04:01 - [千香](https://www.share.kurohicncr.top/Article/details/1524943.shtml)
+- 2026-06-30 03:52 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/1363420426.shtml)
+- 2026-06-30 04:10 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/120868481.shtml)
+- 2026-06-30 04:14 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/37718.shtml)
+- 2026-06-30 04:04 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/60155.shtml)
+- 2026-06-30 03:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/6823545482.shtml)
+- 2026-06-30 04:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/008974628.shtml)
+- 2026-06-30 04:13 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/643389075.shtml)
+- 2026-06-30 03:49 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/32942.shtml)
+- 2026-06-30 04:05 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/56602550.shtml)
+- 2026-06-30 04:10 - [流金岁月](https://www.blog.minike.top/Article/details/58565369928.shtml)
+- 2026-06-30 03:52 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/429747.shtml)
+- 2026-06-30 04:01 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/90102660.shtml)
+- 2026-06-30 03:50 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/856046543975.shtml)
+- 2026-06-30 04:02 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/55626784.shtml)

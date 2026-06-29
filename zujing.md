@@ -1,58 +1,53 @@
-# 圭亚那着眼创纪录石油收入，全球能源市场格局生变
+# 朝鲜女足代表团抵达韩国 时隔12年再访韩
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-在美国与以色列对伊朗的战争推高油价之前，圭亚那已是全球增长最快的经济体。如今，随着这场冲突重塑全球能源市场，这个拥有近100万人口的加勒比小国将获得更大的财富。 这场战争造成了历史上最大规模的能源中断之一，凸显了圭亚那等国家日益增长的重要性——这些国家政治稳定，其估计110亿桶石油储量在地理上不受通行限制。石油带来的暴增收入给政府带来压力，企业主和当地民众要求政府利用数十亿美元
+中新网5月17日电 据韩联社报道，朝鲜女子足球队“我故乡”俱乐部17日下午通过仁川国际机场入境韩国。 报道称，据韩国统一部介绍，此次访韩的朝鲜女足代表团共39人，其中包括27名球员和12名工作人员。 报道称，朝鲜女足代表团此次访韩是为了参加2025—2026赛季亚足联女子冠军联赛相关比赛。“我故乡”俱乐部将于20日对阵韩国水原FC女足。 报道指出，这是朝鲜运动员自2018年以来
 
 ## 正文
 
-在美国与以色列对伊朗的战争推高油价之前，圭亚那已是全球增长最快的经济体。
+中新网5月17日电 据韩联社报道，朝鲜女子足球队“我故乡”俱乐部17日下午通过仁川国际机场入境韩国。
 
-如今，随着这场冲突重塑全球能源市场，这个拥有近100万人口的加勒比小国将获得更大的财富。
+报道称，据韩国统一部介绍，此次访韩的朝鲜女足代表团共39人，其中包括27名球员和12名工作人员。
 
-这场战争造成了历史上最大规模的能源中断之一，凸显了圭亚那等国家日益增长的重要性——这些国家政治稳定，其估计110亿桶石油储量在地理上不受通行限制。
+报道称，朝鲜女足代表团此次访韩是为了参加2025—2026赛季亚足联女子冠军联赛相关比赛。
 
-石油带来的暴增收入给政府带来压力，企业主和当地民众要求政府利用数十亿美元推动其他经济领域的发展。
+“我故乡”俱乐部将于20日对阵韩国水原FC女足。
 
-总统伊尔凡·阿里本月在莱斯大学贝克研究所发表演讲时表示：“世界上有太多能源繁荣的案例最终留下的是鬼城、被破坏的森林和怨声载道的人民。
-
-圭亚那不会成为那样的故事。
-
-” 由埃克森美孚领导的石油联合体控制了圭亚那的全部石油生产，在短短七年内将产量提升至每日超过90万桶，这一速度在近期史无前例——海上项目通常需要两倍的时间才能产出第一滴油。
-
-根据世界银行的数据，从2019年开始产油到2024年，圭亚那的GDP增长了三倍多，达到275亿美元。
+报道指出，这是朝鲜运动员自2018年以来时隔约8年再次访问韩国，也是朝鲜女足时隔12年再次赴韩参赛。
 
 ## 相关推荐
 
-- 2026-06-30 04:07 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 04:11 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 03:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 03:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 03:46 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 03:54 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 04:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 04:08 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 03:48 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 03:52 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 04:11 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 03:49 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 04:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 04:08 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 03:57 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 03:49 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 04:13 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 04:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 03:56 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 04:15 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 03:48 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 03:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 04:16 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 04:02 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 04:12 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/9988132553.shtml)
-- 2026-06-30 03:59 - [沉睡花园](https://www.share.minike.top/Article/details/5304112848.shtml)
-- 2026-06-30 04:09 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/0974094.shtml)
-- 2026-06-30 03:57 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/4966020768.shtml)
-- 2026-06-30 04:08 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/116105071.shtml)
-- 2026-06-30 03:48 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/5827767.shtml)
-- 2026-06-30 03:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/62172594552.shtml)
-- 2026-06-30 03:43 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/389350.shtml)
-- 2026-06-30 03:46 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/1117757.shtml)
-- 2026-06-30 04:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/831442265355.shtml)
-- 2026-06-30 04:05 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/25873574585.shtml)
-- 2026-06-30 03:56 - [巴西vs日本](http://www.share.minike.top/Article/details/592145.shtml)
-- 2026-06-30 04:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/6732278.shtml)
-- 2026-06-30 04:10 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/394365089586.shtml)
-- 2026-06-30 03:44 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/032967378.shtml)
+- 2026-06-30 04:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/6546387.shtml)
+- 2026-06-30 03:55 - [我和我的家乡](http://www.share.minike.top/Article/details/798053.shtml)
+- 2026-06-30 03:53 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/1851198.shtml)
+- 2026-06-30 03:49 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/873150077650.shtml)
+- 2026-06-30 04:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/706786819296.shtml)
+- 2026-06-30 04:09 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/2584986.shtml)
+- 2026-06-30 04:15 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/175338.shtml)
+- 2026-06-30 03:50 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/546181064774.shtml)
+- 2026-06-30 04:00 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/98441741492.shtml)
+- 2026-06-30 03:51 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/47770423.shtml)
+- 2026-06-30 04:06 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/013426787119.shtml)
+- 2026-06-30 04:05 - [日本领先巴西](https://www.blog.minike.top/Article/details/418324591358.shtml)
+- 2026-06-30 04:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/04830.shtml)
+- 2026-06-30 03:58 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/76407.shtml)
+- 2026-06-30 04:16 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/295637.shtml)

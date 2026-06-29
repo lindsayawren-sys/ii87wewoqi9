@@ -1,57 +1,54 @@
-# *ST太和连续8个跌停告别A股，投资者索赔切莫错过
+# 广西环江一皮卡车坠河 已致1人死亡
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月29日，*ST太和（维权）发布公告称，公司收到上海证券交易所作出的终止上市决定。连续8个跌停的阴霾尚未散尽，曾经的“水生态修复第一股”最终还是未能逃脱退市的命运。 因2025年度净利润为负且营收低于3亿元，内部控制被出具否定意见审计报告，触及终止上市条件。公司股票将于2026年6月8日进入退市整理期，交易期限为15
+中新网广西环江5月17日电 (记者 黄艳梅)广西环江毛南族自治县人民政府17日发布环江“5·16”皮卡车坠河事件情况通报。截至5月17日凌晨2时，当地已搜救6人上岸，其中5人无生命危险、1人无生命体征。 通报称，5月16日21时08分，环江毛南族自治县人民政府接到报告，称一辆载有15人的皮卡车在途经洛阳镇永权村肯任屯漫水桥时，坠入水中。接报后，环江毛南族自治县党委、政府高度重视
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月29日，*ST太和（维权）发布公告称，公司收到上海证券交易所作出的终止上市决定。
+中新网广西环江5月17日电 (记者 黄艳梅)广西环江毛南族自治县人民政府17日发布环江“5·16”皮卡车坠河事件情况通报。
 
-连续8个跌停的阴霾尚未散尽，曾经的“水生态修复第一股”最终还是未能逃脱退市的命运。
+截至5月17日凌晨2时，当地已搜救6人上岸，其中5人无生命危险、1人无生命体征。
 
-因2025年度净利润为负且营收低于3亿元，内部控制被出具否定意见审计报告，触及终止上市条件。
+通报称，5月16日21时08分，环江毛南族自治县人民政府接到报告，称一辆载有15人的皮卡车在途经洛阳镇永权村肯任屯漫水桥时，坠入水中。
 
-公司股票将于2026年6月8日进入退市整理期，交易期限为15个交易日，预计最后交易日为6月29日。
+接报后，环江毛南族自治县党委、政府高度重视，第一时间启动应急响应，迅速组织应急管理、公安、消防、卫健等相关部门赶赴现场，全力开展人员搜救、医疗救治等应急处置工作。
 
-退市整理期届满后5个交易日内摘牌，股票将转入全国中小企业股份转让系统。
+目前，相关搜救工作正在持续开展。
 
-而该公司刚于2026年4月20日发布公告称，公司收到中国证监会送达的《立案告知书》。
-
-由于公司存在涉嫌信息披露违法违规行为，证监会已决定对其立案。
-
-收到立案告知书的同日，上海证监局出具的行政监管措施决定书揭开了更多细节，公司在2026年3月20日披露的回复公告中，明确声称相关工程项目不存在提前确认收入的情形，但监管核查发现该表述存在虚假记载。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:50 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 04:01 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 03:56 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 04:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 04:05 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 03:50 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 03:57 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 03:52 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 04:02 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 03:48 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 03:51 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 04:09 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 03:49 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 04:03 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 03:52 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 04:04 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 03:54 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 04:10 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 04:07 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 03:56 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 04:06 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 03:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 04:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/13008.shtml)
-- 2026-06-30 03:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/08335629265.shtml)
-- 2026-06-30 03:44 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/450795102.shtml)
-- 2026-06-30 03:57 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/479463.shtml)
-- 2026-06-30 04:08 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/29474.shtml)
-- 2026-06-30 03:50 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/611814977.shtml)
-- 2026-06-30 04:11 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/4551239096.shtml)
-- 2026-06-30 03:47 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/882599.shtml)
-- 2026-06-30 03:58 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/797689.shtml)
-- 2026-06-30 03:56 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/175255.shtml)
-- 2026-06-30 03:47 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/2258136852.shtml)
-- 2026-06-30 04:01 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/966608509407.shtml)
-- 2026-06-30 03:42 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/66726662327.shtml)
-- 2026-06-30 03:59 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/99775618.shtml)
-- 2026-06-30 04:11 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/2186100.shtml)
+- 2026-06-30 04:17 - [送你一朵小红花](https://www.blog.minike.top/Article/details/478860.shtml)
+- 2026-06-30 04:03 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/3357027908.shtml)
+- 2026-06-30 04:12 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/487791.shtml)
+- 2026-06-30 04:02 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/9571552.shtml)
+- 2026-06-30 04:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/597610.shtml)
+- 2026-06-30 03:55 - [一生一世](https://www.share.minike.top/Article/details/88211.shtml)
+- 2026-06-30 03:51 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/379999972.shtml)
+- 2026-06-30 03:49 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/58294271.shtml)
+- 2026-06-30 03:53 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/7251602683.shtml)
+- 2026-06-30 04:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/8239745847.shtml)
+- 2026-06-30 04:16 - [一生一世](https://www.blog.kurohicncr.top/Article/details/225313018337.shtml)
+- 2026-06-30 03:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/85714.shtml)
+- 2026-06-30 03:49 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/5243192521.shtml)
+- 2026-06-30 03:57 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/808439094558.shtml)
+- 2026-06-30 03:49 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/3844602032.shtml)

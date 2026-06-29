@@ -1,57 +1,59 @@
-# 2026年全国粮食和物资储备科技活动周在湖北启动
+# 国际纸业收购特拉华州加工厂，拓展东海岸可持续包装业务
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-人民网武汉6月2日电 (记者周雯)6月1日上午，2026年全国粮食和物资储备科技活动周启动仪式在湖北省武汉市举行。活动周期间，国家粮食和物资储备局将组织科技服务组奔赴部分产粮大县，开展技术帮扶与科普宣传工作，全国各地也将结合本地实际，举办形式多样、特色鲜明的群众性科技活动。本次科技活动周以“奋进‘十五五’ 科技护粮储”为主题，集中展示“十四五”时期粮食和物资储备领域优秀科技成果
+收购详情 国际纸业公司近日宣布，已从Delmarva Corrugated Packaging手中收购了其位于特拉华州多佛的加工厂。交易的财务条款未予披露。 战略意义与增长 此次战略性收购将增强国际纸业的运营能力，扩大其市场覆盖范围，并增加其为客户生产高品质可持续包装解决方案的产能。国际纸业北美包装解决方案执行副总裁兼总裁Tom Hamic表示，此次收购加强了公司在该地区的业务
 
 ## 正文
 
-人民网武汉6月2日电 (记者周雯)6月1日上午，2026年全国粮食和物资储备科技活动周启动仪式在湖北省武汉市举行。
+收购详情 国际纸业公司近日宣布，已从Delmarva Corrugated Packaging手中收购了其位于特拉华州多佛的加工厂。
 
-活动周期间，国家粮食和物资储备局将组织科技服务组奔赴部分产粮大县，开展技术帮扶与科普宣传工作，全国各地也将结合本地实际，举办形式多样、特色鲜明的群众性科技活动。
+交易的财务条款未予披露。
 
-本次科技活动周以“奋进‘十五五’ 科技护粮储”为主题，集中展示“十四五”时期粮食和物资储备领域优秀科技成果与典型应用案例，分类呈现全谷物技术及产品、应急物资储备技术成果以及湖北省粮油创新产品，全方位、系统性展现粮食和物资储备行业科技创新与人才建设丰硕成效。
+战略意义与增长 此次战略性收购将增强国际纸业的运营能力，扩大其市场覆盖范围，并增加其为客户生产高品质可持续包装解决方案的产能。
 
-科技创新与人才队伍建设，是粮食和物资储备事业高质量发展的核心支撑。
+国际纸业北美包装解决方案执行副总裁兼总裁Tom Hamic表示，此次收购加强了公司在该地区的业务版图，并支持其长期增长战略。
 
-记者从启动仪式上获悉，“十五五”时期，我国将深入推进科技和人才兴粮兴储战略，锚定多重发展目标精准发力。
+多佛工厂强大的客户基础和战略位置，将帮助公司以更高的速度和可靠性交付高品质、可持续的包装解决方案。
 
-立足保障国家粮食安全，聚焦行业关键重点环节，全力突破关键核心技术；立足群众健康需求，迭代丰富优质粮油产品供给，让科技创新惠及民生；立足现代化大国储备体系建设，强化体系化科研能力，深化技术集成创新；立足提升应急保障硬实力，践行“闻灾而备、闻令而动”工作理念，加速优质科技成果落地转化；立足夯实行业长远发展后劲，一体化推进教育、科技、人才协同发展，持续提质培优粮食和物资储备人才队伍。
+管理层评价 Delmarva Corrugated Packaging总裁兼首席执行官Dennis D． Mehiel对此次交易表示欣喜，称很难找到比国际纸业更合适的组织来帮助多佛的团队实现业务潜力，并相信此次交易将使公司的所有利益相关者受益。
 
-湖北作为全国粮食主产省、科教资源大省，粮油产业基础雄厚、科创优势突出。
+公司背景 国际纸业是可持续包装解决方案的领导者，此次收购与其为客户、股东和员工创造最大价值的战略相契合。
 
-本次活动期间，湖北省同步启动全省粮食科技周系列活动。
+此前公布的2026年第一季度财报显示，公司营收为59.7亿美元，来自持续经营的收益为7600万美元。
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 03:48 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 03:52 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 04:05 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 04:01 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 04:01 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 04:04 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 03:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 04:08 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 03:59 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 04:05 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 04:15 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 04:16 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 04:14 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 03:59 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 04:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 04:12 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 04:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 03:58 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 04:15 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 04:06 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 04:12 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 04:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 04:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:02 - [电影后室值得看吗](http://www.share.minike.top/Article/details/777254243.shtml)
-- 2026-06-30 04:05 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/842176018348.shtml)
-- 2026-06-30 03:55 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/1950120.shtml)
-- 2026-06-30 03:42 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/54567.shtml)
-- 2026-06-30 03:44 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/8571673.shtml)
-- 2026-06-30 03:48 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/127521543.shtml)
-- 2026-06-30 03:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/189247663.shtml)
-- 2026-06-30 03:52 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/05815606.shtml)
-- 2026-06-30 03:58 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/017500185.shtml)
-- 2026-06-30 03:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/03007416733.shtml)
-- 2026-06-30 04:08 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/720946.shtml)
-- 2026-06-30 03:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/28816334606.shtml)
-- 2026-06-30 04:03 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/99527.shtml)
-- 2026-06-30 04:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/425104589572.shtml)
-- 2026-06-30 03:44 - [恋与深空 日服](http://www.share.minike.top/Article/details/94883.shtml)
+- 2026-06-30 03:49 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/12222.shtml)
+- 2026-06-30 04:14 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/7956150.shtml)
+- 2026-06-30 04:13 - [美人鱼](https://www.share.minike.top/Article/details/1436697671.shtml)
+- 2026-06-30 03:55 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/1675008.shtml)
+- 2026-06-30 04:07 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/747631.shtml)
+- 2026-06-30 03:53 - [点菜也要教吗](https://www.blog.minike.top/Article/details/67286895.shtml)
+- 2026-06-30 04:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/6692319425.shtml)
+- 2026-06-30 04:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/29851.shtml)
+- 2026-06-30 03:48 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/24672.shtml)
+- 2026-06-30 04:07 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/1452238.shtml)
+- 2026-06-30 03:52 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/98424567.shtml)
+- 2026-06-30 03:53 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/596327.shtml)
+- 2026-06-30 04:05 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/27237406565.shtml)
+- 2026-06-30 03:48 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/59313.shtml)
+- 2026-06-30 04:17 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/807559701955.shtml)

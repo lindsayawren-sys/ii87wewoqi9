@@ -1,44 +1,57 @@
-# 美军中央司令部称：海上封锁持续 已累计影响123艘船只
+# 今年第六家！同方全球人寿获准发行10亿资本补充债“补血”
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 09:53 来源：央视新闻 责任编辑：【王祎】
+来源：燕梳师院 近日，深圳金融监管局发布批复，同意同方全球人寿在全国银行间债券市场公开发行不超过10亿元人民币（含）的10年期可赎回资本补充债券，这也是今年以来第六家获准发行资本补充债的保险公司。 图源：深圳监管局 根据批复要求，同方全球人寿需在获得债券市场主管部门发行许可的期限内完成发行事宜，并在发行结束后10个工作日内就发行情况向深圳金融监管局报告。 此次获准发行的资本补充
 
 ## 正文
 
-发布时间：2026年06月01日 09:53 来源：央视新闻 责任编辑：【王祎】
+来源：燕梳师院 近日，深圳金融监管局发布批复，同意同方全球人寿在全国银行间债券市场公开发行不超过10亿元人民币（含）的10年期可赎回资本补充债券，这也是今年以来第六家获准发行资本补充债的保险公司。
+
+图源：深圳监管局 根据批复要求，同方全球人寿需在获得债券市场主管部门发行许可的期限内完成发行事宜，并在发行结束后10个工作日内就发行情况向深圳金融监管局报告。
+
+此次获准发行的资本补充债，将进一步拓宽该公司资本补充渠道，为其业务持续发展提供资本支撑。
+
+公开信息显示，同方全球人寿经营状况稳健，2025年实现净利润12.59亿元，资产规模突破490亿元，重述下同比增长11%，净资产超67亿元，全年累计保险业务收入超90亿元。
+
+同时，公司风险管控能力突出，已连续15个季度在风险综合评级中保持A类，具备良好的发债基础。
+
+业内人士指出，随着偿二代二期规则过渡期临近，险企资本补充需求持续提升，发行资本补充债成为险企补充资本、提升偿付能力的重要方式。
+
+资本补充债可有效缓解险企核心偿付能力充足率紧张问题，且不改变股权结构，对亟需补充资本的险企具有显著优势。
+
+作为今年第六家拿到发债“通行证”的险企，同方全球人寿此举可谓顺势而为。
 
 ## 相关推荐
 
-- 2026-06-30 03:46 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 04:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 03:43 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 03:50 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 03:43 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 03:59 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 04:00 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 03:47 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 03:43 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 04:00 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 03:52 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 04:04 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 04:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 04:11 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 03:55 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 04:09 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 04:02 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 03:54 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 04:03 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 04:01 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 03:52 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 03:55 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 03:54 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:03 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/0526507.shtml)
-- 2026-06-30 03:48 - [金刚川](http://www.share.kurohicncr.top/Article/details/337473337.shtml)
-- 2026-06-30 04:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/094087223651.shtml)
-- 2026-06-30 03:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/037470850.shtml)
-- 2026-06-30 03:54 - [张凌赫 客串](http://www.blog.minike.top/Article/details/1082365045.shtml)
-- 2026-06-30 03:51 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/917315057.shtml)
-- 2026-06-30 03:50 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/66021329411.shtml)
-- 2026-06-30 03:56 - [天道](http://www.blog.minike.top/Article/details/79899.shtml)
-- 2026-06-30 04:10 - [日本淘汰](https://www.blog.minike.top/Article/details/434607903755.shtml)
-- 2026-06-30 03:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/349546682233.shtml)
-- 2026-06-30 03:56 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/532518264203.shtml)
-- 2026-06-30 03:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/864020.shtml)
-- 2026-06-30 03:48 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/184710637.shtml)
-- 2026-06-30 04:11 - [房价什么时候能涨](http://www.share.minike.top/Article/details/26100.shtml)
-- 2026-06-30 04:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/3772849.shtml)
+- 2026-06-30 04:17 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/840932120472.shtml)
+- 2026-06-30 04:04 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/882221013.shtml)
+- 2026-06-30 04:14 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/819248974.shtml)
+- 2026-06-30 03:59 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/74127.shtml)
+- 2026-06-30 04:02 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/833452559.shtml)
+- 2026-06-30 03:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/78301483683.shtml)
+- 2026-06-30 03:52 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/943156.shtml)
+- 2026-06-30 03:51 - [世界杯](http://www.blog.minike.top/Article/details/6248427.shtml)
+- 2026-06-30 04:00 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/4391628689.shtml)
+- 2026-06-30 03:59 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/674612.shtml)
+- 2026-06-30 04:06 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/023574293.shtml)
+- 2026-06-30 03:50 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/15877.shtml)
+- 2026-06-30 04:11 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/96608.shtml)
+- 2026-06-30 04:14 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/324511.shtml)
+- 2026-06-30 04:11 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/499866843.shtml)

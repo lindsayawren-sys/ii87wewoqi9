@@ -1,44 +1,44 @@
-# 万事昌国际附属购入合共60万股中国平安股份
+# 文脉华章｜泱泱中华 文脉不息
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-万事昌国际（00898）发布公告，于2026年6月1日，Ernesto（本公司的间接非全资附属公司）于公开市场购入合共60万股中国平安股份，平均价格约每股60.34港元，总代价约3620万港元（不包括交易成本）。责任编辑：卢昱君
+发布时间：2026年05月18日 20:12 来源：南方网·粤学习 责任编辑：【韦俊龙】
 
 ## 正文
 
-万事昌国际（00898）发布公告，于2026年6月1日，Ernesto（本公司的间接非全资附属公司）于公开市场购入合共60万股中国平安股份，平均价格约每股60.34港元，总代价约3620万港元（不包括交易成本）。
-
-责任编辑：卢昱君
+发布时间：2026年05月18日 20:12 来源：南方网·粤学习 责任编辑：【韦俊龙】
 
 ## 相关推荐
 
-- 2026-06-30 04:11 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 04:07 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 03:42 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 03:50 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 04:07 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 03:42 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 04:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 03:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 03:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 03:57 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 03:59 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 03:51 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 03:52 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 03:50 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 03:58 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 04:16 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 03:51 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 04:11 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 04:05 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 03:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 03:58 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 03:57 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:09 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/711349950.shtml)
-- 2026-06-30 03:54 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/60524.shtml)
-- 2026-06-30 03:58 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/085308.shtml)
-- 2026-06-30 03:59 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/93394369213.shtml)
-- 2026-06-30 04:04 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/75021368821.shtml)
-- 2026-06-30 03:58 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/314293477.shtml)
-- 2026-06-30 03:48 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/3386881419.shtml)
-- 2026-06-30 03:53 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/768265444360.shtml)
-- 2026-06-30 03:54 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/66414.shtml)
-- 2026-06-30 03:47 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/3070727.shtml)
-- 2026-06-30 03:50 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/5263419008.shtml)
-- 2026-06-30 04:06 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/8752439531.shtml)
-- 2026-06-30 04:10 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/3148137.shtml)
-- 2026-06-30 03:45 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/747608945617.shtml)
-- 2026-06-30 04:02 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/97288.shtml)
+- 2026-06-30 04:11 - [苗族银饰](http://www.share.minike.top/Article/details/724684985.shtml)
+- 2026-06-30 03:48 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/20415458063.shtml)
+- 2026-06-30 03:53 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/573794678773.shtml)
+- 2026-06-30 04:15 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/92302369833.shtml)
+- 2026-06-30 04:00 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/971888779.shtml)
+- 2026-06-30 03:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/43129.shtml)
+- 2026-06-30 04:02 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/2297148636.shtml)
+- 2026-06-30 04:00 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/12725043981.shtml)
+- 2026-06-30 03:57 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/923079.shtml)
+- 2026-06-30 04:12 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/8992273294.shtml)
+- 2026-06-30 03:56 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/8036582.shtml)
+- 2026-06-30 03:51 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/44647956.shtml)
+- 2026-06-30 03:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/3749434348.shtml)
+- 2026-06-30 03:58 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/02115969697.shtml)
+- 2026-06-30 04:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/245861.shtml)

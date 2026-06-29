@@ -1,61 +1,58 @@
-# 宁夏新型储能装机突破1000万千瓦
+# 陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-中新社银川6月1日电 (记者 于晶)记者6月1日从国网宁夏电力有限公司获悉，宁夏新型储能装机规模突破1000万千瓦大关，标志着宁夏正式迈入千万千瓦级储能大省行列，在储能赛道上跻身中国第一方阵。 作为中国首个新能源综合示范区，宁夏新能源发展势头强劲。“十四五”以来，宁夏新增新能源装机3158.3万千瓦，截至2025年底总装机达5732万千瓦，装机占比已达65.5%，新能源成为宁夏
+中新社香港5月17日电 香港特区政府财政司司长陈茂波17日发表网志表示，近期不同国际机构对香港的客观认可，反映外界更了解香港的最新发展与未来潜力。这些认可不仅反映香港经济基调良好、前景正面，也有助于吸引更多国际长期资金投资香港。陈茂波称，国际货币基金组织近日发表最新报告，肯定香港作为国际金融中心及“超级联系人”的角色，并认同包括发展北部都会区在内的各项政策措施，有助于香港发展创
 
 ## 正文
 
-中新社银川6月1日电 (记者 于晶)记者6月1日从国网宁夏电力有限公司获悉，宁夏新型储能装机规模突破1000万千瓦大关，标志着宁夏正式迈入千万千瓦级储能大省行列，在储能赛道上跻身中国第一方阵。
+中新社香港5月17日电 香港特区政府财政司司长陈茂波17日发表网志表示，近期不同国际机构对香港的客观认可，反映外界更了解香港的最新发展与未来潜力。
 
-作为中国首个新能源综合示范区，宁夏新能源发展势头强劲。
+这些认可不仅反映香港经济基调良好、前景正面，也有助于吸引更多国际长期资金投资香港。
 
-“十四五”以来，宁夏新增新能源装机3158.3万千瓦，截至2025年底总装机达5732万千瓦，装机占比已达65.5%，新能源成为宁夏第一大电源。
+陈茂波称，国际货币基金组织近日发表最新报告，肯定香港作为国际金融中心及“超级联系人”的角色，并认同包括发展北部都会区在内的各项政策措施，有助于香港发展创科与高增值服务，支持经济增长与经济结构转型。
 
-面对大规模并网带来的消纳挑战，宁夏将储能产业作为构建新型电力系统、破解消纳难题、保障电网安全的核心抓手。
+国际评级机构穆迪与惠誉亦确认香港的信贷评级和“稳定”展望。
 
-宁夏先后出台储能专项发展方案，创新推行容量电价保底等政策，稳定市场预期。
+他强调，这些认可不仅反映香港经济基调良好、前景正面、公共财政稳健，更说明持续沟通讲解，能让国际机构更充分地了解香港的现状、发展方向和机遇。
 
-电网企业聚焦新能源富集片区、电网关键节点和负荷中心精准布点，推动储能从试点示范迈向规模化、集群化发展新阶段。
+它们的评估等资讯能为全球投资者与工商金融界提供参考，有助于吸引更多国际长期资金投资香港。
 
-宁夏通过常态化开展并网技术校验和安全隐患排查，持续优化源网荷储协同机制。
+近期市场动向亦印证香港营商环境的吸引力和经济前景，不少机构落户或扩大在港投资，增聘人手与扩充办公室，推出更多创新服务与产品。
 
-2026年1月至5月，储能应用使新能源利用率提升约5个百分点，充放电效率和资源盘活效能稳居西北前列。
+陈茂波指出，国家正大力发展新质生产力，加快推动人工智能、生物医药等战略性新兴产业发展，前瞻布局未来产业。
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 04:04 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 03:48 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 03:42 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 03:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 03:56 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 03:50 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 03:46 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 03:42 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 03:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 03:56 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 03:51 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 04:11 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 03:45 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 03:56 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 03:49 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 04:07 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 04:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 04:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 03:48 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 04:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 04:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 04:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 04:06 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 03:57 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 04:09 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 04:05 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:06 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/63569.shtml)
-- 2026-06-30 03:55 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/940249271.shtml)
-- 2026-06-30 03:44 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/13315.shtml)
-- 2026-06-30 03:59 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/0209965376.shtml)
-- 2026-06-30 03:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/67570.shtml)
-- 2026-06-30 03:42 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/6431542.shtml)
-- 2026-06-30 04:09 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/612075838.shtml)
-- 2026-06-30 03:46 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/320496360.shtml)
-- 2026-06-30 03:52 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/4308457083.shtml)
-- 2026-06-30 04:00 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/53502536097.shtml)
-- 2026-06-30 03:58 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/99832923398.shtml)
-- 2026-06-30 04:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/13334255788.shtml)
-- 2026-06-30 04:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/417491.shtml)
-- 2026-06-30 04:08 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/842060.shtml)
-- 2026-06-30 03:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/86434416836.shtml)
+- 2026-06-30 03:51 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/93772825541.shtml)
+- 2026-06-30 03:48 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/4485731.shtml)
+- 2026-06-30 04:10 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/64420559417.shtml)
+- 2026-06-30 03:50 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/954608352.shtml)
+- 2026-06-30 04:11 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/77391351630.shtml)
+- 2026-06-30 04:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/732297028.shtml)
+- 2026-06-30 04:12 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/36241182745.shtml)
+- 2026-06-30 04:14 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/5245691557.shtml)
+- 2026-06-30 04:13 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/99241406878.shtml)
+- 2026-06-30 04:02 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/9277774324.shtml)
+- 2026-06-30 04:16 - [蔚来车主罚站](https://www.share.minike.top/Article/details/697088.shtml)
+- 2026-06-30 03:53 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/69485230.shtml)
+- 2026-06-30 04:03 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/288931652.shtml)
+- 2026-06-30 04:17 - [周生如故](http://www.share.minike.top/Article/details/6096226358.shtml)
+- 2026-06-30 04:09 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/65056000899.shtml)

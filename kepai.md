@@ -1,44 +1,61 @@
-# 记者观察：一线城市房地产合理需求不断有序释放
+# 主播说联播丨护航民营经济发展，再出实招
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:21 来源：央视新闻 责任编辑：【王祎】
+如何助力民营经济发展壮大？市场监管总局发文，部署34项重点工作任务，聚焦强化民营经济法治政策保障、维护公平竞争市场秩序等方面。 近日，市场监管总局印发了《市场监管部门促进民营经济发展壮大2026年工作要点》，目的很明确，就是以更优环境、更实举措、更强支撑，推动民营经济高质量发展。 2026年工作要点一共部署了34项重点工作任务，每一项都聚焦民营企业的“急难愁盼”。比如，在强化民
 
 ## 正文
 
-发布时间：2026年06月02日 10:21 来源：央视新闻 责任编辑：【王祎】
+如何助力民营经济发展壮大？
+
+市场监管总局发文，部署34项重点工作任务，聚焦强化民营经济法治政策保障、维护公平竞争市场秩序等方面。
+
+近日，市场监管总局印发了《市场监管部门促进民营经济发展壮大2026年工作要点》，目的很明确，就是以更优环境、更实举措、更强支撑，推动民营经济高质量发展。
+
+2026年工作要点一共部署了34项重点工作任务，每一项都聚焦民营企业的“急难愁盼”。
+
+比如，在强化民营经济法治政策保障方面，完善公平竞争法律制度体系与涉企收费监管制度。
+
+今年将出台《涉企收费违法违规行为处理办法》，进一步规范收费，斩断乱伸的手，就是为民企真金白银地减负。
+
+在维护公平竞争市场秩序方面，坚决破除壁垒，深入整治“内卷式”竞争。
+
+此前，市场监管总局曾发布典型案件，并约谈多家平台企业，要求杜绝各种形式的“内卷式”竞争。
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 04:03 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 03:50 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 03:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 03:47 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 03:50 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 04:00 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 03:47 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 03:52 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 03:54 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 04:02 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 03:47 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 04:17 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 04:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 04:10 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 03:50 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 04:01 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 04:02 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 03:48 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 03:58 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 03:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 03:51 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 03:51 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 04:15 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 04:11 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 03:49 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 04:15 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:51 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/724491442.shtml)
-- 2026-06-30 03:52 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/30799362109.shtml)
-- 2026-06-30 03:49 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/6650860067.shtml)
-- 2026-06-30 03:58 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/187233007565.shtml)
-- 2026-06-30 03:50 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/01329.shtml)
-- 2026-06-30 04:00 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/81253057.shtml)
-- 2026-06-30 04:07 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/120802569.shtml)
-- 2026-06-30 03:58 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/30999282.shtml)
-- 2026-06-30 03:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/61196146.shtml)
-- 2026-06-30 03:56 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/86193506.shtml)
-- 2026-06-30 04:11 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/90349751.shtml)
-- 2026-06-30 04:02 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/2398255719.shtml)
-- 2026-06-30 04:00 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/14948506444.shtml)
-- 2026-06-30 03:50 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/382627350906.shtml)
-- 2026-06-30 04:06 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/6475782987.shtml)
+- 2026-06-30 04:06 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/767485776.shtml)
+- 2026-06-30 04:15 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/602421858552.shtml)
+- 2026-06-30 04:06 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/683408.shtml)
+- 2026-06-30 04:01 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/3318464.shtml)
+- 2026-06-30 03:48 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/21443.shtml)
+- 2026-06-30 03:56 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/871299908.shtml)
+- 2026-06-30 03:52 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/073167931008.shtml)
+- 2026-06-30 04:16 - [我和我的家乡](https://www.blog.minike.top/Article/details/8703522.shtml)
+- 2026-06-30 03:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/397642815786.shtml)
+- 2026-06-30 04:07 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/56575007078.shtml)
+- 2026-06-30 04:06 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/446261692.shtml)
+- 2026-06-30 04:03 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/21127510.shtml)
+- 2026-06-30 04:13 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/6799986406.shtml)
+- 2026-06-30 04:17 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/468707732.shtml)
+- 2026-06-30 04:17 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/0573127.shtml)

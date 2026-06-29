@@ -1,46 +1,56 @@
-# 绿城管理控股获执行董事聂焕新增持5万股 每股作价2港元
+# 辽宁鞍山启动“东北超·鞍山潮”主题行动 凭赛事凭证享系列优惠
 
-> 更新时间：2026-06-30 04:12:03 UTC+8
+> 更新时间：2026-06-30 04:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月28日，执行董事聂焕新增持绿城管理控股（09979）5万股，每股作价2港元，总金额为10万港元。增持后最新持股数目为64.6万股，最新持股比例为0.03%。责任编辑：卢昱君
+中新网鞍山5月17日电(杨茜茜)辽宁省鞍山市人民政府新闻办公室16日召开新闻发布会，宣布启动“东北超(辽超)·鞍山潮”全域系列主题行动。从本年度赛事开始至明年赛事开幕，持赛事有效凭证可享受全部专属优惠。 行动围绕“潮游”“潮味”“潮浴”“潮乐”“潮饮”等十六个主题展开。其中，全市国有景区凭票根免门票，13家收费民营景区提供5至9折优惠；市内常规公交免费乘坐。鞍山大剧院、德利宫大
 
 ## 正文
 
-香港联交所最新资料显示，5月28日，执行董事聂焕新增持绿城管理控股（09979）5万股，每股作价2港元，总金额为10万港元。
+中新网鞍山5月17日电(杨茜茜)辽宁省鞍山市人民政府新闻办公室16日召开新闻发布会，宣布启动“东北超(辽超)·鞍山潮”全域系列主题行动。
 
-增持后最新持股数目为64.6万股，最新持股比例为0.03%。
+从本年度赛事开始至明年赛事开幕，持赛事有效凭证可享受全部专属优惠。
 
-责任编辑：卢昱君
+行动围绕“潮游”“潮味”“潮浴”“潮乐”“潮饮”等十六个主题展开。
+
+其中，全市国有景区凭票根免门票，13家收费民营景区提供5至9折优惠；市内常规公交免费乘坐。
+
+鞍山大剧院、德利宫大剧院等文娱场所提供7至9折不等的折扣。
+
+此外，还将举办啤酒嘉年华、萌宠嘉年华、全民大舞台等活动，并开发赛事纪念服饰、岫玉工艺品等文创产品。
+
+为放大赛事经济效应，鞍山将在全市打造赛事“第二现场”。
+
+5月23日与“东北超”开球同步举行启动仪式，设置超大观赛屏幕，配套美食、文创等消费业态。
 
 ## 相关推荐
 
-- 2026-06-30 03:51 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 03:54 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 03:42 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 04:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 04:08 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 04:09 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 03:43 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 04:11 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 04:09 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 04:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 04:16 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-30 03:58 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 04:12 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 03:54 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 04:01 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 04:03 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 03:54 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 03:49 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 03:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 03:57 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:10 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/983956.shtml)
-- 2026-06-30 04:10 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/7142311.shtml)
-- 2026-06-30 03:56 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/3466778.shtml)
-- 2026-06-30 03:55 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/94301923193.shtml)
-- 2026-06-30 03:44 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/723884099381.shtml)
-- 2026-06-30 03:49 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/71166.shtml)
-- 2026-06-30 04:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/538769920.shtml)
-- 2026-06-30 03:50 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/8931011480.shtml)
-- 2026-06-30 03:53 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/660516003.shtml)
-- 2026-06-30 03:50 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/9746407764.shtml)
-- 2026-06-30 04:01 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/793828.shtml)
-- 2026-06-30 03:44 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/91772305.shtml)
-- 2026-06-30 03:50 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/443089625695.shtml)
-- 2026-06-30 04:11 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/58459339159.shtml)
-- 2026-06-30 03:56 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/47494.shtml)
+- 2026-06-30 04:07 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/91061706125.shtml)
+- 2026-06-30 03:54 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/370643.shtml)
+- 2026-06-30 04:01 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/4903462.shtml)
+- 2026-06-30 03:57 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/81038815346.shtml)
+- 2026-06-30 03:49 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/77738775.shtml)
+- 2026-06-30 04:05 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/64392852754.shtml)
+- 2026-06-30 04:08 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/209557.shtml)
+- 2026-06-30 04:04 - [日本进球](https://www.blog.kurohicncr.top/Article/details/32907477462.shtml)
+- 2026-06-30 04:05 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/6246297179.shtml)
+- 2026-06-30 03:48 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/30262.shtml)
+- 2026-06-30 03:54 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/09816.shtml)
+- 2026-06-30 03:53 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/23459725.shtml)
+- 2026-06-30 04:01 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/77818142.shtml)
+- 2026-06-30 04:09 - [刘念回应](http://www.share.kurohicncr.top/Article/details/45194264.shtml)
+- 2026-06-30 04:07 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/5994918825.shtml)
