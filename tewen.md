@@ -1,59 +1,54 @@
-# 印度Zee公司就涉嫌侵犯音乐版权一事起诉信实-迪士尼
+# 2026陆家嘴论坛召开 上海离岸金融行动方案发布
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-法庭文件显示，印度Zee娱乐公司已起诉该国最大的娱乐公司——信实-迪士尼合资企业，指控其在许可协议到期后仍使用了Zee拥有版权的音乐。 此前未公开的法庭文件显示，Zee公司正寻求300万美元的赔偿，指控信实-迪士尼在流媒体平台及其部分电视频道上未经授权使用并利用了其音乐部门的作品。 这起在新德里提起的诉讼由路透首次报道，标志着Zee与由信实集团和迪士尼2024年85亿美元合并组
+发布时间：2026年06月17日 18:18 来源：中国新闻网 6月17日，2026陆家嘴论坛在上海开幕。中国人民银行行长潘功胜在论坛上表示，在上海自贸区开展离岸人民币外汇交易试点。将授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。未来，将根据试点情况，进一步推动离岸人民币外汇交易市场发展。 潘功胜介绍，人民银行即将
 
 ## 正文
 
-法庭文件显示，印度Zee娱乐公司已起诉该国最大的娱乐公司——信实-迪士尼合资企业，指控其在许可协议到期后仍使用了Zee拥有版权的音乐。
+发布时间：2026年06月17日 18:18 来源：中国新闻网 6月17日，2026陆家嘴论坛在上海开幕。
 
-此前未公开的法庭文件显示，Zee公司正寻求300万美元的赔偿，指控信实-迪士尼在流媒体平台及其部分电视频道上未经授权使用并利用了其音乐部门的作品。
+中国人民银行行长潘功胜在论坛上表示，在上海自贸区开展离岸人民币外汇交易试点。
 
-这起在新德里提起的诉讼由路透首次报道，标志着Zee与由信实集团和迪士尼2024年85亿美元合并组建的集团之间最新的法律冲突。
+将授权工行、农行、中行、建行、交行、中信等6家银行，利用中国外汇交易中心平台在上海自贸区开展离岸人民币外汇交易。
 
-随着印度流媒体和广播市场的整合，这场纠纷凸显了内容权利方面日益加剧的紧张局势。
+未来，将根据试点情况，进一步推动离岸人民币外汇交易市场发展。
 
-Zee集团与JioStar（由印度亿万富翁穆克什·安巴尼旗下的信实集团主导的信实-迪士尼合资企业）均拒绝置评。
+潘功胜介绍，人民银行即将出台多项政策举措，包括完善短端利率调控机制，创设境外央行回购工具，研究设立特定情景非银流动性支持宏观审慎工具，会同上海市政府和有关部门出台《上海国际金融中心发展离岸金融行动方案》，以及银行间市场数据报告库正式挂牌等内容。
 
-Zee与信实集团目前还在伦敦进行仲裁，信实集团要求Zee就其2024年退出板球授权协议一事赔偿10亿美元 。
+据介绍，《上海国际金融中心发展离岸金融行动方案》从支持在浦东新区开展离岸金融先行先试、资金流动与账户管理、数字化应用、离岸金融业务、离岸金融法律制度体系、离岸金融监管和风险防控、统筹推进实施等方面提出重点举措，对加快上海国际金融中心建设和在更深层次、更宽领域推进金融高水平开放具有重要意义。
 
-Zee否认存在任何不当行为，并正在对该索赔提出异议。
-
-Zee在4月14日提交的1，800页诉讼文件中指控，在2024年和2025年某些授权协议到期且因商业条款分歧未获续签后，信实-迪士尼仍至少50次使用了其音乐作品。
+高志苗 康玉湛 徐银上海报道 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 06:02 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 05:52 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 05:48 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 06:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 05:49 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 06:00 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 05:54 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 05:57 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 06:02 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 06:08 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 06:09 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 05:52 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 05:59 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 05:53 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 06:04 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 06:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 05:55 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 05:48 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 06:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 06:16 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 06:10 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 05:53 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/293301.shtml)
-- 2026-06-30 05:49 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/6294379.shtml)
-- 2026-06-30 06:01 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/05104.shtml)
-- 2026-06-30 06:10 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/00708.shtml)
-- 2026-06-30 05:56 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/7692002898.shtml)
-- 2026-06-30 05:45 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/866439830110.shtml)
-- 2026-06-30 05:42 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/846018112205.shtml)
-- 2026-06-30 05:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/30868.shtml)
-- 2026-06-30 05:43 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/735523024.shtml)
-- 2026-06-30 05:52 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/95730385.shtml)
-- 2026-06-30 05:52 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/157940994652.shtml)
-- 2026-06-30 05:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/22198.shtml)
-- 2026-06-30 05:58 - [恋与深空 巧合](https://www.share.minike.top/Article/details/1267189.shtml)
-- 2026-06-30 05:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/09229518.shtml)
-- 2026-06-30 05:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/129422606.shtml)
+- 2026-06-30 06:09 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/7253396.shtml)
+- 2026-06-30 06:08 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/2161494966.shtml)
+- 2026-06-30 06:16 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/5848593823.shtml)
+- 2026-06-30 06:05 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/02041099.shtml)
+- 2026-06-30 06:07 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/82269674.shtml)
+- 2026-06-30 06:07 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/17754884.shtml)
+- 2026-06-30 05:57 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/7465660370.shtml)
+- 2026-06-30 06:04 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/06799.shtml)
+- 2026-06-30 05:52 - [毒液2](http://www.share.kurohicncr.top/Article/details/972971797.shtml)
+- 2026-06-30 05:54 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/786371.shtml)
+- 2026-06-30 05:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/222307746683.shtml)
+- 2026-06-30 06:17 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/148818.shtml)
+- 2026-06-30 05:52 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/1336752.shtml)
+- 2026-06-30 06:08 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/4050901253.shtml)
+- 2026-06-30 06:11 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/42592.shtml)

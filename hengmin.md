@@ -1,53 +1,61 @@
-# 大风蓝色预警！京津冀等10余省区市部分地区阵风可达7至8级
+# 国际油价跳水大跌4%，布油跌破80美元，特朗普称19日前将实现霍尔木兹海峡全面重开
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中国天气网讯 中央气象台5月5日18时发布大风蓝色预警： 预计，5月5日20时至6日20时，内蒙古大部、新疆大部、西藏中西部、青海大部、甘肃河西、西北地区东部、山西北部、河北北部和南部、北京、天津、东北地区中南部、山东北部、河南北部等地部分地区有5～6级风，阵风7～8级，其中新疆东部山口、内蒙古中西部、青海北部等地部分地区风力可达7～8级，阵风9级；渤海、渤海海峡、黄海北部和中
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日晚，国际油价加速下跌，截至20点35分，纽约原油跌4.05%，报76.23美元/桶；布伦特原油跌4.07%，报79.78美元/桶，跌破80美元大关。 黄金、白银短线上扬，现货黄金报4343.97美元/盎司，日内涨0.81%，现货白银报70.74美元/盎司，日内涨逾1%。 消息面上，据新华社报道，美
 
 ## 正文
 
-中国天气网讯 中央气象台5月5日18时发布大风蓝色预警： 预计，5月5日20时至6日20时，内蒙古大部、新疆大部、西藏中西部、青海大部、甘肃河西、西北地区东部、山西北部、河北北部和南部、北京、天津、东北地区中南部、山东北部、河南北部等地部分地区有5～6级风，阵风7～8级，其中新疆东部山口、内蒙古中西部、青海北部等地部分地区风力可达7～8级，阵风9级；渤海、渤海海峡、黄海北部和中部部分海域将有7级风、阵风8~9级。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-预计，5月6日20时至7日20时，内蒙古中东部、河北北部、北京、天津、山东中西部、河南中北部、苏皖北部、新疆沿天山地区和南疆盆地、青海北部和南部、西藏等地部分地区有5～6级风，阵风7～8级；渤海、渤海海峡、黄海北部和中部部分海域将有7级风、阵风8~9级。
+6月15日晚，国际油价加速下跌，截至20点35分，纽约原油跌4.05%，报76.23美元/桶；布伦特原油跌4.07%，报79.78美元/桶，跌破80美元大关。
 
-防御指南： 1、中央气象台、中国海上搜救中心提醒受大风影响海域航行、作业的船舶，注意航行安全； 2、森林、草场、城区防火部门做好防火准备，机场、铁路、公路等交通管理部门应采取措施保障交通安全； 3、停止高空、水上户外作业和游乐活动，加固或妥善安置围板、棚架广告牌、简易设施等易被大风吹动的搭建物； 4、行人与车辆不要在高大建筑物、广告牌等临时建筑物，或树的下方停留。
+黄金、白银短线上扬，现货黄金报4343.97美元/盎司，日内涨0.81%，现货白银报70.74美元/盎司，日内涨逾1%。
 
-来源：中国天气网
+消息面上，据新华社报道，美国总统特朗普16日称，将在19日前实现霍尔木兹海峡全面重开。
+
+伊朗副外长拉万奇当天表示，美国解除对伊朗封锁“已在一定程度上得到落实”。
+
+另据新华社报道，美国总统特朗普16日称，美国和伊朗协议谈判已进入第二阶段，“这应该比第一阶段更容易”。
+
+特朗普表示，美国不会在伊朗投入任何资金。
+
+对他而言“唯一重要的事”是伊朗永远不会拥有核武器，如果伊朗政府企图获取核武器，伊朗将“遭受毁灭性打击”。
 
 ## 相关推荐
 
-- 2026-06-30 06:08 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 05:55 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 05:46 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 05:50 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 05:53 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 05:53 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 05:49 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 05:55 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 05:51 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 05:59 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 06:04 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 06:06 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 06:10 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 05:43 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 05:59 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 05:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 06:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 06:15 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 06:14 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 06:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 06:10 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 06:06 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 05:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 06:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 06:10 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 05:54 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 06:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 06:12 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 06:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 06:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/8374092103.shtml)
-- 2026-06-30 05:48 - [青春环游记第三季](https://www.blog.minike.top/Article/details/5501425.shtml)
-- 2026-06-30 05:43 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/863511.shtml)
-- 2026-06-30 06:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/903043473244.shtml)
-- 2026-06-30 06:01 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/2724310076.shtml)
-- 2026-06-30 06:01 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/535653.shtml)
-- 2026-06-30 05:59 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/484770238.shtml)
-- 2026-06-30 05:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/9280943800.shtml)
-- 2026-06-30 06:05 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/889586477.shtml)
-- 2026-06-30 05:51 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/4463925124.shtml)
-- 2026-06-30 06:07 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/590617.shtml)
-- 2026-06-30 06:09 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/09453722.shtml)
-- 2026-06-30 05:44 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/594685565972.shtml)
-- 2026-06-30 06:09 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/850896588.shtml)
-- 2026-06-30 06:03 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/3966518.shtml)
+- 2026-06-30 05:48 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/735586036.shtml)
+- 2026-06-30 05:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/80306280095.shtml)
+- 2026-06-30 05:52 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/3487463.shtml)
+- 2026-06-30 06:09 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/02638.shtml)
+- 2026-06-30 06:07 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/802971244893.shtml)
+- 2026-06-30 06:11 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/512145899771.shtml)
+- 2026-06-30 06:04 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/19314850.shtml)
+- 2026-06-30 05:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/830198586599.shtml)
+- 2026-06-30 06:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/188262.shtml)
+- 2026-06-30 06:08 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/31742963721.shtml)
+- 2026-06-30 06:07 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/6914102006.shtml)
+- 2026-06-30 05:50 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/538702.shtml)
+- 2026-06-30 06:16 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/8160657.shtml)
+- 2026-06-30 06:10 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/81285017221.shtml)
+- 2026-06-30 06:11 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/87640.shtml)

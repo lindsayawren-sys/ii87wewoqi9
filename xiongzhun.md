@@ -1,59 +1,57 @@
-# 美国汽油价格突破每加仑4.50美元 为2022年7月以来首次
+# 中国国防部：所谓“中国间谍威胁”是“五眼联盟”贼喊捉贼套路
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-美国汽油价格自2022年7月以来首次突破每加仑4.50美元，中东地区冲突持续给司机们带来了更大压力。 据美国汽车协会数据，周二全美普通无铅汽油的平均零售价升至每加仑4.54美元，距离2022年6月创下的每加仑5.01美元的纪录高位仅差约50美分。从季节性角度看，目前的汽油价格已经达到了同期最高水平。 美国汽油价格最高的地区是加利福尼亚州，已超过每加仑6美元。中西部的汽油价格也在
+中新社北京6月16日电 (记者 李纯)中国国防部新闻发言人陈曦16日就近期涉军问题发布消息。他指出，“五眼联盟”反复炒作所谓“中国间谍威胁”，迄今拿不出任何证据，完全是捕风捉影、别有用心的捏造。 有记者问及，“五眼联盟”情报机构称，中国军事情报机构利用网上就业平台招聘西方国家政府工作人员。近日，美方宣布查封13个疑似中国情报部门用来获取信息的互联网域名。 对此，陈曦指出，这是“
 
 ## 正文
 
-美国汽油价格自2022年7月以来首次突破每加仑4.50美元，中东地区冲突持续给司机们带来了更大压力。
+中新社北京6月16日电 (记者 李纯)中国国防部新闻发言人陈曦16日就近期涉军问题发布消息。
 
-据美国汽车协会数据，周二全美普通无铅汽油的平均零售价升至每加仑4.54美元，距离2022年6月创下的每加仑5.01美元的纪录高位仅差约50美分。
+他指出，“五眼联盟”反复炒作所谓“中国间谍威胁”，迄今拿不出任何证据，完全是捕风捉影、别有用心的捏造。
 
-从季节性角度看，目前的汽油价格已经达到了同期最高水平。
+有记者问及，“五眼联盟”情报机构称，中国军事情报机构利用网上就业平台招聘西方国家政府工作人员。
 
-美国汽油价格最高的地区是加利福尼亚州，已超过每加仑6美元。
+近日，美方宣布查封13个疑似中国情报部门用来获取信息的互联网域名。
 
-中西部的汽油价格也在迅速上涨，部分州接近每加仑5美元。
+对此，陈曦指出，这是“五眼联盟”惯用的贼喊捉贼套路。
 
-高企的油价加重了驾驶者的经济负担，推高了通胀，并严重打击消费者信心。
+他们反复炒作所谓“中国间谍威胁”，迄今拿不出任何证据，完全是捕风捉影、别有用心的捏造。
 
-责任编辑：刘明亮
+反而是该联盟长期无底线搞间谍窃密活动，已是尽人皆知的事实。
+
+中方要求有关方摒弃冷战思维，停止虚假叙事，回归客观理性的对华政策轨道。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 06:02 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 06:03 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 06:07 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 05:59 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 06:07 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 05:49 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 06:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 05:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 06:00 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 05:44 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 05:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 05:56 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 06:10 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 06:11 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 06:09 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 05:59 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 05:56 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 06:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 05:50 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 06:01 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 06:05 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 06:10 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 06:13 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 05:52 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 06:03 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:44 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/38909319976.shtml)
-- 2026-06-30 06:03 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/87297557020.shtml)
-- 2026-06-30 05:58 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/367708.shtml)
-- 2026-06-30 06:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/04431.shtml)
-- 2026-06-30 05:50 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/97736772450.shtml)
-- 2026-06-30 06:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/9072028.shtml)
-- 2026-06-30 05:55 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/46140511.shtml)
-- 2026-06-30 06:11 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/95622178.shtml)
-- 2026-06-30 05:58 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/78959.shtml)
-- 2026-06-30 05:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/507101075689.shtml)
-- 2026-06-30 05:43 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/48526121.shtml)
-- 2026-06-30 06:09 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/9599040.shtml)
-- 2026-06-30 06:08 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/46041514516.shtml)
-- 2026-06-30 05:53 - [千与千寻](https://www.share.minike.top/Article/details/94502801323.shtml)
-- 2026-06-30 05:42 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/28935.shtml)
+- 2026-06-30 05:53 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/39802.shtml)
+- 2026-06-30 06:01 - [斛珠夫人](https://www.blog.minike.top/Article/details/2860821.shtml)
+- 2026-06-30 06:12 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/9912787000.shtml)
+- 2026-06-30 05:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/436421262.shtml)
+- 2026-06-30 05:58 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/86358568709.shtml)
+- 2026-06-30 06:05 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/85292812074.shtml)
+- 2026-06-30 06:05 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/8480310818.shtml)
+- 2026-06-30 06:03 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/03615.shtml)
+- 2026-06-30 05:56 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/93691.shtml)
+- 2026-06-30 06:10 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/88736350.shtml)
+- 2026-06-30 05:53 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/9579977.shtml)
+- 2026-06-30 06:18 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/946979764512.shtml)
+- 2026-06-30 06:08 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/7955822864.shtml)
+- 2026-06-30 05:48 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/97579992.shtml)
+- 2026-06-30 06:13 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/34565369084.shtml)

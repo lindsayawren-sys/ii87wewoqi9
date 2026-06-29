@@ -1,57 +1,57 @@
-# 华泰期货：生猪价格月中触底反弹，整体情绪回升
+# 利率走廊区间缩窄至50BP！央行优化临时隔夜正/逆回购操作机制，加减点均调整为25BP
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 薛钧元 生猪市场要闻与重要数据 期货方面2025年12月31日收盘生猪2603合约收盘11795元/吨，较上月上涨545元/吨，涨幅4.84%。现货方面，河南地区外三元生猪价格11.67元/公斤，较上月下跌0.11元/公斤，现货基差LH03-125，环比下跌655；江苏地区外三元生猪价格11.90元/公斤，较上月下跌0.01元/公斤，现货基差LH03+1
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 每经记者|张寿林 每经编辑|廖丹 6月17日，中国人民银行行长潘功胜在“2026陆家嘴论坛”上宣布即将出台的政策措施。 其中提到，为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化。在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，
 
 ## 正文
 
-来源：华泰期货 作者： 薛钧元 生猪市场要闻与重要数据 期货方面2025年12月31日收盘生猪2603合约收盘11795元/吨，较上月上涨545元/吨，涨幅4.84%。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 每经记者|张寿林 每经编辑|廖丹 6月17日，中国人民银行行长潘功胜在“2026陆家嘴论坛”上宣布即将出台的政策措施。
 
-现货方面，河南地区外三元生猪价格11.67元/公斤，较上月下跌0.11元/公斤，现货基差LH03-125，环比下跌655；江苏地区外三元生猪价格11.90元/公斤，较上月下跌0.01元/公斤，现货基差LH03+105，环比下跌555；四川地区外三元生猪价格11.94元/公斤，较上月上涨0.47元/公斤，现货基差LH03+145，环比下跌75。
+其中提到，为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化。
 
-供应方面，样本显示11月能繁母猪存栏量为502.94万头，环比下降0.37%；11月份能繁母猪淘汰量为11.24万头，环比涨幅5.05%，同比涨幅14.63%；中小散样本场月内能繁母猪淘汰量为1.16万头，环比涨幅1.38%，同比涨幅29.36%；11月规模场样本点商品猪存栏量为3700.59万头，环比增加0.32%，同比增加5.28%。
+在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，并将操作利率调整为7天期逆回购操作利率加、减25个基点，区间由70个基点收窄为50个基点。
 
-中小散样本企业11月份存栏量为155.73万头，环比减少0.07%，同比上涨6.94%；12月全国外三元生猪出栏均重为123.60公斤，较上月微涨0.06公斤，环比涨幅0.05%，同比涨幅0.08%。
+中信证券首席经济学家明明团队分析，这一方面缩窄了利率走廊的上下限，进一步强化了央行对于资金利率的把控，另一方面明确了隔夜利率DR001的基准利率定位。
 
-需求方面，12月屠宰企业开工率39.44%，较上月增加5.32个百分点，同比增加3.76个百分点；库存方面，12月国内重点屠宰企业冻品库容率17.91%，下滑0.39个百分点。
+记者了解到，2024年7月，人民银行宣布，为保持银行体系流动性合理充裕，提高公开市场操作的精准性和有效性，从即日起，人民银行将视情况开展临时正回购或临时逆回购操作，时间为工作日16：00至16：20，期限为隔夜，采用固定利率、数量招标，临时隔夜正、逆回购操作的利率分别为7天期逆回购操作利率减点20BP（基点）和加点50BP。
 
-参考咨询来源：钢联数据 市场分析 4月全国生猪价格先行持续探底至刷新历史低点后，在月中旬开启触底反弹节奏，节前养殖端缩量和下游备货程度均不及预期，价格在月末出现小幅回落调整。
+时隔近两年，该项政策获调整，将利率走廊宽度从70基点收窄至50基点，此外对应工具操作时间也有所提前。
 
-在市场整体供大于需格局主导下，月度均价重心环比较3月下滑。
+临时隔夜正/逆回购操作时间调整为工作日15：00至15：30，并进一步明确工具使用规则，在货币市场隔夜利率（DR001）持续低于或高于相应工具操作利率时，中国人民银行将结合一级交易商需求启动相应操作。
 
-后续基于供应压力的边际改善，年内猪价底部在4月已经出现较为确定，二季度月度价格重心有望在供应压力缓解下整体维持震荡上行趋势，但由于全年供应基数偏大的事实，价格不具备大幅反弹的基础。
+中信证券首席经济学家明明团队分析，相比于2024年设立的临时隔夜正/逆回购工具，本次一方面缩窄了利率走廊的上下限，进一步强化了央行对于资金利率的把控，另一方面明确了隔夜利率DR001的基准利率定位，而“在货币市场隔夜利率（DR001）持续低于或高于相应工具操作利率时”采取操作的表述，明确了央行主动管理性质的利率走廊机制。
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 06:06 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 05:43 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 05:47 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 05:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 05:43 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 05:45 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 05:53 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 05:52 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 05:53 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 05:54 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 06:06 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 06:03 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 06:08 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 06:00 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 06:05 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 06:04 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 05:58 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 06:04 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 06:03 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 06:03 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 05:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:54 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/231061612907.shtml)
-- 2026-06-30 06:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/55513016334.shtml)
-- 2026-06-30 05:48 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/9197255.shtml)
-- 2026-06-30 05:43 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/48291610526.shtml)
-- 2026-06-30 05:55 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/676309683.shtml)
-- 2026-06-30 06:01 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/516430.shtml)
-- 2026-06-30 06:09 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/161958348381.shtml)
-- 2026-06-30 05:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/6319703391.shtml)
-- 2026-06-30 06:08 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/9452924.shtml)
-- 2026-06-30 05:47 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/314187519604.shtml)
-- 2026-06-30 06:01 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/9856557711.shtml)
-- 2026-06-30 06:00 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/22296243577.shtml)
-- 2026-06-30 05:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/76377662.shtml)
-- 2026-06-30 06:04 - [恋与深空 日服](https://www.blog.minike.top/Article/details/44960048690.shtml)
-- 2026-06-30 05:57 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/5940603544.shtml)
+- 2026-06-30 05:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/854978882019.shtml)
+- 2026-06-30 06:12 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/064873.shtml)
+- 2026-06-30 06:05 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/59205814625.shtml)
+- 2026-06-30 06:02 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/5303726.shtml)
+- 2026-06-30 06:13 - [时光音乐会](http://www.share.minike.top/Article/details/95245705.shtml)
+- 2026-06-30 06:03 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/99441561.shtml)
+- 2026-06-30 06:10 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/52429137030.shtml)
+- 2026-06-30 06:17 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/349860.shtml)
+- 2026-06-30 06:01 - [内马尔替补](https://www.blog.minike.top/Article/details/91387344824.shtml)
+- 2026-06-30 05:50 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/424043.shtml)
+- 2026-06-30 05:52 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/667881238.shtml)
+- 2026-06-30 06:18 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/4666409.shtml)
+- 2026-06-30 05:51 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/89603321029.shtml)
+- 2026-06-30 06:08 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/5919057.shtml)
+- 2026-06-30 05:56 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/37414065.shtml)

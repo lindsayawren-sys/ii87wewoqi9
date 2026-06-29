@@ -1,57 +1,50 @@
-# 龙台青春歌会福建长汀上演：两岸青年共赴青春之约
+# 青海发生6.3级地震：海南州筹集生活物资星夜驰援震区
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月05日 20:35 来源：中国新闻网 以“共赴青春之约 同绘融合新篇”为主题的2026年龙台青春歌会5月4日晚在福建长汀举行。来自台湾的青年歌手、茶文化专家、自媒体达人等20多名嘉宾共同参与。 当晚的歌会节目融合两岸艺术特色，拉丁舞、琴茶雅韵、客家非遗剪纸服饰走秀、街舞、空竹表演等轮番登场。来自台湾的青年艺人与长汀本地艺术团体同台献艺，整场演出气氛热烈
+发布时间：2026年06月17日 08:55 来源：中国新闻网 6月16日17时6分，青海海西州直辖区发生6.3级地震。地震发生后，海南州迅速筹集羊肉、牛肉、饮用水等6大类920件生活物资，总价值超10万元，星夜送往震区。暖心物资将尽快分发给受灾群众。海南州将持续跟进灾区需求，携手抗震救灾、共渡难关。 责任编辑：【王祎】
 
 ## 正文
 
-发布时间：2026年05月05日 20:35 来源：中国新闻网 以“共赴青春之约 同绘融合新篇”为主题的2026年龙台青春歌会5月4日晚在福建长汀举行。
+发布时间：2026年06月17日 08:55 来源：中国新闻网 6月16日17时6分，青海海西州直辖区发生6.3级地震。
 
-来自台湾的青年歌手、茶文化专家、自媒体达人等20多名嘉宾共同参与。
+地震发生后，海南州迅速筹集羊肉、牛肉、饮用水等6大类920件生活物资，总价值超10万元，星夜送往震区。
 
-当晚的歌会节目融合两岸艺术特色，拉丁舞、琴茶雅韵、客家非遗剪纸服饰走秀、街舞、空竹表演等轮番登场。
+暖心物资将尽快分发给受灾群众。
 
-来自台湾的青年艺人与长汀本地艺术团体同台献艺，整场演出气氛热烈，掌声不断。
+海南州将持续跟进灾区需求，携手抗震救灾、共渡难关。
 
-在歌会前的参访活动中，台湾青年们还前往铁长乡茶山基地，开展采茶体验、参观茶文化研习馆，了解长汀茶史与制茶工艺，并参与剪纸现场教学，沉浸式体验客家文化的独特魅力，感受两岸同根同源的民间信仰文化和民间习俗。
-
-主办方表示，将以此次龙台青春歌会为契机，持续深化两岸青年交流合作，常态化开展文化体验、研学参访、艺术共创等活动，进一步擦亮“龙台青年文化交流”品牌，不断增进两岸青年文化认同与同胞情谊。
-
-(记者 吴晟炜 视频来源 长汀县融媒体中心） 责任编辑：【卢岩】
+责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 05:48 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 06:00 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 05:42 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 06:00 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 05:59 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 06:08 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 06:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 05:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 06:10 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 05:46 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 06:03 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 06:03 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 05:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 06:16 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 05:53 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 06:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 06:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 06:07 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 06:00 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 05:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 05:52 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 05:57 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 06:14 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/445492247.shtml)
-- 2026-06-30 06:04 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/71510339153.shtml)
-- 2026-06-30 05:45 - [爱很美味](https://www.share.minike.top/Article/details/511826445.shtml)
-- 2026-06-30 06:09 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/4141147748.shtml)
-- 2026-06-30 05:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/6439831.shtml)
-- 2026-06-30 05:48 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/682627325938.shtml)
-- 2026-06-30 06:01 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/81830.shtml)
-- 2026-06-30 06:03 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/257475705092.shtml)
-- 2026-06-30 05:59 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/38926.shtml)
-- 2026-06-30 05:45 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/651128678390.shtml)
-- 2026-06-30 05:46 - [我和我的家乡](http://www.blog.minike.top/Article/details/358677.shtml)
-- 2026-06-30 05:49 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/4008862389.shtml)
-- 2026-06-30 05:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/3642280.shtml)
-- 2026-06-30 06:11 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/71063032.shtml)
-- 2026-06-30 05:58 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/2691374.shtml)
+- 2026-06-30 06:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/404447.shtml)
+- 2026-06-30 05:51 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/84225.shtml)
+- 2026-06-30 05:56 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/97305.shtml)
+- 2026-06-30 06:17 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/7987158093.shtml)
+- 2026-06-30 06:13 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/54800300170.shtml)
+- 2026-06-30 06:04 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/11212.shtml)
+- 2026-06-30 06:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/1634869.shtml)
+- 2026-06-30 05:52 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/435007.shtml)
+- 2026-06-30 06:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/9571423.shtml)
+- 2026-06-30 05:52 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/99319.shtml)
+- 2026-06-30 06:01 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/70837387456.shtml)
+- 2026-06-30 05:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/38885.shtml)
+- 2026-06-30 05:53 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/094224238017.shtml)
+- 2026-06-30 06:16 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/7063333538.shtml)
+- 2026-06-30 06:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/097276.shtml)

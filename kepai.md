@@ -1,56 +1,61 @@
-# 欧盟各国与立法者就简化版人工智能法规达成初步协议
+# 国台办：欢迎岛内同胞来大陆看球观赛
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-欧盟各国与欧洲议会议员周四就一项经简化的里程碑式人工智能（AI）法规达成一致，其中包括推迟实施时间。批评人士认为，此举表明欧洲向科技巨头让步。 这项初步协议是在历经九小时谈判后达成的，未来数月内仍需获得欧盟各国政府和欧洲议会的正式批准。“今天就《人工智能法案》达成的协议，将通过降低重复性行政成本，为企业提供有力支持，”塞浦路斯欧洲事务副部长Marilena Raouna在一份声
+发布时间：2026年06月17日 12:39 来源：中国新闻网 6月17日，国务院台办举行例行新闻发布会。有记者问：近日，有台湾艺人发布视频称“搜索岛内电视频道没有世界杯足球赛相关话题”，引发两岸网友热议。大陆网友则纷纷喊话台湾同胞来大陆看世界杯。请问发言人有何评论？ 发言人陈斌华表示，足球世界杯是全球顶级赛事，也是球迷的体育盛宴。由中央广播电视总台与国际足联统一谈判签署转播合
 
 ## 正文
 
-欧盟各国与欧洲议会议员周四就一项经简化的里程碑式人工智能（AI）法规达成一致，其中包括推迟实施时间。
+发布时间：2026年06月17日 12:39 来源：中国新闻网 6月17日，国务院台办举行例行新闻发布会。
 
-批评人士认为，此举表明欧洲向科技巨头让步。
+有记者问：近日，有台湾艺人发布视频称“搜索岛内电视频道没有世界杯足球赛相关话题”，引发两岸网友热议。
 
-这项初步协议是在历经九小时谈判后达成的，未来数月内仍需获得欧盟各国政府和欧洲议会的正式批准。
+大陆网友则纷纷喊话台湾同胞来大陆看世界杯。
 
-“今天就《人工智能法案》达成的协议，将通过降低重复性行政成本，为企业提供有力支持，”塞浦路斯欧洲事务副部长Marilena Raouna在一份声明中表示。
+请问发言人有何评论？
 
-塞浦路斯目前担任欧盟轮值主席国。
+发言人陈斌华表示，足球世界杯是全球顶级赛事，也是球迷的体育盛宴。
 
-该法案于2024年8月生效，其核心条款原计划分阶段实施，此次修订属于欧盟执委会推动简化一系列数字法规举措的一部分。
+由中央广播电视总台与国际足联统一谈判签署转播合约，获得本届世界杯在大陆的独家全媒体权利，覆盖全渠道并免费下载、全民提供。
 
-简化举措的出台，源于企业抱怨监管规则重叠和繁文缛节削弱了其与美国及亚洲竞争对手抗衡的能力。
+我们欢迎岛内同胞使用大陆的网络App等观看赛事直播，或者干脆来大陆看球观赛，与大陆同胞一同畅享绿荫激情。
 
-责任编辑：王永生
+(记者 郎佳慧 制作 王佳琪) 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 06:05 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 05:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 05:52 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 05:51 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 05:59 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 05:55 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 06:05 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 05:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 05:50 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 06:05 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 05:52 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 06:07 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 06:17 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 06:04 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 05:48 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 06:07 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 06:10 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 06:11 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 06:17 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 05:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 06:08 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 06:03 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 05:53 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 06:12 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/530388018117.shtml)
-- 2026-06-30 05:50 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/7060519024.shtml)
-- 2026-06-30 06:11 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/9886018.shtml)
-- 2026-06-30 06:06 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/95341042050.shtml)
-- 2026-06-30 05:58 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/981112.shtml)
-- 2026-06-30 05:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/163909051552.shtml)
-- 2026-06-30 05:54 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/572227062.shtml)
-- 2026-06-30 06:01 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/74975127.shtml)
-- 2026-06-30 06:11 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/04891.shtml)
-- 2026-06-30 06:10 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/376783.shtml)
-- 2026-06-30 06:07 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/537741223.shtml)
-- 2026-06-30 06:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/085986044255.shtml)
-- 2026-06-30 05:56 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/7669603.shtml)
-- 2026-06-30 05:43 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/7860228938.shtml)
-- 2026-06-30 05:56 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/90902596233.shtml)
+- 2026-06-30 05:50 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/268307.shtml)
+- 2026-06-30 06:14 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/2237762040.shtml)
+- 2026-06-30 06:02 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/979355.shtml)
+- 2026-06-30 06:09 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/93564573745.shtml)
+- 2026-06-30 06:09 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/074397897.shtml)
+- 2026-06-30 06:11 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/09672.shtml)
+- 2026-06-30 05:59 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/24614.shtml)
+- 2026-06-30 06:08 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/94251202.shtml)
+- 2026-06-30 05:54 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/4726826672.shtml)
+- 2026-06-30 06:12 - [日本16强魔咒](http://www.blog.minike.top/Article/details/629245078.shtml)
+- 2026-06-30 05:55 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/4902390011.shtml)
+- 2026-06-30 06:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/44834.shtml)
+- 2026-06-30 06:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/4448818.shtml)
+- 2026-06-30 05:52 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/30456305892.shtml)
+- 2026-06-30 05:52 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/702903142749.shtml)

@@ -1,60 +1,59 @@
-# 超360亿主力资金狂涌！电子行业成“流量王”！兆易创新登顶A股吸金榜，华宝基金电子ETF（515260）狂飙6.33%
+# 盘前：纳指期货涨0.25% SpaceX续涨自上市以来累计涨50%
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-今日（5月6日）电子板块领跑市场，半导体龙头携手狂飙，海光信息20CM涨停，通富微电、兆易创新、三安光电亦涨停，寒武纪、澜起科技等多只成份股刷新上市以来的高点，荟聚电子板块核心龙头的电子ETF华宝（515260）场内价格盘中狂飙6.33%，现涨5.44%，创历史新高！ 值得关注的是，电子ETF华宝（515260）场内宽幅溢价，实施溢价率高达0.36%，或有资金看好电子板块后市表
+全球股市周二小幅上涨，此前一个交易日因美国与伊朗达成和平协议的消息出现反弹；美国股市在连续三日上涨后暂停涨势，与此同时，SpaceX延续强劲上涨势头，自上市以来涨幅有望超过50%。另一方面，日本央行加息至31年来高位后，投资者将注意力转向本周密集的央行政策决议。 截至发稿，道指期货涨0.12%，标普500指数期货涨0.09%，纳指期货涨0.25%。 随着市场对美伊初步协议的乐观
 
 ## 正文
 
-今日（5月6日）电子板块领跑市场，半导体龙头携手狂飙，海光信息20CM涨停，通富微电、兆易创新、三安光电亦涨停，寒武纪、澜起科技等多只成份股刷新上市以来的高点，荟聚电子板块核心龙头的电子ETF华宝（515260）场内价格盘中狂飙6.33%，现涨5.44%，创历史新高！
+全球股市周二小幅上涨，此前一个交易日因美国与伊朗达成和平协议的消息出现反弹；美国股市在连续三日上涨后暂停涨势，与此同时，SpaceX延续强劲上涨势头，自上市以来涨幅有望超过50%。
 
-值得关注的是，电子ETF华宝（515260）场内宽幅溢价，实施溢价率高达0.36%，或有资金看好电子板块后市表现，伴随火热的行情，积极进场抢筹！
+另一方面，日本央行加息至31年来高位后，投资者将注意力转向本周密集的央行政策决议。
 
-资金面上，主力资金持续偏爱电子板块！
+截至发稿，道指期货涨0.12%，标普500指数期货涨0.09%，纳指期货涨0.25%。
 
-截至发稿，电子板块获主力资金净流入超370亿元，拉长时间来看，近5日、近20日分别吸金934亿元和3132亿元，板块吸金额持续高居31个申万一级行业首位！
+随着市场对美伊初步协议的乐观情绪逐渐消退，围绕海湾局势的交易情绪趋于谨慎，整体市场进入更为温和的整理状态。
 
-电子ETF华宝（515260）成份股兆易创新狂揽36.5亿元，霸居A股吸金榜榜首，成份股佰维存储、澜起科技、海光信息等个股亦跻身A股吸金榜TOP5。
+欧洲市场方面，STOXX 600指数上涨0.6%，接近周一创下的历史高点，主要受到施耐德电气与ASML等权重股上涨推动，两者分别上涨2.7%和0.6%。
 
-消息面上，电子行业表现出极强的吸睛能力，成“流量王”。
+英国富时100指数上涨0.2%，德国DAX指数上涨0.2%，法国CAC 40指数上涨0.3%，意大利FTSE MIB上涨0.6%，西班牙IBEX 35上涨0.3%。
 
-数据显示，4月份，电子行业共有82家上市公司获得私募机构密集调研，合计调研次数达1052次，两项指标均领先于其他行业。
+亚洲股指小幅走高。
 
-为何私募机构4月份调研聚焦电子行业？
+日本日经225指数收涨0.1%至69404.50点，盘中一度突破70000点，为历史首次，此前日本央行加息至31年来高位。
 
 ## 相关推荐
 
-- 2026-06-30 06:10 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 05:55 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 06:02 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 05:53 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 05:50 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 05:50 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 05:57 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 06:01 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 06:07 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 06:08 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 05:46 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 06:08 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 05:53 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 06:03 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 06:04 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 06:08 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 05:54 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 06:07 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 05:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 05:52 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 05:54 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 06:16 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 06:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 06:09 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 06:00 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 06:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 06:14 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:03 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/99609544.shtml)
-- 2026-06-30 05:59 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/115627058638.shtml)
-- 2026-06-30 05:58 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/70462.shtml)
-- 2026-06-30 06:02 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/723928.shtml)
-- 2026-06-30 06:11 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/89144.shtml)
-- 2026-06-30 06:05 - [美人鱼](https://www.blog.minike.top/Article/details/1895436.shtml)
-- 2026-06-30 05:54 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/073774183.shtml)
-- 2026-06-30 05:47 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/609015.shtml)
-- 2026-06-30 06:08 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/8921872808.shtml)
-- 2026-06-30 05:49 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/08833565035.shtml)
-- 2026-06-30 06:11 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/949601273.shtml)
-- 2026-06-30 06:00 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/06500860.shtml)
-- 2026-06-30 06:05 - [一生一世](https://www.blog.minike.top/Article/details/57458.shtml)
-- 2026-06-30 05:51 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/88216731.shtml)
-- 2026-06-30 05:57 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/59422.shtml)
+- 2026-06-30 06:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/9708796.shtml)
+- 2026-06-30 06:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/716083382.shtml)
+- 2026-06-30 06:06 - [沉睡花园](https://www.share.minike.top/Article/details/22033015730.shtml)
+- 2026-06-30 05:51 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/3394267495.shtml)
+- 2026-06-30 05:56 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/4089928.shtml)
+- 2026-06-30 05:59 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/8571255528.shtml)
+- 2026-06-30 05:54 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/97326116.shtml)
+- 2026-06-30 06:16 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/59790338062.shtml)
+- 2026-06-30 05:53 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/985418207388.shtml)
+- 2026-06-30 05:50 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/20137085.shtml)
+- 2026-06-30 05:52 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/3153427.shtml)
+- 2026-06-30 05:57 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/88120762.shtml)
+- 2026-06-30 06:00 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/6235785.shtml)
+- 2026-06-30 05:56 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/74831.shtml)
+- 2026-06-30 05:58 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/0422419.shtml)

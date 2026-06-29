@@ -1,50 +1,57 @@
-# 骏杰集团控股附属获授5000万港元循环贷款及进口发票融资额度
+# 迈向未来产业之路 追问人与AI如何同行
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-骏杰集团控股（08188）发布公告，公司间接全资附属公司骏杰工程有限公司（骏杰香港）（作为借款人）与一间香港持牌银行（作为贷款人）已订立一份融资函，据此，银行已同意就骏杰香港的两份建造合约提供循环贷款及进口发票融资额度，总金额为5000万港元。银行融资自2026年5月5日起可供使用，并无固定期限。银行融资须受（其中包括）银行定期审阅及按银行要求偿还之凌驾性权利规限，方可提取。责
+调研期间，关于“数据共享统筹”“行业标准落地”“人才培养破题”的讨论无处不在。 视频：人工智能如何赋能制造业？党外知识分子建言献策专家组赴苏沪开展专题调研来源：中国新闻网 在无锡一棉纺织集团有限公司的智能化车间，一台“巡游式细纱自动接头机器人”在纱锭阵列间精准穿行，眨眼间便完成误差不超过±1毫米的细纱接头。从“织造”迈向“智造”，这家有百年历史的纺织企业正在用科技铺就未来发展之
 
 ## 正文
 
-骏杰集团控股（08188）发布公告，公司间接全资附属公司骏杰工程有限公司（骏杰香港）（作为借款人）与一间香港持牌银行（作为贷款人）已订立一份融资函，据此，银行已同意就骏杰香港的两份建造合约提供循环贷款及进口发票融资额度，总金额为5000万港元。
+调研期间，关于“数据共享统筹”“行业标准落地”“人才培养破题”的讨论无处不在。
 
-银行融资自2026年5月5日起可供使用，并无固定期限。
+视频：人工智能如何赋能制造业？
 
-银行融资须受（其中包括）银行定期审阅及按银行要求偿还之凌驾性权利规限，方可提取。
+党外知识分子建言献策专家组赴苏沪开展专题调研来源：中国新闻网 在无锡一棉纺织集团有限公司的智能化车间，一台“巡游式细纱自动接头机器人”在纱锭阵列间精准穿行，眨眼间便完成误差不超过±1毫米的细纱接头。
 
-责任编辑：卢昱君
+从“织造”迈向“智造”，这家有百年历史的纺织企业正在用科技铺就未来发展之路。
+
+6月13日至15日，中央统战部党外知识分子建言献策专家组科学技术组深入无锡、常州产业一线调研，观察人工智能(AI)赋能制造业从“概念”到“生产力”的跨越。
+
+探索共赢的数据共享路径 “制造业积极拥抱AI已成为大趋势，人工智能为制造业切实提升生产效率、降低劳动强度。
+
+”党外知识分子建言献策专家组科学技术组组长、全国人大常委会委员、中国科学院院士郭雷对记者表示，传统产业的智能化转型并非凭空而来，而是在数字化、自动化基础上的持续升级。
+
+企业在拥抱AI的同时，也面临“决策管理”“数据开发”等现实痛点。
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 05:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 05:46 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 05:57 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 05:59 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-30 05:49 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 05:45 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 06:06 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 06:04 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 06:02 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 05:57 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 05:59 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 05:57 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 06:07 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 06:04 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 06:08 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 05:49 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 06:15 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 06:06 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 05:57 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 06:12 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 05:52 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 06:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:55 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/523040.shtml)
-- 2026-06-30 06:05 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/1181862156.shtml)
-- 2026-06-30 05:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/92316.shtml)
-- 2026-06-30 06:03 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/85431434319.shtml)
-- 2026-06-30 06:02 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/274214.shtml)
-- 2026-06-30 06:08 - [月亮](https://www.blog.minike.top/Article/details/98083253673.shtml)
-- 2026-06-30 05:56 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/133159419.shtml)
-- 2026-06-30 06:12 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/76241.shtml)
-- 2026-06-30 06:02 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/367313213807.shtml)
-- 2026-06-30 06:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/827816745.shtml)
-- 2026-06-30 06:05 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/628854.shtml)
-- 2026-06-30 06:09 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/6760179.shtml)
-- 2026-06-30 05:50 - [点菜也要教吗](http://www.blog.minike.top/Article/details/24945389027.shtml)
-- 2026-06-30 05:59 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/46455032.shtml)
-- 2026-06-30 05:47 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/98320.shtml)
+- 2026-06-30 06:06 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/3779607.shtml)
+- 2026-06-30 06:04 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/35943.shtml)
+- 2026-06-30 06:13 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/623526056.shtml)
+- 2026-06-30 06:03 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/6037918296.shtml)
+- 2026-06-30 05:48 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/16241.shtml)
+- 2026-06-30 06:16 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/125969.shtml)
+- 2026-06-30 06:14 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/16354318628.shtml)
+- 2026-06-30 05:59 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/91510.shtml)
+- 2026-06-30 05:52 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/73725758702.shtml)
+- 2026-06-30 06:08 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/0920516547.shtml)
+- 2026-06-30 05:58 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/0667731.shtml)
+- 2026-06-30 05:59 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/967905.shtml)
+- 2026-06-30 06:17 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/16533.shtml)
+- 2026-06-30 05:50 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/69287592061.shtml)
+- 2026-06-30 06:05 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/0941655717.shtml)

@@ -1,56 +1,53 @@
-# ST萃华：无法在法定期限内披露定期报告 5月6日起停牌
+# 世界杯开赛五天，六支亚足联球队保持不败
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-人民财讯5月5日电，ST萃华（维权）（002731）5月5日公告，公司原定于4月29日披露2025年年度报告和2026年第一季度报告。因定期报告涉及的部分信息需要进一步核实、补充完善，公司未能完成2025年年报的编制工作，公司无法在法定期限内（4月30日）披露上述定期报告。公司股票于5月6日（星期三）开市起停牌。 根据相关规定，上市公司未在法定期限内披露年度报告，且在公司股票停
+中新网6月16日电 北京时间16日，美加墨世界杯共进行了四场小组赛争夺，全部以平局收场：西班牙队0比0佛得角队，沙特队1比1乌拉圭队，比利时队1比1埃及队、伊朗队2比2新西兰队。 目前，伊朗队暂居小组第二。开赛5天以来，已出场的6支亚足联球队取得2胜4平，保持不败。(完)
 
 ## 正文
 
-人民财讯5月5日电，ST萃华（维权）（002731）5月5日公告，公司原定于4月29日披露2025年年度报告和2026年第一季度报告。
+中新网6月16日电 北京时间16日，美加墨世界杯共进行了四场小组赛争夺，全部以平局收场：西班牙队0比0佛得角队，沙特队1比1乌拉圭队，比利时队1比1埃及队、伊朗队2比2新西兰队。
 
-因定期报告涉及的部分信息需要进一步核实、补充完善，公司未能完成2025年年报的编制工作，公司无法在法定期限内（4月30日）披露上述定期报告。
+目前，伊朗队暂居小组第二。
 
-公司股票于5月6日（星期三）开市起停牌。
+开赛5天以来，已出场的6支亚足联球队取得2胜4平，保持不败。
 
-根据相关规定，上市公司未在法定期限内披露年度报告，且在公司股票停牌两个月内仍未披露，将被实施退市风险警示。
-
-上市公司因触及上述情形其股票交易被实施退市风险警示之日起的两个月内仍未披露过半数董事保证真实、准确、完整的相关年度报告，将被终止其股票上市交易。
-
-另外，公司及子公司深圳萃华由于部分流动资金紧张，出现部分借款未能如期偿还的情形。
-
-截至目前，公司及深圳萃华在银行等融资机构新增4笔借款逾期，逾期未付本金约1.44亿元，公司及子公司累计借款逾期本金约6.38亿元。
-
-责任编辑：刘万里 SF014
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 05:48 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 06:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 05:55 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 06:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 05:44 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 05:50 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 05:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 05:42 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 05:42 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 06:04 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 05:51 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 06:09 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 06:05 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 06:02 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 05:51 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 06:16 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 06:01 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 05:58 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 06:16 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 05:51 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 06:11 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 06:04 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 06:05 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 05:56 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/70043973434.shtml)
-- 2026-06-30 05:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/9341267425.shtml)
-- 2026-06-30 05:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/8646260.shtml)
-- 2026-06-30 05:42 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/078157863223.shtml)
-- 2026-06-30 05:42 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/9344275274.shtml)
-- 2026-06-30 05:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/97614.shtml)
-- 2026-06-30 06:11 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/608246302.shtml)
-- 2026-06-30 05:47 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/33911206.shtml)
-- 2026-06-30 06:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/562559929.shtml)
-- 2026-06-30 06:04 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/347836267.shtml)
-- 2026-06-30 06:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/82373.shtml)
-- 2026-06-30 05:51 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/5755559.shtml)
-- 2026-06-30 06:02 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/3389445.shtml)
-- 2026-06-30 05:58 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/726001.shtml)
-- 2026-06-30 05:56 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/9061821537.shtml)
+- 2026-06-30 06:16 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/2787377.shtml)
+- 2026-06-30 06:07 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/72381177694.shtml)
+- 2026-06-30 06:02 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/38862083146.shtml)
+- 2026-06-30 06:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/916490.shtml)
+- 2026-06-30 05:59 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/71744607.shtml)
+- 2026-06-30 06:05 - [日本领先巴西](https://www.blog.minike.top/Article/details/8771273564.shtml)
+- 2026-06-30 06:06 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/75967188007.shtml)
+- 2026-06-30 06:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/1994835.shtml)
+- 2026-06-30 05:50 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/052198.shtml)
+- 2026-06-30 06:01 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/799442033029.shtml)
+- 2026-06-30 06:09 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/5317322.shtml)
+- 2026-06-30 06:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/7608167.shtml)
+- 2026-06-30 06:09 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/926389054.shtml)
+- 2026-06-30 06:07 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/83946173.shtml)
+- 2026-06-30 06:16 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/323316.shtml)

@@ -1,52 +1,56 @@
-# 中国正能量丨阔步向前，在每个此刻
+# 部分省份工业经济运行座谈交流活动在京召开
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 08:48 来源：中国新闻网 脚步，最忠实的记录者。它丈量着梦想的距离，回应每一次出发，为奋进的中国刻下最清晰的足迹。向前，是迷彩在风雪边关站成移动的碑；是平凡身影在日夜里扛起不凡的担当；是红色精神在每一代人血脉里接力奔跑；向前，是千万个你我的奋力同行。阔步向前的中国，每一天都奋进不停。 责任编辑：【任帅】
+6月17日，工业和信息化部党组成员、副部长辛国斌在北京主持召开部分省份工业经济运行座谈交流活动，深入学习贯彻中央政治局会议精神，了解各地区当前工业经济运行情况，分析研判二季度工业经济形势，研究提出工作举措及政策建议。会议指出，今年以来，在全系统共同努力下，工业经济总体实现良好开局。要切实把思想和行动统一到党中央对经济形势的科学判断和关于经济工作的决策部署上来，坚持稳中求进工作总
 
 ## 正文
 
-发布时间：2026年05月07日 08:48 来源：中国新闻网 脚步，最忠实的记录者。
+6月17日，工业和信息化部党组成员、副部长辛国斌在北京主持召开部分省份工业经济运行座谈交流活动，深入学习贯彻中央政治局会议精神，了解各地区当前工业经济运行情况，分析研判二季度工业经济形势，研究提出工作举措及政策建议。
 
-它丈量着梦想的距离，回应每一次出发，为奋进的中国刻下最清晰的足迹。
+会议指出，今年以来，在全系统共同努力下，工业经济总体实现良好开局。
 
-向前，是迷彩在风雪边关站成移动的碑；是平凡身影在日夜里扛起不凡的担当；是红色精神在每一代人血脉里接力奔跑；向前，是千万个你我的奋力同行。
+要切实把思想和行动统一到党中央对经济形势的科学判断和关于经济工作的决策部署上来，坚持稳中求进工作总基调，更好统筹国内经济工作和国际经贸斗争，统筹发展和安全，不断巩固工业经济运行良好态势。
 
-阔步向前的中国，每一天都奋进不停。
+会议强调，当前工业经济运行中还存在一些困难和问题，但工业经济发展的基本面和长期向好的趋势没有变。
 
-责任编辑：【任帅】
+要推动供需适配，深入挖掘内需潜力，扩大优质商品供给，以高质量供给创造和引领需求。
+
+要加快培育新动能，深入实施“人工智能+制造”专项行动，加快新一代信息技术全方位全链条普及应用，持续培育壮大新质生产力，深入整治“内卷式”竞争，推动工业经济实现质的有效提升和量的合理增长相统一。
+
+要坚持底线思维，强化形势研判和政策储备，穿透数据表象准确分析经济运行的实际情况和趋势性变化，扎实做好重点企业纾困帮扶，谋划好迎峰度夏期间能源保供和应急防灾减灾工作，切实推动二季度工业经济平稳运行，努力完成全年目标任务，为“十五五”良好开局奠定基础。
+
+会上，河北、江苏、浙江、安徽、福建、山东、河南、湖北、湖南、广东、四川等11个省份工业和信息化主管部门负责同志作交流发言。
 
 ## 相关推荐
 
-- 2026-06-30 05:50 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 06:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 05:54 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 06:01 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 05:57 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 06:02 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 06:11 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 06:10 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 06:03 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 05:54 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 05:53 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 05:59 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 06:06 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 05:48 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 05:58 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 06:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 05:53 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 05:49 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 06:13 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 06:08 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 05:52 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 05:55 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/461536249.shtml)
-- 2026-06-30 05:55 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/575377.shtml)
-- 2026-06-30 05:46 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/722241964351.shtml)
-- 2026-06-30 05:45 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/979205614907.shtml)
-- 2026-06-30 06:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/499597668.shtml)
-- 2026-06-30 05:47 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/5615349098.shtml)
-- 2026-06-30 06:05 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/864519076.shtml)
-- 2026-06-30 05:47 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/177482.shtml)
-- 2026-06-30 05:44 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/7318621.shtml)
-- 2026-06-30 05:48 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/944982512.shtml)
-- 2026-06-30 05:57 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/749470972457.shtml)
-- 2026-06-30 06:03 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/88696.shtml)
-- 2026-06-30 05:49 - [《共患难》](http://www.share.minike.top/Article/details/728132103164.shtml)
-- 2026-06-30 05:51 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/6459471714.shtml)
-- 2026-06-30 06:02 - [世界杯](https://www.share.minike.top/Article/details/539661.shtml)
+- 2026-06-30 06:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/428202516409.shtml)
+- 2026-06-30 05:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/12097.shtml)
+- 2026-06-30 05:52 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/954216157.shtml)
+- 2026-06-30 05:50 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/332177.shtml)
+- 2026-06-30 06:06 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/69575.shtml)
+- 2026-06-30 06:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/08416740878.shtml)
+- 2026-06-30 05:49 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/907249.shtml)
+- 2026-06-30 05:52 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/6635383701.shtml)
+- 2026-06-30 05:52 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/05575473410.shtml)
+- 2026-06-30 06:08 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/518323.shtml)
+- 2026-06-30 06:12 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/675431760.shtml)
+- 2026-06-30 06:17 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/92690954.shtml)
+- 2026-06-30 05:59 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/434411326.shtml)
+- 2026-06-30 06:15 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/1864618.shtml)
+- 2026-06-30 06:11 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/991267.shtml)

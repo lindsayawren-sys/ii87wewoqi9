@@ -1,45 +1,60 @@
-# 存储概念早盘集体高开 XL二南三星涨超20%澜起科技涨超13%
+# 002384，拟投资81亿元“追光”
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-存储概念早盘集体高开，截至发稿，南方两倍做多三星电子（07747）上涨20.04%，报124.60港元；南方两倍做多海力士（07709）上涨18.70%，报71.22港元；澜起科技（06809）上涨13.07%，报311.40港元；兆易创新（03986）上涨9.44%，报510港元。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！东山精密（002384）拟大手笔加码光芯片及光模块赛道。 6月16日晚，东山精密公告显示，公司董事会同意公司子公司索尔思光电及其子公司在常州等地实施光芯片及光模块扩建项目，项目总投资额为12亿美元（约合人民币81亿元），以提升索尔思光电整体产能规模，项目投资资金来源为公司自筹资金。 东山精密表示，此次投资扩
 
 ## 正文
 
-存储概念早盘集体高开，截至发稿，南方两倍做多三星电子（07747）上涨20.04%，报124.60港元；南方两倍做多海力士（07709）上涨18.70%，报71.22港元；澜起科技（06809）上涨13.07%，报311.40港元；兆易创新（03986）上涨9.44%，报510港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-责任编辑：卢昱君
+东山精密（002384）拟大手笔加码光芯片及光模块赛道。
+
+6月16日晚，东山精密公告显示，公司董事会同意公司子公司索尔思光电及其子公司在常州等地实施光芯片及光模块扩建项目，项目总投资额为12亿美元（约合人民币81亿元），以提升索尔思光电整体产能规模，项目投资资金来源为公司自筹资金。
+
+东山精密表示，此次投资扩建可以提升公司高端光芯片、光模块产能，充分满足客户在AI算力服务器相关核心产品上的中长期采购需求，进一步增强公司核心竞争力。
+
+12亿美元再扩产 锚定高端光芯片、光模块 当前，光芯片及光模块已成为AI算力产业的核心基础元器件，行业整体处于历史性高景气阶段，全球AI大模型研发及智算中心建设持续提速，光模块与AI PCB作为算力基础设施核心环节，市场需求持续旺盛。
+
+作为国内PCB与精密制造领先企业，东山精密光芯片技术量产工艺及应用技术稳定可靠，下游光模块产品已实现多家行业头部客户产品落地及批量供货。
+
+2025年，公司收购索尔思光电，后者是全球范围内可自主完成光芯片与光模块的设计、制造和封装的三家公司之一，也是国内少数具备100G及200G光芯片量产能力的企业。
+
+记者注意到，此次12亿美元扩建项目是东山精密收购索尔思光电后最大规模的单笔产能投入。
 
 ## 相关推荐
 
-- 2026-06-30 05:57 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 05:59 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 06:03 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 06:01 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 05:55 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 05:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 05:52 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 06:00 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 06:07 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 06:10 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 06:06 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 06:14 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 06:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 06:15 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 06:16 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 06:04 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 05:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 05:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 06:02 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 05:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 06:07 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 05:59 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 06:07 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 05:58 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 06:14 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/029601.shtml)
-- 2026-06-30 05:48 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/5981919.shtml)
-- 2026-06-30 05:49 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/8633967772.shtml)
-- 2026-06-30 05:43 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/842123665.shtml)
-- 2026-06-30 05:47 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/162609.shtml)
-- 2026-06-30 05:52 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/243096175765.shtml)
-- 2026-06-30 05:47 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/50521174269.shtml)
-- 2026-06-30 05:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/8928214756.shtml)
-- 2026-06-30 06:05 - [第一炉香](https://www.blog.minike.top/Article/details/538130367.shtml)
-- 2026-06-30 05:55 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/371812731154.shtml)
-- 2026-06-30 05:52 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/175679.shtml)
-- 2026-06-30 05:48 - [金刚川](https://www.blog.kurohicncr.top/Article/details/858671.shtml)
-- 2026-06-30 06:06 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/9454875.shtml)
-- 2026-06-30 06:07 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/07952026.shtml)
-- 2026-06-30 05:58 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/740366235.shtml)
+- 2026-06-30 05:50 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/013522648.shtml)
+- 2026-06-30 06:12 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/870710230.shtml)
+- 2026-06-30 06:08 - [啊啊啊](http://www.blog.minike.top/Article/details/068234.shtml)
+- 2026-06-30 05:57 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/5993972460.shtml)
+- 2026-06-30 06:08 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/2341168038.shtml)
+- 2026-06-30 06:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/38690195.shtml)
+- 2026-06-30 05:51 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/1184605348.shtml)
+- 2026-06-30 05:52 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/393606580791.shtml)
+- 2026-06-30 05:52 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/2872539483.shtml)
+- 2026-06-30 05:49 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/34602742.shtml)
+- 2026-06-30 06:15 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/84448.shtml)
+- 2026-06-30 06:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/05390211472.shtml)
+- 2026-06-30 05:52 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/24819.shtml)
+- 2026-06-30 05:56 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/10642246018.shtml)
+- 2026-06-30 05:58 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/341106174.shtml)

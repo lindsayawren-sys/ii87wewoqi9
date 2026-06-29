@@ -1,58 +1,46 @@
-# “五一”假期浙江口岸出入境人员超10万人次
+# “数爱无疆”数字公益故事展播 | “小数苗”计划，用AI点亮乡村孩子数字梦想
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中新网杭州5月6日电 (钱晨菲)6日，记者从浙江边检总站获悉，今年“五一”假期，浙江口岸出入境人员总量超10万人次。 据悉，浙江边检机关共查验出入境人员10.5万余人次、飞机609架次、船舶455艘次。 从入境方向看，“五一”假期从浙江口岸入境外国旅客4608人次。其中，入境观光旅游2064人次，入境从事商贸活动1493人次，免签入境外国旅客2120人次，占入境外国旅客总数的4
+发布时间：2026年06月16日 20:42 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。 2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由北京联想公益基金会推送的“
 
 ## 正文
 
-中新网杭州5月6日电 (钱晨菲)6日，记者从浙江边检总站获悉，今年“五一”假期，浙江口岸出入境人员总量超10万人次。
+发布时间：2026年06月16日 20:42 来源：中国新闻网 2026年5月，中国网络文明大会期间，网络公益建设分论坛发布了2025“数爱无疆”数字公益故事征集展播活动结果。
 
-据悉，浙江边检机关共查验出入境人员10.5万余人次、飞机609架次、船舶455艘次。
+2025年11月起，中国网络社会组织联合会携手中国互联网发展基金会、中国新闻网组织开展2025“数爱无疆”数字公益故事征集展播活动，最终遴选出50个具有代表性的数字公益故事，由北京联想公益基金会推送的“‘小数苗’计划，用AI点亮乡村孩子数字梦想”作品入选。
 
-从入境方向看，“五一”假期从浙江口岸入境外国旅客4608人次。
-
-其中，入境观光旅游2064人次，入境从事商贸活动1493人次，免签入境外国旅客2120人次，占入境外国旅客总数的46%。
-
-从出境方向看，“五一”假期从该省口岸出境内地旅客约3.3万人次。
-
-中国香港、韩国、泰国、新加坡、马来西亚等为热门目的地。
-
-按照国家移民管理局统一部署，浙江边检总站多措并举，主动作为，科学预测、及时发布本口岸出入境客流情况，提示广大出入境人员合理安排行程；优化勤务组织模式，配足配强一线警力，加强部门协同联动，及时疏导瞬时客流高峰，确保通关现场高效运转、平稳有序。
-
-(完)
+责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 05:54 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 06:00 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 05:54 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 06:09 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 05:57 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 06:11 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 06:02 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 05:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 05:45 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 06:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 05:50 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 06:08 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 05:54 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 05:59 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 05:57 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 05:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 06:00 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 06:00 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 06:01 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 06:07 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 06:16 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 06:16 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:59 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/62486.shtml)
-- 2026-06-30 05:49 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/14072085.shtml)
-- 2026-06-30 05:54 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/481052467.shtml)
-- 2026-06-30 05:47 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/64538.shtml)
-- 2026-06-30 05:49 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/46976.shtml)
-- 2026-06-30 05:53 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/30561156.shtml)
-- 2026-06-30 06:05 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/9243452.shtml)
-- 2026-06-30 06:04 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/604390713.shtml)
-- 2026-06-30 05:43 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/51201138916.shtml)
-- 2026-06-30 06:00 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/098895229313.shtml)
-- 2026-06-30 05:49 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/74456989.shtml)
-- 2026-06-30 05:55 - [送你一朵小红花](https://www.blog.minike.top/Article/details/19639.shtml)
-- 2026-06-30 05:54 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/1355888.shtml)
-- 2026-06-30 06:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/4558100.shtml)
-- 2026-06-30 06:00 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/37678.shtml)
+- 2026-06-30 06:14 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/925026534.shtml)
+- 2026-06-30 06:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/03885248953.shtml)
+- 2026-06-30 06:05 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/218244439191.shtml)
+- 2026-06-30 06:11 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/4187354347.shtml)
+- 2026-06-30 06:14 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/61563228.shtml)
+- 2026-06-30 05:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/618848169.shtml)
+- 2026-06-30 06:02 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/75976.shtml)
+- 2026-06-30 06:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/29060929538.shtml)
+- 2026-06-30 06:12 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/21073793142.shtml)
+- 2026-06-30 05:49 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/1110710.shtml)
+- 2026-06-30 05:58 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/551464.shtml)
+- 2026-06-30 06:17 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/716175.shtml)
+- 2026-06-30 06:11 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/69360665.shtml)
+- 2026-06-30 06:10 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/3693381116.shtml)
+- 2026-06-30 06:07 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/782750624.shtml)

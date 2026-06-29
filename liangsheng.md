@@ -1,49 +1,58 @@
-# 蓝思科技午前涨逾7% 近日实际控制人获接《贷款承诺函》 拟增持公司A股股份
+# 库迪失去王一博之后
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-蓝思科技（06613）午前股价上涨6.99%，现报18.22港元，成交额3.16亿港元。 蓝思科技发布公告，公司于2026年4月17日收到实际控制人周群飞女士、郑俊龙先生所控制的群欣公司书面通知，基于对公司未来发展前景的信心和对公司股票价值的合理判断，为切实维护中小投资者利益，提振投资者信心，群欣公司拟通过集中竞价方式增持上市公司A股股份，增持金额不低于人民币10，000万元，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品|虎嗅商业消费组 作者|刘纾含 最后一次参加世界杯的梅西，上演了本届世界杯的首个帽子戏法。 北京时间6月17日，在2026美加墨世界杯足球赛J组小组赛中，阿根廷队对阵阿尔及利亚队，在比赛的第76分钟，梅西打入个人本场比赛第三球，上演“帽子戏法”的同时，追平了世界杯纪录。对于阿根廷国家足球队全球赞助商库迪
 
 ## 正文
 
-蓝思科技（06613）午前股价上涨6.99%，现报18.22港元，成交额3.16亿港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-蓝思科技发布公告，公司于2026年4月17日收到实际控制人周群飞女士、郑俊龙先生所控制的群欣公司书面通知，基于对公司未来发展前景的信心和对公司股票价值的合理判断，为切实维护中小投资者利益，提振投资者信心，群欣公司拟通过集中竞价方式增持上市公司A股股份，增持金额不低于人民币10，000万元，资金来源为自有或自筹资金。
+出品|虎嗅商业消费组 作者|刘纾含 最后一次参加世界杯的梅西，上演了本届世界杯的首个帽子戏法。
 
-近日，群欣公司收到中信银行长沙分行出具的《贷款承诺函》，中信银行长沙分行拟为群欣公司提供增持上市公司A股股票的融资支持，贷款额度为不超过人民币9，000万元，贷款期限不超过3年，专项用于支持群欣公司增持上市公司A股股票。
+北京时间6月17日，在2026美加墨世界杯足球赛J组小组赛中，阿根廷队对阵阿尔及利亚队，在比赛的第76分钟，梅西打入个人本场比赛第三球，上演“帽子戏法”的同时，追平了世界杯纪录。
 
-责任编辑：卢昱君
+对于阿根廷国家足球队全球赞助商库迪来说，这是一个难得的品牌高光时刻。
+
+失去王一博之后，库迪需要新的流量资产，也需要一个比“9.9元咖啡”更体面的品牌故事。
+
+只是，赛场上的高光，照不到所有门店。
+
+6月，是夏季茶饮旺季即将到来的时刻，但库迪的联营商们正在准备闭店。
+
+经营两年多后，山东联营商刘伟终于给自己的门店贴上了“停业闭店”的标识。
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 05:52 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 06:08 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 05:56 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 05:45 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 05:57 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 05:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 05:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 06:07 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 05:54 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 06:04 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 06:02 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 06:09 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 06:03 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 06:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 05:56 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 06:08 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 06:12 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 06:01 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 05:58 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 05:58 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 06:17 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 06:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/9982368.shtml)
-- 2026-06-30 06:05 - [速度与激情9](https://www.blog.minike.top/Article/details/4102882.shtml)
-- 2026-06-30 06:11 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/3957146552.shtml)
-- 2026-06-30 06:07 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/50900034420.shtml)
-- 2026-06-30 05:47 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/0767336.shtml)
-- 2026-06-30 06:10 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/291351.shtml)
-- 2026-06-30 06:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/025428.shtml)
-- 2026-06-30 05:56 - [周生如故](https://www.blog.minike.top/Article/details/308550134.shtml)
-- 2026-06-30 06:03 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/2095655188.shtml)
-- 2026-06-30 06:01 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/66919521.shtml)
-- 2026-06-30 06:06 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/9550106307.shtml)
-- 2026-06-30 06:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/3860727114.shtml)
-- 2026-06-30 06:05 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/5187046412.shtml)
-- 2026-06-30 05:44 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/318346.shtml)
-- 2026-06-30 06:06 - [《共患难》](https://www.share.kurohicncr.top/Article/details/287194412663.shtml)
+- 2026-06-30 06:05 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/820792124504.shtml)
+- 2026-06-30 05:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/147750265.shtml)
+- 2026-06-30 06:13 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/416865339.shtml)
+- 2026-06-30 06:09 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/8362060119.shtml)
+- 2026-06-30 06:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/23864751273.shtml)
+- 2026-06-30 06:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/7242378.shtml)
+- 2026-06-30 06:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/79398939.shtml)
+- 2026-06-30 05:48 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/182717879.shtml)
+- 2026-06-30 05:53 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/80649080407.shtml)
+- 2026-06-30 06:13 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/44787604.shtml)
+- 2026-06-30 06:17 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/5199283134.shtml)
+- 2026-06-30 06:17 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/60405.shtml)
+- 2026-06-30 06:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/3351084437.shtml)
+- 2026-06-30 06:17 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/7938435681.shtml)
+- 2026-06-30 06:03 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/0928309.shtml)

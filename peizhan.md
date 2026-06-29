@@ -1,58 +1,59 @@
-# “五一”档票价创近四年最低，A股影视股集体大涨
+# 民建西乡塘总支与广西贸促会开展企业出海交流活动
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-记者丨李益文 编辑丨李燕娜 5月6日，影视板块盘中震荡走高，个股上涨态势显著，博纳影业（001330.SZ）盘中涨停，华策影视（300133.SZ）涨近10%，截至午间收盘，北京文化（000802.SZ），捷成股份（300182.SZ）涨超4%，百纳千成（300291.SZ），欢瑞世纪（维权）（000892.SZ）等个股跟涨。 影视板块集体走强，核心驱动力来自五一档电影市场的回
+6月10日，民建南宁市西乡塘总支部与广西贸促会、广西国际商会开展企业出海交流活动。 西乡塘总支一行来到广西贸促会。广西贸促会、广西国际商会副会长刘树义介绍了广西贸促会在服务企业“走出去”方面的核心职能与资源优势。他说，广西贸促会及广西国际商会充分发挥好中国—东盟商务与投资峰会、中国—东盟商务理事会开放平台，可为企业出海提供商事认证、原产地证办理、经贸摩擦预警、企业合规风险评估等
 
 ## 正文
 
-记者丨李益文 编辑丨李燕娜 5月6日，影视板块盘中震荡走高，个股上涨态势显著，博纳影业（001330.SZ）盘中涨停，华策影视（300133.SZ）涨近10%，截至午间收盘，北京文化（000802.SZ），捷成股份（300182.SZ）涨超4%，百纳千成（300291.SZ），欢瑞世纪（维权）（000892.SZ）等个股跟涨。
+6月10日，民建南宁市西乡塘总支部与广西贸促会、广西国际商会开展企业出海交流活动。
 
-影视板块集体走强，核心驱动力来自五一档电影市场的回暖表现。
+西乡塘总支一行来到广西贸促会。
 
-消息面上，据国家电影局统计，今年五一档电影票房为7.58亿元，超过去年五一档总票房7.47亿元，同比增长1.41%，观影人次为2084.19万，放映场次为237.6万场，同比增长分别为10.23%和2%。
+广西贸促会、广西国际商会副会长刘树义介绍了广西贸促会在服务企业“走出去”方面的核心职能与资源优势。
 
-档期数据稳步增长的背后，是影片供给扩容与票价下调的双重助力。
+他说，广西贸促会及广西国际商会充分发挥好中国—东盟商务与投资峰会、中国—东盟商务理事会开放平台，可为企业出海提供商事认证、原产地证办理、经贸摩擦预警、企业合规风险评估等全链条服务，助力企业用足用好自贸协定关税减免等政策红利，降低出海合规成本，为企业“出海”保驾护航。
 
-从影片阵容来看，今年“五一档”堪称“豪华”。
+我们愿发挥好贸促会、国际商会的资源及渠道优势，助推民建企业拓展合作渠道，精准开拓国际市场。
 
-据灯塔专业版统计，共有13部电影在“五一”期间上映，为近三年最多。
+西乡塘总支主委俞华胜说，民建西乡塘总支立足西乡塘区产业特色，聚焦民营经济发展需求，搭建政企沟通桥梁、凝聚发展合力。
 
-与此同时，为了争取更多观众，片方和影院也同步下调票价与结算标准，今年五一档平均票价36.3元，去年同期平均票价39.5元，同比下降8%，创下近四年同期最优惠水平，以低价策略降低观影门槛，有效撬动消费潜力。
+此次交流是总支服务会员企业、助力企业出海的一项举措，感谢广西贸促会的专业指导与政策赋能。
 
-此外，政策面的“推手”同样不容忽视。
+未来，总支将持续发挥桥梁纽带作用，常态化开展此类政企对接活动，精准链接政策资源与企业需求，助力会员企业深耕国内市场、拓展国际空间，为广西高水平对外开放和民营经济高质量发展贡献民建力量。
 
 ## 相关推荐
 
-- 2026-06-30 05:47 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 06:03 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 05:59 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 05:58 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 05:43 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 06:11 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 05:48 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 05:57 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 05:54 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 05:50 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 06:01 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 05:50 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 06:15 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 05:55 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 06:08 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 05:56 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 05:57 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 05:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 05:59 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 05:58 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 05:58 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 05:48 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 06:17 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 05:50 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 05:51 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/6628985.shtml)
-- 2026-06-30 05:47 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/91741.shtml)
-- 2026-06-30 06:06 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/33079242.shtml)
-- 2026-06-30 06:02 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/738532804.shtml)
-- 2026-06-30 06:05 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/2280683041.shtml)
-- 2026-06-30 05:50 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/56214875360.shtml)
-- 2026-06-30 06:07 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/165412919.shtml)
-- 2026-06-30 06:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/24582541.shtml)
-- 2026-06-30 06:01 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/3694598.shtml)
-- 2026-06-30 05:47 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/1607426.shtml)
-- 2026-06-30 05:56 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/139461333.shtml)
-- 2026-06-30 05:43 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/10764.shtml)
-- 2026-06-30 06:10 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/74327632807.shtml)
-- 2026-06-30 06:10 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/948848654426.shtml)
-- 2026-06-30 06:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/37065875.shtml)
+- 2026-06-30 06:12 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/5992620.shtml)
+- 2026-06-30 06:07 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/075173.shtml)
+- 2026-06-30 06:17 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/291737360.shtml)
+- 2026-06-30 06:15 - [月亮](http://www.share.kurohicncr.top/Article/details/2186211.shtml)
+- 2026-06-30 06:08 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/827509013820.shtml)
+- 2026-06-30 05:57 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/957388.shtml)
+- 2026-06-30 06:07 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/021956575124.shtml)
+- 2026-06-30 06:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/196138142888.shtml)
+- 2026-06-30 05:53 - [一生一世](https://www.blog.minike.top/Article/details/44596778.shtml)
+- 2026-06-30 05:54 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/78649.shtml)
+- 2026-06-30 05:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/5150708695.shtml)
+- 2026-06-30 05:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/75573320668.shtml)
+- 2026-06-30 06:06 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/6898301.shtml)
+- 2026-06-30 05:57 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/96568071595.shtml)
+- 2026-06-30 06:00 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/2198911.shtml)

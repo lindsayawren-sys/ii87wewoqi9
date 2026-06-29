@@ -1,55 +1,59 @@
-# 河北农工党沧州市委与沧州市工人文化宫联合举办当代书画名家作品展
+# 嘉祥农商行增资1800万元，济宁已有8家农商行增资
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-为庆祝“五一”国际劳动节，响应国家发展文化事业、树立文化自信的号召，5月1日，由沧州市工人文化宫主办、农工党沧州市委协办的《中国梦·劳动美——迎五一当代书画名家作品展》在沧州市工人文化宫正式启幕。此次展览聚焦时代发展、家国情怀、文化传承与劳动风采，作品题材丰富、形式多样，既展现了深厚的艺术功底，也彰显了新时代参政党成员的责任担当与精神风貌。开展期间，吸引了众多市民、职工和农工党
+泰山财经记者林俊洁 近日，山东嘉祥农村商业银行股份有限公司（下称“嘉祥农商行”）发生工商变动，注册资本由6亿元变更为6.18亿元，增加1799.992万元。 事实上，今年3月11日，济宁金融监管分局已同意嘉祥农商行上述增资事宜。这也是该行近年来首次增资。 泰山财经记者注意到，嘉祥农商行此次增资并非个例，2026年开年以来，济宁农商行系统迎来一轮集中增资潮，目前，包括嘉祥农商行在
 
 ## 正文
 
-为庆祝“五一”国际劳动节，响应国家发展文化事业、树立文化自信的号召，5月1日，由沧州市工人文化宫主办、农工党沧州市委协办的《中国梦·劳动美——迎五一当代书画名家作品展》在沧州市工人文化宫正式启幕。
+泰山财经记者林俊洁 近日，山东嘉祥农村商业银行股份有限公司（下称“嘉祥农商行”）发生工商变动，注册资本由6亿元变更为6.18亿元，增加1799.992万元。
 
-此次展览聚焦时代发展、家国情怀、文化传承与劳动风采，作品题材丰富、形式多样，既展现了深厚的艺术功底，也彰显了新时代参政党成员的责任担当与精神风貌。
+事实上，今年3月11日，济宁金融监管分局已同意嘉祥农商行上述增资事宜。
 
-开展期间，吸引了众多市民、职工和农工党党员前来观展交流。
+这也是该行近年来首次增资。
 
-大家驻足欣赏、交流心得，在艺术熏陶中感受传统文化魅力，在书画意境中凝聚奋进力量。
+泰山财经记者注意到，嘉祥农商行此次增资并非个例，2026年开年以来，济宁农商行系统迎来一轮集中增资潮，目前，包括嘉祥农商行在内，济宁已有8家农商行获批补充资本金。
 
-此次书画展是农工党沧州市委丰富文化建设的生动实践，农工党沧州市委将继续发挥自身优势，联合社会各界力量，开展更多形式多样、内容丰富的文化惠民活动，以文化人、以艺通心，为加快建设现代化沿海经济强市贡献智慧和力量。
+2月5日，济宁金融监管分局核准邹城农商行变更注册资本事宜，该行注册资本由7.28亿元增至7.49亿元，增资金额为2159.64万元。
 
-来源：沧州农工党微信公众号
+同月13日，微山农商行、泗水农商行同步获得增资批复。
+
+其中，微山农商行获批增资1232.20万元，注册资本由4.11亿元增至4.23亿元；泗水农商行获准增资805.40万元，注册资本从2.68亿元调整至2.77亿元。
+
+当月27日，曲阜农商行增资申请也获核准，增加注册资本1060.76万元，注册资本由5.30亿元变更为5.41亿元。
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 05:56 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 05:59 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 05:43 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 06:07 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 05:45 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 06:02 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 05:59 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 05:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 06:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 06:11 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 05:58 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 06:10 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 05:57 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 05:48 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 06:09 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 06:06 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 05:48 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 06:07 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-30 06:06 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 06:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 05:51 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 06:06 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 05:56 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 05:52 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 06:08 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:43 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/267765175.shtml)
-- 2026-06-30 05:50 - [恋与深空 日服](https://www.share.minike.top/Article/details/2712194.shtml)
-- 2026-06-30 05:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/95853106037.shtml)
-- 2026-06-30 06:01 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/6989178157.shtml)
-- 2026-06-30 05:55 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/64866.shtml)
-- 2026-06-30 06:05 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/73821896360.shtml)
-- 2026-06-30 05:48 - [起风了](https://www.blog.kurohicncr.top/Article/details/907533.shtml)
-- 2026-06-30 05:56 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/64264681799.shtml)
-- 2026-06-30 05:45 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/9757901.shtml)
-- 2026-06-30 05:48 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/8914262.shtml)
-- 2026-06-30 06:05 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/05969207.shtml)
-- 2026-06-30 06:03 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/9634343.shtml)
-- 2026-06-30 05:53 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/3179088412.shtml)
-- 2026-06-30 05:48 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/928115.shtml)
-- 2026-06-30 05:53 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/1700002181.shtml)
+- 2026-06-30 06:03 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/205981.shtml)
+- 2026-06-30 05:57 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/97421.shtml)
+- 2026-06-30 06:10 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/4571902439.shtml)
+- 2026-06-30 05:51 - [沙丘](http://www.blog.kurohicncr.top/Article/details/165085891631.shtml)
+- 2026-06-30 06:08 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/472213645236.shtml)
+- 2026-06-30 05:53 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/089861071784.shtml)
+- 2026-06-30 05:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/068705.shtml)
+- 2026-06-30 05:59 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/8280450319.shtml)
+- 2026-06-30 06:11 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/240945705091.shtml)
+- 2026-06-30 06:02 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/0939419.shtml)
+- 2026-06-30 05:50 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/86731003868.shtml)
+- 2026-06-30 06:15 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/3352236633.shtml)
+- 2026-06-30 05:56 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/182227.shtml)
+- 2026-06-30 06:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/13193431.shtml)
+- 2026-06-30 06:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/788844.shtml)

@@ -1,48 +1,56 @@
-# 今年“五一”假期银联网联共处理支付交易金额7.85万亿元
+# “国家队”购金意愿创历史新高！金价回调就是“抄底”良机？
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-记者从中国人民银行了解到，支付业务数据显示，2026年“五一”假期（2026年5月1日—5月5日），银联、网联共处理支付交易289.37亿笔，金额7.85万亿元，较去年“五一”假期（2025年5月1日—5月5日）分别增长23.45%和2.74%。其中，处理境外来华人员支付交易笔数、金额较去年同期分别增长45.15%和36.96%。责任编辑：曹睿潼
+文章来源：金十数据 世界黄金协会（World Gold Council）周二发布的报告显示，在其联合YouGov Plc对74家央行开展的调查中，有45%的受访央行计划在未来一年增加黄金储备，这一比例为自2018年开始统计以来的最高水平。同时，仅有一家央行表示将减持黄金。 这一结果表明，即便今年金价出现回落，支撑此前创纪录上涨的重要动力仍然存在。过去三年间，在各国央行持续加快购
 
 ## 正文
 
-记者从中国人民银行了解到，支付业务数据显示，2026年“五一”假期（2026年5月1日—5月5日），银联、网联共处理支付交易289.37亿笔，金额7.85万亿元，较去年“五一”假期（2025年5月1日—5月5日）分别增长23.45%和2.74%。
+文章来源：金十数据 世界黄金协会（World Gold Council）周二发布的报告显示，在其联合YouGov Plc对74家央行开展的调查中，有45%的受访央行计划在未来一年增加黄金储备，这一比例为自2018年开始统计以来的最高水平。
 
-其中，处理境外来华人员支付交易笔数、金额较去年同期分别增长45.15%和36.96%。
+同时，仅有一家央行表示将减持黄金。
 
-责任编辑：曹睿潼
+这一结果表明，即便今年金价出现回落，支撑此前创纪录上涨的重要动力仍然存在。
+
+过去三年间，在各国央行持续加快购金的推动下，金价累计上涨已超过一倍。
+
+不过，今年以来的市场环境出现变化。
+
+中东冲突推升能源成本，并强化了市场对利率将在更长时间维持高位的预期，从而削弱了不产生收益的黄金吸引力，部分涨幅因此被回吐。
+
+与此同时，投机资金持续撤出相关交易，金价近期已跌至自去年11月以来的最低水平。
+
+新兴经济体成为主要买方 从购金主体来看，未来一年的潜在需求主要来自新兴市场和发展中经济体。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 05:59 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 05:57 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 05:42 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 06:05 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 05:55 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 05:57 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 05:55 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 05:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 05:49 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 06:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 05:48 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 06:11 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 05:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 05:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 06:09 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 06:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 05:55 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 05:53 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 06:15 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 06:01 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 05:49 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/337464995884.shtml)
-- 2026-06-30 05:48 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/230387957.shtml)
-- 2026-06-30 06:09 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/89256587.shtml)
-- 2026-06-30 06:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/932452.shtml)
-- 2026-06-30 06:06 - [85花告别古偶](http://www.blog.minike.top/Article/details/649256927997.shtml)
-- 2026-06-30 06:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/244648597404.shtml)
-- 2026-06-30 05:49 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/6836151650.shtml)
-- 2026-06-30 05:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/0058052871.shtml)
-- 2026-06-30 05:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/809421188.shtml)
-- 2026-06-30 05:53 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/82583.shtml)
-- 2026-06-30 06:03 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/842051339675.shtml)
-- 2026-06-30 05:42 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/1728597509.shtml)
-- 2026-06-30 06:00 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/3310390057.shtml)
-- 2026-06-30 06:10 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/69679.shtml)
-- 2026-06-30 05:47 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/849446.shtml)
+- 2026-06-30 06:08 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/989844590878.shtml)
+- 2026-06-30 06:01 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/8987874728.shtml)
+- 2026-06-30 06:05 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/79639.shtml)
+- 2026-06-30 06:12 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/32999.shtml)
+- 2026-06-30 06:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/74097556.shtml)
+- 2026-06-30 06:13 - [《共患难》](http://www.blog.minike.top/Article/details/9849694701.shtml)
+- 2026-06-30 05:51 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/1428560769.shtml)
+- 2026-06-30 05:59 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/90954.shtml)
+- 2026-06-30 06:06 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/0763715378.shtml)
+- 2026-06-30 05:58 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/92066065366.shtml)
+- 2026-06-30 06:12 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/81367042.shtml)
+- 2026-06-30 06:09 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/28186119178.shtml)
+- 2026-06-30 05:59 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/38227272.shtml)
+- 2026-06-30 05:49 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/80027436285.shtml)
+- 2026-06-30 05:54 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/231337341.shtml)

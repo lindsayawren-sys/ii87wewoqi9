@@ -1,56 +1,56 @@
-# 2026从化咖啡元年启幕
+# 民进会员、科学教师王万江：“每个孩子都是天生的发明家”
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中新网广州5月5日电 (张璐 黄颖瑶)2026广州咖啡文化季从化区分会场活动(简称“活动”)4日在罗洞工匠小镇启动。 活动以“叹咖啡，来从化，给身心放个假”为主题，依托从化北回归线黄金咖啡带的生态禀赋，串联温泉、稻田、古村、森林、溪谷五大特色场景，拉开从化咖啡元年的序幕，推动咖啡产业与农文旅体商深度融合，打造广州乡村咖啡文旅标杆区。 “从化坐拥优越的生态资源，2021年咖啡种子
+中新网天津6月16日电 题：民进会员、科学教师王万江：“每个孩子都是天生的发明家” 中新网记者 徐雪莹 “每个孩子都是天生的发明家。我们要做的，是保护好他们的好奇心与创造力，守护好科学种子生长的土壤。”深耕科教领域30载，民进会员、天津市实验小学科学教师王万江近日接受中新网专访时如是表示。 跨越：从三尺讲台到“创客”天地 在天津市实验小学，王万江有个响亮的外号——“创客老师”。
 
 ## 正文
 
-中新网广州5月5日电 (张璐 黄颖瑶)2026广州咖啡文化季从化区分会场活动(简称“活动”)4日在罗洞工匠小镇启动。
+中新网天津6月16日电 题：民进会员、科学教师王万江：“每个孩子都是天生的发明家” 中新网记者 徐雪莹 “每个孩子都是天生的发明家。
 
-活动以“叹咖啡，来从化，给身心放个假”为主题，依托从化北回归线黄金咖啡带的生态禀赋，串联温泉、稻田、古村、森林、溪谷五大特色场景，拉开从化咖啡元年的序幕，推动咖啡产业与农文旅体商深度融合，打造广州乡村咖啡文旅标杆区。
+我们要做的，是保护好他们的好奇心与创造力，守护好科学种子生长的土壤。
 
-“从化坐拥优越的生态资源，2021年咖啡种子落地试种以来，历经三年培育，已形成本土种植、风味融合、场景共生的特色发展模式。
+”深耕科教领域30载，民进会员、天津市实验小学科学教师王万江近日接受中新网专访时如是表示。
 
-”从化区文旅协会咖啡文化专业委员会相关负责人介绍。
+跨越：从三尺讲台到“创客”天地 在天津市实验小学，王万江有个响亮的外号——“创客老师”。
 
-据悉，2021年，云南咖啡落地从化，青年乡咖在罗洞工匠小镇的荔枝林下开启试验种植；历经多年本土化改良种植，荔枝林间长出的咖啡豆自带清甜荔香，形成独一无二的从化风味。
+从校园实验室到国际发明展，从科学课堂到公益一线，他将普及科学知识、传播创新理念视为己任。
 
-2026年是从化咖啡元年，本土品牌“流溪荔夏”成功培育并注册，完成《从化咖啡种植规范》，确定卡蒂姆、萨奇姆、黄波旁三大适种品种，实现从试验到规模化的跨越。
+如今，他已是天津首位科学学科正高级教师，荣获民进中央2025年“叶圣陶教师奖”。
 
-据了解，从化区分会场活动将持续全年，推出一系列沉浸式咖啡文旅体验活动。
+1994年，王万江入职天津市和平区中心小学，成为一名语文教师。
 
-其中，罗洞工匠小镇青年乡咖工坊将常态化举办咖啡市集等活动；全域联动相关特色门店，统一标识打造打卡点位，串联形成多元消费网络。
+彼时的校长，是他小学时代的自然课启蒙老师、民进会员白德生。
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 05:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 06:05 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 06:10 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 06:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 05:57 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 05:48 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 05:48 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 05:59 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 05:51 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 05:51 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 05:54 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 05:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 06:17 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 05:54 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 06:14 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 06:00 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-30 06:01 - [日本16强魔咒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 06:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 05:55 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/53068858573.shtml)
-- 2026-06-30 06:03 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/39880.shtml)
-- 2026-06-30 05:44 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/089872.shtml)
-- 2026-06-30 05:44 - [千与千寻](https://www.blog.minike.top/Article/details/31650.shtml)
-- 2026-06-30 05:43 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/02500.shtml)
-- 2026-06-30 05:46 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/721253.shtml)
-- 2026-06-30 05:56 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/19718223.shtml)
-- 2026-06-30 06:05 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/486421.shtml)
-- 2026-06-30 05:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/30416.shtml)
-- 2026-06-30 06:09 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/96204863.shtml)
-- 2026-06-30 05:59 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/981137252.shtml)
-- 2026-06-30 05:45 - [流金岁月](https://www.share.kurohicncr.top/Article/details/71937757011.shtml)
-- 2026-06-30 06:07 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/2921489779.shtml)
-- 2026-06-30 05:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/07628.shtml)
-- 2026-06-30 05:48 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/881365269.shtml)
+- 2026-06-30 06:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/25680.shtml)
+- 2026-06-30 06:15 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/17724.shtml)
+- 2026-06-30 06:11 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/8138041502.shtml)
+- 2026-06-30 05:52 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/844934009740.shtml)
+- 2026-06-30 06:09 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/5652745.shtml)
+- 2026-06-30 05:48 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/26337671663.shtml)
+- 2026-06-30 06:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/2039496403.shtml)
+- 2026-06-30 06:12 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/41707254002.shtml)
+- 2026-06-30 05:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/5190092334.shtml)
+- 2026-06-30 05:57 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/52638661.shtml)
+- 2026-06-30 05:53 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/5649330.shtml)
+- 2026-06-30 05:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/4453429.shtml)
+- 2026-06-30 05:55 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/65159111.shtml)
+- 2026-06-30 05:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/64102316749.shtml)
+- 2026-06-30 05:53 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/9748195965.shtml)

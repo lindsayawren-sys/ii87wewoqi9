@@ -1,59 +1,58 @@
-# 美股芯片股大爆发，英特尔狂飙12%，市值突破5400亿美元，闪迪猛涨9%，国际油价跳水4%
+# 颠覆先进封装，帝尔激光、东威科技先吃肉！
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-记者丨金珊 编辑丨黎雨桐 5月5日，美股三大指数集体高开，截至北京时间22：20左右，纳指涨0.9%刷新盘中历史新高，道指涨0.39%，标普500指数涨0.67%。 大型科技股涨多跌少，亚马逊涨超2%，谷歌、特斯拉涨近2%。 芯片股大爆发，英特尔涨超12%，总市值突破5400亿美元，英特尔今年以来的涨幅已高达190%。存储概念股表现强劲，美光科技涨超10%，总市值突破7000亿
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：英才商业 为什么是玻璃基板？ 玻璃基板之所以被资本市场反复提及，本质上不是一个材料故事，而是一个先进封装故事。 01 为什么用玻璃基板？ 讲人话：未来芯片越来越大，互联越来越密，传统ABF载板开始接近物理极限，翘曲增加，信号损耗增加，散热压力增加，成本也越来越高，于是行业开始寻找新的载体，玻璃基板就在
 
 ## 正文
 
-记者丨金珊 编辑丨黎雨桐 5月5日，美股三大指数集体高开，截至北京时间22：20左右，纳指涨0.9%刷新盘中历史新高，道指涨0.39%，标普500指数涨0.67%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-大型科技股涨多跌少，亚马逊涨超2%，谷歌、特斯拉涨近2%。
+来源：英才商业 为什么是玻璃基板？
 
-芯片股大爆发，英特尔涨超12%，总市值突破5400亿美元，英特尔今年以来的涨幅已高达190%。
+玻璃基板之所以被资本市场反复提及，本质上不是一个材料故事，而是一个先进封装故事。
 
-存储概念股表现强劲，美光科技涨超10%，总市值突破7000亿美元，闪迪涨超9%，西部数据涨超5%，希捷科技涨近5%。
+01 为什么用玻璃基板？
 
-纳斯达克中国金龙指数涨超0.5%，贝壳涨超3%，阿特斯太阳能涨超2%，世纪互联、逸仙电商涨超1%。
+讲人话：未来芯片越来越大，互联越来越密，传统ABF载板开始接近物理极限，翘曲增加，信号损耗增加，散热压力增加，成本也越来越高，于是行业开始寻找新的载体，玻璃基板就在这个背景下出现； 专业点：从芯片封装尺寸演进看，算力芯片大型化趋势非常明确：从Hopper 55×58mm，到Blackwell 80×75mm，再到Rubin 90×100mm，封装面积、信号数和供电密度不断上升，意味着传统有机芯层在翘曲控制与布线密度上的压力只会越来越大。
 
-金银价格持续拉升，现货黄金涨超1%报4575美元/盎司，现货白银涨超1%报73.5美元/盎司。
+因为AI/HPC封装尺寸持续放大后，ABF/有机载板和硅中介层同时暴露出边界条件。
 
-国际油价方面，WTI原油期货跌幅扩大至4%，报102.3美元/桶。
+ABF载板的热膨胀系数失配导致翘曲、线宽线距逼近极限、高频损耗偏高；硅中介层的问题则是尺寸受晶圆与reticle限制、介电损耗偏高、成本高、晶圆厂资源占用重。
 
-布伦特原油期货跌近3%，报111.33美元/桶。
+这是玻璃基板被重新推到产业前端的根本原因，趋势已成。
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 05:49 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 06:06 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 06:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 05:54 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 05:56 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 05:53 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 05:48 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 06:02 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 06:05 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 05:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 06:06 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 05:48 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 06:00 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 06:08 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 06:03 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 06:01 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 06:08 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 06:01 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 05:59 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 05:52 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 06:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 06:14 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 06:06 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 05:53 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:54 - [日本领先巴西](https://www.blog.minike.top/Article/details/848513356.shtml)
-- 2026-06-30 06:01 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/819927062.shtml)
-- 2026-06-30 06:00 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/4760015840.shtml)
-- 2026-06-30 05:54 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/40820107.shtml)
-- 2026-06-30 05:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/830756.shtml)
-- 2026-06-30 05:47 - [沉睡花园](https://www.blog.minike.top/Article/details/77726.shtml)
-- 2026-06-30 06:06 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/53301981588.shtml)
-- 2026-06-30 06:10 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/0898907553.shtml)
-- 2026-06-30 06:03 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/4865012803.shtml)
-- 2026-06-30 05:59 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/56805106155.shtml)
-- 2026-06-30 05:47 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/0393985500.shtml)
-- 2026-06-30 06:05 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/91901437539.shtml)
-- 2026-06-30 05:45 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/9424132.shtml)
-- 2026-06-30 06:11 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/14870.shtml)
-- 2026-06-30 06:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/95225.shtml)
+- 2026-06-30 05:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/52850916.shtml)
+- 2026-06-30 05:48 - [美股](https://www.blog.kurohicncr.top/Article/details/551143167473.shtml)
+- 2026-06-30 05:51 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/42811.shtml)
+- 2026-06-30 05:50 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/12741.shtml)
+- 2026-06-30 06:17 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/480666142565.shtml)
+- 2026-06-30 06:15 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/386580161.shtml)
+- 2026-06-30 06:14 - [我和我的家乡](https://www.share.minike.top/Article/details/32534.shtml)
+- 2026-06-30 06:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/4566157.shtml)
+- 2026-06-30 05:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/846272146477.shtml)
+- 2026-06-30 05:56 - [送你一朵小红花](https://www.blog.minike.top/Article/details/43777.shtml)
+- 2026-06-30 06:11 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/547200833.shtml)
+- 2026-06-30 06:00 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/442383.shtml)
+- 2026-06-30 06:08 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/02676248.shtml)
+- 2026-06-30 06:06 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/82638134112.shtml)
+- 2026-06-30 06:17 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/765096925050.shtml)

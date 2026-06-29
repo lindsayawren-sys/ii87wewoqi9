@@ -1,60 +1,57 @@
-# 第139届广交会多项指标超往届 许多采购商已预约看厂
+# 希迪智驾午后飙升逾33% 沙特国家矿业公司到访希迪智驾共推智慧矿山全球化实践
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中新网广州5月6日电 (记者 程景伟)据广交会新闻中心6日通报，第139届广交会于5月5日收官。在“十五五”开局启航的关键节点，本届广交会“新绿智”产品、境外采购商、头部采购商数量等多项指标均超往届。 面对复杂外部环境，本届广交会以开放之姿聚全球客商，以创新之智展中国制造，以服务之优架贸易桥梁，彰显了中国外贸的韧性与活力、中国扩大高水平对外开放的决心与担当。 本届广交会现场意向
+希迪智驾（03881）盘中飙升逾35%，截至发稿，股价上涨33.56%，现报22.96港元，成交额1.24亿港元。 6月16日，沙特阿拉伯国家矿业公司（Maaden）代表团到访希迪智驾开展交流考察。双方围绕矿区无人运输、矿山数字化建设及全球化合作等方向展开深入交流，共同探讨智慧矿山技术在全球场景下的应用实践与发展机遇。据悉，Maaden是沙特国家级矿业龙头企业，也是沙特“Vis
 
 ## 正文
 
-中新网广州5月6日电 (记者 程景伟)据广交会新闻中心6日通报，第139届广交会于5月5日收官。
+希迪智驾（03881）盘中飙升逾35%，截至发稿，股价上涨33.56%，现报22.96港元，成交额1.24亿港元。
 
-在“十五五”开局启航的关键节点，本届广交会“新绿智”产品、境外采购商、头部采购商数量等多项指标均超往届。
+6月16日，沙特阿拉伯国家矿业公司（Maaden）代表团到访希迪智驾开展交流考察。
 
-面对复杂外部环境，本届广交会以开放之姿聚全球客商，以创新之智展中国制造，以服务之优架贸易桥梁，彰显了中国外贸的韧性与活力、中国扩大高水平对外开放的决心与担当。
+双方围绕矿区无人运输、矿山数字化建设及全球化合作等方向展开深入交流，共同探讨智慧矿山技术在全球场景下的应用实践与发展机遇。
 
-本届广交会现场意向出口成交257亿美元，许多采购商已预约后续看厂。
+据悉，Maaden是沙特国家级矿业龙头企业，也是沙特“Vision 2030”战略的重要实施主体。
 
-本届广交会现场展出展品465万件，其中“新绿智”产品占比均超20%；现场举办665场新品发布活动，超六成产品应用创新技术；CF奖“设计之光”展示区汇聚历年金奖以上精品。
+此外，希迪智驾携自主研发的远程操控挖掘机亮相澳大利亚2026珀斯技工博览会（Perth Tradie Expo），以AI+远程操控创新技术方案引发广泛关注。
 
-广交会上，无人机、智能穿戴等产品同台竞技，创新设计、绿色材料“爆款”频出，国潮美学引领全球消费新时尚，外骨骼装备、仿生手等温暖世界、造福全球。
+此次参展，标志着希迪智驾在海外市场拓展中迈出重要一步，也展现了中国智能驾驶与工程机械远程操控技术的国际竞争力。
 
-中国企业以创新智慧书写“中国骄傲”，以科技温度传递大国善意。
-
-据悉，第140届广交会将于2026年10月15日至11月4日在广州举办。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:47 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 06:00 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 05:58 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 05:57 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 05:55 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 05:44 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 05:47 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 05:43 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 05:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 05:58 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 05:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 06:01 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 05:46 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 06:10 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 05:52 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 06:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 06:03 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 05:59 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 06:02 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 06:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 06:01 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 05:56 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 06:14 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 06:08 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 06:07 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 05:54 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 05:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:43 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/771859.shtml)
-- 2026-06-30 05:50 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/3245753.shtml)
-- 2026-06-30 06:10 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/35118770.shtml)
-- 2026-06-30 05:49 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/204278126.shtml)
-- 2026-06-30 05:47 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.kurohicncr.top/Article/details/68314688.shtml)
-- 2026-06-30 06:03 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/70221598.shtml)
-- 2026-06-30 06:11 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/489911613005.shtml)
-- 2026-06-30 05:42 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/48351265192.shtml)
-- 2026-06-30 05:43 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/964618447.shtml)
-- 2026-06-30 05:56 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/858885823348.shtml)
-- 2026-06-30 05:58 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/51024.shtml)
-- 2026-06-30 06:08 - [美股](https://www.share.minike.top/Article/details/488433880888.shtml)
-- 2026-06-30 06:00 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/6190982.shtml)
-- 2026-06-30 06:07 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/89366.shtml)
-- 2026-06-30 05:58 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/237637943.shtml)
+- 2026-06-30 06:11 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/50881.shtml)
+- 2026-06-30 06:00 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/45650.shtml)
+- 2026-06-30 05:50 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/612687792825.shtml)
+- 2026-06-30 05:50 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/497392.shtml)
+- 2026-06-30 06:04 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/42934147.shtml)
+- 2026-06-30 06:06 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/237919.shtml)
+- 2026-06-30 05:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/12325857.shtml)
+- 2026-06-30 06:02 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/7259695.shtml)
+- 2026-06-30 06:07 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/98133454.shtml)
+- 2026-06-30 05:49 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/929442.shtml)
+- 2026-06-30 05:49 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/8846687502.shtml)
+- 2026-06-30 06:03 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/0195970353.shtml)
+- 2026-06-30 06:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/79026975888.shtml)
+- 2026-06-30 06:09 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/842909660871.shtml)
+- 2026-06-30 06:09 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/9446987335.shtml)

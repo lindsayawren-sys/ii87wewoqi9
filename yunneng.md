@@ -1,59 +1,58 @@
-# 哈萨克斯坦今年一季度可再生能源发电量同比增长15%
+# 存储“一哥”、光模块“一哥”、PCB“一哥”，A股前三
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中新网阿斯塔纳5月6日电 (记者 单璐)哈萨克斯坦能源部6日发布消息称，2026年第一季度，哈萨克斯坦可再生能源发电量达23亿千瓦时，同比增长15%。 为进一步扩大可再生能源发电规模，哈萨克斯坦今年计划投运10个新的可再生能源项目，包括4座风电站、5座太阳能电站和1座水电站，新增项目总装机容量为245兆瓦。 数据显示，2025年，可再生能源发电量占哈萨克斯坦全国发电总量的7%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，A股市场全线飘红。今日收盘，上证指数涨0.4%，深证成指涨1.31%，创业板指涨1.56%，科创综指涨3.21%。全市场1723只个股上涨，3734只个股下跌，全天成交额31140亿元，较上一交易日增加277亿元。 同花顺数据显示，今日电子化学品、元件、存储芯片、半导体设备、面板板块涨幅居前；影
 
 ## 正文
 
-中新网阿斯塔纳5月6日电 (记者 单璐)哈萨克斯坦能源部6日发布消息称，2026年第一季度，哈萨克斯坦可再生能源发电量达23亿千瓦时，同比增长15%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-为进一步扩大可再生能源发电规模，哈萨克斯坦今年计划投运10个新的可再生能源项目，包括4座风电站、5座太阳能电站和1座水电站，新增项目总装机容量为245兆瓦。
+6月17日，A股市场全线飘红。
 
-数据显示，2025年，可再生能源发电量占哈萨克斯坦全国发电总量的7%。
+今日收盘，上证指数涨0.4%，深证成指涨1.31%，创业板指涨1.56%，科创综指涨3.21%。
 
-根据规划，到2030年，这一比例将提升至15%。
+全市场1723只个股上涨，3734只个股下跌，全天成交额31140亿元，较上一交易日增加277亿元。
 
-哈能源部称，目前已有多家国际企业参与哈萨克斯坦可再生能源领域项目建设，包括法国道达尔能源公司、中国电力国际发展有限公司、阿联酋马斯达尔能源公司以及中国能源建设集团等。
+同花顺数据显示，今日电子化学品、元件、存储芯片、半导体设备、面板板块涨幅居前；影视院线、旅游及酒店、煤炭开采加工、养鸡、小金属板块跌幅居前。
 
-消息称，到2035年，哈萨克斯坦计划新增超过8吉瓦可再生能源装机容量。
+今日，PCB概念延续强势表现，宏昌电子7天5板，华正新材3连板。
 
-哈能源部认为，相关项目实施后，将有助于增强国家电力系统稳定性，提高能源安全水平，并进一步推动能源结构多元化。
+市场消息称，在供给端，高端覆铜板产线建设周期长（超过18个月），叠加下游客户严格的认证体系（周期长达1—2年），导致新增高端产能落地缓慢，供需缺口持续扩大，推高了产品价格。
 
-(完)
+存储芯片板块今日走出亮眼行情。
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 06:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 05:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 06:04 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 06:10 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 05:44 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 05:58 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 05:48 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 05:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 05:52 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 05:47 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 05:48 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 06:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 06:06 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 06:10 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 06:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 06:05 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 05:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 06:10 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 06:15 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 06:14 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 06:00 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 06:13 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 06:07 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 05:50 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:07 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/780433.shtml)
-- 2026-06-30 06:03 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/6394928.shtml)
-- 2026-06-30 06:00 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/364940.shtml)
-- 2026-06-30 05:48 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/7582031640.shtml)
-- 2026-06-30 05:45 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/82118.shtml)
-- 2026-06-30 05:42 - [周生如故](http://www.blog.kurohicncr.top/Article/details/37961408155.shtml)
-- 2026-06-30 06:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/23737868.shtml)
-- 2026-06-30 06:06 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/97626960.shtml)
-- 2026-06-30 06:00 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/19335934625.shtml)
-- 2026-06-30 06:09 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/7287525.shtml)
-- 2026-06-30 05:58 - [金刚川](https://www.share.minike.top/Article/details/74862796321.shtml)
-- 2026-06-30 06:07 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/87608.shtml)
-- 2026-06-30 05:50 - [森保一 保守](https://www.blog.kurohicncr.top/Article/details/9442940.shtml)
-- 2026-06-30 06:05 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/79418238.shtml)
-- 2026-06-30 05:55 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/367457766.shtml)
+- 2026-06-30 06:17 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/754206465490.shtml)
+- 2026-06-30 05:53 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/86203962104.shtml)
+- 2026-06-30 06:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/492433.shtml)
+- 2026-06-30 06:05 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/43165204.shtml)
+- 2026-06-30 05:55 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/193516591.shtml)
+- 2026-06-30 06:09 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/971529259905.shtml)
+- 2026-06-30 06:16 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/02412.shtml)
+- 2026-06-30 06:16 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/369704702730.shtml)
+- 2026-06-30 05:54 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/2159973.shtml)
+- 2026-06-30 06:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/92475727492.shtml)
+- 2026-06-30 06:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/998957152.shtml)
+- 2026-06-30 06:16 - [这一刀 会很帅](https://www.share.minike.top/Article/details/1743789.shtml)
+- 2026-06-30 05:48 - [恋与深空 日服](https://www.blog.minike.top/Article/details/52855.shtml)
+- 2026-06-30 06:00 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/300741770601.shtml)
+- 2026-06-30 05:49 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/3936572.shtml)

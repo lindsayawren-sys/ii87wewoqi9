@@ -1,61 +1,60 @@
-# 浙江杭州：立夏日 民众享西湖风光
+# 千里驰援 浙江紧急支援青海海西震区
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-百年中山装何以穿出“国潮”新生？全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天为青年们喝彩！一只流浪狗，为何让这座安徽小城收获泼天流量？短评：欧洲议会的“选择性失明”东京审判为何关乎今天？爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神
+中新网西宁6月17日电 (沈宇 孙睿)记者16日晚从浙江援青指挥部获悉，海西州大柴旦发生地震后，相隔2500公里的浙江省迅速响应，紧急开展资金、物资援助，全力支援当地抗震救灾工作。 6月16日17时6分，青海省海西蒙古族藏族自治州大柴旦发生6.3级地震。截至目前，地震已造成1人遇难、8人受伤。 灾情牵动浙江各界。浙江省委、省政府主要领导及相关部门第一时间了解灾情，向受灾民众、援
 
 ## 正文
 
-百年中山装何以穿出“国潮”新生？
+中新网西宁6月17日电 (沈宇 孙睿)记者16日晚从浙江援青指挥部获悉，海西州大柴旦发生地震后，相隔2500公里的浙江省迅速响应，紧急开展资金、物资援助，全力支援当地抗震救灾工作。
 
-全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天为青年们喝彩！
+6月16日17时6分，青海省海西蒙古族藏族自治州大柴旦发生6.3级地震。
 
-一只流浪狗，为何让这座安徽小城收获泼天流量？
+截至目前，地震已造成1人遇难、8人受伤。
 
-短评：欧洲议会的“选择性失明”东京审判为何关乎今天？
+灾情牵动浙江各界。
 
-爱奇艺，到底在急什么？
+浙江省委、省政府主要领导及相关部门第一时间了解灾情，向受灾民众、援青干部、在青浙商和浙籍人员送上慰问。
 
-榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？
+浙江省援青办同步下发紧急通知，号召第六批全体援青干部积极参与抗震救灾工作。
 
-从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？
+地震发生后，浙江省援青指挥部立即启动应急响应，组建专项工作小组，逐一摸排援青干部、浙商等人员安全情况，全力配合当地开展灾情处置，并向灾区捐赠300万元救灾资金，为抢险救援提供资金支持。
 
-“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
+此外，浙江省民政厅、省红十字会和阿里公益等社会公益基金会积极联系浙江省援青指挥部，连夜向灾区紧急发送包括1500箱矿泉水、1000箱方便面、100顶救灾帐篷在内的首批应急生活物资，助力保障受灾民众基本生活需求。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 05:43 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 05:53 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 05:56 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 06:08 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 05:58 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 05:50 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 06:09 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 05:58 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 06:07 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 05:46 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 06:08 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 05:50 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 05:56 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 05:49 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 05:55 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 05:59 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 06:08 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 06:08 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 05:59 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 05:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 05:57 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 06:08 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 06:13 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 06:16 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 06:13 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 05:57 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 06:04 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 05:52 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/12589390795.shtml)
-- 2026-06-30 05:51 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/01093.shtml)
-- 2026-06-30 05:48 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/8005567641.shtml)
-- 2026-06-30 05:54 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/239626328.shtml)
-- 2026-06-30 05:52 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/8976218313.shtml)
-- 2026-06-30 06:09 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/1550758.shtml)
-- 2026-06-30 05:57 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/1643512130.shtml)
-- 2026-06-30 05:49 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/17580686823.shtml)
-- 2026-06-30 06:05 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/059320732.shtml)
-- 2026-06-30 05:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/1372786846.shtml)
-- 2026-06-30 05:47 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/101227989.shtml)
-- 2026-06-30 06:01 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/21888202.shtml)
-- 2026-06-30 06:09 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/406430796726.shtml)
-- 2026-06-30 05:44 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/6679261659.shtml)
-- 2026-06-30 06:09 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/1245321.shtml)
+- 2026-06-30 06:03 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/12354460.shtml)
+- 2026-06-30 05:57 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/503250.shtml)
+- 2026-06-30 05:55 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/138460764.shtml)
+- 2026-06-30 06:01 - [金牌调解](http://www.blog.minike.top/Article/details/74427.shtml)
+- 2026-06-30 05:58 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/0712555.shtml)
+- 2026-06-30 06:12 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/86198.shtml)
+- 2026-06-30 05:54 - [恋与深空 日服](http://www.share.minike.top/Article/details/05187332310.shtml)
+- 2026-06-30 06:06 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/43332.shtml)
+- 2026-06-30 05:53 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/31682.shtml)
+- 2026-06-30 05:52 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/415147.shtml)
+- 2026-06-30 06:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/338029154.shtml)
+- 2026-06-30 06:11 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/33099.shtml)
+- 2026-06-30 06:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/8862804.shtml)
+- 2026-06-30 06:03 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/90158108103.shtml)
+- 2026-06-30 05:55 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/560922121826.shtml)

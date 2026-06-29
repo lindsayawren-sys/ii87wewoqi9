@@ -1,57 +1,61 @@
-# 芯片制造商推动纳斯达克和标普500指数创下新高
+# 动物园年薪10万招黑熊NPC，已有上百人报名！
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-周二，投资者大举买进存储芯片类股，推动纳斯达克综合指数和标普500指数创下历史新高，并使费城半导体指数创下自互联网泡沫时代以来的最佳表现。 自3月底以来，该指数已累计上涨54%，创下自2000年3月以来25个交易日内的最佳表现。芯片制造商正加紧行动，以满足对专用设备的激增需求，这些设备对驱动人工智能（AI）至关重要。 存储芯片价格上涨增加了苹果公司等科技巨头的成本，但为该板块的
+原标题：动物园年薪10万招黑熊NPC，已有上百人报名！ 年薪10万元 工作只需嗷嗷叫—— 近日，漯河野生动物园 一则“黑熊NPC” 招聘信息火了 岗位要求 “全程严禁说人话” “越抽象越受欢迎” 被不少网友戏称为“神仙岗位” 据大象新闻报道，6月17日，漯河野生动物园工作人员陈家宁向记者介绍，园区确有招聘黑熊NPC计划，目前报名人数已有100多人，尚未招满。 该岗位每天工作6小
 
 ## 正文
 
-周二，投资者大举买进存储芯片类股，推动纳斯达克综合指数和标普500指数创下历史新高，并使费城半导体指数创下自互联网泡沫时代以来的最佳表现。
+原标题：动物园年薪10万招黑熊NPC，已有上百人报名！
 
-自3月底以来，该指数已累计上涨54%，创下自2000年3月以来25个交易日内的最佳表现。
+年薪10万元 工作只需嗷嗷叫—— 近日，漯河野生动物园 一则“黑熊NPC” 招聘信息火了 岗位要求 “全程严禁说人话” “越抽象越受欢迎” 被不少网友戏称为“神仙岗位” 据大象新闻报道，6月17日，漯河野生动物园工作人员陈家宁向记者介绍，园区确有招聘黑熊NPC计划，目前报名人数已有100多人，尚未招满。
 
-芯片制造商正加紧行动，以满足对专用设备的激增需求，这些设备对驱动人工智能（AI）至关重要。
+该岗位每天工作6小时、月休4天、包吃包住、工资月结。
 
-存储芯片价格上涨增加了苹果公司等科技巨头的成本，但为该板块的制造商带来了财务利好。
+工作人员表示，该岗位不需要专业技能，核心工作是“和游客互动”。
 
-周二的涨势推动英特尔公司股价上涨13%，市值达到约5440亿美元，超过了甲骨文公司和强生公司。
+性格方面“越抽象越加分”，要敢放飞、敢搞怪、不怯场，“最好是社牛一点”。
 
-闪迪、美光科技和高通的股价涨幅均超过10%，提振以科技股集中的纳斯达克综合指数上涨1%。
+针对网友最关心的薪酬问题，相关负责人回应媒体采访时表示：“年薪10万是真实的，保底10万。
 
-富国证券首席股票策略师表示，设计、生产或销售高强度AI任务所需计算机芯片的公司，是目前大规模AI基础设施建设的最大受益者。
+”考虑到夏季户外工作较为辛苦，园方特意将薪酬定在较高水平。
 
-“这确实是瓶颈所在，”他说。
+工作时间方面，“每天不会超过8个小时。
 
 ## 相关推荐
 
-- 2026-06-30 06:04 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 05:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 05:53 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 05:57 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 05:46 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 06:10 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 05:43 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 06:03 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 05:52 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 06:10 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 06:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 05:56 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 06:18 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 05:54 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 05:55 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 05:51 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 05:58 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 06:16 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 05:58 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 05:57 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 06:02 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 06:17 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 05:58 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 06:09 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 06:16 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 06:05 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:00 - [流金岁月](http://www.share.minike.top/Article/details/8071276384.shtml)
-- 2026-06-30 05:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/90611687906.shtml)
-- 2026-06-30 05:58 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/9219559558.shtml)
-- 2026-06-30 05:49 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/9420373876.shtml)
-- 2026-06-30 05:59 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/456875991143.shtml)
-- 2026-06-30 05:52 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/186816699.shtml)
-- 2026-06-30 05:48 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.minike.top/Article/details/680582550.shtml)
-- 2026-06-30 05:56 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/5505038.shtml)
-- 2026-06-30 05:54 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/608809830.shtml)
-- 2026-06-30 05:48 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/59052635763.shtml)
-- 2026-06-30 05:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/75555.shtml)
-- 2026-06-30 06:09 - [急先锋](http://www.blog.kurohicncr.top/Article/details/0918860781.shtml)
-- 2026-06-30 05:54 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/7383098859.shtml)
-- 2026-06-30 05:55 - [金牌调解](https://www.blog.minike.top/Article/details/33371.shtml)
-- 2026-06-30 06:11 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/65996792.shtml)
+- 2026-06-30 06:06 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/66354813.shtml)
+- 2026-06-30 06:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/8010126.shtml)
+- 2026-06-30 05:51 - [巴西绝杀日本](https://www.share.minike.top/Article/details/4883403034.shtml)
+- 2026-06-30 05:50 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/94204.shtml)
+- 2026-06-30 06:09 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/83728397.shtml)
+- 2026-06-30 06:15 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/748835.shtml)
+- 2026-06-30 06:06 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/368057534.shtml)
+- 2026-06-30 05:59 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/539044.shtml)
+- 2026-06-30 05:57 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/760533966.shtml)
+- 2026-06-30 06:03 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/048608214.shtml)
+- 2026-06-30 06:13 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/205876.shtml)
+- 2026-06-30 06:01 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/410618.shtml)
+- 2026-06-30 05:48 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/8864123380.shtml)
+- 2026-06-30 05:59 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/7715862.shtml)
+- 2026-06-30 05:55 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/089701.shtml)

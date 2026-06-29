@@ -1,58 +1,50 @@
-# 戴姆勒卡车公司营业利润减半 需求疲软和关税冲击北美市场
+# 港股三大指数盘初拉升，恒生科技指数翻红
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-全球最大卡车制造商之一戴姆勒卡车公司周三表示，受历史性疲软的需求及其关键市场北美地区进口关税的影响，其第一季度营业利润减少了一半以上。该公司经调整后的营业利润为4.98亿欧元（合5.8356亿美元），而去年同期为10.8亿欧元。 戴姆勒卡车的业绩反映了北美市场的急剧放缓，该地区销量下降了四分之一，至29，432辆，而特朗普领导下的美国政府实施的进口关税对汽车行业造成了重大打击。
+6月17日消息，港股三大指数盘初拉升，恒生科技指数翻红。科指成分股中，舜宇光学科技涨超7%，联想涨超3%，商汤涨超2%。 责任编辑：郝欣煜
 
 ## 正文
 
-全球最大卡车制造商之一戴姆勒卡车公司周三表示，受历史性疲软的需求及其关键市场北美地区进口关税的影响，其第一季度营业利润减少了一半以上。
+6月17日消息，港股三大指数盘初拉升，恒生科技指数翻红。
 
-该公司经调整后的营业利润为4.98亿欧元（合5.8356亿美元），而去年同期为10.8亿欧元。
+科指成分股中，舜宇光学科技涨超7%，联想涨超3%，商汤涨超2%。
 
-戴姆勒卡车的业绩反映了北美市场的急剧放缓，该地区销量下降了四分之一，至29，432辆，而特朗普领导下的美国政府实施的进口关税对汽车行业造成了重大打击。
-
-该集团首席财务官伊娃·舍勒（Eva Scherer）在声明中表示：“北美卡车业务‘继续面临关税带来的逆风，第一季度首次全面反映了关税的影响’。
-
-”北美地区的调整后销售利润率从去年的14.4%降至5.4%。
-
-戴姆勒卡车公司仍确认了其全年业绩展望，并指出北美卡车业务的新订单量较上年增长了86%。
-
-责任编辑：王永生
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 06:05 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 05:51 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 05:48 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 05:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 06:00 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 06:01 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 05:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 06:03 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 05:54 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 05:46 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 05:53 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 06:00 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 05:56 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 06:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 05:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 05:50 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 05:52 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 06:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 06:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 06:16 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 06:03 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 06:13 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 06:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 06:07 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 06:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 06:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 05:57 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:59 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/8779187938.shtml)
-- 2026-06-30 05:51 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/07257906525.shtml)
-- 2026-06-30 05:58 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/65347652471.shtml)
-- 2026-06-30 06:00 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/4810132559.shtml)
-- 2026-06-30 06:05 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/50649036895.shtml)
-- 2026-06-30 05:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/207885.shtml)
-- 2026-06-30 05:55 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/64759717716.shtml)
-- 2026-06-30 06:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/565908036969.shtml)
-- 2026-06-30 05:45 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/578430592141.shtml)
-- 2026-06-30 06:07 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/50879904366.shtml)
-- 2026-06-30 05:43 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/315807338.shtml)
-- 2026-06-30 05:42 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/35279.shtml)
-- 2026-06-30 06:09 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/543105342.shtml)
-- 2026-06-30 05:43 - [TOP Prada](https://www.share.minike.top/Article/details/4631565.shtml)
-- 2026-06-30 06:11 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/1266680.shtml)
+- 2026-06-30 05:48 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/14750576.shtml)
+- 2026-06-30 06:06 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/6215723.shtml)
+- 2026-06-30 06:13 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/306668599832.shtml)
+- 2026-06-30 05:49 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/901374.shtml)
+- 2026-06-30 05:55 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/844250551.shtml)
+- 2026-06-30 05:54 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/63756346363.shtml)
+- 2026-06-30 05:48 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/96656.shtml)
+- 2026-06-30 06:15 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/34436450862.shtml)
+- 2026-06-30 05:52 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/7289275.shtml)
+- 2026-06-30 05:57 - [一生一世](https://www.share.minike.top/Article/details/9560528001.shtml)
+- 2026-06-30 06:03 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/161959.shtml)
+- 2026-06-30 05:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/7083050.shtml)
+- 2026-06-30 06:05 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/967072587.shtml)
+- 2026-06-30 06:03 - [周生如故](http://www.blog.minike.top/Article/details/877479626757.shtml)
+- 2026-06-30 06:02 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/61785697.shtml)

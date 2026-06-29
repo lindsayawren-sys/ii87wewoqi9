@@ -1,61 +1,50 @@
-# 全国五一劳动奖章获得者潘桂新：勇闯网络技术创新“无人区”
+# 张升民在第一期全军高级干部培训班结业式上强调 学好强军思想 担当使命责任 以崭新政治面貌迎接建军一百周年
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中新网广州5月6日电 题：全国五一劳动奖章获得者潘桂新：勇闯网络技术创新“无人区” 中新网记者 张璐 “关键技术被国外垄断，我们就自主研发。兴趣是我前行的最大动力，毅力是不断突破自我的关键，关注技术和创新是核心。”在中国联通5G创新实验室，中国联通广东省分公司首席创新官、网络研发中心总经理潘桂新如是说。 近日，潘桂新荣获全国五一劳动奖章。从事无线通信技术研究近20年，潘桂新先后
+新华社北京6月16日电(记者梅常伟)第一期全军高级干部培训班16日在国防大学结业。中央军委副主席张升民出席结业式并讲话。他强调，要坚持不懈用习近平新时代中国特色社会主义思想凝心铸魂，深入贯彻习近平强军思想，深化思想整风、推进政治整训，坚定拥护“两个确立”，坚决做到“两个维护”，贯彻军委主席负责制，以崭新政治面貌迎接建军一百周年。 张升民指出，这次培训深入学习贯彻习主席在开班式上
 
 ## 正文
 
-中新网广州5月6日电 题：全国五一劳动奖章获得者潘桂新：勇闯网络技术创新“无人区” 中新网记者 张璐 “关键技术被国外垄断，我们就自主研发。
+新华社北京6月16日电(记者梅常伟)第一期全军高级干部培训班16日在国防大学结业。
 
-兴趣是我前行的最大动力，毅力是不断突破自我的关键，关注技术和创新是核心。
+中央军委副主席张升民出席结业式并讲话。
 
-”在中国联通5G创新实验室，中国联通广东省分公司首席创新官、网络研发中心总经理潘桂新如是说。
+他强调，要坚持不懈用习近平新时代中国特色社会主义思想凝心铸魂，深入贯彻习近平强军思想，深化思想整风、推进政治整训，坚定拥护“两个确立”，坚决做到“两个维护”，贯彻军委主席负责制，以崭新政治面貌迎接建军一百周年。
 
-近日，潘桂新荣获全国五一劳动奖章。
+张升民指出，这次培训深入学习贯彻习主席在开班式上的重要讲话精神，加强思想改造、砥砺责任担当，参训学员普遍经受由内而外的洗礼淬炼。
 
-从事无线通信技术研究近20年，潘桂新先后主导攻克通信系统频谱资源利用率低、网络能耗大等行业难题，自研邻频合路器，获得第二十三届中国专利银奖、第47届日内瓦国际发明展览会金奖。
-
-多年来，潘桂新一直带领团队冲锋在网络强国建设第一线，以匠人之心勇闯技术“无人区”。
-
-走进位于广州天河的中国联通5G创新实验室，简单朴素的办公室里摆满了仪器。
-
-潘桂新表示，中国已经从3G追赶、4G并跑，走到了5G领先的时代，目前没有成熟案例可借鉴，只能靠自主摸索。
+要巩固深化培训成果，坚持好运用好发展好政治建军这个重要法宝，持续加强革命性锻造，认真履行管党治党政治责任，扎实推进练兵备战、规划建设各项工作，带领部队完成好党和人民赋予的使命任务。
 
 ## 相关推荐
 
-- 2026-06-30 06:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 05:57 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 06:06 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 06:09 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 05:53 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 05:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 06:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 05:43 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 05:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 06:08 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 06:11 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 05:58 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 05:53 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 06:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 06:07 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 06:04 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 06:07 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 06:08 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 05:54 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 05:52 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 06:03 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 06:14 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 06:17 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 05:50 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 05:58 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/7050389.shtml)
-- 2026-06-30 05:58 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/88946.shtml)
-- 2026-06-30 05:46 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/449081224.shtml)
-- 2026-06-30 06:09 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/19251258261.shtml)
-- 2026-06-30 05:47 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/322103768.shtml)
-- 2026-06-30 05:43 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/900700016.shtml)
-- 2026-06-30 05:43 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/4882496517.shtml)
-- 2026-06-30 05:51 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/51078871181.shtml)
-- 2026-06-30 05:52 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/64629973450.shtml)
-- 2026-06-30 05:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/487393141409.shtml)
-- 2026-06-30 05:57 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/422015813778.shtml)
-- 2026-06-30 06:06 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/503649.shtml)
-- 2026-06-30 05:53 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/70287040168.shtml)
-- 2026-06-30 06:08 - [啊啊啊](https://www.blog.minike.top/Article/details/43132.shtml)
-- 2026-06-30 05:42 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/71081.shtml)
+- 2026-06-30 05:56 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/924655286.shtml)
+- 2026-06-30 06:06 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/83199712.shtml)
+- 2026-06-30 05:53 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/1101745988.shtml)
+- 2026-06-30 05:56 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/9646780314.shtml)
+- 2026-06-30 06:14 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/707848853.shtml)
+- 2026-06-30 06:15 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/10176176406.shtml)
+- 2026-06-30 06:14 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/309261740.shtml)
+- 2026-06-30 06:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/584980.shtml)
+- 2026-06-30 06:04 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/327618255538.shtml)
+- 2026-06-30 06:08 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/94549.shtml)
+- 2026-06-30 05:48 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/07013.shtml)
+- 2026-06-30 05:52 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/669709303241.shtml)
+- 2026-06-30 05:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/629742537169.shtml)
+- 2026-06-30 05:59 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/2972427200.shtml)
+- 2026-06-30 06:12 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/8995491.shtml)

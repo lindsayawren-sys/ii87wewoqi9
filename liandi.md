@@ -1,55 +1,58 @@
-# 大摩：中煤能源给予“增持”评级 目标价上调至17.70港元
+# 爱立信首席执行官鲍毅康即将卸任，公司资深高管纳文格将继任
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-摩根士丹利发布研报称，更新中煤能源（01898）的风险回报，其盈利表现出较预期更佳的韧性，受惠于成本控制及煤化工业务复苏。该行预期，在海外供应中断预期及进口价格上升的支持下，2026年内地煤炭价格将较2025年略有上升。该行认为，中东紧张局势亦导致油价高企，从而使化工产品价格上升，有利其煤化工业务的盈利贡献。在计入实际业绩后，将中煤能源今明两年的每股盈利预测下调3%和2%，续予
+现任核心网络业务负责人佩尔・纳文格将于 10 月正式接任首席执行官一职 爱立信宣布，执掌公司逾九年的首席执行官鲍毅康决定卸任，任命公司资深高管佩尔・纳文格接任这一职务。 这家瑞典电信设备制造商于周二公告称，现任核心网络业务负责人纳文格将于 10 月 1 日正式出任公司最高负责人。 纳文格 1997 年加入爱立信，历任多项高管职务：曾负责公司北欧及中欧区域业务、云软件与服务业务，
 
 ## 正文
 
-摩根士丹利发布研报称，更新中煤能源（01898）的风险回报，其盈利表现出较预期更佳的韧性，受惠于成本控制及煤化工业务复苏。
+现任核心网络业务负责人佩尔・纳文格将于 10 月正式接任首席执行官一职 爱立信宣布，执掌公司逾九年的首席执行官鲍毅康决定卸任，任命公司资深高管佩尔・纳文格接任这一职务。
 
-该行预期，在海外供应中断预期及进口价格上升的支持下，2026年内地煤炭价格将较2025年略有上升。
+这家瑞典电信设备制造商于周二公告称，现任核心网络业务负责人纳文格将于 10 月 1 日正式出任公司最高负责人。
 
-该行认为，中东紧张局势亦导致油价高企，从而使化工产品价格上升，有利其煤化工业务的盈利贡献。
+纳文格 1997 年加入爱立信，历任多项高管职务：曾负责公司北欧及中欧区域业务、云软件与服务业务，去年年初开始执掌网络业务板块。
 
-在计入实际业绩后，将中煤能源今明两年的每股盈利预测下调3%和2%，续予“增持”评级，目标价由17.5港元上调至17.7港元。
+爱立信董事长扬・卡尔森表示：“他深耕通信行业，拥有扎实的专业技术储备与丰富的商业运营经验，在多个关键管理岗位上均交出了亮眼的业绩答卷。
 
-责任编辑：卢昱君
+” 本次管理层更迭之际，爱立信正面临多重经营挑战。
+
+受宏观经济、地缘政治不确定性影响，运营商资本开支前景不明，今年网络设备市场需求预计将陷入停滞；与此同时，人工智能产业爆发推高半导体等元器件价格，企业生产成本持续攀升。
+
+爱立信押注，随着人工智能行业不断扩张、商业化落地提速，各大网络运营商将加大基础设施升级投入，以此承载海量激增的数据流量。
+
+在鲍毅康任职期间，爱立信还瞄准全球国防开支增长的机遇，加码防务及关键任务类产品布局，重点研发通信系统、基于 5G 的无人机探测传感系统等产品，拓展军工领域业务。
 
 ## 相关推荐
 
-- 2026-06-30 05:54 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 05:46 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 06:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 06:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 06:11 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 06:10 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 06:04 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 05:45 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 05:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 05:59 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 06:00 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 06:00 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 05:44 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 05:46 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 05:47 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 06:14 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 05:55 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 05:52 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 06:11 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 06:10 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 05:57 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 05:53 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 06:10 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 06:14 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 05:50 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 06:10 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 06:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/288938.shtml)
-- 2026-06-30 06:05 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/693708795.shtml)
-- 2026-06-30 06:01 - [世界杯](http://www.share.minike.top/Article/details/1266949.shtml)
-- 2026-06-30 06:00 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/47944962.shtml)
-- 2026-06-30 05:49 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/9982247.shtml)
-- 2026-06-30 05:42 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/68068039874.shtml)
-- 2026-06-30 05:59 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/689461715120.shtml)
-- 2026-06-30 05:57 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/61189982.shtml)
-- 2026-06-30 05:44 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/364392250167.shtml)
-- 2026-06-30 05:50 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/0726150180.shtml)
-- 2026-06-30 05:49 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/30413983467.shtml)
-- 2026-06-30 05:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/326003428127.shtml)
-- 2026-06-30 05:56 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/67201421.shtml)
-- 2026-06-30 05:56 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/431739671910.shtml)
-- 2026-06-30 05:52 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/32008666798.shtml)
+- 2026-06-30 06:07 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/7814828544.shtml)
+- 2026-06-30 06:13 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/33162526638.shtml)
+- 2026-06-30 05:52 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/176094299629.shtml)
+- 2026-06-30 05:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/34476762.shtml)
+- 2026-06-30 05:50 - [日本进球](https://www.share.kurohicncr.top/Article/details/620607.shtml)
+- 2026-06-30 06:08 - [时光音乐会](https://www.blog.minike.top/Article/details/5586181.shtml)
+- 2026-06-30 06:13 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/53480.shtml)
+- 2026-06-30 06:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/260080.shtml)
+- 2026-06-30 06:13 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/5751577.shtml)
+- 2026-06-30 06:01 - [极限挑战第一季](http://www.blog.minike.top/Article/details/89075630.shtml)
+- 2026-06-30 05:55 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/265807097.shtml)
+- 2026-06-30 05:57 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/6033981863.shtml)
+- 2026-06-30 05:50 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/6069575.shtml)
+- 2026-06-30 06:07 - [恋与深空 巧合](http://www.share.minike.top/Article/details/16344586765.shtml)
+- 2026-06-30 05:54 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/8683460768.shtml)

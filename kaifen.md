@@ -1,58 +1,61 @@
-# “五一”假期踏山海寻情怀 香港无处不“打卡”
+# 端午小长假深圳铁路预计发送旅客173万人次
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-电视剧、网络剧片头新增一项重要提示中国“五一”旅游热度攀升 消费潜力持续释放这个藏在云南深山的派出所 为何被游客设为导航目的地？“24小时打卡6地”！外国人偷偷爱上中国小城“一手驴火、一手咖啡” 年轻人混搭出街头新时尚博物馆“镇馆之宝”排队热 文博游何以持续火热？沉浸式观演走热京津冀百年中山装何以穿出“国潮”新生？全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制
+中新网深圳6月16日电 (索有为 马鑫宇 岳千琳)深圳铁路部门16日发布消息称，2026年端午小长假深圳铁路预计发送旅客173.0万人次，较2025年同期增长6.7%，端午节当天(6月19日)为客流最高峰日，深圳北站预计发送旅客37.9万人次，深圳铁路预计发送旅客55.3万人次，有望创下端午假期运输历史新高。 今年端午假期，旅客出行需求旺盛，学生流、旅游流将成为本次假期客流的核
 
 ## 正文
 
-电视剧、网络剧片头新增一项重要提示中国“五一”旅游热度攀升 消费潜力持续释放这个藏在云南深山的派出所 为何被游客设为导航目的地？
+中新网深圳6月16日电 (索有为 马鑫宇 岳千琳)深圳铁路部门16日发布消息称，2026年端午小长假深圳铁路预计发送旅客173.0万人次，较2025年同期增长6.7%，端午节当天(6月19日)为客流最高峰日，深圳北站预计发送旅客37.9万人次，深圳铁路预计发送旅客55.3万人次，有望创下端午假期运输历史新高。
 
-“24小时打卡6地”！
+今年端午假期，旅客出行需求旺盛，学生流、旅游流将成为本次假期客流的核心增长点。
 
-外国人偷偷爱上中国小城“一手驴火、一手咖啡” 年轻人混搭出街头新时尚博物馆“镇馆之宝”排队热 文博游何以持续火热？
+据深圳铁路部门相关负责人介绍，铁路部门6月15日起推出“乘高铁、品荔枝、粤游粤精彩”活动，特定群体购买指定动车组二等座车票，在虎门站、茂名南站、湛江北站出站后，凭相关证件可至指定窗口退还已购车票票价的20%(即在执行票价的基础上打八折)，活动将进一步带来客流增量。
 
-沉浸式观演走热京津冀百年中山装何以穿出“国潮”新生？
+为满足旅客出行需要，深圳铁路部门将在端午假期运输期间实行高峰运行图，加大对重点时段和热门方向的运力投放，计划增开深圳往返香港、广州、潮汕、汕头、厦门、福州、湛江、桂林、南昌、长沙、岳阳等方向旅客列车804趟，其中夜间高铁149趟。
 
-全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天为青年们喝彩！
+针对端午假期客流量大、旅客出行需求多样化的特点，深圳北站、深圳站、深圳东站等车站提前优化旅客进出站流线，高峰时段将增开安检通道和验证口，动态调整人工窗口数量，每日增派60名志愿者，联合铁路派出所加强候车区、进出站口等重点区域巡逻。
 
-一只流浪狗，为何让这座安徽小城收获泼天流量？
+各车站“迎春花”服务队重点做好老幼病残孕等重点旅客的“一对一”预约帮扶。
 
-短评：欧洲议会的“选择性失明”东京审判为何关乎今天？
+据悉，深圳铁路部门与属地交通部门建立信息共享和应急联动机制，夜间列车到达高峰时段，地铁将延长运营服务时间，公交增开夜班专线，全力保障到达旅客“最后一公里”畅通无忧。
 
-爱奇艺，到底在急什么？
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:01 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 05:48 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 05:55 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 05:50 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 05:53 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 05:57 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 06:08 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 05:49 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 05:57 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 05:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 06:05 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 05:59 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 06:12 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 06:00 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 05:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 05:57 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 06:08 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 06:06 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 05:53 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 05:55 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 06:10 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 06:15 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 05:48 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 06:02 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 05:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 06:17 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 06:00 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:07 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/7638557.shtml)
-- 2026-06-30 05:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/4262478108.shtml)
-- 2026-06-30 05:54 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/556093837714.shtml)
-- 2026-06-30 05:47 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/76084.shtml)
-- 2026-06-30 05:50 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/07988630400.shtml)
-- 2026-06-30 06:08 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/49272771213.shtml)
-- 2026-06-30 06:04 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/95689289.shtml)
-- 2026-06-30 05:42 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/393572118.shtml)
-- 2026-06-30 05:52 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/705801.shtml)
-- 2026-06-30 05:50 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/39677997.shtml)
-- 2026-06-30 05:44 - [起风了](https://www.blog.kurohicncr.top/Article/details/813532.shtml)
-- 2026-06-30 05:47 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/4145014357.shtml)
-- 2026-06-30 06:06 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/131532447.shtml)
-- 2026-06-30 06:09 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/134005308.shtml)
-- 2026-06-30 05:42 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/7992680401.shtml)
+- 2026-06-30 06:00 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/495624716.shtml)
+- 2026-06-30 06:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/42054634189.shtml)
+- 2026-06-30 06:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/922847.shtml)
+- 2026-06-30 06:15 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/55319.shtml)
+- 2026-06-30 06:03 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/977912179600.shtml)
+- 2026-06-30 06:14 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/657857944.shtml)
+- 2026-06-30 05:53 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/382388.shtml)
+- 2026-06-30 06:08 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/26250922.shtml)
+- 2026-06-30 05:50 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/9742149119.shtml)
+- 2026-06-30 05:50 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/042374.shtml)
+- 2026-06-30 06:13 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/39836.shtml)
+- 2026-06-30 05:57 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/298955.shtml)
+- 2026-06-30 05:58 - [日本进球](https://www.blog.kurohicncr.top/Article/details/4990192.shtml)
+- 2026-06-30 05:52 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/95929.shtml)
+- 2026-06-30 05:56 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/062178.shtml)

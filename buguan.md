@@ -1,60 +1,56 @@
-# 股指期货全线收涨，中小盘“更胜一筹”
+# 剑指“鬼秤”等乱象 首个集贸市场诚信计量评价规范发布
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-来源：期货日报 “五一”假期后首个交易日，国内股指期货表现强劲，股指期货合约全线上涨。具体来看，中证500股指期货主力合约领涨，涨幅近3%，至8497.6点。从资金流向看，中证500股指期货当日资金净流入73.64亿元。股市方面，沪深两市全天成交额为3.23万亿元，较前一交易日放量近5000亿元。市场人士认为，这表明市场风险偏好有所回升。 格林大华期货副总经理、首席专家王骏分析
+中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。 会上，市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，市场监管总局发布我国首个集贸市场计量信用评价规范性文件《集贸市场诚信计量评价规范》，标志着民生计量监管从传统器具管理向现代化信用治理迈出关键一步。 王秋苹指出，集贸市场是城乡居民日常消费的重要场所，“鬼秤”问题频发的本质，在于经
 
 ## 正文
 
-来源：期货日报 “五一”假期后首个交易日，国内股指期货表现强劲，股指期货合约全线上涨。
+中新网6月16日电 据“市说新语”微信公众号消息，6月16日，市场监管总局召开例行新闻发布会。
 
-具体来看，中证500股指期货主力合约领涨，涨幅近3%，至8497.6点。
+会上，市场监管总局新闻发言人、新闻宣传司司长王秋苹表示，市场监管总局发布我国首个集贸市场计量信用评价规范性文件《集贸市场诚信计量评价规范》，标志着民生计量监管从传统器具管理向现代化信用治理迈出关键一步。
 
-从资金流向看，中证500股指期货当日资金净流入73.64亿元。
+王秋苹指出，集贸市场是城乡居民日常消费的重要场所，“鬼秤”问题频发的本质，在于经营主体诚信缺失。
 
-股市方面，沪深两市全天成交额为3.23万亿元，较前一交易日放量近5000亿元。
+数据显示，全国现有集贸市场约2.7万家，涉及商户约200万家。
 
-市场人士认为，这表明市场风险偏好有所回升。
+在如此庞大复杂的交易场景中，缺斤短两，看似小事，实则是伤民心、损公信、破秩序的大事。
 
-格林大华期货副总经理、首席专家王骏分析称，一方面，“五一”假期期间海外地缘风险整体可控，全球大部分地区的股票市场录得一定涨幅。
+新出台的《规范》创新构建了集贸市场诚信计量信用评价指标体系。
 
-另一方面，A股今年一季报表现亮眼，呈现出总量回暖、结构分化的特点，其中人工智能、算力、新质生产力相关产业成为增长的核心引擎。
+根据《规范》，诚信计量信用评价由县级以上市场监管部门遵循公益性原则组织开展，主要服务政府管理需要。
 
-创元期货股指期货研究员刘钇含认为，未来A股将延续偏强震荡走势，市场资金将聚焦盈利和景气度向上的行业，指数层面可继续关注沪深300和中证500，板块层面可关注上游周期板块和科技板块。
+评价结果划分为A、B、C、D四个信用等级，将作为实施差异化监管的重要依据。
 
 ## 相关推荐
 
-- 2026-06-30 05:44 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 06:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 05:50 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 05:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 05:51 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 05:51 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 05:58 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 05:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 05:48 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 05:56 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 05:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 05:44 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 05:42 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 06:03 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 05:54 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 05:59 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 06:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 05:55 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 06:02 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 06:00 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 06:14 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 06:17 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 06:17 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 06:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:56 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/6753862.shtml)
-- 2026-06-30 05:43 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/202134255.shtml)
-- 2026-06-30 06:06 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/38341.shtml)
-- 2026-06-30 06:10 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/522761360.shtml)
-- 2026-06-30 05:55 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/77491.shtml)
-- 2026-06-30 05:50 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/19301425.shtml)
-- 2026-06-30 05:50 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/534054437746.shtml)
-- 2026-06-30 05:46 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/587583.shtml)
-- 2026-06-30 06:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/8662760.shtml)
-- 2026-06-30 06:11 - [千香](https://www.share.minike.top/Article/details/274200707667.shtml)
-- 2026-06-30 05:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/773985047.shtml)
-- 2026-06-30 05:46 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/19214704678.shtml)
-- 2026-06-30 05:42 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/97379255.shtml)
-- 2026-06-30 05:52 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/6037597515.shtml)
-- 2026-06-30 06:04 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/901351273672.shtml)
+- 2026-06-30 06:01 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/57587974970.shtml)
+- 2026-06-30 05:54 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/618267392.shtml)
+- 2026-06-30 06:08 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/48426108.shtml)
+- 2026-06-30 05:55 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/9424939535.shtml)
+- 2026-06-30 05:57 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/392964539054.shtml)
+- 2026-06-30 06:02 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/6569970301.shtml)
+- 2026-06-30 06:01 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/20609495.shtml)
+- 2026-06-30 06:02 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/0799015807.shtml)
+- 2026-06-30 05:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/51287600468.shtml)
+- 2026-06-30 05:50 - [苗族银饰](https://www.share.minike.top/Article/details/9784724199.shtml)
+- 2026-06-30 05:52 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/951430.shtml)
+- 2026-06-30 06:06 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/302486.shtml)
+- 2026-06-30 05:54 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/19520330.shtml)
+- 2026-06-30 06:09 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/2554179.shtml)
+- 2026-06-30 05:48 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/24744392.shtml)

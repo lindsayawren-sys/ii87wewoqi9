@@ -1,56 +1,58 @@
-# 惠誉上调阿根廷主权债务评级至“B-”，称经济改革取得进展
+# 2万字白皮书重磅发布，贡献全球治理的中国方案
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-全球评级机构惠誉周二将阿根廷的长期外币和本币发行人违约评级从“CCC+”上调至“B-”，展望稳定。 惠誉指出，阿根廷财政和外部平衡状况改善、经济改革取得进展、外汇储备积累前景改善，并预期阿根廷政府将获得融资以偿还债务。 但该机构指出，由于国际储备疲软、通胀高企以及宏观经济长期不稳定，脆弱性依然存在。 惠誉表示，预计2026年阿根廷经济增长将放缓至3.2%。 该机构指出，在202
+中新网北京6月17日电(记者 袁秀月)为介绍中国关于全球治理的理念、倡议和行动，更广泛凝聚国际社会共识，更有效应对全球性挑战，构建更加公正合理的全球治理体系，国务院新闻办公室6月17日发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书，并介绍白皮书有关情况。白皮书约2万字，8个语种发布 发布会介绍，白皮书由前言、正文和结束语三部分组成，中文约2万字。其中，正文
 
 ## 正文
 
-全球评级机构惠誉周二将阿根廷的长期外币和本币发行人违约评级从“CCC+”上调至“B-”，展望稳定。
+中新网北京6月17日电(记者 袁秀月)为介绍中国关于全球治理的理念、倡议和行动，更广泛凝聚国际社会共识，更有效应对全球性挑战，构建更加公正合理的全球治理体系，国务院新闻办公室6月17日发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书，并介绍白皮书有关情况。
 
-惠誉指出，阿根廷财政和外部平衡状况改善、经济改革取得进展、外汇储备积累前景改善，并预期阿根廷政府将获得融资以偿还债务。
+白皮书约2万字，8个语种发布 发布会介绍，白皮书由前言、正文和结束语三部分组成，中文约2万字。
 
-但该机构指出，由于国际储备疲软、通胀高企以及宏观经济长期不稳定，脆弱性依然存在。
+其中，正文五章：一、当今世界面临严峻复杂的危机挑战；二、全球治理倡议为破解难题提供时代答案；三、推进全球治理事业的中国贡献；四、引领变革方向，迈向光明前景；五、在历史演进的重大关头携手前行。
 
-惠誉表示，预计2026年阿根廷经济增长将放缓至3.2%。
+白皮书以中、英、法、俄、德、西、阿、日8个语种发布，由人民出版社、外文出版社分别出版，在全国新华书店发行。
 
-该机构指出，在2025年10月中期选举之后，阿根廷总统米莱获得了更强有力的政治支持。
+近160个国家和国际组织支持响应全球治理倡议 白皮书指出，全球治理倡议一经提出，迅速得到近160个国家和国际组织支持响应，60多个国家踊跃加入“全球治理之友小组”。
 
-10月份的选举胜利使米莱政府得以推进结构性改革，包括延长工作时间的劳工计划和放宽冰川地区采矿限制的立法。
+国际社会认为，全球治理倡议发出了高举多边主义旗帜、汇聚团结力量、追求公平未来的明确信号，顺应了国际关系民主化的时代潮流，提振了国际社会践行多边主义的坚定信心，给出了完善全球治理清晰可行的路径方案，为动荡不安的世界注入宝贵的稳定性和正能量。
 
-阿根廷政治经济部长何塞·路易斯·达萨在X网站上发文称：“阿根廷此举已跨越了国际市场的一个关键门槛。
+全球治理倡议为破解难题提供时代答案 白皮书指出，当今世界面临严峻复杂的危机挑战，日益严峻的挑战呼唤更加有效的治理，丛林法则严重冲击国际法治，弥补治理体系短板势在必行，全球南方声音需要更多倾听。
 
-” 他补充道：“目前，数千家机构基金无法投资CCC级债券。
+全球治理倡议为破解难题提供时代答案。
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 05:55 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 06:07 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 06:05 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 05:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 05:56 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 05:54 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 05:53 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 05:52 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 05:59 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 06:17 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 06:00 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 05:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 06:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 05:50 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 06:09 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 06:07 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 06:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 06:12 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 05:51 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 06:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 06:04 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:49 - [美股](https://www.blog.minike.top/Article/details/6495913676.shtml)
-- 2026-06-30 05:45 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/6196140.shtml)
-- 2026-06-30 06:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/87179.shtml)
-- 2026-06-30 06:10 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/8412201038.shtml)
-- 2026-06-30 05:55 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/3472276368.shtml)
-- 2026-06-30 06:00 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/13807482.shtml)
-- 2026-06-30 05:57 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/75152375013.shtml)
-- 2026-06-30 05:47 - [第一炉香](https://www.share.kurohicncr.top/Article/details/5579048309.shtml)
-- 2026-06-30 06:11 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/0097392.shtml)
-- 2026-06-30 05:48 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/23046.shtml)
-- 2026-06-30 05:54 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/128257087.shtml)
-- 2026-06-30 05:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/8344271.shtml)
-- 2026-06-30 05:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/43696898061.shtml)
-- 2026-06-30 06:03 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/9818971.shtml)
-- 2026-06-30 05:50 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/987091610.shtml)
+- 2026-06-30 05:52 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/442555.shtml)
+- 2026-06-30 05:57 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/3121954351.shtml)
+- 2026-06-30 05:57 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/7652693.shtml)
+- 2026-06-30 06:08 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/59769237342.shtml)
+- 2026-06-30 06:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/472842355.shtml)
+- 2026-06-30 05:55 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/10370095.shtml)
+- 2026-06-30 05:53 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/111176.shtml)
+- 2026-06-30 06:13 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/7107167.shtml)
+- 2026-06-30 06:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/7295463.shtml)
+- 2026-06-30 06:17 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/8944253401.shtml)
+- 2026-06-30 06:03 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/1720017646.shtml)
+- 2026-06-30 06:08 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/80885199.shtml)
+- 2026-06-30 05:50 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/69740366300.shtml)
+- 2026-06-30 06:03 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/60787550862.shtml)
+- 2026-06-30 05:50 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/393848.shtml)

@@ -1,60 +1,60 @@
-# 全球油市逼近临界点 供应短缺信号全面亮起
+# 国家统计局展望二季度中国经济：长期向好基本面没有变
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-随着霍尔木兹海峡持续关闭近两个月，全球石油市场正从初期“缓冲期”迈入实质性短缺阶段。多家能源巨头和华尔街机构警告，商业库存加速消耗，一场真正的供应危机正在逼近。 雪佛龙首席财务官Eimear Bonner近日接受采访时指出，“大量库存和闲置产能已经耗尽，缓冲垫所剩无几”。埃克森美孚首席执行官Darren Woods在分析师电话会上表示，“全球石油和天然气供应正面临前所未有的中断
+中新社北京6月16日电 (记者 陈溯)展望二季度中国经济，中国国家统计局新闻发言人付凌晖16日在北京表示，经济长期向好的基本面没有变。 在当天的国新办新闻发布会上，付凌晖表示，今年以来，中国经济一季度增势较好，国内生产总值(GDP)同比增长5%。二季度以来，受国际环境复杂变化、国内结构调整压力等影响，部分经济指标出现了增速回落，一些企业经营面临困难。 “但从整个发展大势看，中国
 
 ## 正文
 
-随着霍尔木兹海峡持续关闭近两个月，全球石油市场正从初期“缓冲期”迈入实质性短缺阶段。
+中新社北京6月16日电 (记者 陈溯)展望二季度中国经济，中国国家统计局新闻发言人付凌晖16日在北京表示，经济长期向好的基本面没有变。
 
-多家能源巨头和华尔街机构警告，商业库存加速消耗，一场真正的供应危机正在逼近。
+在当天的国新办新闻发布会上，付凌晖表示，今年以来，中国经济一季度增势较好，国内生产总值(GDP)同比增长5%。
 
-雪佛龙首席财务官Eimear Bonner近日接受采访时指出，“大量库存和闲置产能已经耗尽，缓冲垫所剩无几”。
+二季度以来，受国际环境复杂变化、国内结构调整压力等影响，部分经济指标出现了增速回落，一些企业经营面临困难。
 
-埃克森美孚首席执行官Darren Woods在分析师电话会上表示，“全球石油和天然气供应正面临前所未有的中断，市场尚未完全感受到其影响。
+“但从整个发展大势看，中国经济运行总体平稳、稳中有进的态势没有改变，动能向新、结构向优的特征依然明显。
 
-如果海峡持续关闭，更大的冲击还在后面”。
+”付凌晖表示，从下阶段情况看，尽管还面临一些困难和挑战，但是经济长期向好的基本面没有变，新质生产力发展培育壮大，改革开放的红利持续释放，宏观政策发力显效，将会继续支撑经济平稳运行、向新向优。
 
-据高盛最新报告估算，全球石油总库存目前已降至约101天消费量水平，到5月底将进一步下滑至98天，创八年新低。
+付凌晖表示，今年以来，面对全球能源市场大幅波动，中国经济顶住了压力，保持平稳增长，展现出了强大韧性。
 
-供应短缺的效应首先在亚洲市场爆发。
+统计显示，1至5月，规模以上工业增加值、服务业生产指数分别同比增长5.4%、4.8%，均保持了较快增长；全国城镇调查失业率平均值为5.2%，居民消费价格同比上涨1%，均保持了总体平稳；外贸增长较快，中国货物进出口总额同比增长15.3%；人民币汇率稳中有升，5月末外汇储备稳定在3.4万亿美元以上。
 
-康菲石油首席财务官Andy O’Brien指出，战争爆发前装载的船只“现在已经全部抵达目的地，供应损失的影响将开始变得更加明显”。
+此外，中国产业创新引领作用持续显现。
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 05:59 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 06:08 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 05:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 05:51 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 05:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 05:57 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 06:03 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 06:09 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 05:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 06:06 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 05:50 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 06:05 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 05:48 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-30 06:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 06:03 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 06:03 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 06:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 05:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 05:51 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 06:12 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 05:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 06:14 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 06:17 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 06:15 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 06:15 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 05:59 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 06:18 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/344725517619.shtml)
-- 2026-06-30 05:45 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/958138.shtml)
-- 2026-06-30 05:57 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/179469.shtml)
-- 2026-06-30 05:57 - [女心理师](https://www.share.kurohicncr.top/Article/details/027046940071.shtml)
-- 2026-06-30 05:46 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/32001228.shtml)
-- 2026-06-30 05:46 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/010944.shtml)
-- 2026-06-30 06:02 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/4705841.shtml)
-- 2026-06-30 06:00 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/425065485.shtml)
-- 2026-06-30 06:05 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/050180785191.shtml)
-- 2026-06-30 06:04 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/272958932362.shtml)
-- 2026-06-30 06:07 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/79688883.shtml)
-- 2026-06-30 05:56 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/1254976233.shtml)
-- 2026-06-30 05:46 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/7510917411.shtml)
-- 2026-06-30 05:43 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/450912271662.shtml)
-- 2026-06-30 05:58 - [点菜也要教吗](http://www.blog.minike.top/Article/details/9141671660.shtml)
+- 2026-06-30 06:10 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/5905840136.shtml)
+- 2026-06-30 05:56 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/6468891.shtml)
+- 2026-06-30 06:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/8416202311.shtml)
+- 2026-06-30 06:07 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/032303.shtml)
+- 2026-06-30 06:13 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.kurohicncr.top/Article/details/5877526.shtml)
+- 2026-06-30 06:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/020953.shtml)
+- 2026-06-30 05:58 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/259979735.shtml)
+- 2026-06-30 05:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/967214.shtml)
+- 2026-06-30 05:49 - [《共患难》](http://www.blog.minike.top/Article/details/85154.shtml)
+- 2026-06-30 06:04 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/067776.shtml)
+- 2026-06-30 06:16 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/7609922087.shtml)
+- 2026-06-30 06:13 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/9013375564.shtml)
+- 2026-06-30 06:17 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/14806466.shtml)
+- 2026-06-30 06:15 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/5779466.shtml)
+- 2026-06-30 06:09 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/723441.shtml)

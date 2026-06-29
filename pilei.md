@@ -1,61 +1,60 @@
-# 美联储官员古尔斯比警告不要抢在生产率增长之前降息
+# 2026全国民营企业绿色发展大会在海口举办
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-芝加哥联邦储备银行行长奥斯坦·古尔斯比警告称，不应因为生产率增长加快就条件反射式地降低利率，因为这种现象有时会推高通胀。 在周三米尔肯研究院全球会议的小组讨论会之前发布的一份讲稿中，古尔斯比表示，美联储对生产率增长加快的反应“在很大程度上取决于生产率增长是意外发生，还是预计未来会出现”。 他说，在第一种情境下，通胀可能会得到控制，从而允许降低利率。在后一种情境下可能会推高通胀，
+6月17日，2026全国民营企业绿色发展大会在海口举办。会议以“聚企创新 向绿图强”为主题，深入学习贯彻习近平生态文明思想，聚焦“十五五”规划新图景，引导企业厚植高质量发展绿色底色，加快数字化绿色化协同转型步伐。全国政协副主席、全国工商联主席高云龙，海南省委书记冯飞出席会议并致辞。 高云龙指出，加快数字化绿色化协同转型发展，是抢占新一轮科技革命和产业变革制高点的现实需要，也是构
 
 ## 正文
 
-芝加哥联邦储备银行行长奥斯坦·古尔斯比警告称，不应因为生产率增长加快就条件反射式地降低利率，因为这种现象有时会推高通胀。
+6月17日，2026全国民营企业绿色发展大会在海口举办。
 
-在周三米尔肯研究院全球会议的小组讨论会之前发布的一份讲稿中，古尔斯比表示，美联储对生产率增长加快的反应“在很大程度上取决于生产率增长是意外发生，还是预计未来会出现”。
+会议以“聚企创新 向绿图强”为主题，深入学习贯彻习近平生态文明思想，聚焦“十五五”规划新图景，引导企业厚植高质量发展绿色底色，加快数字化绿色化协同转型步伐。
 
-他说，在第一种情境下，通胀可能会得到控制，从而允许降低利率。
+全国政协副主席、全国工商联主席高云龙，海南省委书记冯飞出席会议并致辞。
 
-在后一种情境下可能会推高通胀，从而需要提高利率。
+高云龙指出，加快数字化绿色化协同转型发展，是抢占新一轮科技革命和产业变革制高点的现实需要，也是构筑国家竞争新优势的有力支撑。
 
-近几个月来，这一话题受到越来越多关注，因为特朗普政府的经济官员认为，由人工智能推动的生产率更快增长，可能让经济在不刺激通胀的情况下实现更快增长。
+广大民营企业要持续融入数字化绿色化发展潮流，主动扛起数字化绿色化转型责任，不断推动经济社会发展迈上新台阶。
 
-特朗普提名出任下一任美联储主席的凯文·沃什也提出了类似观点，呼吁降低利率。
+希望政府部门、中介组织、服务机构，以及各类经营主体凝心聚力，为经济社会“双化协同”转型营造良好氛围，为美丽中国建设提供强大支撑和有力保障。
 
-古尔斯比提到了1990年代生产率增长的变化，以及当时由主席艾伦·格林斯潘领导的美联储如何作出回应。
+会上，王金南院士作主旨演讲，张君婷、韩冰作交流分享。
 
-当时，在生产率更快增长体现在数据中之前，格林斯潘正确地判断出，这类增长正在让企业利润和就业上升，而通胀不会出现类似幅度的上升。
+全国工商联副主席安立佳、黄代放，中国民间商会副会长南存辉、夏华、潘保春，全国工商联党组成员、秘书长林泽炎出席会议，中央网信办、工信部、国务院国资委有关部门负责同志，各省级工商联有关负责同志，以及中央企业、国有企业和民营企业代表参加会议。
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 05:56 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 05:54 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 05:42 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 05:44 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 05:54 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 05:45 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 05:44 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 05:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 05:44 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 06:09 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 05:54 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 06:07 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 06:03 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 06:08 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 06:01 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 05:56 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 05:49 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 06:09 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 06:10 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 06:04 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 06:08 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 05:50 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 06:08 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 06:01 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 05:49 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 06:01 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 06:06 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 06:14 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/91058.shtml)
-- 2026-06-30 05:43 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/686625547.shtml)
-- 2026-06-30 06:06 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/3021795187.shtml)
-- 2026-06-30 05:49 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/03977694434.shtml)
-- 2026-06-30 05:52 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/566834223.shtml)
-- 2026-06-30 06:02 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/917562699813.shtml)
-- 2026-06-30 06:11 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/73931870.shtml)
-- 2026-06-30 05:57 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/1242551699.shtml)
-- 2026-06-30 06:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/3873960043.shtml)
-- 2026-06-30 06:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/8858738.shtml)
-- 2026-06-30 05:56 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/76157453.shtml)
-- 2026-06-30 05:44 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/72143.shtml)
-- 2026-06-30 06:04 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/293025.shtml)
-- 2026-06-30 05:44 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/41544739016.shtml)
-- 2026-06-30 05:53 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/9750024.shtml)
+- 2026-06-30 06:16 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/2748841920.shtml)
+- 2026-06-30 06:11 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/75757726.shtml)
+- 2026-06-30 06:16 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/51938775.shtml)
+- 2026-06-30 05:55 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/103525.shtml)
+- 2026-06-30 06:05 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/84442617267.shtml)
+- 2026-06-30 06:14 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/6126562.shtml)
+- 2026-06-30 05:51 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/7868464586.shtml)
+- 2026-06-30 05:48 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/36562.shtml)
+- 2026-06-30 06:15 - [日本进球](https://www.share.kurohicncr.top/Article/details/9348247028.shtml)
+- 2026-06-30 05:53 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/114675823.shtml)
+- 2026-06-30 05:55 - [恋与深空 日服](http://www.share.minike.top/Article/details/564846160.shtml)
+- 2026-06-30 06:16 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/112991157157.shtml)
+- 2026-06-30 05:53 - [巴西绝杀日本](http://www.share.minike.top/Article/details/808174.shtml)
+- 2026-06-30 06:06 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/94396330.shtml)
+- 2026-06-30 06:12 - [金刚川](http://www.share.kurohicncr.top/Article/details/95178282345.shtml)

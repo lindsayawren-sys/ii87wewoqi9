@@ -1,60 +1,56 @@
-# 伯里在科恩大手笔竞购eBay后清仓游戏驿站：切勿把负债当作创新
+# 11 部门定调 40% 渗透率：新能源重卡的下一条 “隐形基建” ——中集车辆汉诺威计划的卡位逻辑
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-在游戏驿站高调出价收购 eBay 之后，迈克尔・伯里彻底清仓了所持全部游戏驿站股票。他表示，这笔交易高杠杆负债的做法，彻底打破了他长期看好该公司的投资逻辑。 伯里周一晚间在 Substack 专栏发文称：“我已卖出全部游戏驿站持仓。” “无论从哪个角度测算，我所秉持的‘即时版伯克希尔’投资逻辑，都无法接受债务 / 息税折旧摊销前利润超过 5 倍，也绝不能容忍利息保障倍数低于 4
+6月12日，交通运输部、国家发展改革委、工业和信息化部等11个部门联合发布《推动新能源重卡规模化应用实施方案》（以下简称“《方案》”）。 重磅政策出台，新能源重卡迎来规模化发展新阶段 《方案》以2030年为节点，明确多项核心发展指标：新能源重卡渗透率达到40%，保有量突破160万辆，占比达到20%左右；京津冀、汾渭平原等地区固定线路短倒运输电动化比例超过80%；打造零碳公路运输
 
 ## 正文
 
-在游戏驿站高调出价收购 eBay 之后，迈克尔・伯里彻底清仓了所持全部游戏驿站股票。
+6月12日，交通运输部、国家发展改革委、工业和信息化部等11个部门联合发布《推动新能源重卡规模化应用实施方案》（以下简称“《方案》”）。
 
-他表示，这笔交易高杠杆负债的做法，彻底打破了他长期看好该公司的投资逻辑。
+重磅政策出台，新能源重卡迎来规模化发展新阶段 《方案》以2030年为节点，明确多项核心发展指标：新能源重卡渗透率达到40%，保有量突破160万辆，占比达到20%左右；京津冀、汾渭平原等地区固定线路短倒运输电动化比例超过80%；打造零碳公路运输通道，支持并引导建设重卡充换电站3000个左右；高速公路新能源重卡货运量占比达到18%。
 
-伯里周一晚间在 Substack 专栏发文称：“我已卖出全部游戏驿站持仓。
+更重要的是，《方案》明确要求“建立适应新能源重卡规模化应用的基础设施、技术装备、配套服务、标准规范和政策保障体系，形成多部门协同、多主体联动的推进机制”，标志着重卡行业的新能源转型已进入规模化、全场景化、生态化的实施部署阶段，行业将迎来从量变到质变的深层变革。
 
-” “无论从哪个角度测算，我所秉持的‘即时版伯克希尔’投资逻辑，都无法接受债务 / 息税折旧摊销前利润超过 5 倍，也绝不能容忍利息保障倍数低于 4 倍…… 因此，这是我开设 Substack 专栏以来首次做出减持卖出操作。
+规模化： 随着顶层政策明确，新能源重卡行业的市场增量空间彻底打开。
 
-” 游戏驿站向 eBay 发起主动非约束性收购邀约，报价每股 125 美元现金加股票，对 eBay 整体估值约555 亿美元。
+援引央视网报道，2025年1月至2026年5月，全国累计销售新能源重卡33.7万辆，市场渗透率超过29.5%。
 
-该报价较 eBay 近期股价大幅溢价，但也令市场对交易融资方式产生巨大质疑。
+对照2030年40%的发展目标，未来数年行业保有量将进入快速发展阶段。
 
-目前游戏驿站自身市值不足120 亿美元。
+全场景化：《方案》明确加大新能源重卡全场景应用支持力度，一方面持续强化中短途运输场景应用的新能源化，包括矿山运输车辆、建筑垃圾运输车、混凝土搅拌车、城配车、邮政快递车辆等；另一方面加快干线运输拓展应用，包括集装箱运输、快递快运企业干线公路运输等。
 
-收购消息公布后，游戏驿站周一股价大跌约 10%，反映出投资者普遍质疑交易可行性，以及此举可能给公司资产负债表带来的巨大压力。
+生态化：“续航短、补能慢、维修难”，一直制约新能源重卡推广的核心瓶颈。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 05:43 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 06:02 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 06:05 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 06:08 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 05:57 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 05:46 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 05:57 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 06:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 05:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 06:01 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 06:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-30 05:49 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 05:48 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 05:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 06:04 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 06:12 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 06:17 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 05:54 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 06:05 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 06:01 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 06:15 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 06:16 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 06:04 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:53 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/12832060.shtml)
-- 2026-06-30 05:59 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/215446.shtml)
-- 2026-06-30 06:08 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/768558.shtml)
-- 2026-06-30 06:06 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/818078267795.shtml)
-- 2026-06-30 05:49 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/7017254.shtml)
-- 2026-06-30 05:45 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/355237954617.shtml)
-- 2026-06-30 05:47 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/69410.shtml)
-- 2026-06-30 05:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/21014.shtml)
-- 2026-06-30 06:05 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/647541.shtml)
-- 2026-06-30 05:52 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/7779274384.shtml)
-- 2026-06-30 05:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/704367421082.shtml)
-- 2026-06-30 05:50 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/98572252380.shtml)
-- 2026-06-30 05:43 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/09516072.shtml)
-- 2026-06-30 05:51 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/543570.shtml)
-- 2026-06-30 06:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/578938.shtml)
+- 2026-06-30 06:09 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/223181828.shtml)
+- 2026-06-30 05:56 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/10448034319.shtml)
+- 2026-06-30 06:05 - [《共患难》](http://www.share.kurohicncr.top/Article/details/183530947.shtml)
+- 2026-06-30 06:13 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/598765137991.shtml)
+- 2026-06-30 06:14 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/427071611957.shtml)
+- 2026-06-30 05:56 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/3007078178.shtml)
+- 2026-06-30 06:03 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/4848586.shtml)
+- 2026-06-30 05:49 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/8019082.shtml)
+- 2026-06-30 06:08 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/898513815184.shtml)
+- 2026-06-30 06:12 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/397995.shtml)
+- 2026-06-30 06:12 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/18333278597.shtml)
+- 2026-06-30 05:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/2550104092.shtml)
+- 2026-06-30 05:49 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/0298936438.shtml)
+- 2026-06-30 06:00 - [周生如故](http://www.blog.kurohicncr.top/Article/details/4547360.shtml)
+- 2026-06-30 05:51 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/58055.shtml)

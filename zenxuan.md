@@ -1,57 +1,59 @@
-# 建行中层人事调整 涉及总分行和多家子公司
+# 广东广西重庆等地有强降雨 东北华北等地多雷阵雨
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-来源：金融人事mini 4月29日，建行披露2026年一季报。今年1-3月，建行实现营业收入2112.56亿元，同比增长11.15%，营收增速领跑六大行；实现归母净利润862.91亿元，同比增长3.53%。截至一季度末，建行资产总额达47.13万亿元，较上年末增长3.29%。 同日，建行发布董事会决议公告，其中，提名纪志宏连任执行董事、詹诚信勋爵连任独立董事。 本期，继续介绍建
+中新网6月17日电 据中央气象台网站消息，昨日，广东、广西等地出现暴雨或大暴雨、局地特大暴雨。预计17日广西、广东、福建、重庆、贵州等地部分地区有强降雨，18日起主雨带北抬，贵州、广西至江南等地有持续强降雨，各地需关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。东北、华北等地多雷阵雨，局地伴有雷暴大风等强对流天气，关注对交通、城市运行等影响。 广东广西
 
 ## 正文
 
-来源：金融人事mini 4月29日，建行披露2026年一季报。
+中新网6月17日电 据中央气象台网站消息，昨日，广东、广西等地出现暴雨或大暴雨、局地特大暴雨。
 
-今年1-3月，建行实现营业收入2112.56亿元，同比增长11.15%，营收增速领跑六大行；实现归母净利润862.91亿元，同比增长3.53%。
+预计17日广西、广东、福建、重庆、贵州等地部分地区有强降雨，18日起主雨带北抬，贵州、广西至江南等地有持续强降雨，各地需关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。
 
-截至一季度末，建行资产总额达47.13万亿元，较上年末增长3.29%。
+东北、华北等地多雷阵雨，局地伴有雷暴大风等强对流天气，关注对交通、城市运行等影响。
 
-同日，建行发布董事会决议公告，其中，提名纪志宏连任执行董事、詹诚信勋爵连任独立董事。
+广东广西重庆等地有强降雨 6月13日以来，广西中东部、广东等地先后出现了暴雨到大暴雨，局地特大暴雨。
 
-本期，继续介绍建行中层人事变动，涉及广西分行行长、总行多部门和多家子公司总裁。
+6月17日8时至18日8时，广西中南部、广东大部、福建东南部以及重庆西部、贵州西部、云南东部等地部分地区有大到暴雨，其中，广西南部沿海、广东沿海、重庆西部等地部分地区有大暴雨，局地特大暴雨(250～350毫米)。
 
-总分行 广西区分行行长方建平，转任资深专家。
+上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过90毫米)，局地有雷暴大风等强对流天气。
 
-方建平，曾任建行苏州分行副行长、纪委书记，江苏省分行纪委书记、副行长，2018年12月任宁波市分行行长，2022年初调任建行广西区分行党委书记、行长。
+中央气象台6月17日6时继续发布暴雨橙色预警。
 
-湖北省分行副行长徐刚，拟任广西区分行行长。
+18日起，强降雨带将北抬到江南北部至长江中下游沿江地区。
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 05:45 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 05:58 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 05:42 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 05:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 05:50 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 05:44 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 05:49 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 05:46 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 06:09 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 06:02 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 06:00 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 05:55 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 06:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 06:13 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 06:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 05:56 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 06:13 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 06:14 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 06:06 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 06:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 06:02 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 06:13 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 06:02 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:43 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/2701968.shtml)
-- 2026-06-30 05:42 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/20501208347.shtml)
-- 2026-06-30 05:57 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/3841384604.shtml)
-- 2026-06-30 05:43 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/48651.shtml)
-- 2026-06-30 06:02 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/650022.shtml)
-- 2026-06-30 06:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/22033.shtml)
-- 2026-06-30 06:05 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/38042765787.shtml)
-- 2026-06-30 06:00 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/3780493572.shtml)
-- 2026-06-30 05:59 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/96013.shtml)
-- 2026-06-30 06:02 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/268121803654.shtml)
-- 2026-06-30 06:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/3645325845.shtml)
-- 2026-06-30 05:46 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/95668.shtml)
-- 2026-06-30 05:43 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/93184087.shtml)
-- 2026-06-30 05:52 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/628964391.shtml)
-- 2026-06-30 06:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/96062.shtml)
+- 2026-06-30 06:16 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/745304486276.shtml)
+- 2026-06-30 06:03 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/36762582.shtml)
+- 2026-06-30 06:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/117484.shtml)
+- 2026-06-30 06:17 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/1311373306.shtml)
+- 2026-06-30 05:54 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/07836680.shtml)
+- 2026-06-30 06:03 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/6310040.shtml)
+- 2026-06-30 06:13 - [一生一世](http://www.blog.kurohicncr.top/Article/details/2227509263.shtml)
+- 2026-06-30 05:50 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/4916160.shtml)
+- 2026-06-30 06:12 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/884666467078.shtml)
+- 2026-06-30 06:06 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/96728502.shtml)
+- 2026-06-30 05:55 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/1964419.shtml)
+- 2026-06-30 05:57 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/93683841756.shtml)
+- 2026-06-30 06:06 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/703326674.shtml)
+- 2026-06-30 06:08 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/8867656527.shtml)
+- 2026-06-30 05:54 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/6488219.shtml)

@@ -1,60 +1,61 @@
-# Peter Thiel领投10亿美元估值海洋数据中心初创公司
+# 超三千万股邯郸银行股权拟拍卖！较评估价折让30%、市净率仅0.5倍
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-PayPal联合创始人、知名科技投资人Peter Thiel领投了美国初创公司Panthalassa的1.4亿美元B轮融资，该公司估值已接近10亿美元。这家总部位于俄勒冈州波特兰的企业正开发一项独特技术：利用海洋波浪能为浮动人工智能数据中心供电。 Panthalassa的系统核心是85米高的浮动发电平台，大部分结构沉于海面以下。该平台利用波浪的上下运动驱动内部涡轮机发电，电力直
+来源：机构之家 机构之家注意到，一笔涉及邯郸银行超三千万股股权，正悄然出现于拍卖平台上。根据京东司法平台显示，本次拍卖涉及股权总量共计32419052股，起拍价为62406675.1元。这笔股权出让正处预告中：将于6月29日上午10点正式开拍，目前已吸引了近千次围观。 图片系邯郸银行32419052股股权即将拍卖 起拍价较评估价折让30% 进一步来看本次拍卖细节。根据邯郸万信资
 
 ## 正文
 
-PayPal联合创始人、知名科技投资人Peter Thiel领投了美国初创公司Panthalassa的1.4亿美元B轮融资，该公司估值已接近10亿美元。
+来源：机构之家 机构之家注意到，一笔涉及邯郸银行超三千万股股权，正悄然出现于拍卖平台上。
 
-这家总部位于俄勒冈州波特兰的企业正开发一项独特技术：利用海洋波浪能为浮动人工智能数据中心供电。
+根据京东司法平台显示，本次拍卖涉及股权总量共计32419052股，起拍价为62406675.1元。
 
-Panthalassa的系统核心是85米高的浮动发电平台，大部分结构沉于海面以下。
+这笔股权出让正处预告中：将于6月29日上午10点正式开拍，目前已吸引了近千次围观。
 
-该平台利用波浪的上下运动驱动内部涡轮机发电，电力直接在船上用于运行AI推理模型，计算结果通过SpaceX的星链卫星网络传回陆地。
+图片系邯郸银行32419052股股权即将拍卖 起拍价较评估价折让30% 进一步来看本次拍卖细节。
 
-这一设计绕过了波浪能项目的历史性难题——将电力从海洋传输回电网的高昂成本。
+根据邯郸万信资产评估报告内容所示，本次拍卖涉中国恒天集团有限公司与王铁朋保证合同纠纷一案。
 
-该方案同时解决了陆地数据中心的两大瓶颈：电网容量限制和冷却成本。
+对于涉及共计32419052股股权，其采用市场法进行估值，对应金额89152393元。
 
-该发电平台无需连接陆地电网，而周围冰冷的海水可直接为计算硬件提供免费散热。
+由此可见，本次拍卖起拍价已然较评估价有所“折让”，进而增强吸引力：起拍总价（62406675.1元）约为评估总价（89152393元）的70%。
 
-联合创始人兼首席执行官Garth Sheldon-Coulson表示，平台发电成本可低至每千瓦时0.02美元。
+而以每股起拍单价来看，则为1.925元/股（62406675.1元/32419052股）。
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 05:53 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 06:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 06:01 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 05:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 05:49 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 05:55 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 05:44 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 05:53 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 05:53 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 06:03 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-30 05:57 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 06:05 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 06:01 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 05:58 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 05:56 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 05:48 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 06:04 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 05:56 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 06:16 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 06:17 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 06:13 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 05:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 06:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 05:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 06:02 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 06:13 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 05:51 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 06:02 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:54 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/589391.shtml)
-- 2026-06-30 05:55 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/71139853583.shtml)
-- 2026-06-30 05:57 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/745255284.shtml)
-- 2026-06-30 06:06 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/45759507255.shtml)
-- 2026-06-30 05:48 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/158525888.shtml)
-- 2026-06-30 06:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/3065055.shtml)
-- 2026-06-30 05:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/89210475820.shtml)
-- 2026-06-30 05:58 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/918564.shtml)
-- 2026-06-30 06:05 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/9311618181.shtml)
-- 2026-06-30 06:11 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/1091706.shtml)
-- 2026-06-30 06:10 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/2893593.shtml)
-- 2026-06-30 05:45 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/66348864486.shtml)
-- 2026-06-30 06:07 - [日本反击率先破门](http://www.blog.minike.top/Article/details/97795.shtml)
-- 2026-06-30 05:50 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/84229948126.shtml)
-- 2026-06-30 06:05 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/39111.shtml)
+- 2026-06-30 06:14 - [85花告别古偶](http://www.share.minike.top/Article/details/24901.shtml)
+- 2026-06-30 06:06 - [周生如故](http://www.share.kurohicncr.top/Article/details/90124658.shtml)
+- 2026-06-30 05:51 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/41345987.shtml)
+- 2026-06-30 05:53 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/9542842893.shtml)
+- 2026-06-30 06:13 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/326372491.shtml)
+- 2026-06-30 05:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/11399427715.shtml)
+- 2026-06-30 05:57 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/947246220752.shtml)
+- 2026-06-30 06:15 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/2050316046.shtml)
+- 2026-06-30 06:11 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/722558683527.shtml)
+- 2026-06-30 06:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/69758815.shtml)
+- 2026-06-30 05:48 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/4989951.shtml)
+- 2026-06-30 06:15 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/12412.shtml)
+- 2026-06-30 05:58 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/762745779690.shtml)
+- 2026-06-30 06:08 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/3226365.shtml)
+- 2026-06-30 05:51 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/7956039236.shtml)

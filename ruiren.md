@@ -1,61 +1,58 @@
-# 中银证券自营投资收益率排名倒数第二 投行利润为负|券商年报
+# 前5个月中国大宗商品市场整体呈现高位运行
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-专题：上市券商2025年年报披露！各业务收入大比拼 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：图灵 2025年又是“券商大年”。据中证协数据，150家券商全年实现营业收入5411.71亿元，同比增长19.95%；净利润2194.39亿元，同比增长31.2%。上市券商方面，44家A股纯证券业务券商中， 42家实现归
+中新网北京6月17日电 (记者 阮煜琳 杜燕)中国物流与采购联合会大宗商品交易市场流通分会副会长周旭16日在北京举行的2026大宗商品创新发展大会上表示，2026年1—5月，中国大宗商品市场整体呈现高位运行、结构分化、波动加大态势，但总体保持稳定，展现出强大的韧性与活力。一方面，宏观政策持续发力，产业结构调整和新动能加快成长，对部分大宗商品需求形成支撑；另一方面，国际地缘政治风
 
 ## 正文
 
-专题：上市券商2025年年报披露！
+中新网北京6月17日电 (记者 阮煜琳 杜燕)中国物流与采购联合会大宗商品交易市场流通分会副会长周旭16日在北京举行的2026大宗商品创新发展大会上表示，2026年1—5月，中国大宗商品市场整体呈现高位运行、结构分化、波动加大态势，但总体保持稳定，展现出强大的韧性与活力。
 
-各业务收入大比拼 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+一方面，宏观政策持续发力，产业结构调整和新动能加快成长，对部分大宗商品需求形成支撑；另一方面，国际地缘政治风险、全球贸易环境变化、能源和金融市场波动等因素交织影响，导致不同品类价格走势明显分化。
 
-出品：新浪财经上市公司研究院 作者：图灵 2025年又是“券商大年”。
+周旭表示，总体来看，前5个月中国大宗商品价格指数较去年同期明显抬升，市场价格重心上移，但行业间冷热不均品种间涨跌分化的特征更加突出。
 
-据中证协数据，150家券商全年实现营业收入5411.71亿元，同比增长19.95%；净利润2194.39亿元，同比增长31.2%。
+中国物流与采购联合会当日在大会上发布《中国大宗商品发展报告(2026)》。
 
-上市券商方面，44家A股纯证券业务券商中， 42家实现归母净利润同比增长，43家营收同比增长； 8家券商净利润超百亿元，行业集中度进一步提升。
+根据报告，2025—2026年中国大宗商品市场总体呈现“宏观承压、市场分化、外部冲击增强、贸易韧性提升、能力建设提速”的基本格局。
 
-近日，44家A股券商全部完成年报披露。
+中国物流与采购联合会副会长何辉在会上表示，当前，全球经济格局加速重构，地缘政治、市场波动等多重因素交织叠加，大宗商品市场面临前所未有的不确定性与挑战。
 
-44家券商中，中信证券2025年营收、净利润最高；太平洋营收最低，天风证券（维权）净利润最低。
+放眼国内，我国经济顶住外部压力，持续回升向好，产业韧性与发展活力持续凸显。
 
-细分业务看，中信证券2025年自营业务收入（按照“自营业务收入=投资净收益+公允价值变动净收益-对联营企业和合营企业的投资收益”的公式计算，下同）最高，为386.04 亿元；自营收入最少的是国盛证券，仅有1.11 亿元。
+何辉表示，步入2026年下半年，全球大宗商品行业既要直面地缘冲突、市场分化等外部考验，也迎来数字技术迭代、绿色低碳转型、全球经贸合作深化等全新发展契机。
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 05:50 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 05:45 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 06:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 05:57 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 06:05 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 05:42 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 05:53 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 05:53 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 05:58 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 05:50 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 06:05 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 05:59 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 06:10 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 05:48 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 06:06 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 06:08 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 05:49 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 06:14 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 06:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 06:09 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 06:06 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 06:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 06:05 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 06:09 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 06:17 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 06:06 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:52 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/582806.shtml)
-- 2026-06-30 06:04 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/1625509.shtml)
-- 2026-06-30 05:54 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/74362.shtml)
-- 2026-06-30 05:42 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/9445716908.shtml)
-- 2026-06-30 05:45 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/6191747099.shtml)
-- 2026-06-30 05:51 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/9664032.shtml)
-- 2026-06-30 05:59 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/764141.shtml)
-- 2026-06-30 05:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/0386698.shtml)
-- 2026-06-30 06:11 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/02602075.shtml)
-- 2026-06-30 06:01 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/165233834.shtml)
-- 2026-06-30 06:03 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/70999.shtml)
-- 2026-06-30 05:52 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/25839094.shtml)
-- 2026-06-30 05:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/175439.shtml)
-- 2026-06-30 06:06 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/75524432060.shtml)
-- 2026-06-30 05:59 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/1201023.shtml)
+- 2026-06-30 05:53 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/83844.shtml)
+- 2026-06-30 05:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/2308335229.shtml)
+- 2026-06-30 06:06 - [我和我的家乡](http://www.blog.minike.top/Article/details/370311.shtml)
+- 2026-06-30 06:06 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/93926572.shtml)
+- 2026-06-30 06:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/5673752622.shtml)
+- 2026-06-30 06:15 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/139013.shtml)
+- 2026-06-30 06:14 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/35296.shtml)
+- 2026-06-30 06:14 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/237162.shtml)
+- 2026-06-30 06:13 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/640051434.shtml)
+- 2026-06-30 06:17 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/140488.shtml)
+- 2026-06-30 05:55 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/5322493.shtml)
+- 2026-06-30 06:05 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/93817.shtml)
+- 2026-06-30 06:07 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/35326884.shtml)
+- 2026-06-30 05:48 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/07561.shtml)
+- 2026-06-30 06:10 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/85249414219.shtml)

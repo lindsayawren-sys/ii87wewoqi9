@@ -1,58 +1,58 @@
-# 视频丨中方在联合国敦促美国足额缴纳会费
+# 从千年故城到开放前沿 海外智库专家走读新疆
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：央视新闻 当地时间5月4日，中国常驻联合国副代表孙磊大使在联合国第80届联大五委二续会议开幕式上表示，中方高度关注当前联合国维和行动面临的流动性问题，愿以建设性的态度与各方一道，商讨解决办法，帮助秘书处渡过难关。 孙磊大使指出，解决流动性危机最直接、最有效的办法，就是所有会员国，特别是最大会费摊款国（
+中新社乌鲁木齐6月16日电 题：从千年故城到开放前沿 海外智库专家走读新疆 作者 苟继鹏 连日来，由12个国家的16位专家学者组成的“海外智库看新疆”活动代表团在新疆参访。 从吐鲁番交河故城，到塔城巴克图口岸，再到乌鲁木齐现代化医药产业园，代表团亲眼见证新疆在文化传承、对外开放、产业发展等领域的真实面貌。 专家学者们沿着残存的街巷夜游交河故城，欣赏当地推出的《交河之夜》原声实景
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社乌鲁木齐6月16日电 题：从千年故城到开放前沿 海外智库专家走读新疆 作者 苟继鹏 连日来，由12个国家的16位专家学者组成的“海外智库看新疆”活动代表团在新疆参访。
 
-来源：央视新闻 当地时间5月4日，中国常驻联合国副代表孙磊大使在联合国第80届联大五委二续会议开幕式上表示，中方高度关注当前联合国维和行动面临的流动性问题，愿以建设性的态度与各方一道，商讨解决办法，帮助秘书处渡过难关。
+从吐鲁番交河故城，到塔城巴克图口岸，再到乌鲁木齐现代化医药产业园，代表团亲眼见证新疆在文化传承、对外开放、产业发展等领域的真实面貌。
 
-孙磊大使指出，解决流动性危机最直接、最有效的办法，就是所有会员国，特别是最大会费摊款国（美国）足额缴纳会费和维和摊款。
+专家学者们沿着残存的街巷夜游交河故城，欣赏当地推出的《交河之夜》原声实景音乐会。
 
-改革不能成为不顾实际情况、裁撤维和行动的理由。
+“我在书本里读过交河故城的历史，可只有站在这里，才能感受到文明的厚度。
 
-缴费是每个会员国应尽的财政义务，具有强制性，不可谈判，不能为缴费设置条件，更不能借机给别国对联合国的积极贡献阻挠设障。
+”比利时艺术家戴金浦说，很难想象一座沉睡千年的故城，能以这样鲜活的方式重新走进人们的生活，当地对文化遗产的保护和利用很成功。
 
-近日有消息称，美国打算以“缴纳2026年联合国分摊预算的一大部分”为条件，施压联合国实施一系列所谓的“速赢”改革措施，包括设计联合国维和行动的所谓“改革”。
+交河故城始建于约公元前2世纪，是世界上现存最大、最完整的生土建筑城市遗址。
 
-责任编辑：宋雅芳
+近年来，当地持续加强遗址保护，深化文旅融合，让千年交河故城在保护中传承、在活化利用中获得新生。
+
+“人们在这里既能触摸历史，也能享受当下，这就是对传统文化最好的传承。
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 05:47 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 06:02 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 05:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 06:06 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 06:03 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 05:42 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 05:54 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 05:59 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 05:48 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 06:01 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 05:55 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 06:00 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 05:43 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 06:01 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 06:12 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 05:56 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 05:58 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 05:59 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 06:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 06:12 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 05:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 05:55 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 06:09 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 05:51 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 06:11 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:50 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/2900924.shtml)
-- 2026-06-30 05:53 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/894377492.shtml)
-- 2026-06-30 05:52 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/468944263.shtml)
-- 2026-06-30 06:00 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/720088529784.shtml)
-- 2026-06-30 06:00 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/842733125.shtml)
-- 2026-06-30 05:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/367270.shtml)
-- 2026-06-30 05:44 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/701910.shtml)
-- 2026-06-30 05:47 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/980777460879.shtml)
-- 2026-06-30 05:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/884752352841.shtml)
-- 2026-06-30 05:48 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/41193797.shtml)
-- 2026-06-30 06:05 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/5426329800.shtml)
-- 2026-06-30 05:45 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/50800.shtml)
-- 2026-06-30 05:53 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/37362.shtml)
-- 2026-06-30 06:07 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/84170855.shtml)
-- 2026-06-30 06:09 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/191323544395.shtml)
+- 2026-06-30 05:55 - [巴西扳平比分](http://www.share.minike.top/Article/details/031410331651.shtml)
+- 2026-06-30 06:08 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/263631.shtml)
+- 2026-06-30 06:04 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/161105283520.shtml)
+- 2026-06-30 06:03 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/465678460.shtml)
+- 2026-06-30 05:58 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/072352116224.shtml)
+- 2026-06-30 05:58 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/51271368953.shtml)
+- 2026-06-30 06:01 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/80591892.shtml)
+- 2026-06-30 06:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/051428.shtml)
+- 2026-06-30 05:51 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/35077.shtml)
+- 2026-06-30 06:10 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/12469734563.shtml)
+- 2026-06-30 05:52 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/8732711446.shtml)
+- 2026-06-30 06:08 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/6908660131.shtml)
+- 2026-06-30 06:08 - [老外对中国cosplay竟这样评价…](http://www.blog.minike.top/Article/details/23131.shtml)
+- 2026-06-30 06:08 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/628884032.shtml)
+- 2026-06-30 06:15 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/76143610.shtml)

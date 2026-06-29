@@ -1,58 +1,58 @@
-# 俄外交部称已发出照会，吁各国及时从基辅撤离人员
+# 欧盟对俄制裁新增制裁中方企业 中方强调坚决反对欧方甩锅推责
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中新网5月7日电 据俄罗斯卫星网7日报道，俄罗斯外交部发言人扎哈罗娃表示，俄方已向各国驻基辅的外交机构和国际组织代表处发出照会，呼吁其将人员及时撤离基辅。 据报道，俄罗斯外交部发言人扎哈罗娃表示，俄国防部就基辅政权威胁在9日卫国战争胜利日期间袭击莫斯科一事发表声明，该声明以及俄方随后采取的步骤，都应被认真对待。 俄外交部在声明中指出：“如果欧盟国家认为他们能够‘压住’这些公开的
+中新网布鲁塞尔6月17日电 中国驻欧盟使团17日回应欧盟对俄制裁新增制裁中方企业，强调坚决反对欧方在乌克兰危机问题上对中方甩锅推责、污蔑抹黑，将采取一切必要措施，坚定维护中方企业正当权益。 有记者问，6月15日，欧盟公布新一轮对俄罗斯制裁方案，新增制裁4家中方企业。中方对此有何评论？ 中国驻欧盟使团发言人表示，欧方不顾中方坚决反对和多次严正交涉，在对俄罗斯制裁中新增制裁中方企业
 
 ## 正文
 
-中新网5月7日电 据俄罗斯卫星网7日报道，俄罗斯外交部发言人扎哈罗娃表示，俄方已向各国驻基辅的外交机构和国际组织代表处发出照会，呼吁其将人员及时撤离基辅。
+中新网布鲁塞尔6月17日电 中国驻欧盟使团17日回应欧盟对俄制裁新增制裁中方企业，强调坚决反对欧方在乌克兰危机问题上对中方甩锅推责、污蔑抹黑，将采取一切必要措施，坚定维护中方企业正当权益。
 
-据报道，俄罗斯外交部发言人扎哈罗娃表示，俄国防部就基辅政权威胁在9日卫国战争胜利日期间袭击莫斯科一事发表声明，该声明以及俄方随后采取的步骤，都应被认真对待。
+有记者问，6月15日，欧盟公布新一轮对俄罗斯制裁方案，新增制裁4家中方企业。
 
-俄外交部在声明中指出：“如果欧盟国家认为他们能够‘压住’这些公开的威胁，即所谓的把泽连斯基的激进言论‘掩盖过去’，那他们就大错特错了。
+中方对此有何评论？
 
-” 声明称，俄罗斯国防部的警告正是对泽连斯基言论的回应。
+中国驻欧盟使团发言人表示，欧方不顾中方坚决反对和多次严正交涉，在对俄罗斯制裁中新增制裁中方企业，中方对此强烈不满、坚决反对，并再次向欧方提出了严正交涉。
 
-如果基辅在伟大胜利日庆祝期间实施“犯罪计划”，俄方的打击将包括决策中心；若基辅政权实施“恐怖主义”图谋，俄军对基辅的报复性打击将不可避免。
+发言人强调，中国在乌克兰危机问题上一贯秉持客观公正立场，致力于劝和促谈，为推动政治解决乌克兰危机发挥建设性作用。
 
-声明指出，俄罗斯外交部强烈呼吁外国当局确保其外交官提前从基辅撤离。
+中方坚决反对欧方在乌克兰危机问题上对中方甩锅推责、污蔑抹黑，坚决反对没有联合国安理会授权、缺乏国际法依据的非法单边制裁，将采取一切必要措施，坚定维护中方企业正当权益。
 
-报道称，俄外交部已向所有外国外交使团发出呼吁，要求其认真对待俄国防部就基辅威胁所做的声明。
-
-据此前报道，乌克兰总统泽连斯基4日说，乌无人机或将出现在俄罗斯卫国战争胜利日阅兵式上。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 06:01 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 06:11 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 06:11 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 05:42 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 06:03 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 06:07 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 05:55 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 05:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 06:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 05:45 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 06:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 05:59 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 06:14 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 06:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 06:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 06:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 05:59 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 06:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 06:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 05:48 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 06:02 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 05:48 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 05:56 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 06:04 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 05:56 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:05 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/05905827439.shtml)
-- 2026-06-30 05:53 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/18794853.shtml)
-- 2026-06-30 05:44 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/130952242115.shtml)
-- 2026-06-30 06:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/230594078.shtml)
-- 2026-06-30 05:53 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/3540286.shtml)
-- 2026-06-30 06:00 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/444620.shtml)
-- 2026-06-30 06:06 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/35320007437.shtml)
-- 2026-06-30 05:51 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/1567127036.shtml)
-- 2026-06-30 05:48 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/271116174.shtml)
-- 2026-06-30 06:11 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/85228372.shtml)
-- 2026-06-30 06:00 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/41733005.shtml)
-- 2026-06-30 06:11 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/1832914.shtml)
-- 2026-06-30 06:01 - [沉睡花园](http://www.blog.minike.top/Article/details/6327178926.shtml)
-- 2026-06-30 05:43 - [明星大侦探第一季](https://www.share.minike.top/Article/details/6115716995.shtml)
-- 2026-06-30 05:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/79610445399.shtml)
+- 2026-06-30 06:04 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/32542483666.shtml)
+- 2026-06-30 05:53 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/2453208683.shtml)
+- 2026-06-30 05:59 - [巴西扳平比分](https://www.blog.minike.top/Article/details/579963240862.shtml)
+- 2026-06-30 05:58 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/90362596.shtml)
+- 2026-06-30 06:09 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/68423.shtml)
+- 2026-06-30 06:07 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/8652299195.shtml)
+- 2026-06-30 05:54 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/988037.shtml)
+- 2026-06-30 06:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/40304037525.shtml)
+- 2026-06-30 05:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/467528.shtml)
+- 2026-06-30 06:06 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/440339529.shtml)
+- 2026-06-30 06:03 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/502246372012.shtml)
+- 2026-06-30 05:55 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/902083733891.shtml)
+- 2026-06-30 06:08 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/08980275.shtml)
+- 2026-06-30 05:52 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/46545.shtml)
+- 2026-06-30 05:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/988253.shtml)

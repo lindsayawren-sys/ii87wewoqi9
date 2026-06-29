@@ -1,61 +1,58 @@
-# CVS业绩大幅超预期并上调全年指引 保险业务强势回暖
+# 爬土路、挖水晶……流量争夺下研学市场亟待规范
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 CVS 健康盘前涨5.7%。 CVS 健康周三公布一季度财报，盈利与营收大幅超出分析师预期，并上调 2026 全年业绩展望；公司此前承压的保险业务实现明显改善。 作为美国最大连锁药房运营商，CVS 上调全年盈利预期： 全年每股收益从此前7.00–7.20 美元，上调至7.30–7.50 美元。2026 年营收预期从此前至少 400
+无证经营、安全失防、生态破坏，亲子研学勿被流量裹挟 沙漠徒步、海岛生存、探洞冒险……近年来，我国未成年人研学游市场呈现爆发式增长，部分研学机构“野蛮生长”，各类刺激惊险的户外研学项目屡见不鲜，不仅存在安全隐患，还对当地生态环境造成了破坏。无证经营、安全失防、生态破坏，亲子研学市场乱象丛生，亟待规范。 研学机构爆发式增长带来安全风险 近期，个别研学机构以“自然教育”“研学团”等名
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 CVS 健康盘前涨5.7%。
+无证经营、安全失防、生态破坏，亲子研学勿被流量裹挟 沙漠徒步、海岛生存、探洞冒险……近年来，我国未成年人研学游市场呈现爆发式增长，部分研学机构“野蛮生长”，各类刺激惊险的户外研学项目屡见不鲜，不仅存在安全隐患，还对当地生态环境造成了破坏。
 
-CVS 健康周三公布一季度财报，盈利与营收大幅超出分析师预期，并上调 2026 全年业绩展望；公司此前承压的保险业务实现明显改善。
+无证经营、安全失防、生态破坏，亲子研学市场乱象丛生，亟待规范。
 
-作为美国最大连锁药房运营商，CVS 上调全年盈利预期： 全年每股收益从此前7.00–7.20 美元，上调至7.30–7.50 美元。
+研学机构爆发式增长带来安全风险 近期，个别研学机构以“自然教育”“研学团”等名义组团前往广东省广州市黄埔区暹岗大山“采石挖矿”，导致山体多处点位零星林地被破坏，树根裸露，地表出现孔洞。
 
-2026 年营收预期从此前至少 4000 亿美元，上调至至少 4050 亿美元。
+社交媒体上有大量关于“暹岗大山挖水晶”的攻略信息，如“广州亲子自然教育，广州1小时直达的山野矿坑”“广州免费亲子徒步团，冲暹岗大山，挖水晶、爬土路”等，均以野路进山为主。
 
-CVS 首席财务官布莱恩・纽曼在接受 CNBC 采访时表示，营收预期上调的 500 亿美元增量中，绝大部分源于保险子公司安泰（Aetna） 带来的顺风利好。
+社交媒体上发布的图片显示，参加该徒步团的孩子，有的拿着工具敲打、挖泥土，有的全身趴在泥坑里。
 
-这家医疗巨头旗下保险、零售药房、健康服务三大板块营收均超越华尔街预期。
+地质专家提醒，这类无序开挖不仅直接破坏山林原生植被，还会改变山体原有结构，大幅增加滑坡、塌方等地质灾害风险。
 
-近两年高昂医疗赔付成本持续压制大型健康险公司业绩，因此安泰的经营表现最受投资者关注。
+一旦发生意外，参与活动人员的自身安全也难以得到保障。
 
-本次财报标志着 CVS 整体转型计划稳步推进： 包括削减 20 亿美元开支、关停低效门店、管理层人事调整，以及在私营联邦医保优势计划（Medicare Advantage）板块压降运营成本。
+“我们都是在微信群里报名的，这种一日团，参加的大多是小学生，且需要家人陪伴。
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 06:07 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 06:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 06:03 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 06:11 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 06:06 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 05:55 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 05:42 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 05:44 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-30 05:46 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 06:09 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 06:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 05:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 05:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 05:59 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 06:07 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 05:58 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 06:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 06:02 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 06:16 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 06:03 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 06:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 06:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-30 06:12 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 06:16 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 06:09 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 05:59 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/5935625953.shtml)
-- 2026-06-30 05:44 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/50399493.shtml)
-- 2026-06-30 05:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/52592943.shtml)
-- 2026-06-30 05:45 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/4021396419.shtml)
-- 2026-06-30 06:08 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/999703695122.shtml)
-- 2026-06-30 05:55 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/44825.shtml)
-- 2026-06-30 05:47 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/2531194.shtml)
-- 2026-06-30 05:57 - [斗破苍穹](http://www.blog.minike.top/Article/details/6712107534.shtml)
-- 2026-06-30 05:55 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/8626865.shtml)
-- 2026-06-30 05:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/5556535541.shtml)
-- 2026-06-30 06:09 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/454771.shtml)
-- 2026-06-30 06:10 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/1127030562.shtml)
-- 2026-06-30 05:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/003598.shtml)
-- 2026-06-30 05:58 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/593434875971.shtml)
-- 2026-06-30 06:03 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/752303857.shtml)
+- 2026-06-30 05:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/248753688.shtml)
+- 2026-06-30 05:54 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/470935713.shtml)
+- 2026-06-30 06:02 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/4126497.shtml)
+- 2026-06-30 06:03 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/0317099546.shtml)
+- 2026-06-30 06:14 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/506434475428.shtml)
+- 2026-06-30 05:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/67549758.shtml)
+- 2026-06-30 06:16 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/31861738220.shtml)
+- 2026-06-30 05:51 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/7938703405.shtml)
+- 2026-06-30 06:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/520345821.shtml)
+- 2026-06-30 05:51 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/498541782725.shtml)
+- 2026-06-30 06:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/88478031.shtml)
+- 2026-06-30 06:10 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/6629990.shtml)
+- 2026-06-30 06:10 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/297745552.shtml)
+- 2026-06-30 06:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/71165.shtml)
+- 2026-06-30 05:55 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/777779065834.shtml)

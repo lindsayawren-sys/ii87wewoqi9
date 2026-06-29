@@ -1,59 +1,56 @@
-# “浙妆”崛起：政企协合力撬动品牌突围
+# 上海无党派人士开展专项民主监督 加快构建现代化产业体系
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中新网杭州5月5日电 (祝晓艳 潘沁文)“这支口红不仅颜色好看，用起来水润，它的包装也很有中国文化特色，我很喜欢。”“五一”假期期间，在浙江杭州的一家商场内，消费者刘一佳看中了一款由浙江某化妆品公司生产的彩妆产品。 消费者对美妆的选择，从“卷品质”到“卷文化”，折射出浙江化妆品产业蓬勃发展的新气象。该省正通过企业品牌建设、协会组团发展、政府监管创新三重合力，助力浙江化妆品企业打
+中新网上海6月16日电(范宇斌)近日，无党派人士依托上海中青年知识分子联谊会(简称“上海市知联会”)，赴上海市松江区开展“巩固壮大实体经济根基，加快构建现代化产业体系”专项民主监督。 根据工作方案，专项民主监督工作组在上海市委统战部召开专项民主监督工作启动会。上海市委统战部副部长沈立新作动员讲话，上海市知联会会长、中国科学院院士俞飚主持启动会。 启动会后，俞飚、沈立新带领23名
 
 ## 正文
 
-中新网杭州5月5日电 (祝晓艳 潘沁文)“这支口红不仅颜色好看，用起来水润，它的包装也很有中国文化特色，我很喜欢。
+中新网上海6月16日电(范宇斌)近日，无党派人士依托上海中青年知识分子联谊会(简称“上海市知联会”)，赴上海市松江区开展“巩固壮大实体经济根基，加快构建现代化产业体系”专项民主监督。
 
-”“五一”假期期间，在浙江杭州的一家商场内，消费者刘一佳看中了一款由浙江某化妆品公司生产的彩妆产品。
+根据工作方案，专项民主监督工作组在上海市委统战部召开专项民主监督工作启动会。
 
-消费者对美妆的选择，从“卷品质”到“卷文化”，折射出浙江化妆品产业蓬勃发展的新气象。
+上海市委统战部副部长沈立新作动员讲话，上海市知联会会长、中国科学院院士俞飚主持启动会。
 
-该省正通过企业品牌建设、协会组团发展、政府监管创新三重合力，助力浙江化妆品企业打响品牌突围之战。
+启动会后，俞飚、沈立新带领23名无党派人士组成专项民主监督工作组赴松江区调研座谈。
 
-面对预算紧、流量贵、价格战“三座大山”，品牌如何破局？
+松江区委副书记、区长王靖，松江区委常委、统战部部长朱大章，松江副区长陈容以及松江区相关职能部门负责人出席座谈会。
 
-“品牌建设需要坚持长期主义。
+“松江区要积极抢抓转型发展机遇，聚力重塑主导产业核心竞争力，聚焦‘四个区’功能定位，坚持工业立区战略方针，加快建设先进制造业发展集聚区、新质生产力发展先行区，推动区域产业经济企稳回升。
 
-”在前不久业内的一次讨论中，浙江宜格美妆集团有限公司公共事务总经理曾敏提出，企业应持续加大研发投入，深耕品牌内涵与故事，以更深的情感联结赢得消费者信赖。
+”王靖表示，松江区将以此次专项民主监督为契机，切实把监督成果转化为推动产业高质量发展的务实举措。
 
-欧诗漫生物股份有限公司的做法则更具“文化味”。
+俞飚表示，作为上海西南重要的产业集聚区，松江区紧扣“四个区”功能定位，加快构建以实体经济为支撑的“2+4”现代化产业体系，产业规模持续壮大、特色赛道集群成势，成绩令人鼓舞。
 
 ## 相关推荐
 
-- 2026-06-30 05:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 05:48 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 06:08 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 06:10 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 05:52 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 05:48 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 05:59 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 05:53 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 06:00 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 05:43 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 05:49 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 05:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 05:42 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 05:59 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 06:03 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 06:04 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 06:01 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 05:51 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 05:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 06:00 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 05:49 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 05:54 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 05:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/625558126.shtml)
-- 2026-06-30 05:59 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/22810805.shtml)
-- 2026-06-30 06:01 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/91212097143.shtml)
-- 2026-06-30 05:49 - [千香](https://www.share.minike.top/Article/details/94998898.shtml)
-- 2026-06-30 06:00 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/830646.shtml)
-- 2026-06-30 05:55 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/149854103668.shtml)
-- 2026-06-30 05:57 - [极限挑战第一季](http://www.blog.minike.top/Article/details/797635.shtml)
-- 2026-06-30 05:50 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/4572653882.shtml)
-- 2026-06-30 05:51 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/422763487.shtml)
-- 2026-06-30 06:01 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/5258130736.shtml)
-- 2026-06-30 06:10 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/24588.shtml)
-- 2026-06-30 05:55 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/122708636445.shtml)
-- 2026-06-30 05:58 - [毒液2](http://www.blog.minike.top/Article/details/15333730.shtml)
-- 2026-06-30 06:08 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/458588798.shtml)
-- 2026-06-30 05:46 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/44596974.shtml)
+- 2026-06-30 06:14 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/53053.shtml)
+- 2026-06-30 05:52 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/32839750612.shtml)
+- 2026-06-30 06:17 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/348144.shtml)
+- 2026-06-30 06:05 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/7021544.shtml)
+- 2026-06-30 05:59 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/46523572.shtml)
+- 2026-06-30 06:04 - [日本反击率先破门](http://www.blog.minike.top/Article/details/0913129760.shtml)
+- 2026-06-30 06:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/597195704530.shtml)
+- 2026-06-30 06:17 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/88944.shtml)
+- 2026-06-30 05:56 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/0227188.shtml)
+- 2026-06-30 06:01 - [第一炉香](http://www.share.minike.top/Article/details/77218.shtml)
+- 2026-06-30 06:04 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/8476604203.shtml)
+- 2026-06-30 06:02 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/8871310.shtml)
+- 2026-06-30 06:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/49172.shtml)
+- 2026-06-30 06:02 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/4059281.shtml)
+- 2026-06-30 06:04 - [天道](http://www.share.minike.top/Article/details/0678866494.shtml)

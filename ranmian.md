@@ -1,48 +1,58 @@
-# 日元兑美元汇率一度大涨1.2%
+# 唐代北庭都护府文物亮相山西 丝路遗珍印证千年边疆治理
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-日元兑美元汇率一度上涨1.2%，至156.06，重拾日本当局干预汇市引发的涨势。注：4月30日，日本政府自2024年以来首次干预汇市，推动日元飙升。责任编辑：王永生
+中新社太原6月16日电 (记者 胡健)“千年回响——大唐北庭文物展”16日在山西博物院开展，展览汇集北庭故城出土的青铜器、陶瓷器、文书、石刻等百余件文物，时间跨度从战国至宋元时期。 本次展览设“考古探索”“北庭经纬”“丝路华章”三大单元，系统还原唐代北庭都护府的军政建制、社会生活与丝路繁华，实证中央政权对西域的有效管辖及各民族交往交流交融的历史。 “考古探索”单元梳理了北庭故城
 
 ## 正文
 
-日元兑美元汇率一度上涨1.2%，至156.06，重拾日本当局干预汇市引发的涨势。
+中新社太原6月16日电 (记者 胡健)“千年回响——大唐北庭文物展”16日在山西博物院开展，展览汇集北庭故城出土的青铜器、陶瓷器、文书、石刻等百余件文物，时间跨度从战国至宋元时期。
 
-注：4月30日，日本政府自2024年以来首次干预汇市，推动日元飙升。
+本次展览设“考古探索”“北庭经纬”“丝路华章”三大单元，系统还原唐代北庭都护府的军政建制、社会生活与丝路繁华，实证中央政权对西域的有效管辖及各民族交往交流交融的历史。
 
-责任编辑：王永生
+“考古探索”单元梳理了北庭故城的百年发现史。
+
+清代纪晓岚、徐松奠定研究基础，袁复礼完成首张测绘图，四十余载考古发掘逐步揭示“两套四重八块”的城池格局。
+
+出土的莲花纹方砖、兽面纹瓦当等文物，印证了北庭都护府的建筑规制与昔日繁华。
+
+“北庭经纬”单元展现唐代成熟的边疆治理体系，北庭推行正州与羁縻府州结合的治理模式，构建“军—守捉—城—镇—烽燧”多级军事防御体系，同时大力推行屯田戍边，实现农牧并举。
+
+“丝路华章”单元讲述北庭作为丝路枢纽的千年传承，唐代北庭汇聚东西方商旅与文化，宋元时期改称“别失八里”，延续商贸活力。
+
+北庭故城位于新疆吉木萨尔县，是唐代天山北麓的军政中心与丝路北道咽喉。
 
 ## 相关推荐
 
-- 2026-06-30 06:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 05:43 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 05:56 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 05:56 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 06:11 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 06:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 05:48 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 05:55 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 05:53 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 05:47 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 06:06 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 06:09 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 06:03 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 06:13 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 06:02 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 06:06 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 06:08 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 06:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 06:06 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 06:17 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 06:11 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 06:16 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 06:06 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 06:17 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:49 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/39815501.shtml)
-- 2026-06-30 05:50 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/0226816.shtml)
-- 2026-06-30 05:48 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/5571849329.shtml)
-- 2026-06-30 05:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/0840000605.shtml)
-- 2026-06-30 05:59 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/3869222444.shtml)
-- 2026-06-30 06:00 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/903258.shtml)
-- 2026-06-30 05:43 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/81407312.shtml)
-- 2026-06-30 06:03 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/57672110.shtml)
-- 2026-06-30 05:53 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/9515951.shtml)
-- 2026-06-30 05:45 - [周生如故](http://www.share.minike.top/Article/details/232952923.shtml)
-- 2026-06-30 06:07 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/62460117511.shtml)
-- 2026-06-30 06:07 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/318199.shtml)
-- 2026-06-30 06:01 - [世界杯](http://www.blog.minike.top/Article/details/7315280.shtml)
-- 2026-06-30 05:53 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/039879348505.shtml)
-- 2026-06-30 05:44 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/276491.shtml)
+- 2026-06-30 06:06 - [千香](https://www.share.kurohicncr.top/Article/details/071653075596.shtml)
+- 2026-06-30 06:12 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/70814798630.shtml)
+- 2026-06-30 05:54 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/03929939499.shtml)
+- 2026-06-30 06:09 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/97285.shtml)
+- 2026-06-30 06:08 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/823251.shtml)
+- 2026-06-30 05:55 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/7492887571.shtml)
+- 2026-06-30 05:49 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/217271218357.shtml)
+- 2026-06-30 06:16 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/002155873068.shtml)
+- 2026-06-30 06:07 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/40797197.shtml)
+- 2026-06-30 05:54 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/677281883.shtml)
+- 2026-06-30 05:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/9647716208.shtml)
+- 2026-06-30 05:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/901533077.shtml)
+- 2026-06-30 06:06 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/819605895385.shtml)
+- 2026-06-30 06:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/7899528200.shtml)
+- 2026-06-30 06:05 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/396760.shtml)

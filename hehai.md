@@ -1,60 +1,56 @@
-# 两股东欲“组团”退场，光大永明人寿25%股权挂牌转让，公司偿付能力逼近监管预警线
+# 华安基金：指数成分股调整保障股息纯度，金融公用事业权重提升
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 蓝鲸新闻5月6日讯（记者 陈晓娟） 近期，光大永明人寿保险有限公司（下称“光大永明人寿”）两笔股权于北京产权交易所挂牌转让，合计出让公司25.01%股权。 此次挂牌的股权为“打包”转让，不接受拆分受让，分别为鞍山钢铁集团有限公司（下称“鞍钢集团”）持有的12.505%股权以及中兵投资管理有限责任公司（下称“中兵投资”）持有的12
+行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数上涨0.70%，恒生指数下跌0.74%，恒生科技指数下跌3.64%。A股方面，上周中证国企红利指数下跌0.91%，沪深300下跌0.64%。（数据来源：Wind，截至2026/6/12，均为对应全收益指数的收益率） 恒生港股通中国央企红利指数采用股息率加权并定期调仓的机制，这实质上是一种被动的“高抛低吸”。当某只成分
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 蓝鲸新闻5月6日讯（记者 陈晓娟） 近期，光大永明人寿保险有限公司（下称“光大永明人寿”）两笔股权于北京产权交易所挂牌转让，合计出让公司25.01%股权。
+行情回顾及主要观点： 港股方面，上周恒生港股通中国央企红利指数上涨0.70%，恒生指数下跌0.74%，恒生科技指数下跌3.64%。
 
-此次挂牌的股权为“打包”转让，不接受拆分受让，分别为鞍山钢铁集团有限公司（下称“鞍钢集团”）持有的12.505%股权以及中兵投资管理有限责任公司（下称“中兵投资”）持有的12.505%股权，单一标的转让底价均为10.05亿元。
+A股方面，上周中证国企红利指数下跌0.91%，沪深300下跌0.64%。
 
-以鞍钢集团所持光大永明人寿股权挂牌项目为例，公告明确，该项目与中兵投资同步挂牌的12.505%股权项目捆绑转让，意向受让方在报名参与受让本项目的同时，须报名参与受让中兵投资所持同比例股权项目。
+（数据来源：Wind，截至2026/6/12，均为对应全收益指数的收益率） 恒生港股通中国央企红利指数采用股息率加权并定期调仓的机制，这实质上是一种被动的“高抛低吸”。
 
-如项目形成竞价，则竞价起始价为两宗项目转让底价之和，竞价成交价格较竞价起始价格的增值部分按照单宗项目转让底价的比例进行分配。
+当某只成分股因股价大幅上涨导致股息率相对下降后，指数会在定期调整时将其剔除，相当于在高位锁定利润、卖出已不够“高息”的资产。
 
-另据挂牌公告，光大永明人寿股东中国光大集团股份公司（下称“中国光大集团”）、加拿大永明人寿保险公司（下称“加拿大永明人寿”）未放弃优先购买权，若行权将对捆绑项目整体进行行权。
+与此同时，指数会纳入那些因股价下跌或分红提升而股息率显著上升的个股，在相对低位布局新的高息机会。
 
-“本项目信息披露期间，原股东是否决定放弃该权利具有不确定性，请意向受让方知悉。
+通过这种动态调整，指数始终由当前最具股息率吸引力的央企构成，从而保障了高股息的“纯度”——不会因个别股票涨多而拉低整体股息率。
 
-” 针对股权转让以及另外两家现有股东是否有意向接盘事宜，光大永明人寿相关负责人在接受蓝鲸新闻记者采访时表示，“具体情况以官方披露为准。
+对于投资者而言，这一机制意味着无需主动择时，指数本身便完成了纪律化的利润锁定与高息再配置。
 
-” 据公开信息，光大永明人寿成立于2002年4月。
+恒生港股通中国央企红利指数于6月8日进行成分股调整，共剔除10只个股，主要集中在能源、工业及材料板块。
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 06:03 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 05:48 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 06:09 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 06:06 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 06:03 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 05:43 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 05:48 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 05:46 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 06:03 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 05:52 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 06:09 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 06:07 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 06:03 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 05:48 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 06:01 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 06:08 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 05:57 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 05:52 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 06:15 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 05:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 06:02 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 06:17 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 05:56 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:11 - [世界杯](https://www.blog.kurohicncr.top/Article/details/63874.shtml)
-- 2026-06-30 05:46 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/85000087.shtml)
-- 2026-06-30 05:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/6469255502.shtml)
-- 2026-06-30 05:49 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/966142447.shtml)
-- 2026-06-30 05:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/13058081646.shtml)
-- 2026-06-30 06:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/214369600.shtml)
-- 2026-06-30 05:51 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/840283502.shtml)
-- 2026-06-30 06:06 - [千香](http://www.blog.minike.top/Article/details/107598.shtml)
-- 2026-06-30 05:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/18311.shtml)
-- 2026-06-30 05:59 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/529676.shtml)
-- 2026-06-30 05:49 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/87977732.shtml)
-- 2026-06-30 06:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/895138.shtml)
-- 2026-06-30 05:49 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/27016709525.shtml)
-- 2026-06-30 05:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/32670527646.shtml)
-- 2026-06-30 05:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/402189310949.shtml)
+- 2026-06-30 05:49 - [起风了](https://www.share.minike.top/Article/details/479097495493.shtml)
+- 2026-06-30 06:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/700471406251.shtml)
+- 2026-06-30 05:58 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/2239667.shtml)
+- 2026-06-30 06:01 - [日本反击率先破门](http://www.blog.minike.top/Article/details/62115777021.shtml)
+- 2026-06-30 06:02 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/96933376.shtml)
+- 2026-06-30 05:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/828156627.shtml)
+- 2026-06-30 05:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/759240.shtml)
+- 2026-06-30 05:50 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/9065038856.shtml)
+- 2026-06-30 05:51 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/21046506.shtml)
+- 2026-06-30 06:03 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/87975.shtml)
+- 2026-06-30 05:57 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/0257051441.shtml)
+- 2026-06-30 05:59 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/598080.shtml)
+- 2026-06-30 06:09 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/3734990250.shtml)
+- 2026-06-30 06:16 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/035542317.shtml)
+- 2026-06-30 06:04 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/320913049.shtml)

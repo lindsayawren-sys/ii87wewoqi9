@@ -1,61 +1,60 @@
-# “五一”假期深圳皇岗、福田口岸跨境游“热”力十足
+# 习近平同缅甸总统敏昂莱会谈
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中新网深圳5月6日电 (索有为 黄俊生 彭馨荷)深圳出入境边防检查总站6日发布的统计数据显示，5月1日至5日，皇岗边检站执勤民警共查验经皇岗、福田两个口岸出入境人员134.4万人次(其中，福田口岸出入境旅客103.3万人次)、出入境车辆4.2万辆次，同比增长2%和9%。 其中，内地居民出入境超64.7万人次，港澳居民出入境超70万人次，出入境外籍旅客2万人次(享受免签入境0.3
+新华社北京6月16日电(记者马卓言)6月16日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的缅甸总统敏昂莱举行会谈。 习近平指出，中缅胞波情谊深厚，建交76年来，始终风雨同舟、守望相助，共同倡导并践行和平共处五项原则，树立了国与国平等相待、互利共赢的典范。中国秉持亲诚惠容理念，将发展对缅关系置于周边外交重要位置。中国坚持不干涉内政原则，对缅友好政策面向缅甸全体人民，坚
 
 ## 正文
 
-中新网深圳5月6日电 (索有为 黄俊生 彭馨荷)深圳出入境边防检查总站6日发布的统计数据显示，5月1日至5日，皇岗边检站执勤民警共查验经皇岗、福田两个口岸出入境人员134.4万人次(其中，福田口岸出入境旅客103.3万人次)、出入境车辆4.2万辆次，同比增长2%和9%。
+新华社北京6月16日电(记者马卓言)6月16日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的缅甸总统敏昂莱举行会谈。
 
-其中，内地居民出入境超64.7万人次，港澳居民出入境超70万人次，出入境外籍旅客2万人次(享受免签入境0.35万人次)。
+习近平指出，中缅胞波情谊深厚，建交76年来，始终风雨同舟、守望相助，共同倡导并践行和平共处五项原则，树立了国与国平等相待、互利共赢的典范。
 
-5月2日单日全站查验出入境人员逾33.7万人次，多项数据刷新复关最高纪录。
+中国秉持亲诚惠容理念，将发展对缅关系置于周边外交重要位置。
 
-随着中国不断优化免签政策、推出“离境退税”“即买即退”和便捷化支付等便利措施，在深港两地推出系列文旅、促销活动带动下，“一程多站”的跨境游已成为“湾区生活新常态”。
+中国坚持不干涉内政原则，对缅友好政策面向缅甸全体人民，坚定支持缅方维护主权和领土完整，支持缅甸新政府统筹发展和安全，找到符合国情、人民拥护的正确发展道路。
 
-“五一”假期，粤港澳三地演唱会等文旅活动精彩纷呈，叠加第139届广交会在广州举办，港澳居民“北上”休闲购物与内地居民“南下”观演度假，粤港澳大湾区居民跨境出游意愿强烈，深圳皇岗、福田口岸持续迎来出入境双向客流高峰。
+今年是中国“十五五”开局之年，中方愿同缅方分享发展经验，共同打造政治上友好互信、发展上互利互惠、安全上协调互促、人文上交融互鉴的中缅命运共同体，为两国人民带来更多福祉，为地区和平与发展作出更多贡献。
 
-特别是24小时通关的皇岗口岸，夜间出入境客流与日俱增。
+习近平强调，中国是缅甸共享边界最长的邻居，是可以信赖的朋友和伙伴。
 
-今年以来该口岸平日夜间(22时至次日6时)客流同比增长14%，周末夜间客流同比增长7%。
+面对变乱交织的国际形势，双方要保持战略清醒和定力，加强团结协作。
 
-针对“五一”假期出入境客流呈现“总量大、峰值高、双向旺、家庭多”的特点，皇岗边检站对分时流量和高峰时段精准研判，提升通关效率与应急响应速度；提前加开、开足查验通道，加大PDA、移动查验台等移动查验设施投入应用，最大程度提升客流疏导与服务保障；密切与香港入境事务处沟通联系和协调驻地相关部门协同联动，提高同频保障合力。
+中缅经济走廊是两国共建“一带一路”的旗舰项目，双方要在确保安全前提下，稳步推进重点项目建设，助力缅甸发展经济、改善民生。
 
 ## 相关推荐
 
-- 2026-06-30 05:42 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 05:46 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 05:48 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 05:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 05:54 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 05:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 06:02 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 05:57 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 06:02 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 05:48 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 05:58 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 05:49 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 06:05 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 05:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 05:46 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 06:08 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 06:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 06:05 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 06:05 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 06:02 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 05:49 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 06:13 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 05:49 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 06:13 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 05:58 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 06:17 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 05:54 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 05:59 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 06:06 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/03273.shtml)
-- 2026-06-30 05:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/758309503.shtml)
-- 2026-06-30 05:44 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/9799453.shtml)
-- 2026-06-30 06:10 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/657570145181.shtml)
-- 2026-06-30 05:54 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/47764140.shtml)
-- 2026-06-30 05:47 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/353896.shtml)
-- 2026-06-30 06:07 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/2061920.shtml)
-- 2026-06-30 05:53 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/381889.shtml)
-- 2026-06-30 05:42 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/483895383.shtml)
-- 2026-06-30 05:57 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/883923.shtml)
-- 2026-06-30 06:07 - [日本进球](https://www.share.minike.top/Article/details/039391346882.shtml)
-- 2026-06-30 06:08 - [《贺子珍》](https://www.blog.minike.top/Article/details/006281.shtml)
-- 2026-06-30 06:10 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/257176.shtml)
-- 2026-06-30 05:49 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/453103.shtml)
-- 2026-06-30 05:54 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/155755.shtml)
+- 2026-06-30 06:06 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/318453802547.shtml)
+- 2026-06-30 06:13 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/25993721.shtml)
+- 2026-06-30 06:01 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/68370.shtml)
+- 2026-06-30 05:53 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/660705999.shtml)
+- 2026-06-30 05:53 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/409755.shtml)
+- 2026-06-30 05:52 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/829210475251.shtml)
+- 2026-06-30 05:54 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/08299.shtml)
+- 2026-06-30 06:03 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/63071390.shtml)
+- 2026-06-30 06:15 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/9906762926.shtml)
+- 2026-06-30 05:53 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/194947.shtml)
+- 2026-06-30 06:14 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/432911051.shtml)
+- 2026-06-30 06:13 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/939733285.shtml)
+- 2026-06-30 06:17 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/135876926.shtml)
+- 2026-06-30 06:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/157218297133.shtml)
+- 2026-06-30 05:57 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/8679113091.shtml)

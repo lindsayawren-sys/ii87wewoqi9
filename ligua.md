@@ -1,49 +1,57 @@
-# 建滔系延续近期涨势 建滔积层板涨逾9%建滔集团涨逾7%
+# 金价“跌跌不休”，老铺黄金坐不住了？
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-建滔系延续近期涨势，截至发稿，建滔积层板（01888）上涨8.96%，报41.58港元；建滔集团（00148）上涨6.81%，报49.22港元。责任编辑：卢昱君
+文|壹DU财经 2026年的黄金市场，充分验证了资本的变脸速度比翻书还快。 近期，国际现货黄金一路绿灯、向下跌破4100美元/盎司的大关，抹去了2026年内的全部涨幅。跟着国际金价一起跳水的，还有曾在港股市场横着走、号称“黄金界爱马仕”的老铺黄金，截至6月11日，其盘中股价一度下跌至434港元，市值较历史高点跌超59%。 无差别的暴跌不仅让追高买入的股民心痛，更戳破了老铺黄金精
 
 ## 正文
 
-建滔系延续近期涨势，截至发稿，建滔积层板（01888）上涨8.96%，报41.58港元；建滔集团（00148）上涨6.81%，报49.22港元。
+文|壹DU财经 2026年的黄金市场，充分验证了资本的变脸速度比翻书还快。
 
-责任编辑：卢昱君
+近期，国际现货黄金一路绿灯、向下跌破4100美元/盎司的大关，抹去了2026年内的全部涨幅。
+
+跟着国际金价一起跳水的，还有曾在港股市场横着走、号称“黄金界爱马仕”的老铺黄金，截至6月11日，其盘中股价一度下跌至434港元，市值较历史高点跌超59%。
+
+无差别的暴跌不仅让追高买入的股民心痛，更戳破了老铺黄金精心打造的顶奢滤镜，在如今波及全球的下行周期中，它的好日子真的要到头了吗？
+
+|金价波动，成“最后一根稻草” 单看账面数据，老铺黄金2025年交出的成绩单绝对是业内佼佼者。
+
+其全年营收超过273亿元人民币，同比暴增221%；净利润逼近50.3亿元，增幅更是高达234.9%。
+
+一家金饰公司一年能净赚50个小目标，老板做梦都该笑醒了。
+
+可辉煌之下，导致如今股价暴跌的隐患也十分明显，截至2025年底，老铺黄金的经营性现金流已流出68.48亿元。
 
 ## 相关推荐
 
-- 2026-06-30 05:57 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 05:45 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 05:57 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 06:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 06:11 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 05:43 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 05:52 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 06:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 06:06 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 05:48 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 06:10 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 06:06 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 06:02 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 06:10 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-30 05:46 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 05:51 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 05:52 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 05:53 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 06:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 06:11 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 05:59 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 05:49 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 06:12 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 06:13 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 06:11 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 05:59 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:56 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/145210082.shtml)
-- 2026-06-30 05:51 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/28366558.shtml)
-- 2026-06-30 05:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/52208298.shtml)
-- 2026-06-30 05:43 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/57068528266.shtml)
-- 2026-06-30 06:03 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/266976039753.shtml)
-- 2026-06-30 05:47 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/884722182686.shtml)
-- 2026-06-30 06:01 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/12601206.shtml)
-- 2026-06-30 05:48 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/387572443.shtml)
-- 2026-06-30 05:50 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/3453289.shtml)
-- 2026-06-30 05:42 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/41961.shtml)
-- 2026-06-30 05:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/15581130709.shtml)
-- 2026-06-30 05:58 - [千香](http://www.blog.minike.top/Article/details/473366537.shtml)
-- 2026-06-30 05:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/055775511.shtml)
-- 2026-06-30 05:48 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/33186972.shtml)
-- 2026-06-30 05:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/454404599423.shtml)
+- 2026-06-30 05:57 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/5354185356.shtml)
+- 2026-06-30 05:50 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/6535805306.shtml)
+- 2026-06-30 06:16 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/4405716818.shtml)
+- 2026-06-30 06:16 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/573375691369.shtml)
+- 2026-06-30 05:55 - [流金岁月](https://www.share.kurohicncr.top/Article/details/08718662.shtml)
+- 2026-06-30 05:51 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/26208642.shtml)
+- 2026-06-30 05:56 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/47006266.shtml)
+- 2026-06-30 05:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/1190859.shtml)
+- 2026-06-30 06:16 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/79998951.shtml)
+- 2026-06-30 06:12 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/1336097736.shtml)
+- 2026-06-30 06:10 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/008448.shtml)
+- 2026-06-30 05:50 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/54360.shtml)
+- 2026-06-30 05:54 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/745094.shtml)
+- 2026-06-30 06:10 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/04164719617.shtml)
+- 2026-06-30 05:59 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/7360288.shtml)

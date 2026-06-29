@@ -1,48 +1,59 @@
-# 韩国称将确保每年从加拿大进口至多3300万桶原油
+# 重庆林业产业对接活动在璧山举行 签约331.47亿元
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-韩国财政部长具润哲表示，根据自由贸易协定，韩国将通过降低关税的方式，每年确保从加拿大进口至多3300万桶原油。 韩国方面还将简化加拿大原油的进口程序。 此举正值韩国寻求在中东冲突背景下实现能源来源多元化之际。责任编辑：于健 SF069
+中新网重庆6月17日电 (张旭)青山叠翠，碧水含情。6月17日，“万企重庆行·渝林惠八方”林业产业对接活动在重庆市璧山区举行，来自行业主管部门、企业的约400名嘉宾齐聚一堂，共谋林业发展新机遇。活动现场，164个优质项目成功签约，总投资额达331.47亿元。 这些项目遍布重庆各区县，覆盖国储林、特色经济林、木竹加工、林下经济、森林康养、自然教育六大核心赛道。其中，既有百亿级全产
 
 ## 正文
 
-韩国财政部长具润哲表示，根据自由贸易协定，韩国将通过降低关税的方式，每年确保从加拿大进口至多3300万桶原油。
+中新网重庆6月17日电 (张旭)青山叠翠，碧水含情。
 
-韩国方面还将简化加拿大原油的进口程序。
+6月17日，“万企重庆行·渝林惠八方”林业产业对接活动在重庆市璧山区举行，来自行业主管部门、企业的约400名嘉宾齐聚一堂，共谋林业发展新机遇。
 
-此举正值韩国寻求在中东冲突背景下实现能源来源多元化之际。
+活动现场，164个优质项目成功签约，总投资额达331.47亿元。
 
-责任编辑：于健 SF069
+这些项目遍布重庆各区县，覆盖国储林、特色经济林、木竹加工、林下经济、森林康养、自然教育六大核心赛道。
+
+其中，既有百亿级全产业链龙头项目，适合大型集团系统布局；也有百千万级特色精品项目，适配中小企业深耕细作。
+
+值得一提的是，签约项目中近三成来自重庆市外企业，投资额占比超过三分之一，充分彰显了“万企重庆行”跨区域招商的辐射力与吸引力。
+
+据重庆市林业局介绍，除了现场签约项目外，另有34个项目处于深度洽谈阶段，投资额达73.11亿元。
+
+活动现场，重庆市林业局党组书记、局长曹春华通过“走进重庆、扎根重庆、兴业重庆”三个篇章，向与会嘉宾全面推介重庆林业的发展机遇。
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 05:47 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 06:05 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 05:58 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 06:05 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 05:57 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 05:50 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 06:01 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 06:03 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 05:48 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 05:54 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 06:09 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 06:02 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 05:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 06:10 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 05:55 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 06:02 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 05:52 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 06:08 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 06:16 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 06:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 05:55 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 06:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/9182706353.shtml)
-- 2026-06-30 06:00 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/537254109.shtml)
-- 2026-06-30 05:47 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/47583317.shtml)
-- 2026-06-30 05:55 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/5033792.shtml)
-- 2026-06-30 06:03 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/676073102804.shtml)
-- 2026-06-30 05:45 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/8817750.shtml)
-- 2026-06-30 05:59 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/60909011086.shtml)
-- 2026-06-30 06:07 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/94206.shtml)
-- 2026-06-30 05:50 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/827547791.shtml)
-- 2026-06-30 05:57 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/74923.shtml)
-- 2026-06-30 06:03 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/5734436.shtml)
-- 2026-06-30 05:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/54514.shtml)
-- 2026-06-30 05:42 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/95759679.shtml)
-- 2026-06-30 06:09 - [日本领先巴西](https://www.blog.minike.top/Article/details/9646783.shtml)
-- 2026-06-30 06:04 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/9018721421.shtml)
+- 2026-06-30 06:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/1363386.shtml)
+- 2026-06-30 05:55 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/2972622.shtml)
+- 2026-06-30 06:09 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/71380909357.shtml)
+- 2026-06-30 05:51 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/3640009502.shtml)
+- 2026-06-30 05:53 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/660540.shtml)
+- 2026-06-30 06:06 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/74390237290.shtml)
+- 2026-06-30 05:52 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/5547283.shtml)
+- 2026-06-30 06:04 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/202429849379.shtml)
+- 2026-06-30 06:00 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/55301867.shtml)
+- 2026-06-30 05:58 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/899373895.shtml)
+- 2026-06-30 06:17 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/33567675407.shtml)
+- 2026-06-30 06:01 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/51504783328.shtml)
+- 2026-06-30 06:02 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/98062.shtml)
+- 2026-06-30 05:58 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/80915.shtml)
+- 2026-06-30 06:06 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/44473312.shtml)

@@ -1,59 +1,56 @@
-# 沃尔沃一季度汽车季度销量下滑 10%
+# （活力中国调研行）中国脑机接口技术助患者“意念”交流 加速走向临床
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 整体销量走低，但纯电动车型销量同比上涨 14% 瑞典车企沃尔沃汽车公布季度销量下滑 10%，主要受中国市场竞争日趋激烈、美国消费者情绪持续低迷拖累。 沃尔沃周二表示，截至 4 月的三个月，全球汽车销量为162，864 辆。 受本土车企竞争冲击与宏观环境承压影响，沃尔沃在华销量表现疲软；同时美国消费者信心跌至历史低位，也拖累了整体销售。 尽管
+中新社天津6月16日电 题：中国脑机接口技术助患者“意念”交流 加速走向临床 中新社记者 周亚强 失语患者用“意念”在屏幕上打字，听障儿童不仅能听见声音还能分辨旋律……中新社记者近日走进位于天津的脑机交互与人机共融海河实验室(以下简称脑机海河实验室)，探访脑机接口技术从科研前沿走向临床应用的最新进展。 “脑机接口可以理解为人机交互最高端的形态。”脑机海河实验室产业部部长、天开燧
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 整体销量走低，但纯电动车型销量同比上涨 14% 瑞典车企沃尔沃汽车公布季度销量下滑 10%，主要受中国市场竞争日趋激烈、美国消费者情绪持续低迷拖累。
+中新社天津6月16日电 题：中国脑机接口技术助患者“意念”交流 加速走向临床 中新社记者 周亚强 失语患者用“意念”在屏幕上打字，听障儿童不仅能听见声音还能分辨旋律……中新社记者近日走进位于天津的脑机交互与人机共融海河实验室(以下简称脑机海河实验室)，探访脑机接口技术从科研前沿走向临床应用的最新进展。
 
-沃尔沃周二表示，截至 4 月的三个月，全球汽车销量为162，864 辆。
+“脑机接口可以理解为人机交互最高端的形态。
 
-受本土车企竞争冲击与宏观环境承压影响，沃尔沃在华销量表现疲软；同时美国消费者信心跌至历史低位，也拖累了整体销售。
+”脑机海河实验室产业部部长、天开燧世(天津)智能科技有限公司总经理顾斌说，当前人机交互主要靠语言和手势，脑机接口的目标是跨越这些外部通道，直接与大脑交互。
 
-尽管整体销量下滑，纯电动车型销量同比仍增长 14%。
+他引用“三磅宇宙”这一比喻说，人脑重约三磅，蕴含的信息却如宇宙般广袤。
 
-纯电动车销量占当期总销量比重接近四分之一。
+“运动康复系列已深耕近20年，精神诊疗、视听感知等方向也有近10年开发历程。
 
-此外，旗下轻混车型及传统燃油车型销量下滑 16%。
+”脑机海河实验室常务副主任、天津大学教授倪广健介绍，团队自主研发的“神工”系列脑机交互创新医疗器械，已有多项获批国家医疗器械注册证，在全国30多个省市的医疗机构应用。
 
-责任编辑：郭明煜
+在听觉康复领域，脑机接口技术正填补一项临床空白。
+
+倪广健说，人工耳蜗让患儿听见声音，却难以保障其分辨、理解声音，而幼儿无法描述听觉感受，临床上长期缺乏客观评估手段。
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 05:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 06:00 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 05:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 05:52 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 06:10 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 05:50 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 05:44 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 05:59 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 05:56 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 05:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 05:46 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 05:49 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 05:49 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 06:05 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 06:13 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 06:01 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 06:15 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 06:16 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 05:49 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 05:50 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 06:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 06:15 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 05:51 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 05:59 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:59 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/137283.shtml)
-- 2026-06-30 06:09 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/9927155727.shtml)
-- 2026-06-30 05:52 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/120331.shtml)
-- 2026-06-30 06:08 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/824923850.shtml)
-- 2026-06-30 05:43 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/136587541502.shtml)
-- 2026-06-30 06:10 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/22847381.shtml)
-- 2026-06-30 05:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/007405.shtml)
-- 2026-06-30 05:57 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/48360031633.shtml)
-- 2026-06-30 06:10 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/961841.shtml)
-- 2026-06-30 06:01 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/337641533368.shtml)
-- 2026-06-30 06:08 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/7885339.shtml)
-- 2026-06-30 06:01 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/23836366.shtml)
-- 2026-06-30 05:58 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/9765325827.shtml)
-- 2026-06-30 05:48 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/20980.shtml)
-- 2026-06-30 05:43 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/80719637947.shtml)
+- 2026-06-30 06:01 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/442625591047.shtml)
+- 2026-06-30 06:11 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/380609710.shtml)
+- 2026-06-30 06:14 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/5137355.shtml)
+- 2026-06-30 06:02 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/2483411.shtml)
+- 2026-06-30 06:12 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/079350610.shtml)
+- 2026-06-30 06:04 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/57709.shtml)
+- 2026-06-30 06:16 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/5465123548.shtml)
+- 2026-06-30 05:52 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/681261.shtml)
+- 2026-06-30 05:55 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/5797269881.shtml)
+- 2026-06-30 05:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/78890787443.shtml)
+- 2026-06-30 05:59 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/2329281853.shtml)
+- 2026-06-30 05:56 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/57368.shtml)
+- 2026-06-30 05:51 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/526652388.shtml)
+- 2026-06-30 06:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/7357427390.shtml)
+- 2026-06-30 05:57 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/45326436345.shtml)

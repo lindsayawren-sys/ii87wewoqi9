@@ -1,54 +1,61 @@
-# 亚洲联网科技公布股权高度集中
+# 业绩为王！高“光”创业板人工智能ETF再涨1.67%逼近前高！资金加速布局顺周期，化工ETF单日吸金3.2亿元
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-亚洲联网科技（00679）发布公告，公司注意到证券及期货事务监察委员会已于2026年5月5日刊发一份公布。 证监会最近曾就公司之股权分布进行查讯。证监会查讯结果显示于2026年4月20日，有二十名股东合共持有6754.95万股公司股份，相当于已发行股份之17.69%。有关股权连同由公司控股股东持有之2.79亿股股份（占已发行股份之73.11%），相当于已发行股份之90.80%。
+今日（6月16日）A股三大指数涨跌不一，创业板指放量上涨1.72%站上4100点，收盘点位再度超越沪指。沪深京三市成交额3.09万亿元，较昨日小幅放量356亿元。 盘面上，算力硬件持续爆发，光通信继续活跃，高“光”创业板人工智能ETF华宝（159363）场内价格再涨1.67%，逼近前期高点，此前4日累计获资金增持2.4亿元。电子布、覆铜板、PPE树脂、铜箔等PCB原材料持续涨价
 
 ## 正文
 
-亚洲联网科技（00679）发布公告，公司注意到证券及期货事务监察委员会已于2026年5月5日刊发一份公布。
+今日（6月16日）A股三大指数涨跌不一，创业板指放量上涨1.72%站上4100点，收盘点位再度超越沪指。
 
-证监会最近曾就公司之股权分布进行查讯。
+沪深京三市成交额3.09万亿元，较昨日小幅放量356亿元。
 
-证监会查讯结果显示于2026年4月20日，有二十名股东合共持有6754.95万股公司股份，相当于已发行股份之17.69%。
+盘面上，算力硬件持续爆发，光通信继续活跃，高“光”创业板人工智能ETF华宝（159363）场内价格再涨1.67%，逼近前期高点，此前4日累计获资金增持2.4亿元。
 
-有关股权连同由公司控股股东持有之2.79亿股股份（占已发行股份之73.11%），相当于已发行股份之90.80%。
+电子布、覆铜板、PPE树脂、铜箔等PCB原材料持续涨价，叠加MLCC、半导体硅片等概念表现活跃，囊括这些热门概念的电子ETF华宝（515260）场内价格继昨日大涨7.16%基础上，再涨0.84%，亦冲击此前高点。
 
-因此，只有3514.27万股股份（占已发行股份之9.02%）由其他股东持有。
+港股硬科技震荡盘整，“全球大模型第一股”智谱继昨天单日飙涨32%后，今日盘中一度冲高逾13%，午后震荡回落收涨1.17%。
 
-根据可得资料及经作出一切合理查询后就董事所深知，公司确认，于2026年4月20日及于本公告日期，公司已发行股份中不少于25%由公众人士持有，且公司能够遵守联交所证券上市规则项下之公众持股量规定。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格收跌1.46%。
 
-责任编辑：卢昱君
+新能源方面，锂电龙头亿纬锂能半年报净利同比预增95%-110%，锂电行业景气度向好，全市场唯一一只跟踪绿色能源指数的绿色能源ETF（562010）场内价格劲涨1.52%；新能源、光模块、半导体全都有的硬科技宽基——双创50ETF华宝（588330）场内价格一度涨近1.7%，收涨0.92%。
+
+顺周期方面，中东地缘局势迎来重大转变，美伊达成停战协议，市场风险偏好有望修复，资金加速布局顺周期方向，化工ETF华宝（516020）昨天单日吸金3.2亿元；有色ETF华宝（159876）近5日累计吸金5199万元。
 
 ## 相关推荐
 
-- 2026-06-30 06:09 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 06:06 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 06:07 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 05:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 05:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 05:47 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 06:03 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 06:01 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 06:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 05:42 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 06:00 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 06:09 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 06:08 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 06:05 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 05:56 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 06:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 05:50 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 06:05 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 06:00 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 06:17 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 06:09 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 05:54 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 05:56 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 06:15 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 06:16 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:58 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/70747672221.shtml)
-- 2026-06-30 05:43 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/821766.shtml)
-- 2026-06-30 05:47 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/9968684.shtml)
-- 2026-06-30 06:04 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/353799301556.shtml)
-- 2026-06-30 05:53 - [女心理师](http://www.share.kurohicncr.top/Article/details/599392403.shtml)
-- 2026-06-30 05:56 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/6778007.shtml)
-- 2026-06-30 06:04 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/298708.shtml)
-- 2026-06-30 05:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/44263907.shtml)
-- 2026-06-30 06:03 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/1551435.shtml)
-- 2026-06-30 05:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/483844.shtml)
-- 2026-06-30 05:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/942779313.shtml)
-- 2026-06-30 05:58 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/510189.shtml)
-- 2026-06-30 06:11 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/7096449.shtml)
-- 2026-06-30 06:10 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/159549555.shtml)
-- 2026-06-30 05:44 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/06417183.shtml)
+- 2026-06-30 06:06 - [千香](https://www.share.minike.top/Article/details/67746297.shtml)
+- 2026-06-30 05:52 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/637755804.shtml)
+- 2026-06-30 05:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/910561.shtml)
+- 2026-06-30 05:52 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/653173.shtml)
+- 2026-06-30 05:52 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/92419659.shtml)
+- 2026-06-30 06:05 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/0284321.shtml)
+- 2026-06-30 06:14 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/8706543.shtml)
+- 2026-06-30 06:10 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/0919232171.shtml)
+- 2026-06-30 05:52 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/42668.shtml)
+- 2026-06-30 06:08 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/59982.shtml)
+- 2026-06-30 05:49 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/8304607.shtml)
+- 2026-06-30 06:08 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/490165905.shtml)
+- 2026-06-30 06:09 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/90394.shtml)
+- 2026-06-30 06:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/10007535475.shtml)
+- 2026-06-30 05:55 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/97810409084.shtml)

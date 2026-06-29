@@ -1,57 +1,61 @@
-# 美国贸易代表警告欧盟拟改贸易协议 称或损害美方利益
+# “芯青年计划”正式启动 吉利投入3-5 亿元专项资金支持大学生创业
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-美国贸易代表贾米森·格里尔表示，欧盟考虑对跨大西洋贸易协议作出的改动可能限制美国对该地区的出口。 “我们没有同意”那些调整，格里尔周三在巴黎与七国集团（G-7）对口官员会晤后表示。 这一表态为欧盟推动该贸易协议最终落地的漫长进程增添了新的紧张因素。双方最初于去年7月达成协议，但欧盟尚未批准该协议，因为欧盟议员正在寻求修正，包括设置到期日以及加强对当地产业的保护。 格里尔表示：“
+在AI加速演进的今天，真实的产业场景不仅是人才培育的前沿阵地，更是青年创业最好的试验田。6月15日，吉利控股集团、李书福公益基金会携手芯位科技，共同启动“吉利·芯位青年创新创业激励计划”(以下简称“芯青年计划”)，计划投入3-5亿元专项资金，面向怀有创业梦想的大学生，提供产业资源和启动支撑。 “芯青年计划”先期面向芯位教育体系内高校在校生(含研究生)和校友、芯位全球合作伙伴的在
 
 ## 正文
 
-美国贸易代表贾米森·格里尔表示，欧盟考虑对跨大西洋贸易协议作出的改动可能限制美国对该地区的出口。
+在AI加速演进的今天，真实的产业场景不仅是人才培育的前沿阵地，更是青年创业最好的试验田。
 
-“我们没有同意”那些调整，格里尔周三在巴黎与七国集团（G-7）对口官员会晤后表示。
+6月15日，吉利控股集团、李书福公益基金会携手芯位科技，共同启动“吉利·芯位青年创新创业激励计划”(以下简称“芯青年计划”)，计划投入3-5亿元专项资金，面向怀有创业梦想的大学生，提供产业资源和启动支撑。
 
-这一表态为欧盟推动该贸易协议最终落地的漫长进程增添了新的紧张因素。
+“芯青年计划”先期面向芯位教育体系内高校在校生(含研究生)和校友、芯位全球合作伙伴的在校生(含研究生)，同时也支持外部院校在校生与芯位教育体系内在校生组队申报，鼓励青年学子跨校跨界协同创新。
 
-双方最初于去年7月达成协议，但欧盟尚未批准该协议，因为欧盟议员正在寻求修正，包括设置到期日以及加强对当地产业的保护。
+吉利人才发展集团CEO、芯位科技董事长/全球CEO陆丹介绍：“芯位希望通过李书福董事长首创的‘三个校园组合’办学机制与系统平台，初始依托吉利真实的企业资源和实战场景、其后协同更多行业产业的技术平台、真实需求，以芯位科技的通道让大学生不拘泥书本、更多走进实战，在真实产业环境中创新创业。
 
-格里尔表示：“这可能会限制缓和效果、降低协议带来的收益，并对美国对欧出口施加限制。
+” 首批项目锚定 AI及具身智能、智能座舱与智能驾驶、绿色能源及新材料、智能制造、低空经济与商业航天、出行服务与文创等六大核心方向。
 
-” 美国总统特朗普威胁将对欧洲汽车的关税上调至25%，以表达对欧盟迟迟未批准协议的不满。
+项目投资将覆盖种子轮到天使轮，助力打通从校园创新到产业落地的关键一环。
 
-欧盟坚称，正在按照立法程序推进，目标是在7月前批准。
+作为“芯青年计划”的创投项目管理方，吉利资本CEO曹项表示，“我们将与全球优秀高校、科研院所及创新创业孵化器深度合作，联合吉利内外部的技术力量，系统性挖掘和扶持兼具成长潜力和社会价值的项目。
 
-责任编辑：李桐
+此外，我们也会引入更多支持青年创新创业的社会化资本、互补的产业资本以及相关政府创新创业投资平台，协同‘芯青年计划’发展。
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 06:03 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 06:00 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 06:05 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 05:55 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 05:46 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 06:08 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 05:59 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 06:09 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 05:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 05:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 05:50 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 05:55 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 06:05 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 06:15 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 06:05 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 05:55 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 05:52 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 05:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 05:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 05:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 06:14 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 06:05 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 05:51 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 05:51 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 05:48 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:55 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/4324790.shtml)
-- 2026-06-30 06:01 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/94601164054.shtml)
-- 2026-06-30 05:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/622192241694.shtml)
-- 2026-06-30 05:44 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/73000.shtml)
-- 2026-06-30 05:49 - [啊啊啊](http://www.share.minike.top/Article/details/256423.shtml)
-- 2026-06-30 05:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/5729556.shtml)
-- 2026-06-30 05:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/226252440439.shtml)
-- 2026-06-30 05:59 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/54087506009.shtml)
-- 2026-06-30 06:02 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/55347909011.shtml)
-- 2026-06-30 05:51 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/0834167.shtml)
-- 2026-06-30 05:54 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/2982395193.shtml)
-- 2026-06-30 06:10 - [点菜也要教吗](http://www.blog.minike.top/Article/details/05592.shtml)
-- 2026-06-30 05:55 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/96116.shtml)
-- 2026-06-30 06:01 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/9996082.shtml)
-- 2026-06-30 05:56 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/96350.shtml)
+- 2026-06-30 06:07 - [斗破苍穹](http://www.share.minike.top/Article/details/79749174.shtml)
+- 2026-06-30 06:06 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/37761.shtml)
+- 2026-06-30 05:52 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/31228.shtml)
+- 2026-06-30 05:55 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/0299915.shtml)
+- 2026-06-30 05:50 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/640763932.shtml)
+- 2026-06-30 06:06 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/90926124.shtml)
+- 2026-06-30 05:53 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/994557855.shtml)
+- 2026-06-30 06:03 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/773668.shtml)
+- 2026-06-30 06:00 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/23890.shtml)
+- 2026-06-30 05:55 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/41718.shtml)
+- 2026-06-30 05:48 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/85739386491.shtml)
+- 2026-06-30 05:51 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/483170813.shtml)
+- 2026-06-30 05:50 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/38758399.shtml)
+- 2026-06-30 05:53 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/424570.shtml)
+- 2026-06-30 05:57 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/115155820882.shtml)

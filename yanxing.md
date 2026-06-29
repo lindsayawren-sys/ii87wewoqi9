@@ -1,57 +1,57 @@
-# Anthropic创始人警告：部分软件企业将彻底破产
+# 水滴公司：2026年第一季度净营业收入12.42亿元，同比增长64.8%
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-人工智能公司 Anthropic 首席执行官达里奥・阿莫代伊表示，无法顺应人工智能浪潮完成转型的 SaaS（软件即服务） 企业，或将走向覆灭。 阿莫代伊在 Anthropic 举办的金融服务专题峰会上，与记者安德鲁・罗斯・索尔金、摩根大通 CEO 杰米・戴蒙对话时发表了上述观点。 索尔金先是向戴蒙提问：随着人工智能发展，软件行业企业将面临何种格局变化，随后又向阿莫代伊提出了同样
+6月16日金融一线消息，水滴公司发布截至2026年3月31日未经审计的2026年第一季度业绩报告。2026年第一季度，水滴公司净营业收入12.42亿元，同比增长64.8%；归母净利润9837万元，连续17个季度实现盈利。截至2026年5月31日，水滴公司累计从公开市场回购约6180万股ADS（美国存托凭证）。 第一季度，水滴公司保险相关收入持续快速增长，同比增长74.1%。水滴
 
 ## 正文
 
-人工智能公司 Anthropic 首席执行官达里奥・阿莫代伊表示，无法顺应人工智能浪潮完成转型的 SaaS（软件即服务） 企业，或将走向覆灭。
+6月16日金融一线消息，水滴公司发布截至2026年3月31日未经审计的2026年第一季度业绩报告。
 
-阿莫代伊在 Anthropic 举办的金融服务专题峰会上，与记者安德鲁・罗斯・索尔金、摩根大通 CEO 杰米・戴蒙对话时发表了上述观点。
+2026年第一季度，水滴公司净营业收入12.42亿元，同比增长64.8%；归母净利润9837万元，连续17个季度实现盈利。
 
-索尔金先是向戴蒙提问：随着人工智能发展，软件行业企业将面临何种格局变化，随后又向阿莫代伊提出了同样问题。
+截至2026年5月31日，水滴公司累计从公开市场回购约6180万股ADS（美国存托凭证）。
 
-阿莫代伊回应称，企业再也不能依靠自身软件的复杂壁垒构筑护城河、抵御竞争对手。
+第一季度，水滴公司保险相关收入持续快速增长，同比增长74.1%。
 
-“如果一家企业的竞争护城河只是‘我们的软件架构复杂、开发门槛高，只有我们能做，别人无法复刻’，这种优势正在彻底消失。
+水滴公司加速AI技术在保险全链条场景中的应用。
 
-” 阿莫代伊表示。
+在本季度，AI保险专家贡献规模保费环比增长17.7%，AI核保助手可在秒级内完成响应，累计回复核保咨询已超10000次。
 
-他补充道：“当下整个 SaaS 老牌巨头群体最终走向如何，还存在很大不确定性。
-
-但个体 SaaS 企业市值缩水、陷入破产、彻底倒闭的可能性极大，最终结局取决于企业自身的应对转型。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 06:04 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 05:58 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 05:48 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 05:52 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 06:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 05:47 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 05:47 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 05:47 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 05:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 05:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 05:59 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 06:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 05:56 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 06:02 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 06:17 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-30 06:05 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 05:48 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 05:48 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 06:13 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 06:11 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 06:06 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 06:03 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 06:15 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:02 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/00039088892.shtml)
-- 2026-06-30 05:47 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/0020190.shtml)
-- 2026-06-30 05:54 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/69670592309.shtml)
-- 2026-06-30 05:52 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/7952874081.shtml)
-- 2026-06-30 05:57 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/828402.shtml)
-- 2026-06-30 05:59 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/88153825.shtml)
-- 2026-06-30 05:47 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/431837657529.shtml)
-- 2026-06-30 05:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/995909605.shtml)
-- 2026-06-30 06:11 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/82286969.shtml)
-- 2026-06-30 05:46 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/84252715670.shtml)
-- 2026-06-30 05:49 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/668019830716.shtml)
-- 2026-06-30 06:01 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/4949326563.shtml)
-- 2026-06-30 05:59 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/068901816.shtml)
-- 2026-06-30 06:03 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/8650830866.shtml)
-- 2026-06-30 06:03 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/110334165.shtml)
+- 2026-06-30 05:57 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/419437.shtml)
+- 2026-06-30 05:52 - [毒液2](https://www.blog.kurohicncr.top/Article/details/452417.shtml)
+- 2026-06-30 06:10 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/82817165.shtml)
+- 2026-06-30 06:08 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/747854960.shtml)
+- 2026-06-30 06:14 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/7015236681.shtml)
+- 2026-06-30 06:12 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/6534303.shtml)
+- 2026-06-30 06:00 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/201676096.shtml)
+- 2026-06-30 05:54 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/355605288.shtml)
+- 2026-06-30 06:15 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/658202988401.shtml)
+- 2026-06-30 05:49 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/35772.shtml)
+- 2026-06-30 05:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/261112503802.shtml)
+- 2026-06-30 06:06 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/31382038424.shtml)
+- 2026-06-30 06:01 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/35575217610.shtml)
+- 2026-06-30 06:08 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/212078913.shtml)
+- 2026-06-30 06:00 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/04415816.shtml)

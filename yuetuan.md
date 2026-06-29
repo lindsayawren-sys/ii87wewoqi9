@@ -1,57 +1,55 @@
-# 大摩：威高股份目标价降至5.2港元 维持“与大市同步”评级
+# ZFX山海证券:回调过后金银等待确认
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-摩根士丹利发布研报称，将威高股份（01066）2026至2028年收入预测各上调4%，以反映每年约4%至5%的增长，处于管理层最新指引的下限。然而，该行下调威高股份2026至2030年的毛利率假设，以反映持续的定价压力及集中采购对一般耗材的影响，并按趋势微调营运开支比率。该行已计入威高2025年全年业绩，将2026至2028年每股盈利预测分别下调14.7%、13.8%及14.2
+6月16日，贵金属在经历快速回调后出现技术性修复，ZFX山海证券表示当前更值得关注的是反弹是否具备持续性，而不是单日回升幅度本身。 从策略角度看，ZFX山海证券认为价格在关键支撑附近企稳，有助于改善市场信心，但买盘若缺少进一步确认，反弹仍可能反复。 黄金与白银的联动表现也很关键，若两者能够同步止跌，贵金属板块的修复节奏会更清晰，否则市场仍会保持谨慎观望。 综合而言，ZFX山海证
 
 ## 正文
 
-摩根士丹利发布研报称，将威高股份（01066）2026至2028年收入预测各上调4%，以反映每年约4%至5%的增长，处于管理层最新指引的下限。
+6月16日，贵金属在经历快速回调后出现技术性修复，ZFX山海证券表示当前更值得关注的是反弹是否具备持续性，而不是单日回升幅度本身。
 
-然而，该行下调威高股份2026至2030年的毛利率假设，以反映持续的定价压力及集中采购对一般耗材的影响，并按趋势微调营运开支比率。
+从策略角度看，ZFX山海证券认为价格在关键支撑附近企稳，有助于改善市场信心，但买盘若缺少进一步确认，反弹仍可能反复。
 
-该行已计入威高2025年全年业绩，将2026至2028年每股盈利预测分别下调14.7%、13.8%及14.2%。
+黄金与白银的联动表现也很关键，若两者能够同步止跌，贵金属板块的修复节奏会更清晰，否则市场仍会保持谨慎观望。
 
-按更新后的人民币兑港元汇率1.14计算，目标价由6港元下调至5.2港元，维持“与大市同步”评级。
+综合而言，ZFX山海证券分析称后续需要继续跟踪确认信号是否增多，只有承接力量稳定增强，金银价格才更容易展开更顺畅的修复。
 
-该行认为，威高股份在中国医疗科技多个领域均有布局，包括一般耗材、骨科、药品包装、介入产品及血液管理等，拥有业内其中一个最有效的销售分销网络，是推出新产品的强大平台。
-
-惟近期增长受价格下调及行业销量低于平均所影响，加上持续的DRG及集中采购政策逆风，评级“与大市同步”反映其估值在稳定增长路径及股息率支持下属合理。
-
-责任编辑：卢昱君
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-30 05:42 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 05:54 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 05:53 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 06:09 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 05:45 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 05:52 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 06:03 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 06:01 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 05:55 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 06:08 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 05:56 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 05:44 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 06:07 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 06:01 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 05:55 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 05:55 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 05:59 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 06:00 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 06:03 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 05:48 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 06:00 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 06:11 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 06:07 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 05:56 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 05:57 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 05:58 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 05:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 05:56 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:08 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/4873074.shtml)
-- 2026-06-30 06:01 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/358191849042.shtml)
-- 2026-06-30 06:05 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/464790887.shtml)
-- 2026-06-30 05:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/6334788.shtml)
-- 2026-06-30 06:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/0837403918.shtml)
-- 2026-06-30 05:42 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/63145.shtml)
-- 2026-06-30 05:56 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/701469.shtml)
-- 2026-06-30 06:11 - [张凌赫 客串](https://www.blog.minike.top/Article/details/08099288.shtml)
-- 2026-06-30 06:06 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/035548.shtml)
-- 2026-06-30 05:42 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/183265400.shtml)
-- 2026-06-30 05:44 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/798570086760.shtml)
-- 2026-06-30 05:47 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/609744495879.shtml)
-- 2026-06-30 05:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/7298617.shtml)
-- 2026-06-30 06:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/6646133506.shtml)
-- 2026-06-30 05:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/0308245540.shtml)
+- 2026-06-30 06:05 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/6108306.shtml)
+- 2026-06-30 06:17 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/77612604.shtml)
+- 2026-06-30 05:56 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/557264799590.shtml)
+- 2026-06-30 06:10 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/163642.shtml)
+- 2026-06-30 05:57 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/0485045390.shtml)
+- 2026-06-30 06:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/285652124613.shtml)
+- 2026-06-30 06:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/5681421078.shtml)
+- 2026-06-30 05:52 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/106972477.shtml)
+- 2026-06-30 06:14 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/2828596005.shtml)
+- 2026-06-30 06:10 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/902064464815.shtml)
+- 2026-06-30 06:10 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/426184.shtml)
+- 2026-06-30 06:14 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/247830518.shtml)
+- 2026-06-30 05:59 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/24986.shtml)
+- 2026-06-30 05:52 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/739432.shtml)
+- 2026-06-30 06:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/698470.shtml)

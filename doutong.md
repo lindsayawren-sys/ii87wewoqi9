@@ -1,59 +1,57 @@
-# 港股午评：恒指涨1.57% 科指涨3.09% 科网股普涨 光伏太阳能股集体走强 快手涨超7%
+# 德国拒绝裕信银行对德国商业银行390亿欧元的收购要约
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-5月7日消息，港股三大指数高开高走。截至午间收盘，恒生指数涨1.57%，报26624.34点，恒生科技指数涨3.09%，国企指数涨1.56%。盘面上，科网股集体上涨，快手涨超7%，百度涨超5%，阿里巴巴、哔哩哔哩涨超4%；商业航天概念涨幅居前，钧达股份涨超6%；光伏太阳能股集体走强，协鑫科技涨超6%；航空股普涨，中国国航涨超3%。 商业航天概念涨幅居前，钧达股份涨超6%。太空算
+德国表示不会接受裕信银行对德国商业银行的收购要约，并称鉴于后者对国民经济的重要作用，支持其保持独立。 德国财政署周二发表声明称，接受该收购要约“从财务角度来看并非可行之策，因其未包含合理溢价”。德国财政署管理该国在德国商业银行持有的逾12%股份。声明还指出，政府支持德国商业银行的独立性，反对裕信银行的“激进做法”。 声明表示，德国商业银行“在为德国经济提供融资方面发挥着重要作用
 
 ## 正文
 
-5月7日消息，港股三大指数高开高走。
+德国表示不会接受裕信银行对德国商业银行的收购要约，并称鉴于后者对国民经济的重要作用，支持其保持独立。
 
-截至午间收盘，恒生指数涨1.57%，报26624.34点，恒生科技指数涨3.09%，国企指数涨1.56%。
+德国财政署周二发表声明称，接受该收购要约“从财务角度来看并非可行之策，因其未包含合理溢价”。
 
-盘面上，科网股集体上涨，快手涨超7%，百度涨超5%，阿里巴巴、哔哩哔哩涨超4%；商业航天概念涨幅居前，钧达股份涨超6%；光伏太阳能股集体走强，协鑫科技涨超6%；航空股普涨，中国国航涨超3%。
+德国财政署管理该国在德国商业银行持有的逾12%股份。
 
-商业航天概念涨幅居前，钧达股份涨超6%。
+声明还指出，政府支持德国商业银行的独立性，反对裕信银行的“激进做法”。
 
-太空算力迎来催化，马斯克旗下初创公司xAI称，与Anthropic建立新的计算合作伙伴关系。
+声明表示，德国商业银行“在为德国经济提供融资方面发挥着重要作用”，其提供的就业岗位对总部所在地法兰克福也至关重要。
 
-SpaceXAI已与Anthropic签署协议，将提供Colossus 1的访问权限；Anthropic计划利用这额外的计算能力直接提升Claude Pro和Claude Max用户的服务能力。
+“这两点在未来都必须得到保障。
 
-SpaceX与Anthropic的合作协议，还包括太空算力领域的愿景。
+” 自裕信银行近两年前披露其持有德国商业银行股份以来，德国就一直坚决反对这笔交易。
 
-Anthropic表示“有兴趣合作开发数吉瓦级的轨道AI算力”。
+这家意大利银行于今年3月提出了一项全面收购要约，该要约原定于今日完成，但根据德国收购规定，该要约将获得两周的延期。
 
 ## 相关推荐
 
-- 2026-06-30 05:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 05:44 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 06:04 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 06:05 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 05:49 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 05:55 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 05:49 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 06:05 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 06:05 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 05:47 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 05:56 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 05:58 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 06:05 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 05:49 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 06:05 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 06:09 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 06:12 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 05:59 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 06:10 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 05:58 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 05:59 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 06:14 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 06:08 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 06:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:11 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/72245.shtml)
-- 2026-06-30 05:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/48255119.shtml)
-- 2026-06-30 05:54 - [毒液2](https://www.share.kurohicncr.top/Article/details/673756396231.shtml)
-- 2026-06-30 06:10 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/952546.shtml)
-- 2026-06-30 05:49 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/603730.shtml)
-- 2026-06-30 05:52 - [沉睡花园](http://www.share.minike.top/Article/details/693499034106.shtml)
-- 2026-06-30 05:49 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/5131495.shtml)
-- 2026-06-30 05:52 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/04804311.shtml)
-- 2026-06-30 06:12 - [日本16强魔咒](http://www.share.minike.top/Article/details/1740708.shtml)
-- 2026-06-30 05:48 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/552645932001.shtml)
-- 2026-06-30 06:03 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/404794279.shtml)
-- 2026-06-30 06:09 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/46068019.shtml)
-- 2026-06-30 05:55 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/62360331116.shtml)
-- 2026-06-30 06:02 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/814497278671.shtml)
-- 2026-06-30 05:48 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/913233093569.shtml)
+- 2026-06-30 06:14 - [世界杯](https://www.blog.kurohicncr.top/Article/details/7120896499.shtml)
+- 2026-06-30 06:08 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/70946.shtml)
+- 2026-06-30 05:50 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/313910014329.shtml)
+- 2026-06-30 05:54 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/23619605.shtml)
+- 2026-06-30 06:13 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/47716437.shtml)
+- 2026-06-30 06:12 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/51870697.shtml)
+- 2026-06-30 06:00 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/96413082039.shtml)
+- 2026-06-30 06:01 - [巴西vs日本](https://www.blog.minike.top/Article/details/262986420533.shtml)
+- 2026-06-30 05:59 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/807194366965.shtml)
+- 2026-06-30 06:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/203875.shtml)
+- 2026-06-30 06:00 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/862321.shtml)
+- 2026-06-30 05:49 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/9457516.shtml)
+- 2026-06-30 06:13 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/59348374.shtml)
+- 2026-06-30 06:03 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/32323.shtml)
+- 2026-06-30 06:01 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/08590906678.shtml)

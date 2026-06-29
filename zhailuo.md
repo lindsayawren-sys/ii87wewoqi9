@@ -1,58 +1,57 @@
-# 阿波罗资管规模突破万亿美元，Q1业绩超预期
+# 白条猪肉：供需两不旺 6月上半月价格趋稳运行
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-阿波罗全球管理公司公布，在创纪录的资金流入推动下，其资产管理规模首次突破1万亿美元大关，同时季度利润超出华尔街预期。 这家另类资产管理巨头在声明中表示，第一季度调整后净利润同比增长8%至12.1亿美元，合每股1.94美元，高于市场预期的1.88美元。与资产管理和投融资安排相关的费用相关收益大幅增长30%至7.28亿美元，同样超出预期并创下历史新高。 当季资金流入总额高达1150
+卓创资讯 【导语】6月国内多高温、多雨天气，猪肉市场步入传统消费淡季，行业呈现供应、需求双向走弱的格局。生猪出栏节奏放缓，终端家庭、餐饮采购需求同步回落，供需互为掣肘，6月上半月全国白条猪肉价格低位趋稳运行。预计6月下半月价格难有明显好转，7-8月随着供应收紧，白条猪肉价格有上涨可能。 从图1看到，2026年6月上半月国内白条猪肉价格趋稳运行。据卓创资讯统计，截至2026年6月
 
 ## 正文
 
-阿波罗全球管理公司公布，在创纪录的资金流入推动下，其资产管理规模首次突破1万亿美元大关，同时季度利润超出华尔街预期。
+卓创资讯 【导语】6月国内多高温、多雨天气，猪肉市场步入传统消费淡季，行业呈现供应、需求双向走弱的格局。
 
-这家另类资产管理巨头在声明中表示，第一季度调整后净利润同比增长8%至12.1亿美元，合每股1.94美元，高于市场预期的1.88美元。
+生猪出栏节奏放缓，终端家庭、餐饮采购需求同步回落，供需互为掣肘，6月上半月全国白条猪肉价格低位趋稳运行。
 
-与资产管理和投融资安排相关的费用相关收益大幅增长30%至7.28亿美元，同样超出预期并创下历史新高。
+预计6月下半月价格难有明显好转，7-8月随着供应收紧，白条猪肉价格有上涨可能。
 
-当季资金流入总额高达1150亿美元，过去12个月累计流入达3000亿美元。
+从图1看到，2026年6月上半月国内白条猪肉价格趋稳运行。
 
-相比之下，竞争对手黑石集团同期流入资金为685亿美元，KKR和Ares Management分别筹集278亿和295亿美元。
+据卓创资讯统计，截至2026年6月16日，膘厚在2.5-3.5厘米的白条猪肉成交均价12.40元/公斤，较去年同期下降30.81%，月内价格调整空间在0.10元/公斤之内。
 
-能产生管理费的资产规模攀升40%至8360亿美元。
+长周期来看，当下猪肉价格处于偏低水平。
 
-资本解决方案业务费用收入猛增60%，覆盖直接贷款、资产支持融资及机会型信贷交易。
+图1 2024-2026年全国白条猪肉成交均价走势图 数据来源：卓创资讯 6月上半月白条猪肉市场供需皆有减少，供需处于博弈状态，是导致价格几无调整的重要原因。
 
-公司持有约740亿美元未动用资金，其中约550亿美元有潜力贡献未来管理费。
+供应方面，前期集中出栏告一段落，养殖户对下半年行情有温和看涨预期，存一定惜售情绪。
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 06:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 05:47 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 05:52 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 05:55 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 05:46 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 06:03 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 06:09 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 05:51 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 06:06 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 05:51 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 06:04 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 06:04 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 06:12 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 06:12 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 06:16 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 05:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 06:06 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 05:53 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 05:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 05:50 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 06:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 05:48 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:56 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/986654669976.shtml)
-- 2026-06-30 06:10 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/79612870353.shtml)
-- 2026-06-30 05:59 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/52760.shtml)
-- 2026-06-30 05:44 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/417250504990.shtml)
-- 2026-06-30 05:51 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/2050610.shtml)
-- 2026-06-30 06:02 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/540355.shtml)
-- 2026-06-30 05:51 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/90500236.shtml)
-- 2026-06-30 06:03 - [周生如故](https://www.blog.kurohicncr.top/Article/details/07338.shtml)
-- 2026-06-30 06:10 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/155475910.shtml)
-- 2026-06-30 06:00 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/25386.shtml)
-- 2026-06-30 05:58 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/85787992116.shtml)
-- 2026-06-30 06:05 - [时光音乐会](https://www.blog.minike.top/Article/details/795886763.shtml)
-- 2026-06-30 06:11 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/56117.shtml)
-- 2026-06-30 05:51 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/748290.shtml)
-- 2026-06-30 05:59 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/89133086087.shtml)
+- 2026-06-30 06:01 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/828455464.shtml)
+- 2026-06-30 06:11 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/231799.shtml)
+- 2026-06-30 06:13 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/80780.shtml)
+- 2026-06-30 05:59 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/19478.shtml)
+- 2026-06-30 06:07 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/5462055.shtml)
+- 2026-06-30 06:02 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/653996386.shtml)
+- 2026-06-30 05:51 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/17064.shtml)
+- 2026-06-30 05:50 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/82828811.shtml)
+- 2026-06-30 06:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/232140413.shtml)
+- 2026-06-30 06:02 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/93137778806.shtml)
+- 2026-06-30 06:15 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/95676.shtml)
+- 2026-06-30 06:08 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/83152.shtml)
+- 2026-06-30 06:01 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/4870783.shtml)
+- 2026-06-30 06:12 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/75679351.shtml)
+- 2026-06-30 05:56 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/6867272.shtml)

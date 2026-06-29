@@ -1,58 +1,60 @@
-# Moneta Markets亿汇:金价低位反弹蓄势观望
+# 铁矿石延续探底走势
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-5月6日，国际黄金市场近期出现企稳迹象，现货金价在前期回调后重新获得买盘支撑，油价边际回落与美国数据偏弱共同改善了避险情绪。Moneta Markets亿汇表示，黄金价格在区间下沿企稳整理，市场参与者对前期回调的恐慌情绪有所降温，短线交投热度逐步回升。该机构分析称，本轮企稳是宏观因素阶段性平衡的体现，贵金属作为跨周期资产的中长期配置逻辑并未改变。 宏观政策方面，主要央行延续按兵
+正信期研社 今日，铁矿石期货价格再度下探阶段新低，市场悲观情绪持续弥漫。究其根本，本轮下跌的核心驱动力源自宏观经济数据的显著走弱与供需格局的边际宽松。昨日国家统计局发布的5月消费、固定资产投资等重磅经济数据全面低于预期，犹如一盆冷水浇灭市场信心；叠加铁矿石自身供应回升、需求乏力、库存累积的利空共振，空头逻辑愈发坚实。短期来看，若无超预期政策刺激或需求回暖，铁矿价格大概率延续弱势
 
 ## 正文
 
-5月6日，国际黄金市场近期出现企稳迹象，现货金价在前期回调后重新获得买盘支撑，油价边际回落与美国数据偏弱共同改善了避险情绪。
+正信期研社 今日，铁矿石期货价格再度下探阶段新低，市场悲观情绪持续弥漫。
 
-Moneta Markets亿汇表示，黄金价格在区间下沿企稳整理，市场参与者对前期回调的恐慌情绪有所降温，短线交投热度逐步回升。
+究其根本，本轮下跌的核心驱动力源自宏观经济数据的显著走弱与供需格局的边际宽松。
 
-该机构分析称，本轮企稳是宏观因素阶段性平衡的体现，贵金属作为跨周期资产的中长期配置逻辑并未改变。
+昨日国家统计局发布的5月消费、固定资产投资等重磅经济数据全面低于预期，犹如一盆冷水浇灭市场信心；叠加铁矿石自身供应回升、需求乏力、库存累积的利空共振，空头逻辑愈发坚实。
 
-宏观政策方面，主要央行延续按兵不动的谨慎态势，市场对降息节奏保持观察。
+短期来看，若无超预期政策刺激或需求回暖，铁矿价格大概率延续弱势探底走势。
 
-Moneta Markets亿汇认为，油价边际回落降低了通胀加速的尾部风险，对实际利率上行预期形成一定缓冲，对零票息资产构成阶段性支撑。
+我有一个交流圈子，每日会推荐热点品种策略，和大家交流交易心得，有兴趣的朋友可以点击小程序或者下面评论区留言获取点击这里给我留言 宏观数据“不及格”，成材需求预期崩塌，铁矿首当其冲。
 
-该机构判断，瑞银等海外大行维持建设性展望，认为美元长期偏弱与降息周期临近，将共同推动金价中期上移，远期目标已看至每盎司5900美元附近，新兴市场储备多元化趋势延续，机构客户的配置力度保持稳定。
+6月16日公布的经济数据中，1-5月固定资产投资同比下降4.1%，降幅较前月显著扩大，远超市场预期。
 
-技术层面，黄金日线在区间下沿企稳后逐步修复短期均线压力，MACD动能边际改善，KDJ指标自超卖区域抬升，显示空头力量阶段性释放完毕。
+基建与地产作为钢铁产业链的核心下游，投资增速的疲软直接映射为终端用钢需求的萎靡。
 
-机构层面亦关注到，全球央行的购金节奏并未中断，亚洲实物金需求保持稳健，ETF持仓数据的边际变化、印度与中东婚庆季实物需求以及COMEX期金交割比率，亦是观察资金面真实态度的关键观察窗口。
+与此同时，5月社零总额同比下滑，消费复苏动能不足，进一步削弱了汽车、家电等制造业对钢材的采购需求。
 
 ## 相关推荐
 
-- 2026-06-30 05:50 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 06:10 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 05:59 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 05:55 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 05:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 05:50 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 05:52 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 05:57 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 05:43 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 05:56 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 05:47 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 06:06 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 05:49 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 06:13 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 06:07 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 06:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 05:57 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 05:59 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 06:03 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 05:50 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 05:56 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 06:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 06:07 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 06:01 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 06:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 05:55 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/316469262.shtml)
-- 2026-06-30 05:53 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/58370775.shtml)
-- 2026-06-30 06:09 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/060655377937.shtml)
-- 2026-06-30 05:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/862045361516.shtml)
-- 2026-06-30 05:51 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/628607775.shtml)
-- 2026-06-30 05:53 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/402898155532.shtml)
-- 2026-06-30 06:05 - [《共患难》](http://www.share.minike.top/Article/details/704066937.shtml)
-- 2026-06-30 05:59 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/647070.shtml)
-- 2026-06-30 05:59 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/623602.shtml)
-- 2026-06-30 06:06 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/90912.shtml)
-- 2026-06-30 05:46 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/763841.shtml)
-- 2026-06-30 05:59 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/53036.shtml)
-- 2026-06-30 05:42 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.kurohicncr.top/Article/details/29279.shtml)
-- 2026-06-30 05:49 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/15469.shtml)
-- 2026-06-30 06:11 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/559417.shtml)
+- 2026-06-30 06:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/88982.shtml)
+- 2026-06-30 05:50 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/4774922.shtml)
+- 2026-06-30 06:09 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/25197581.shtml)
+- 2026-06-30 06:15 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/945963.shtml)
+- 2026-06-30 05:57 - [扫黑风暴](http://www.share.minike.top/Article/details/955825.shtml)
+- 2026-06-30 06:17 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/9745149021.shtml)
+- 2026-06-30 06:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/66258919777.shtml)
+- 2026-06-30 06:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/189099.shtml)
+- 2026-06-30 05:59 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/4011302915.shtml)
+- 2026-06-30 05:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/558367.shtml)
+- 2026-06-30 05:54 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/52631502.shtml)
+- 2026-06-30 05:58 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/341987.shtml)
+- 2026-06-30 06:03 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/70125071069.shtml)
+- 2026-06-30 06:06 - [房价什么时候能涨](https://www.share.minike.top/Article/details/798777.shtml)
+- 2026-06-30 06:05 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/01947455696.shtml)

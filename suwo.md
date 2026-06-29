@@ -1,60 +1,61 @@
-# 长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频：用通俗剧情揭示非法平台伪造盈利截图 警示性强
+# 高占义：龙脊梯田千年智慧为全球可持续发展提供“活样板”
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频参选“最具影响力投教项目优秀案例”类别。>>活动详情 据悉，当前非法金融活动借“AI量化”“智能选股”等概念误导投资者。长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频通过剧情化、场景化的科普形式，
+中新网桂林6月17日电(邓竣缤)6月17日，龙脊梯田灌溉工程遗产价值专家研讨会在广西龙胜各族自治县举行。国际灌溉排水委员会终身荣誉主席高占义表示，拥有2300多年历史的龙脊梯田是可持续灌溉工程的“活样板”，其精细化管理理念与多民族共生智慧正通过国际培训走向世界。 高占义指出，龙脊梯田地处桂北山区，坡度最陡达50度，工程体量虽小，但构成了完整的灌排系统，2300多年来持续发挥作用
 
 ## 正文
 
-专题：515投资者保护！
+中新网桂林6月17日电(邓竣缤)6月17日，龙脊梯田灌溉工程遗产价值专家研讨会在广西龙胜各族自治县举行。
 
-新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
+国际灌溉排水委员会终身荣誉主席高占义表示，拥有2300多年历史的龙脊梯田是可持续灌溉工程的“活样板”，其精细化管理理念与多民族共生智慧正通过国际培训走向世界。
 
-长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频参选“最具影响力投教项目优秀案例”类别。
+高占义指出，龙脊梯田地处桂北山区，坡度最陡达50度，工程体量虽小，但构成了完整的灌排系统，2300多年来持续发挥作用。
 
->>活动详情 据悉，当前非法金融活动借“AI量化”“智能选股”等概念误导投资者。
+他强调，梯田不仅工程价值显著，多民族共同开垦维护的历史更为乡村振兴和社会和谐提供了借鉴。
 
-长城基金《AI荐股套路深，捂紧钱包莫轻信》投教视频通过剧情化、场景化的科普形式，有效帮助投资者认清非法荐股本质，引导选择正规投资渠道，强化理性投资意识，显著提升投教宣传的传播力与接受度，筑牢群众防非反诈防线。
+“大家在缺水时靠长期形成的管理体系化解矛盾，这种朴素平和的人际关系，体现了可持续相处的智慧。
 
-该作品为AI荐股防非反诈主题短视频，以情景对话、场景演绎形式揭露非法“AI荐股”骗局，对投资者开展风险警示。
+” 谈及遗产保护，高占义认为要挖掘工程、管理和文化价值，把人与自然和谐相处的理念保护好、传承好，为新时代水利工程注入精神力量。
 
-产品以生活化对话、直播间话术还原、动态指标拆解为特色，用通俗剧情揭示非法平台伪造盈利截图、利用“未来函数”制造择时精准假象，内容生动易懂、警示性强。
+在对比国内外技术时，他指出，中国南方稻作梯田的精细化程度在全球稀有，没有大型水库和渠道，甚至用竹管引水，却实现高产。
 
-效果上，《AI荐股套路深，捂紧钱包莫轻信》投教视频推出以来在新华网播放量超百万，获得行业内外口碑好评。
+“我们的条件比许多国家差，但产出更好，体现了中国人的勤劳和精益求精的管理方式。
 
 ## 相关推荐
 
-- 2026-06-30 06:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 06:07 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 05:50 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 06:00 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 05:47 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 05:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 05:48 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 05:47 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 05:58 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 06:06 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 05:55 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 05:57 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 06:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 05:43 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 06:16 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 06:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 06:08 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 06:10 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-30 06:00 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 05:58 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 05:54 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 06:05 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 05:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 06:11 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 05:58 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 05:56 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 06:08 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 06:09 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 06:02 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/07662595339.shtml)
-- 2026-06-30 05:43 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/202578.shtml)
-- 2026-06-30 05:50 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/0885816.shtml)
-- 2026-06-30 06:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/9206321.shtml)
-- 2026-06-30 06:05 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/37566410534.shtml)
-- 2026-06-30 05:56 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/28032.shtml)
-- 2026-06-30 05:42 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/85940938.shtml)
-- 2026-06-30 06:04 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/36547.shtml)
-- 2026-06-30 06:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/51700.shtml)
-- 2026-06-30 06:00 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/124213895.shtml)
-- 2026-06-30 05:47 - [绘画区你赢了](http://www.blog.minike.top/Article/details/013456447.shtml)
-- 2026-06-30 05:59 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/5547836534.shtml)
-- 2026-06-30 05:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/92201.shtml)
-- 2026-06-30 05:51 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/63879676039.shtml)
-- 2026-06-30 05:47 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/452752765024.shtml)
+- 2026-06-30 06:01 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/2941073109.shtml)
+- 2026-06-30 06:06 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/6158859.shtml)
+- 2026-06-30 06:11 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/31310285708.shtml)
+- 2026-06-30 06:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/307303525.shtml)
+- 2026-06-30 05:55 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/858567332.shtml)
+- 2026-06-30 06:05 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/78318466011.shtml)
+- 2026-06-30 06:12 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/031889.shtml)
+- 2026-06-30 05:58 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/153758025987.shtml)
+- 2026-06-30 05:57 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/97762.shtml)
+- 2026-06-30 06:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/7301622414.shtml)
+- 2026-06-30 05:52 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/070937.shtml)
+- 2026-06-30 05:56 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/6532323.shtml)
+- 2026-06-30 06:15 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/5129114.shtml)
+- 2026-06-30 06:05 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/999479.shtml)
+- 2026-06-30 06:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/11184046.shtml)

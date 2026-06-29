@@ -1,52 +1,53 @@
-# 阿联酋称防空系统正在应对导弹威胁
+# 河北廊坊：只有红楼梦·戏剧幻城“完整开城”
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-阿联酋国家应急、危机与灾害管理局在X平台发文称，阿联酋防空系统正在对导弹威胁作出反应。 阿联酋防空系统正在应对导弹和无人机威胁。 这是周二发出的首次警报。责任编辑：陈钰嘉
+发布时间：2026年06月17日 08:30 来源：中国新闻网 6月16日，历经十年倾力打造的只有红楼梦·戏剧幻城迎来“完整开城”，以“三新”即新剧目、新大门、新模式亮相。剧目数量从21场增至55场，戏剧总时长由原来的800分钟跃升至1500分钟，为观众带来更丰富的戏剧体验。 本次“完整开城”的最大亮点，是《大观戏阵》《24少》的首次公演。据悉，自2023年7月首次开城以来，戏
 
 ## 正文
 
-阿联酋国家应急、危机与灾害管理局在X平台发文称，阿联酋防空系统正在对导弹威胁作出反应。
+发布时间：2026年06月17日 08:30 来源：中国新闻网 6月16日，历经十年倾力打造的只有红楼梦·戏剧幻城迎来“完整开城”，以“三新”即新剧目、新大门、新模式亮相。
 
-阿联酋防空系统正在应对导弹和无人机威胁。
+剧目数量从21场增至55场，戏剧总时长由原来的800分钟跃升至1500分钟，为观众带来更丰富的戏剧体验。
 
-这是周二发出的首次警报。
+本次“完整开城”的最大亮点，是《大观戏阵》《24少》的首次公演。
 
-责任编辑：陈钰嘉
+据悉，自2023年7月首次开城以来，戏剧幻城至今已完成演出2.4万场，超1400万人次观众走进剧场，开启一场别开生面的戏剧文化之旅。
+
+(李玉素 马祥涛 丁晨 制作 徐妙巧） 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 06:11 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 06:09 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 05:44 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 05:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 05:44 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 05:45 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 06:04 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 05:51 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 06:04 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 05:42 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 05:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 06:04 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 05:51 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 06:03 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 05:55 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 05:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 06:16 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 06:04 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 05:54 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 06:10 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 06:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 06:09 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 06:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 06:11 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 06:05 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 06:02 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:53 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/3044913050.shtml)
-- 2026-06-30 05:56 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/3959303.shtml)
-- 2026-06-30 05:58 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/7625942760.shtml)
-- 2026-06-30 05:48 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/344602061.shtml)
-- 2026-06-30 06:05 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/902243360173.shtml)
-- 2026-06-30 06:08 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/748431483034.shtml)
-- 2026-06-30 06:08 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/321838.shtml)
-- 2026-06-30 06:05 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/3629691.shtml)
-- 2026-06-30 05:53 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/491438361.shtml)
-- 2026-06-30 05:59 - [斛珠夫人](http://www.blog.minike.top/Article/details/71860775017.shtml)
-- 2026-06-30 06:04 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/72079959085.shtml)
-- 2026-06-30 06:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/6574393543.shtml)
-- 2026-06-30 05:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/33650039075.shtml)
-- 2026-06-30 06:09 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/49714874.shtml)
-- 2026-06-30 05:51 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/4793290060.shtml)
+- 2026-06-30 05:56 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/795435.shtml)
+- 2026-06-30 05:55 - [日本反击率先破门](https://www.share.minike.top/Article/details/9139886.shtml)
+- 2026-06-30 05:56 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/604677.shtml)
+- 2026-06-30 06:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/32356.shtml)
+- 2026-06-30 06:00 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/6873321.shtml)
+- 2026-06-30 06:07 - [美人鱼](https://www.blog.minike.top/Article/details/45141076.shtml)
+- 2026-06-30 05:49 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/35670456.shtml)
+- 2026-06-30 06:06 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/05085174.shtml)
+- 2026-06-30 06:15 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/109607451.shtml)
+- 2026-06-30 05:53 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/527916444794.shtml)
+- 2026-06-30 06:16 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/6392705038.shtml)
+- 2026-06-30 06:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/105331181.shtml)
+- 2026-06-30 06:01 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/881436041814.shtml)
+- 2026-06-30 06:09 - [月亮](http://www.share.minike.top/Article/details/375068.shtml)
+- 2026-06-30 06:16 - [啊啊啊](http://www.blog.minike.top/Article/details/016520348680.shtml)

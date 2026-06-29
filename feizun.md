@@ -1,48 +1,57 @@
-# 浏阳烟花厂爆炸事故发布会：集中最优医疗资源做好伤员救治
+# 第九届中华职业教育创新创业大赛具身智能赛道全国现场决赛举办
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-今天(5月5日)，湖南长沙召开新闻发布会，介绍浏阳烟花厂爆炸事故最新救援进展。 相关负责人介绍，将集中最优医疗资源，对伤员逐一会诊评估，密切监测伤情变化，动态调整完善救治措施，精心做好伤员救治。已组建善后处置专项工作组，采取“一人(户)一专班”，主动联系对接伤亡人员家属，建立诉求收集、解决的闭环工作机制。
+中新网杭州6月16日电 第九届中华职业教育创新创业大赛具身智能赛道全国现场决赛近日在浙江杭州举办。 本届赛事共吸引全国31个省(自治区、直辖市)数百所职业院校、数千名师生报名。经遴选，316支队伍晋级全国预赛，164支队伍突围跻身线下决赛，于复杂道路机器人远程操控等四个前沿赛道同台竞技。 13日，赛事颁奖仪式举行。现场评出一等奖队伍32支、二等奖队伍46支，浙江省中华职业教育社
 
 ## 正文
 
-今天(5月5日)，湖南长沙召开新闻发布会，介绍浏阳烟花厂爆炸事故最新救援进展。
+中新网杭州6月16日电 第九届中华职业教育创新创业大赛具身智能赛道全国现场决赛近日在浙江杭州举办。
 
-相关负责人介绍，将集中最优医疗资源，对伤员逐一会诊评估，密切监测伤情变化，动态调整完善救治措施，精心做好伤员救治。
+本届赛事共吸引全国31个省(自治区、直辖市)数百所职业院校、数千名师生报名。
 
-已组建善后处置专项工作组，采取“一人(户)一专班”，主动联系对接伤亡人员家属，建立诉求收集、解决的闭环工作机制。
+经遴选，316支队伍晋级全国预赛，164支队伍突围跻身线下决赛，于复杂道路机器人远程操控等四个前沿赛道同台竞技。
+
+13日，赛事颁奖仪式举行。
+
+现场评出一等奖队伍32支、二等奖队伍46支，浙江省中华职业教育社等12家单位获评优秀组织奖。
+
+大赛期间同步举办中华职业教育具身智能产教融合对话会。
+
+来自工信部的相关负责人及全国职业院校专家、行业龙头企业负责人、国际行业代表，就具身智能发展趋势、校企协同育人模式、技术成果转化路径、全国性实训平台共建等核心议题展开交流。
+
+现场还举行“中华职业教育具身智能产教融合杭州实践中心”启动仪式。
 
 ## 相关推荐
 
-- 2026-06-30 06:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 05:49 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 06:03 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 05:57 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 05:43 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 05:58 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 05:48 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 05:55 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 06:08 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 05:57 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 06:03 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 05:55 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 06:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 06:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 06:04 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 06:06 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 06:11 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 06:17 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 05:55 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 06:06 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 06:09 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 06:14 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 06:06 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/45223.shtml)
-- 2026-06-30 05:44 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/197459272.shtml)
-- 2026-06-30 05:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/514971878174.shtml)
-- 2026-06-30 05:48 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/7193702263.shtml)
-- 2026-06-30 05:43 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/860788804863.shtml)
-- 2026-06-30 05:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/342084177.shtml)
-- 2026-06-30 05:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/5413397440.shtml)
-- 2026-06-30 06:05 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/66014.shtml)
-- 2026-06-30 06:07 - [乔家的儿女](http://www.blog.minike.top/Article/details/4883898.shtml)
-- 2026-06-30 06:02 - [爱很美味](https://www.share.kurohicncr.top/Article/details/34324437.shtml)
-- 2026-06-30 05:56 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/416635626.shtml)
-- 2026-06-30 05:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/87370108884.shtml)
-- 2026-06-30 05:50 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/070862186.shtml)
-- 2026-06-30 06:06 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/8952592010.shtml)
-- 2026-06-30 05:59 - [美人鱼](https://www.share.kurohicncr.top/Article/details/945244321.shtml)
+- 2026-06-30 06:03 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/709284.shtml)
+- 2026-06-30 05:48 - [乔家的儿女](http://www.blog.minike.top/Article/details/5883258978.shtml)
+- 2026-06-30 05:48 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/5960679308.shtml)
+- 2026-06-30 06:06 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/259167.shtml)
+- 2026-06-30 05:48 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/396350.shtml)
+- 2026-06-30 05:53 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/92042.shtml)
+- 2026-06-30 05:51 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/93546.shtml)
+- 2026-06-30 05:56 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/52469011.shtml)
+- 2026-06-30 06:05 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/4557059570.shtml)
+- 2026-06-30 06:01 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/714739397162.shtml)
+- 2026-06-30 06:05 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/653492882613.shtml)
+- 2026-06-30 06:00 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/2161712590.shtml)
+- 2026-06-30 06:10 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/0977414614.shtml)
+- 2026-06-30 05:51 - [巴西vs日本](https://www.blog.minike.top/Article/details/689077741709.shtml)
+- 2026-06-30 05:57 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/6797168.shtml)

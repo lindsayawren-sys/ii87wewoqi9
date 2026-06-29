@@ -1,59 +1,57 @@
-# 马斯克女友出庭作证，指其曾希望OpenAI成为特斯拉子公司
+# 中邮人寿总经理李学军升任党委书记
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-美国科技亿万富翁埃隆·马斯克的现任伴侣希冯·齐里斯周三出庭作证，接受质询，被问及她是否在担任OpenAI董事会成员期间向马斯克“泄露”信息。 齐里斯在加州奥克兰作证时表示：“我始终致力于让人工智能造福人类。”一位OpenAI高管指控齐里斯在担任该机构董事期间，未披露马斯克是她双胞胎孩子的父亲。 现年40岁的齐里斯于2016年通过OpenAI结识了马斯克。当时，她拒绝了OpenA
+6月17日，澎湃新闻获悉，中邮人寿保险股份有限公司（下称中邮人寿）党委副书记、总经理李学军已出任该公司党委书记，有望出任董事长一职。 今年2月，中邮人寿发布公告称，该公司董事会前期收到韩广岳的辞呈，韩广岳因个人年龄原因，辞去公司董事长职务。韩广岳同时为该公司党委书记。 与此前不同的是，李学军是中邮人寿成立以来首个由市场化选聘的总经理。此前，中邮人寿党委书记、董事长人选向来由该公
 
 ## 正文
 
-美国科技亿万富翁埃隆·马斯克的现任伴侣希冯·齐里斯周三出庭作证，接受质询，被问及她是否在担任OpenAI董事会成员期间向马斯克“泄露”信息。
+6月17日，澎湃新闻获悉，中邮人寿保险股份有限公司（下称中邮人寿）党委副书记、总经理李学军已出任该公司党委书记，有望出任董事长一职。
 
-齐里斯在加州奥克兰作证时表示：“我始终致力于让人工智能造福人类。
+今年2月，中邮人寿发布公告称，该公司董事会前期收到韩广岳的辞呈，韩广岳因个人年龄原因，辞去公司董事长职务。
 
-”一位OpenAI高管指控齐里斯在担任该机构董事期间，未披露马斯克是她双胞胎孩子的父亲。
+韩广岳同时为该公司党委书记。
 
-现年40岁的齐里斯于2016年通过OpenAI结识了马斯克。
+与此前不同的是，李学军是中邮人寿成立以来首个由市场化选聘的总经理。
 
-当时，她拒绝了OpenAI提供的首席运营官职位，转而担任顾问。
+此前，中邮人寿党委书记、董事长人选向来由该公司大股东中国邮政系统干部出任。
 
-2020年，在马斯克停止向这家卷入法律纠纷的非营利组织捐款后，齐里斯加入了OpenAI的董事会。
+此前的冯新生、刘明光、韩广岳均来自中国邮政集团；拥有邮政系统背景的党秀茸则是中邮人寿的创建元老，后从中邮人寿首任总经理升任董事长。
 
-OpenAI的律师和其高管的证词都表明，齐里斯是马斯克的亲密顾问和代理人，在他们难以直接联系到马斯克时，经常会咨询她的意见。
+李学军出生于1970年11月，为保险科班生，毕业于中央财政金融学院国际保险专业，拥有经济学学士学位。
 
-尽管齐里斯曾在马斯克旗下的特斯拉和Neuralink工作，并在担任OpenAI董事期间与马斯克育有子女，但马斯克的团队和齐里斯本人都坚称，齐里斯的行为是独立的。
+他曾先后任职于中国人寿、阳光保险集团、人保寿险等，后加入中邮人寿任总经理。
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 05:58 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 05:44 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 05:55 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 05:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 05:48 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 05:56 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 05:43 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 06:03 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 05:43 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 06:03 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 05:49 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 06:11 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 05:57 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 06:00 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 05:54 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 05:55 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 05:50 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 05:52 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 06:08 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 05:50 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 05:51 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 05:56 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 06:04 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:07 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/35204.shtml)
-- 2026-06-30 05:53 - [日本 高位逼抢](http://www.share.minike.top/Article/details/18805931.shtml)
-- 2026-06-30 06:11 - [巴西2比1日本](http://www.blog.minike.top/Article/details/14771183831.shtml)
-- 2026-06-30 06:01 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/4380052708.shtml)
-- 2026-06-30 05:59 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/273789.shtml)
-- 2026-06-30 05:43 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/60201021449.shtml)
-- 2026-06-30 06:11 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/12926371.shtml)
-- 2026-06-30 05:54 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/2429609687.shtml)
-- 2026-06-30 06:09 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/87054934594.shtml)
-- 2026-06-30 06:11 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/03335375196.shtml)
-- 2026-06-30 05:45 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/523025.shtml)
-- 2026-06-30 06:03 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/53130041.shtml)
-- 2026-06-30 06:00 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/19724.shtml)
-- 2026-06-30 06:04 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/0882902343.shtml)
-- 2026-06-30 06:04 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/810080982.shtml)
+- 2026-06-30 06:06 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/3823624.shtml)
+- 2026-06-30 06:15 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/21826.shtml)
+- 2026-06-30 06:11 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/7812407.shtml)
+- 2026-06-30 05:54 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/861155842.shtml)
+- 2026-06-30 06:04 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/208114.shtml)
+- 2026-06-30 06:16 - [周生如故](https://www.blog.minike.top/Article/details/126182466.shtml)
+- 2026-06-30 06:13 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/293458630.shtml)
+- 2026-06-30 05:56 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/7636569.shtml)
+- 2026-06-30 05:49 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/6569231138.shtml)
+- 2026-06-30 06:00 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/26948258.shtml)
+- 2026-06-30 05:55 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/1568358728.shtml)
+- 2026-06-30 06:10 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/4129201601.shtml)
+- 2026-06-30 06:00 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/598445.shtml)
+- 2026-06-30 06:03 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/719300459.shtml)
+- 2026-06-30 06:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/2959677578.shtml)

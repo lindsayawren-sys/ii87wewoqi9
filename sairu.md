@@ -1,61 +1,56 @@
-# 投资逾百亿港元 港莞共建大湾区可持续航空燃料产业链
+# 人工智能如何赋能制造业？党外知识分子建言献策专家组赴苏沪开展专题调研
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中新社香港5月5日电 (记者 魏华都)香港可再生燃料生产商怡斯莱5日在香港与广东东莞市政府签署投资意向书，将在东莞建立可持续航空燃料(即SAF)生产基地，助力粤港澳大湾区打造世界级产业链。 “这是香港对接国家‘十五五’规划、响应国家绿色发展战略具体行动的示范性项目。”香港特区行政长官李家超在签署仪式上致辞表示，全球能源变局为各地带来挑战，香港在“一国两制”下拥有“背靠祖国、联通
+发布时间：2026年06月16日 16:32 来源：中国新闻网 6月13日至17日，中央统战部党外知识分子建言献策专家组科学技术组一行先后赴无锡、常州、南京、上海等地，围绕人工智能促进制造业发展、科技评价与科技人才计划相关问题开展专题调研。调研期间，专家组先后走访了无锡一棉纺织集团有限公司、航亚科技股份有限公司(无锡)、理想汽车常州智能制造基地等，实地察看人工智能赋能制造业的实
 
 ## 正文
 
-中新社香港5月5日电 (记者 魏华都)香港可再生燃料生产商怡斯莱5日在香港与广东东莞市政府签署投资意向书，将在东莞建立可持续航空燃料(即SAF)生产基地，助力粤港澳大湾区打造世界级产业链。
+发布时间：2026年06月16日 16:32 来源：中国新闻网 6月13日至17日，中央统战部党外知识分子建言献策专家组科学技术组一行先后赴无锡、常州、南京、上海等地，围绕人工智能促进制造业发展、科技评价与科技人才计划相关问题开展专题调研。
 
-“这是香港对接国家‘十五五’规划、响应国家绿色发展战略具体行动的示范性项目。
+调研期间，专家组先后走访了无锡一棉纺织集团有限公司、航亚科技股份有限公司(无锡)、理想汽车常州智能制造基地等，实地察看人工智能赋能制造业的实践成效。
 
-”香港特区行政长官李家超在签署仪式上致辞表示，全球能源变局为各地带来挑战，香港在“一国两制”下拥有“背靠祖国、联通世界”的独特优势，正好把握绿色转型带来的新机遇，将香港的国际化技术与广东省的产业基础相结合，实现资源高效衔接。
+党外知识分子建言献策专家组科技组组长、全国人大常委会委员、中国科学院院士郭雷在受访时表示，人工智能赋能制造业已从概念走向实践，带来了实实在在的生产力提升。
 
-李家超说，此次合作是香港特区政府实践行政主导的示范性成果，亦是香港与东莞两地把有为政府和高效市场结合起来的示范性成果。
+AI技术仍在发展中，亟待消除企业与行业间的数据壁垒，并解决复合型人才短缺问题。
 
-香港特区政府未来将持续深化粤港合作，加强政策对接、产业共融，推动更多绿色项目落地，服务国家实现“双碳”目标，共创大湾区绿色新篇章。
+党外知识分子建言献策专家组科学技术组将充分发挥平台优势，为科技强国建设贡献智慧与力量。
 
-香港中华煤气有限公司主席李家杰称，全球主要航空枢纽已进入SAF产业化竞速阶段。
-
-相信通过结合香港国际航空枢纽的独特优势，以及东莞坚实的工业基础和完善的产业配套，可在大湾区建设一条世界级的SAF产业链，实现内地收油、生产，香港研发、存储、掺混及加注，满足全球航空市场的需求。
-
-目前已是全球第二大SAF生产商的怡斯莱，由香港中华煤气有限公司孵化而成，2021年正式独立运营，专注于将回收的废弃食用油转化为清洁的航空燃料，实现“变废为宝”。
+(记者 迟瀚宇 罗鲁峤） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 06:09 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 06:06 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 05:59 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 05:53 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 05:44 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 05:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 05:45 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 06:06 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 05:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 05:54 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 06:06 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 05:48 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 05:49 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 06:11 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 06:09 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 05:50 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 05:55 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 06:00 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 05:54 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 05:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 06:16 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 06:00 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 05:53 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 06:08 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 05:51 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 06:09 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 05:56 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 06:12 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/6712334.shtml)
-- 2026-06-30 05:48 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/491553815.shtml)
-- 2026-06-30 05:47 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/73357943830.shtml)
-- 2026-06-30 06:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/12097.shtml)
-- 2026-06-30 05:46 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/3813020.shtml)
-- 2026-06-30 06:09 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/78181.shtml)
-- 2026-06-30 05:53 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/856280.shtml)
-- 2026-06-30 06:08 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/31936649544.shtml)
-- 2026-06-30 06:08 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/4141872980.shtml)
-- 2026-06-30 05:46 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/53670148656.shtml)
-- 2026-06-30 05:57 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/893182789.shtml)
-- 2026-06-30 06:02 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/662867222.shtml)
-- 2026-06-30 05:55 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/5082901.shtml)
-- 2026-06-30 05:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/475983403744.shtml)
-- 2026-06-30 05:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/27372977.shtml)
+- 2026-06-30 05:52 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/03146.shtml)
+- 2026-06-30 05:52 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/358572022345.shtml)
+- 2026-06-30 06:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/03098538.shtml)
+- 2026-06-30 05:51 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/2807490087.shtml)
+- 2026-06-30 05:58 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/9130752.shtml)
+- 2026-06-30 06:01 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/3694615314.shtml)
+- 2026-06-30 06:08 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/940096671786.shtml)
+- 2026-06-30 05:49 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/790736446.shtml)
+- 2026-06-30 05:49 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/56407341.shtml)
+- 2026-06-30 06:07 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/409117840291.shtml)
+- 2026-06-30 05:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/76447339825.shtml)
+- 2026-06-30 06:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/57840773819.shtml)
+- 2026-06-30 05:50 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/076964.shtml)
+- 2026-06-30 06:05 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/08654.shtml)
+- 2026-06-30 06:07 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/37166.shtml)

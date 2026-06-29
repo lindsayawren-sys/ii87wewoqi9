@@ -1,60 +1,57 @@
-# 黄河水利委员会发布2025年黄河流域水土保持公报
+# 宁王投了DeepSeek
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中新网5月7日电 据水利部网站消息，近日，黄河水利委员会发布《黄河流域水土保持公报(2025)》(以下简称《公报》)，内容包括黄河流域水土流失状况、水土流失治理、国家水土保持重点工程、生产建设项目水土保持监督管理、重要水土保持事件等。《公报》显示，截至2025年，黄河流域水土流失面积24.04万平方千米，累计初步治理水土流失面积29.05万平方千米，淤地坝6.02万座，水土保持
+界面新闻记者 | 高菁 继入股中恒电气（002364.SZ）、世纪互联后，宁德时代（300750.SZ）又将目光投向DeepSeek。 据天眼查6月15日披露，杭州深度求索人工智能基础技术研究有限公司（下称DeepSeek）获得A轮融资，融资金额达510亿元，投后估值约为4000亿元。 除了一众互联网巨头、风险投资机构外，该轮融资投资方中出现了锂电池领域的绝对龙头——宁德时代的
 
 ## 正文
 
-中新网5月7日电 据水利部网站消息，近日，黄河水利委员会发布《黄河流域水土保持公报(2025)》(以下简称《公报》)，内容包括黄河流域水土流失状况、水土流失治理、国家水土保持重点工程、生产建设项目水土保持监督管理、重要水土保持事件等。
+界面新闻记者 | 高菁 继入股中恒电气（002364.SZ）、世纪互联后，宁德时代（300750.SZ）又将目光投向DeepSeek。
 
-《公报》显示，截至2025年，黄河流域水土流失面积24.04万平方千米，累计初步治理水土流失面积29.05万平方千米，淤地坝6.02万座，水土保持率69.75%。
+据天眼查6月15日披露，杭州深度求索人工智能基础技术研究有限公司（下称DeepSeek）获得A轮融资，融资金额达510亿元，投后估值约为4000亿元。
 
-2025年，黄河流域共实施小流域水土流失综合治理工程、坡耕地水土流失综合治理工程、淤地坝工程和粗泥沙集中来源区拦沙工程、病险淤地坝除险加固和老旧淤地坝提升改造工程等六类国家水土保持重点工程，累计安排中央资金50.85亿元，治理水土流失面积4461平方千米，新建淤地坝442座，新建拦沙坝800座。
+除了一众互联网巨头、风险投资机构外，该轮融资投资方中出现了锂电池领域的绝对龙头——宁德时代的身影。
 
-2025年，黄河流域共审批生产建设项目水土保持方案9452个，7313个生产建设项目完成水土保持设施自主验收报备。
+据《中国基金报》报道，本轮融资中，宁德时代体系出资约50亿元，其中包括宁德时代及溥泉资本。
 
-各级水行政主管部门对14401个生产建设项目水土保持工作开展监督检查。
+该出资额在外部投资方中位列第二，仅次于腾讯集团。
 
-2025年，黄河流域生态产品价值转换和碳汇成功交易27单，总交易额达1.38亿元。
+溥泉资本是宁德时代旗下的产业投资平台 。
 
-全国首单淤地坝新增耕地占补平衡交易、坡耕地水土流失治理碳汇交易顺利完成。
+就上述投资细节，界面新闻记者于6月17日向宁德时代求证，该公司表示，目前尚无回复口径。
 
-生态环境部与水利部联合发布《温室气体自愿减排项目方法学 淤地坝碳汇(CCER—14—005—V01)》。
+DeepSeek是一家成立于2023年7月，由量化私募巨头幻方量化创立的人工智能公司，专注于大语言模型和多模态AI技术的研发。
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 05:53 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 05:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 06:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 05:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 06:06 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 05:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 06:08 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 06:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 05:52 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 05:53 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 06:00 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 06:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 05:48 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 05:51 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 06:12 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 06:07 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 05:58 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 06:07 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 05:57 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 06:13 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 06:15 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 05:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 06:14 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 05:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:56 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/0166878.shtml)
-- 2026-06-30 06:11 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/0993445.shtml)
-- 2026-06-30 05:44 - [送你一朵小红花](http://www.blog.minike.top/Article/details/24481091946.shtml)
-- 2026-06-30 06:07 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/5705636755.shtml)
-- 2026-06-30 06:03 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/655773418.shtml)
-- 2026-06-30 05:45 - [房价什么时候能涨](http://www.share.minike.top/Article/details/855120969743.shtml)
-- 2026-06-30 06:11 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/786808413418.shtml)
-- 2026-06-30 06:09 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/24749.shtml)
-- 2026-06-30 05:51 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/971918.shtml)
-- 2026-06-30 05:50 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/379537909.shtml)
-- 2026-06-30 06:07 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/96847.shtml)
-- 2026-06-30 05:56 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/871519793.shtml)
-- 2026-06-30 05:44 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/61073.shtml)
-- 2026-06-30 05:49 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/329758.shtml)
-- 2026-06-30 06:08 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/117117.shtml)
+- 2026-06-30 05:55 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/78024081.shtml)
+- 2026-06-30 06:16 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/5849662990.shtml)
+- 2026-06-30 05:50 - [毒液2](https://www.blog.kurohicncr.top/Article/details/860884381360.shtml)
+- 2026-06-30 06:09 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/31373.shtml)
+- 2026-06-30 06:09 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/8123927701.shtml)
+- 2026-06-30 05:51 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/738302134595.shtml)
+- 2026-06-30 06:06 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/547853.shtml)
+- 2026-06-30 06:14 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/63859.shtml)
+- 2026-06-30 05:50 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/387422411677.shtml)
+- 2026-06-30 06:02 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/13889635.shtml)
+- 2026-06-30 06:03 - [点菜也要教吗](https://www.blog.minike.top/Article/details/4836085.shtml)
+- 2026-06-30 06:00 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/1685941514.shtml)
+- 2026-06-30 05:52 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/68703.shtml)
+- 2026-06-30 06:05 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/16220709.shtml)
+- 2026-06-30 05:48 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/03523169498.shtml)

@@ -1,61 +1,61 @@
-# 养老服务师：用专业和温情守护老人暮年时光
+# 世界杯首战结束后，伊朗国足被要求立即离开美国
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-根据实际情况统筹团队成员 制定调整个性化照护方案 养老服务师：用专业和温情守护老人暮年时光 4月21日，河北省秦皇岛市海港区，清晨7点，养老服务师夏甘轶已带着护理员来到独居老人李爷爷家中。他俯身核对护理计划，指尖逐行拂过记录了老人夜间体征数据的屏幕，细致地完成早间健康检测，目光扫过屋内每一处角落，排查着可能存在的居家安全隐患。 基础服务结束后，夏甘轶没有急于离开，而是和护理员一
+中新网6月16日电 据美国哥伦比亚广播公司(CBS)报道，当地时间15日晚，伊朗国足在美国洛杉矶参加了该队在2026美加墨世界杯的首场比赛，以2比2战平新西兰队。比赛结束后仅数小时，伊朗队就被要求离开美国，返回位于墨西哥的驻地。伊朗国家队主教练阿米尔·加莱诺伊没有透露是谁下令让伊朗队提前离开。球队原本计划在加利福尼亚州过夜，保障赛后常规恢复调整，但在比赛结束后却被告知所有人必须
 
 ## 正文
 
-根据实际情况统筹团队成员 制定调整个性化照护方案 养老服务师：用专业和温情守护老人暮年时光 4月21日，河北省秦皇岛市海港区，清晨7点，养老服务师夏甘轶已带着护理员来到独居老人李爷爷家中。
+中新网6月16日电 据美国哥伦比亚广播公司(CBS)报道，当地时间15日晚，伊朗国足在美国洛杉矶参加了该队在2026美加墨世界杯的首场比赛，以2比2战平新西兰队。
 
-他俯身核对护理计划，指尖逐行拂过记录了老人夜间体征数据的屏幕，细致地完成早间健康检测，目光扫过屋内每一处角落，排查着可能存在的居家安全隐患。
+比赛结束后仅数小时，伊朗队就被要求离开美国，返回位于墨西哥的驻地。
 
-基础服务结束后，夏甘轶没有急于离开，而是和护理员一同陪李爷爷洗漱，再陪伴老人吃早餐。
+伊朗国家队主教练阿米尔·加莱诺伊没有透露是谁下令让伊朗队提前离开。
 
-聊天时，他的目光始终落在老人脸上，捕捉着老人眉宇间的情绪，感知着老人的需求。
+球队原本计划在加利福尼亚州过夜，保障赛后常规恢复调整，但在比赛结束后却被告知所有人必须立即登机，返回墨西哥蒂华纳。
 
-“我既不是护工，也不是社工，更不是护士。
+“他们甚至没给我们恢复的时间，”加莱诺伊表示，“今天比赛结束后，他们告诉我们：‘你们必须立即离开。
 
-”夏甘轶笑着对记者说。
+’恢复时间对我们来说非常重要，(但)他们却要求我们登机返回蒂华纳的驻地，这让我们非常困扰。
 
-直到去年，他所从事的这份工作，才有了一个正式的名字——养老服务师。
+” 自美国和以色列于2月28日对伊朗发动军事行动以来，伊朗队的世界杯征程一直处于动荡之中。
 
-2025年7月22日，人力资源和社会保障部向社会正式发布17个新职业、42个新工种，养老服务师位列其中。
+尽管国际足联拒绝了伊朗将三场小组赛移出美国举办的请求，伊朗最终还是决定参赛。
 
 ## 相关推荐
 
-- 2026-06-30 06:06 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 06:05 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 05:52 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 06:00 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 06:01 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 06:08 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 06:07 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 05:54 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 05:59 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 05:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 05:59 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 05:57 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 05:56 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 05:51 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 06:06 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 05:52 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 06:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 05:50 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 06:12 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 06:03 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 06:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 06:12 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 06:05 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 06:11 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 06:00 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 06:12 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 05:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 05:53 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 05:52 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 06:08 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:58 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/286480.shtml)
-- 2026-06-30 05:56 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/8125402.shtml)
-- 2026-06-30 06:03 - [恋与深空 日服](http://www.blog.minike.top/Article/details/776831040.shtml)
-- 2026-06-30 06:08 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/88993.shtml)
-- 2026-06-30 05:51 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/28368805364.shtml)
-- 2026-06-30 06:04 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/680362923270.shtml)
-- 2026-06-30 06:04 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/00556949953.shtml)
-- 2026-06-30 05:51 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/063478.shtml)
-- 2026-06-30 05:51 - [极限挑战第一季](http://www.share.minike.top/Article/details/86574.shtml)
-- 2026-06-30 05:49 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/703517.shtml)
-- 2026-06-30 06:05 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/8927448816.shtml)
-- 2026-06-30 05:59 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/53716586.shtml)
-- 2026-06-30 05:44 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/3135694834.shtml)
-- 2026-06-30 05:51 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/544711683.shtml)
-- 2026-06-30 05:55 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/65367.shtml)
+- 2026-06-30 06:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/979673.shtml)
+- 2026-06-30 06:14 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/703381838002.shtml)
+- 2026-06-30 05:50 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/7463413.shtml)
+- 2026-06-30 06:11 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/5207669.shtml)
+- 2026-06-30 06:06 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/907501.shtml)
+- 2026-06-30 05:58 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/993398730979.shtml)
+- 2026-06-30 06:10 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/06894050296.shtml)
+- 2026-06-30 05:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/100149306.shtml)
+- 2026-06-30 06:04 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/506625147.shtml)
+- 2026-06-30 06:14 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/8907256426.shtml)
+- 2026-06-30 06:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/46040395743.shtml)
+- 2026-06-30 06:00 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/461941.shtml)
+- 2026-06-30 06:11 - [日本进球](http://www.share.kurohicncr.top/Article/details/2773125416.shtml)
+- 2026-06-30 06:13 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/46084241185.shtml)
+- 2026-06-30 06:05 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/63171.shtml)

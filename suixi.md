@@ -1,59 +1,57 @@
-# 台企解除刘世芳亲属职务 国台办：搞“台独”害人害己
+# 广东持续强降雨 累计转移37601人
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-中新社北京5月6日电 江西省上高县荣炭科技有限公司宣布自4月7日起已解除“台独”顽固分子刘世芳的亲属颜文群全部职务。国务院台办发言人陈斌华6日应询表示，大陆方面决不允许“台独”顽固分子及其亲属在大陆投资经商谋利。刘世芳现任民进党当局内部事务主管部门负责人。在今年1月7日国台办新闻发布会上，她被列为“台独”顽固分子。发言人指其赤裸裸宣扬“台独”分裂谬论，大肆打压支持、参与两岸交流
+中新网广州6月17日电 (记者 王坚)广东近期连日强降雨。广东省应急管理厅17日通报称，目前，全省各地落细落实强降雨防御各项措施，累计转移危险区域人员37601人。 广东省应急管理厅介绍，据气象、水文部门监测，15日18时至16日18时，全省平均雨量24.9毫米。降雨主要集中在江门、深圳、东莞、惠州、广州等地，江门台山市川岛镇录得最大累积雨量309.9毫米和最大小时雨量117.
 
 ## 正文
 
-中新社北京5月6日电 江西省上高县荣炭科技有限公司宣布自4月7日起已解除“台独”顽固分子刘世芳的亲属颜文群全部职务。
+中新网广州6月17日电 (记者 王坚)广东近期连日强降雨。
 
-国务院台办发言人陈斌华6日应询表示，大陆方面决不允许“台独”顽固分子及其亲属在大陆投资经商谋利。
+广东省应急管理厅17日通报称，目前，全省各地落细落实强降雨防御各项措施，累计转移危险区域人员37601人。
 
-刘世芳现任民进党当局内部事务主管部门负责人。
+广东省应急管理厅介绍，据气象、水文部门监测，15日18时至16日18时，全省平均雨量24.9毫米。
 
-在今年1月7日国台办新闻发布会上，她被列为“台独”顽固分子。
+降雨主要集中在江门、深圳、东莞、惠州、广州等地，江门台山市川岛镇录得最大累积雨量309.9毫米和最大小时雨量117.5毫米。
 
-发言人指其赤裸裸宣扬“台独”分裂谬论，大肆打压支持、参与两岸交流合作的台湾人士，迫害在台大陆配偶，极力给两岸人员往来设置障碍，封堵两岸民众交流沟通渠道。
+截至16日18时，全省共1个河道站略超警戒水位，水情基本平稳。
 
-2月，有香港媒体曝光其亲属在大陆投资谋利且为刘提供政治献金，国台办当时即表示依法依规查处相关问题。
+广东气象部门预计，17日，珠江三角洲、粤西、粤东沿海市县和清远有大雨到暴雨局部(特)大暴雨，其余市县有中到大雨局部暴雨。
 
-陈斌华5月6日强调，“台独”破坏台海和平稳定、损害两岸同胞利益，是一条走不通的绝路，搞“台独”害人害己，必遭惩治。
+据统计，截至16日18时，广东省防总维持防汛Ⅲ级应急响应和Ⅳ级救灾应急响应；珠海、河源、惠州、汕尾、梅州、揭阳等18个地市和76个县(市、区)启动防汛防暴雨应急响应。
 
-他也指出，大陆方面的惩“独”举措只针对极少数“台独”分子，不涉及广大台胞台企，大陆将一如既往欢迎、支持广大台胞台企扎根祖国大陆发展，分享中国式现代化发展机遇与成果，让台胞台企更有幸福感、获得感。
+针对此轮强降雨，目前，广东省水利厅已组织堤防和水库巡查人员41768人次，巡查水库12483座次，巡查堤防4772段次。
 
 ## 相关推荐
 
-- 2026-06-30 05:54 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 05:52 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 05:52 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 06:01 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 05:59 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 06:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 05:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 06:01 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 05:49 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 05:50 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 05:47 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 05:56 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 06:11 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 06:11 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 06:01 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 06:17 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 05:58 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 06:11 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 05:52 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 05:59 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 05:53 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 06:11 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 05:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-30 06:01 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:08 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/2586253643.shtml)
-- 2026-06-30 06:05 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/2082068540.shtml)
-- 2026-06-30 05:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/634424740677.shtml)
-- 2026-06-30 05:46 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/12314983652.shtml)
-- 2026-06-30 06:11 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/6841983234.shtml)
-- 2026-06-30 05:49 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/142340228047.shtml)
-- 2026-06-30 05:47 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/799006533.shtml)
-- 2026-06-30 05:46 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/50909.shtml)
-- 2026-06-30 06:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/89450242465.shtml)
-- 2026-06-30 05:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/102523.shtml)
-- 2026-06-30 05:42 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/7106717340.shtml)
-- 2026-06-30 05:42 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/59412.shtml)
-- 2026-06-30 05:45 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/93843.shtml)
-- 2026-06-30 06:11 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/49077076398.shtml)
-- 2026-06-30 05:48 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/0275112036.shtml)
+- 2026-06-30 06:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/76008679869.shtml)
+- 2026-06-30 06:03 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/923779591503.shtml)
+- 2026-06-30 06:13 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/3913201635.shtml)
+- 2026-06-30 05:58 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/697244.shtml)
+- 2026-06-30 06:06 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/8185850.shtml)
+- 2026-06-30 06:07 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/34304.shtml)
+- 2026-06-30 06:07 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/971766.shtml)
+- 2026-06-30 06:17 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/6889057217.shtml)
+- 2026-06-30 06:13 - [苗族银饰](http://www.share.minike.top/Article/details/5911355.shtml)
+- 2026-06-30 06:15 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/202835.shtml)
+- 2026-06-30 05:56 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/6492313.shtml)
+- 2026-06-30 06:10 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/690380.shtml)
+- 2026-06-30 05:55 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/295513486.shtml)
+- 2026-06-30 05:59 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/225892.shtml)
+- 2026-06-30 06:07 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/3435153573.shtml)

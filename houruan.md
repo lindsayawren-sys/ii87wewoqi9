@@ -1,45 +1,47 @@
-# 康耐特光学于5月5日斥资2741.35万港元回购60万股
+# 九大重点行业启动节能降碳改造攻坚行动
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-康耐特光学（02276）发布公告，于2026年5月5日斥资2741.35万港元回购60万股。责任编辑：卢昱君
+央视网消息(新闻联播)：日前，国家发展改革委等五部门启动重点行业节能降碳改造攻坚三年行动。2026年起，对钢铁、电解铝、水泥、煤电等九大重点行业开展全面改造。按照行动计划要求，到2028年底，九大重点行业累计节能量超1亿吨标准煤、减排二氧化碳超2亿吨，进一步推动企业能效碳效水平应提尽提，支撑实现碳达峰碳中和目标。
 
 ## 正文
 
-康耐特光学（02276）发布公告，于2026年5月5日斥资2741.35万港元回购60万股。
+央视网消息(新闻联播)：日前，国家发展改革委等五部门启动重点行业节能降碳改造攻坚三年行动。
 
-责任编辑：卢昱君
+2026年起，对钢铁、电解铝、水泥、煤电等九大重点行业开展全面改造。
+
+按照行动计划要求，到2028年底，九大重点行业累计节能量超1亿吨标准煤、减排二氧化碳超2亿吨，进一步推动企业能效碳效水平应提尽提，支撑实现碳达峰碳中和目标。
 
 ## 相关推荐
 
-- 2026-06-30 06:02 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 05:42 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 05:48 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 05:49 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 05:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 05:46 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 06:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 05:47 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 05:50 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 05:49 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 06:00 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 05:57 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 06:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 06:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 06:06 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 06:00 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 06:04 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 06:07 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 06:07 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 06:17 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 05:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 05:59 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:05 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/832814.shtml)
-- 2026-06-30 05:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/58531.shtml)
-- 2026-06-30 05:59 - [流金岁月](http://www.share.kurohicncr.top/Article/details/387643949.shtml)
-- 2026-06-30 05:53 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/8399451901.shtml)
-- 2026-06-30 06:00 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/94679429680.shtml)
-- 2026-06-30 06:10 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/884952.shtml)
-- 2026-06-30 06:02 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/990451.shtml)
-- 2026-06-30 06:00 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/296028936.shtml)
-- 2026-06-30 05:55 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/371683.shtml)
-- 2026-06-30 06:05 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/766676310.shtml)
-- 2026-06-30 05:57 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/232442.shtml)
-- 2026-06-30 06:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/0669456753.shtml)
-- 2026-06-30 05:44 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/859639.shtml)
-- 2026-06-30 05:42 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/029904.shtml)
-- 2026-06-30 05:54 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/061561.shtml)
+- 2026-06-30 05:49 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/91212699.shtml)
+- 2026-06-30 05:55 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/187117.shtml)
+- 2026-06-30 05:51 - [刘念回应](https://www.share.minike.top/Article/details/705756.shtml)
+- 2026-06-30 06:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/0826762370.shtml)
+- 2026-06-30 05:54 - [起风了](https://www.blog.minike.top/Article/details/29158519679.shtml)
+- 2026-06-30 06:00 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/7493110210.shtml)
+- 2026-06-30 06:09 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/094151186181.shtml)
+- 2026-06-30 06:05 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/1739331.shtml)
+- 2026-06-30 05:53 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/313985.shtml)
+- 2026-06-30 05:59 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/530590.shtml)
+- 2026-06-30 06:03 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/901569975361.shtml)
+- 2026-06-30 06:09 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/6721869.shtml)
+- 2026-06-30 06:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/75451530.shtml)
+- 2026-06-30 06:00 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/59475937178.shtml)
+- 2026-06-30 06:16 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/876432992.shtml)

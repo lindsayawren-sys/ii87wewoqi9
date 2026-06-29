@@ -1,44 +1,54 @@
-# 网传“湖北惊现人造毒大米”真相是何？
+# 俄国防部：一艘英国游艇“危险接近”俄军舰，俄方鸣枪示警
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 13:21 来源：央视新闻 责任编辑：【韦俊龙】
+中新网6月17日电 据英国广播公司(BBC)报道，当地时间16日上午，一艘英国游艇在英吉利海峡遭遇俄罗斯军舰，俄国防部事后发表声明，称因为这艘游艇“危险接近”，俄军舰向游艇鸣枪示警。 据报道，当天，一对英国夫妇驾驶游艇在距怀特岛海岸23英里处航行时，与俄罗斯护卫舰“格里戈罗维奇海军上将”号近距离相遇。 俄军舰向这艘游艇的航道上开枪示警。俄罗斯国防部称，该游艇曾“危险接近”俄军舰
 
 ## 正文
 
-发布时间：2026年05月07日 13:21 来源：央视新闻 责任编辑：【韦俊龙】
+中新网6月17日电 据英国广播公司(BBC)报道，当地时间16日上午，一艘英国游艇在英吉利海峡遭遇俄罗斯军舰，俄国防部事后发表声明，称因为这艘游艇“危险接近”，俄军舰向游艇鸣枪示警。
+
+据报道，当天，一对英国夫妇驾驶游艇在距怀特岛海岸23英里处航行时，与俄罗斯护卫舰“格里戈罗维奇海军上将”号近距离相遇。
+
+俄军舰向这艘游艇的航道上开枪示警。
+
+俄罗斯国防部称，该游艇曾“危险接近”俄军舰，军舰上的船员在多次尝试通过无线电联系该游艇并发射警示弹无果后，遂向其航道前方射击，并强调所有行动“严格遵守国际航运规则”。
+
+另一方面，驾驶游艇的这对夫妇表示，他们“绝对没有处于碰撞航向上”。
+
+此外，英国国防部将此描述为“孤立事件”。
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 05:42 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 05:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 06:00 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 06:00 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 05:56 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 06:06 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 05:54 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 05:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 05:56 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 06:00 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 05:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 05:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 06:10 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 06:08 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 06:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 06:06 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 05:55 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 05:59 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 05:48 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 05:52 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 06:08 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 06:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 06:05 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/4914127782.shtml)
-- 2026-06-30 06:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/0853629.shtml)
-- 2026-06-30 05:59 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/057215.shtml)
-- 2026-06-30 06:05 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/1629687250.shtml)
-- 2026-06-30 06:02 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/828222.shtml)
-- 2026-06-30 05:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/78199021063.shtml)
-- 2026-06-30 05:42 - [内马尔替补](https://www.share.minike.top/Article/details/11495260.shtml)
-- 2026-06-30 06:04 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/464248452321.shtml)
-- 2026-06-30 05:49 - [流金岁月](http://www.blog.minike.top/Article/details/3918357218.shtml)
-- 2026-06-30 05:44 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/40859.shtml)
-- 2026-06-30 06:01 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/16878440314.shtml)
-- 2026-06-30 05:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/8861243.shtml)
-- 2026-06-30 05:46 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/670679314.shtml)
-- 2026-06-30 05:53 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/65529.shtml)
-- 2026-06-30 05:53 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/46373.shtml)
+- 2026-06-30 06:09 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/93678056.shtml)
+- 2026-06-30 05:53 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/80399449.shtml)
+- 2026-06-30 06:07 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/55713.shtml)
+- 2026-06-30 06:04 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/09879792251.shtml)
+- 2026-06-30 06:16 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/53114.shtml)
+- 2026-06-30 05:59 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/9355008.shtml)
+- 2026-06-30 05:52 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/51955308215.shtml)
+- 2026-06-30 06:15 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/98853.shtml)
+- 2026-06-30 06:11 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/53690.shtml)
+- 2026-06-30 06:03 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/09011.shtml)
+- 2026-06-30 05:59 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/7403893852.shtml)
+- 2026-06-30 06:03 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/42650966013.shtml)
+- 2026-06-30 06:07 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/0362608.shtml)
+- 2026-06-30 05:49 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/9668666.shtml)
+- 2026-06-30 06:01 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/0235712.shtml)

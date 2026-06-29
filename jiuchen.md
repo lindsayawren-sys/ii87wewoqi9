@@ -1,61 +1,54 @@
-# 2000亿杭州巨头滨江集团，连续拿地补仓
+# 麦记牛奶总经理谢永亮证实3-4月整体业绩下滑20%多
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-戚金兴统领的滨江集团，赶在五一节前，连拿两块地。 最新一宗就在4月30日，其和绿城组成联合体，以26亿总额，高溢价竞得杭城市北一地块，楼面地价约3.6万元/平方米。 两天前，滨江兴耀联合体，以底价摘得杭州拱墅地块。 今年以来，戚金兴已拿地五宗。 前两年，其战术定调为 “主动卧倒”“匍匐前进”，相对而言，今年他进取心强得多，直言要随时“做好冲锋”的准备。 “全年60%投向杭州，2
+针对近期关于品牌团队跑路、总部对加盟商有罚款KPI等一系列传闻，糖水连锁品牌麦记牛奶总经理谢永亮独家对界面新闻表示，是恶意诽谤。 他对界面新闻称，食品安全卫生是核心要素，对于违反食品安全的门店确实有适当处罚，这也是必须手段，同时也是所有连锁品牌的常规管理措施，不存在不恰当之处。 麦记牛奶目前门店数量在1000家左右。谢永亮对界面新闻称，2026年3-4月整体业绩确实下滑20%多
 
 ## 正文
 
-戚金兴统领的滨江集团，赶在五一节前，连拿两块地。
+针对近期关于品牌团队跑路、总部对加盟商有罚款KPI等一系列传闻，糖水连锁品牌麦记牛奶总经理谢永亮独家对界面新闻表示，是恶意诽谤。
 
-最新一宗就在4月30日，其和绿城组成联合体，以26亿总额，高溢价竞得杭城市北一地块，楼面地价约3.6万元/平方米。
+他对界面新闻称，食品安全卫生是核心要素，对于违反食品安全的门店确实有适当处罚，这也是必须手段，同时也是所有连锁品牌的常规管理措施，不存在不恰当之处。
 
-两天前，滨江兴耀联合体，以底价摘得杭州拱墅地块。
+麦记牛奶目前门店数量在1000家左右。
 
-今年以来，戚金兴已拿地五宗。
+谢永亮对界面新闻称，2026年3-4月整体业绩确实下滑20%多，有淡季和大环境的影响因素。
 
-前两年，其战术定调为 “主动卧倒”“匍匐前进”，相对而言，今年他进取心强得多，直言要随时“做好冲锋”的准备。
-
-“全年60%投向杭州，20%投在浙江省内，剩余20%在省外。
-
-”4月底的业绩会上，《21CBR》记者以投资者身份询问投资策略，戚金兴本人回答说。
-
-目前，戚氏依然维持着千亿规模的盘面，2025年滨江销售1017亿元，稳在行业第10位，高居民营房企第一。
+（界面新闻记者 马越）责任编辑：梁斌 SF055
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 06:00 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 05:45 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 05:42 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 06:06 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 06:08 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 05:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 06:02 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 05:52 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 06:03 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 06:10 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 05:43 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 05:44 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-30 05:58 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 06:03 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 06:14 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 06:15 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 06:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 05:56 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 05:53 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 06:16 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 06:08 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 05:55 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 06:00 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 06:05 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 06:00 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 06:08 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 06:16 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 06:07 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:52 - [张凌赫 客串](https://www.share.minike.top/Article/details/806509302.shtml)
-- 2026-06-30 06:08 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/86314.shtml)
-- 2026-06-30 06:00 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/0008535866.shtml)
-- 2026-06-30 06:10 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/702535895.shtml)
-- 2026-06-30 06:04 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/6443211545.shtml)
-- 2026-06-30 06:06 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/933202533083.shtml)
-- 2026-06-30 06:00 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/31785409121.shtml)
-- 2026-06-30 06:00 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/680726537926.shtml)
-- 2026-06-30 06:01 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/22686710915.shtml)
-- 2026-06-30 05:54 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/306202416.shtml)
-- 2026-06-30 05:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/7445408117.shtml)
-- 2026-06-30 05:50 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/595461490305.shtml)
-- 2026-06-30 05:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/2178609.shtml)
-- 2026-06-30 05:48 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/43289033741.shtml)
-- 2026-06-30 06:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/71325729617.shtml)
+- 2026-06-30 06:17 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/018755202.shtml)
+- 2026-06-30 06:13 - [扬名立万](http://www.blog.minike.top/Article/details/86752199.shtml)
+- 2026-06-30 06:16 - [小娘惹](https://www.share.minike.top/Article/details/31666035879.shtml)
+- 2026-06-30 05:54 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/45106.shtml)
+- 2026-06-30 05:49 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/979652706473.shtml)
+- 2026-06-30 05:54 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/53031313193.shtml)
+- 2026-06-30 06:04 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/1601482120.shtml)
+- 2026-06-30 06:16 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/5560525508.shtml)
+- 2026-06-30 06:13 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/97694434.shtml)
+- 2026-06-30 06:11 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/079318595.shtml)
+- 2026-06-30 05:50 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/22727.shtml)
+- 2026-06-30 05:52 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/560894038.shtml)
+- 2026-06-30 05:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/16035.shtml)
+- 2026-06-30 06:11 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/48364.shtml)
+- 2026-06-30 06:07 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/1696702105.shtml)

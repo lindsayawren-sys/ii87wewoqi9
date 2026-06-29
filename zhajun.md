@@ -1,61 +1,56 @@
-# 司法如何界定加班新形态
+# 博时宏观观点：海外扰动缓解，考虑均衡配置
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-移动办公日益普及，下班后回复工作微信、节假日参加线上会议、休息时间随时待命，成为不少职场人的日常。近日，多家法院发布劳动争议典型案例，厘清“隐形加班”相关法律问题。 北京市第二中级人民法院日前通报一起“隐形加班”案。王某因加班工资问题与公司产生争议，起诉公司称，公司频繁在工作时间外安排线上会议和培训，并规定如不参与需“自愿捐款”200元。王某提交线上参会记录、聊天截图、自制统计
+海外方面，油价拉动5月美国CPI超4%，接近同比高点，住房项恢复正常及核心商品需求偏弱使得核心CPI环比略低于预期，总体而言，5月美国通胀没有进一步激化加息预期。与此同时，随着近期美伊谈判出现积极进展，美元流动性收紧已出现缓和迹象，全球风险偏好有所提振。 国内方面，5月CPI同比持平上月，PPI升至3.9%，1-5月PPI累计同比回升至1%，有望带动二季度GDP平减指数回正及企
 
 ## 正文
 
-移动办公日益普及，下班后回复工作微信、节假日参加线上会议、休息时间随时待命，成为不少职场人的日常。
+海外方面，油价拉动5月美国CPI超4%，接近同比高点，住房项恢复正常及核心商品需求偏弱使得核心CPI环比略低于预期，总体而言，5月美国通胀没有进一步激化加息预期。
 
-近日，多家法院发布劳动争议典型案例，厘清“隐形加班”相关法律问题。
+与此同时，随着近期美伊谈判出现积极进展，美元流动性收紧已出现缓和迹象，全球风险偏好有所提振。
 
-北京市第二中级人民法院日前通报一起“隐形加班”案。
+国内方面，5月CPI同比持平上月，PPI升至3.9%，1-5月PPI累计同比回升至1%，有望带动二季度GDP平减指数回正及企业盈利增速持续回升。
 
-王某因加班工资问题与公司产生争议，起诉公司称，公司频繁在工作时间外安排线上会议和培训，并规定如不参与需“自愿捐款”200元。
+5月出口同比较4月的14.1%加速上行至19.4%，今年1-5月出口增速录得15.5%，AI产业链高景气、出口价格上行、海外增长回暖等因素共同推动出口景气度。
 
-王某提交线上参会记录、聊天截图、自制统计表等证据，主张公司应支付加班费8.5万余元。
+市场策略方面，债券方面，上周资金面持续收紧，海外加息预期升温，非银负债端赎回压力浮现，债市整体调整。
 
-公司辩称，公司制度规定加班需审批，且线上会议员工无需发言甚至无需听会，不能证明实际提供劳动，“捐款”规定与参会无关。
+6月以来央行通过公开市场操作、政策窗口指导等措施，资金面约束下债市下行空间可能有限。
 
-北京市第二中级人民法院审理认为，王某提交的证据能够证明公司在非工作时间安排了线上活动。
+但基本面和信贷疲弱背景下央行或也无意进一步收紧资金面，配置盘欠配压力仍在，债市大幅调整空间也有限，短期内或回归震荡格局。
 
-活动由用人单位安排，员工具有服从义务，所谓“捐款”规定进一步佐证强制性，活动挤占员工休息时间、消耗个人精力，应认定为加班。
+关注资金面变化及本周美联储议息会议表态对国内外风险偏好的影响。
 
 ## 相关推荐
 
-- 2026-06-30 06:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 05:57 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 05:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 05:52 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 05:43 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 05:55 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 05:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 05:49 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 06:05 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 06:02 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 05:48 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 05:42 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 06:03 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 05:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 06:08 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 06:01 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 06:07 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 06:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 06:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 06:10 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 06:08 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 06:10 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 06:03 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 05:49 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 06:05 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/808261.shtml)
-- 2026-06-30 05:52 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/18990.shtml)
-- 2026-06-30 05:57 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/4929192223.shtml)
-- 2026-06-30 06:05 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/4762275613.shtml)
-- 2026-06-30 05:48 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/452487.shtml)
-- 2026-06-30 05:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/4588457080.shtml)
-- 2026-06-30 06:10 - [一见倾心](http://www.blog.minike.top/Article/details/7474093.shtml)
-- 2026-06-30 06:00 - [月亮](https://www.share.kurohicncr.top/Article/details/25845.shtml)
-- 2026-06-30 05:48 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/545493.shtml)
-- 2026-06-30 06:00 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/597473857344.shtml)
-- 2026-06-30 05:54 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/42834177807.shtml)
-- 2026-06-30 06:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/963759094129.shtml)
-- 2026-06-30 05:45 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/765398477777.shtml)
-- 2026-06-30 06:07 - [天道](http://www.share.kurohicncr.top/Article/details/0767089834.shtml)
-- 2026-06-30 06:06 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/4383427.shtml)
+- 2026-06-30 05:56 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/49808.shtml)
+- 2026-06-30 05:49 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/84760067.shtml)
+- 2026-06-30 06:00 - [速度与激情9](https://www.blog.minike.top/Article/details/731825.shtml)
+- 2026-06-30 05:48 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/25861887300.shtml)
+- 2026-06-30 06:03 - [起风了](http://www.share.kurohicncr.top/Article/details/630991564768.shtml)
+- 2026-06-30 05:58 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/54081462013.shtml)
+- 2026-06-30 06:06 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/65027306151.shtml)
+- 2026-06-30 05:58 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/67235.shtml)
+- 2026-06-30 06:11 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/63002.shtml)
+- 2026-06-30 06:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/277495920.shtml)
+- 2026-06-30 05:55 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/66059.shtml)
+- 2026-06-30 06:14 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/5695795.shtml)
+- 2026-06-30 06:14 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/104335342.shtml)
+- 2026-06-30 05:51 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/08100.shtml)
+- 2026-06-30 06:00 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/84263160.shtml)

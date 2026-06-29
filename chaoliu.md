@@ -1,57 +1,56 @@
-# 花自己的钱，咋变成了“借”钱花？
+# 光大期货0616黄金点评：地缘局势缓和支撑金价，关注今日日央行议息情况
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-转自：贝壳财经“我什么时候开的月付功能？”前不久，家住北京的陈先生刷到一条来自抖音的还款提醒，让他一头雾水。点开订单详情才想起来：今年3月购买商品时，他无意点了“月付”按钮，“当时我以为是我常用的信用卡支付，没多看，也没有想那么多。”陈先生的遭遇并非个例。在社交平台上，外卖、网购、订票、打车时，这种“捆绑支付”非常普遍，不少用户都碰到过：到了付款那一步，App上跳出来的支付页面
+6月15日，COMEX黄金高开震荡，报收4336.2美元/盎司，跌幅0.36%。国内SHFE金夜盘高开，小幅低走，报收942.90元/克，涨幅1.77%。 地缘政治方面，特朗普宣布美伊协议“已完成”，美伊和平协议签署在即，但双方关于海峡通行费的表态存在明显分歧，美国方面称霍尔木兹海峡将“长期开放且不收取通行费”，但据伊朗媒体称，伊朗仅同意60天免费期，期满后计划收取安全保障、航
 
 ## 正文
 
-转自：贝壳财经“我什么时候开的月付功能？
+6月15日，COMEX黄金高开震荡，报收4336.2美元/盎司，跌幅0.36%。
 
-”前不久，家住北京的陈先生刷到一条来自抖音的还款提醒，让他一头雾水。
+国内SHFE金夜盘高开，小幅低走，报收942.90元/克，涨幅1.77%。
 
-点开订单详情才想起来：今年3月购买商品时，他无意点了“月付”按钮，“当时我以为是我常用的信用卡支付，没多看，也没有想那么多。
+地缘政治方面，特朗普宣布美伊协议“已完成”，美伊和平协议签署在即，但双方关于海峡通行费的表态存在明显分歧，美国方面称霍尔木兹海峡将“长期开放且不收取通行费”，但据伊朗媒体称，伊朗仅同意60天免费期，期满后计划收取安全保障、航行服务等费用。
 
-”陈先生的遭遇并非个例。
+地缘交易降温或继续支撑金价走势。
 
-在社交平台上，外卖、网购、订票、打车时，这种“捆绑支付”非常普遍，不少用户都碰到过：到了付款那一步，App上跳出来的支付页面，本以为是默认支付方式，却在不经意之间开通了分期或类信用卡产品，有“白条”“月付”“先享后付”之类的选项，配上“立减”“优惠”“随机减”等优惠，直到收到账单或还款时才发现，这笔钱不是常规扣款支付，摇身一变成了“你借的”小额贷款。
+央行方面，关注周二日央行议息会议，市场普遍预期日央行将加息25个基点，届时流动性收紧预期，或引起金融市场盘面的异动。
 
-针对这一乱象，监管已经出手。
+美伊谈判取得突破性进展，后期关注霍尔木兹海峡通航问题，对黄金而言，随着油价下行，通胀预期回落，央行政策或不再激进鹰派，相对偏乐观。
 
-就在近期，央行等八部门联合发布的《金融产品网络营销管理办法》（以下简称《管理办法》）正式对外公布，并将于今年9月30日正式实施。
+另外，本周也将举行美联储6月FOMC决议，作为沃什首秀市场关心点在于点阵图如何调整与新主席表述，对黄金市场来说前后或有异动，但市场前期已有定价的情况下，或并不悲观看待。
 
-这份文件的核心条款之一，是禁止支付与信贷捆绑。
+综合来看，短期关注金价能否持续反弹，给市场注入更多信心。
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 05:48 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 05:58 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 05:59 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 05:58 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 06:03 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 05:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 06:07 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 06:03 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 05:59 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 05:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 06:00 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 05:48 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 05:50 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 06:06 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 06:04 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 06:07 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 05:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 06:00 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 05:54 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 06:06 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/25035638.shtml)
-- 2026-06-30 05:44 - [毒液2](https://www.share.kurohicncr.top/Article/details/064772242.shtml)
-- 2026-06-30 06:07 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/86558086.shtml)
-- 2026-06-30 05:50 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/273481393.shtml)
-- 2026-06-30 05:52 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/5661557.shtml)
-- 2026-06-30 05:45 - [明星大侦探第一季](http://www.share.minike.top/Article/details/9679387695.shtml)
-- 2026-06-30 05:50 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/07057391990.shtml)
-- 2026-06-30 05:53 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/82895577.shtml)
-- 2026-06-30 05:56 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/0587683353.shtml)
-- 2026-06-30 06:09 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/5457124930.shtml)
-- 2026-06-30 05:49 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/23430622178.shtml)
-- 2026-06-30 05:50 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/12314.shtml)
-- 2026-06-30 05:59 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/586074138551.shtml)
-- 2026-06-30 06:01 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/2000028.shtml)
-- 2026-06-30 06:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/5652107.shtml)
+- 2026-06-30 06:12 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/940659.shtml)
+- 2026-06-30 06:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/091987520041.shtml)
+- 2026-06-30 05:59 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/699618486.shtml)
+- 2026-06-30 06:08 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/959769618.shtml)
+- 2026-06-30 06:04 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/44461314614.shtml)
+- 2026-06-30 05:48 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/548328482505.shtml)
+- 2026-06-30 06:00 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/6916126.shtml)
+- 2026-06-30 05:51 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/1471931827.shtml)
+- 2026-06-30 06:11 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/62754.shtml)
+- 2026-06-30 06:11 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/79111316690.shtml)
+- 2026-06-30 05:50 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/950806.shtml)
+- 2026-06-30 06:07 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/1821367.shtml)
+- 2026-06-30 06:08 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/003831553030.shtml)
+- 2026-06-30 06:04 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/585873386.shtml)
+- 2026-06-30 06:03 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/70904318.shtml)

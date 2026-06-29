@@ -1,61 +1,51 @@
-# 明日起停牌，威龙股份控股股东筹划股权转让或致控制权变更
+# 美媒：美伊协议签署后，伊朗将可立即开始出售石油
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！威龙股份5月5日晚间公告，公司于4月30日收到公司控股股东星河息壤的通知，星河息壤正在筹划公司股份协议转让事宜，该事项可能导致公司控制权发生变更。 鉴于上述事项正在进行当中，尚存在不确定性，为保证公平信息披露，维护投资者利益，避免造成公司股价异常波动，根据有
+中新网6月17日电 据美国《华尔街日报》16日报道，知情人士透露，在美国与伊朗本周签署谅解备忘录后，美国将允许伊朗立即开始出售石油和燃料，以此向伊朗方面提供经济方面的激励，促使冲突逐步平息。 知情人士称，关于豁免石油销售制裁的条款将在本周谅解备忘录签署后立即生效，针对银行、运输和保险等伊朗石油出口相关行业的制裁也将同时获得豁免。 报道还提到，一艘载有原油的伊朗超级油轮当天离开伊
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网6月17日电 据美国《华尔街日报》16日报道，知情人士透露，在美国与伊朗本周签署谅解备忘录后，美国将允许伊朗立即开始出售石油和燃料，以此向伊朗方面提供经济方面的激励，促使冲突逐步平息。
 
-威龙股份5月5日晚间公告，公司于4月30日收到公司控股股东星河息壤的通知，星河息壤正在筹划公司股份协议转让事宜，该事项可能导致公司控制权发生变更。
+知情人士称，关于豁免石油销售制裁的条款将在本周谅解备忘录签署后立即生效，针对银行、运输和保险等伊朗石油出口相关行业的制裁也将同时获得豁免。
 
-鉴于上述事项正在进行当中，尚存在不确定性，为保证公平信息披露，维护投资者利益，避免造成公司股价异常波动，根据有关规定，经公司申请，公司股票将于5月6日（星期三）开市起停牌，预计停牌时间不超过2个交易日。
+报道还提到，一艘载有原油的伊朗超级油轮当天离开伊朗恰巴哈尔港，穿过美国先前实施封锁的区域后驶离阿曼湾。
 
-停牌期间，公司将根据上述事项进展情况，严格按照有关法律法规的规定和要求履行信息披露义务。
-
-待上述事项确定后，公司将及时发布相关公告并申请公司股票复牌。
-
-根据年报数据，威龙股份2025年营业收入3.63亿元，同比下降18.36%；净利润-6305.96万元。
-
-Wind数据显示，截至4月30日收盘，威龙股份股价报7.45元/股，收盘涨幅为7.19%。
-
-责任编辑：刘万里 SF014
+该油轮没有关闭定位追踪器。
 
 ## 相关推荐
 
-- 2026-06-30 05:49 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 06:07 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 05:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 05:53 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 06:04 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 06:01 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 05:57 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 05:49 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 06:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 05:45 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 06:04 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 05:54 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 06:02 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 06:01 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 05:45 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 05:57 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 06:01 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 06:05 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 06:09 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 05:57 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 06:05 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 06:13 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 06:14 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 06:02 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 06:00 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 06:00 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 06:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 05:50 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:05 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/86852727.shtml)
-- 2026-06-30 06:00 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/22905923197.shtml)
-- 2026-06-30 06:01 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/281743900359.shtml)
-- 2026-06-30 05:42 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/0593037381.shtml)
-- 2026-06-30 06:01 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/26393721566.shtml)
-- 2026-06-30 06:09 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/7918732.shtml)
-- 2026-06-30 06:01 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/322999.shtml)
-- 2026-06-30 06:08 - [起风了](http://www.blog.minike.top/Article/details/990487.shtml)
-- 2026-06-30 05:54 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/064934231644.shtml)
-- 2026-06-30 05:44 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/03273267.shtml)
-- 2026-06-30 06:07 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/96176591.shtml)
-- 2026-06-30 05:48 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/113806303163.shtml)
-- 2026-06-30 05:43 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/45374217.shtml)
-- 2026-06-30 06:04 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/5883127.shtml)
-- 2026-06-30 05:43 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/203519566.shtml)
+- 2026-06-30 06:01 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/636787.shtml)
+- 2026-06-30 05:49 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/417584.shtml)
+- 2026-06-30 05:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/4358241201.shtml)
+- 2026-06-30 05:55 - [沙丘](http://www.share.kurohicncr.top/Article/details/33232368537.shtml)
+- 2026-06-30 06:11 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/2752699.shtml)
+- 2026-06-30 06:01 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/59388462439.shtml)
+- 2026-06-30 05:48 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/961878752.shtml)
+- 2026-06-30 05:48 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/567384.shtml)
+- 2026-06-30 05:50 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/03179.shtml)
+- 2026-06-30 06:03 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/13045235.shtml)
+- 2026-06-30 06:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/557838362552.shtml)
+- 2026-06-30 06:02 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/44952451390.shtml)
+- 2026-06-30 05:57 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/370021.shtml)
+- 2026-06-30 06:08 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/4354575327.shtml)
+- 2026-06-30 05:53 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/3082656.shtml)

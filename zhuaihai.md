@@ -1,58 +1,61 @@
-# 马斯克就推特持股披露案与SEC达成和解 支付150万美元罚款
+# 哈郑直流年内外送电量突破200亿千瓦时
 
-> 更新时间：2026-06-30 06:12:02 UTC+8
+> 更新时间：2026-06-30 06:18:02 UTC+8
 
 ## 摘要
 
-埃隆·马斯克已就美国证券交易委员会提起的民事诉讼达成和解，同意支付150万美元罚款，了结关于其2022年收购推特期间未能及时披露持股的指控。 根据5月4日提交给华盛顿特区联邦法院的和解协议，马斯克名下的一个信托将支付这笔民事罚款。马斯克既未承认存在不当行为，也无需退还其因延迟披露而声称节约的1.5亿美元资金。此前曾要求马斯克退还该笔款项并支付额外罚款，据悉该机构在早期和解提议中
+中新网乌鲁木齐6月17日电 (王殿雄)记者17日从国网新疆电力有限公司获悉，±800千伏哈密至郑州特高压直流输电工程(简称“哈郑直流”)2026年累计外送电量超200亿千瓦时，较去年同期提前8天实现突破200亿千瓦时关口，这条横贯东西的能源大通道输送效能持续提升。 哈郑直流是我国首个额定电压、额定输送功率均为800千伏、800万千瓦的“双八百”特高压直流工程。线路西起新疆哈密，
 
 ## 正文
 
-埃隆·马斯克已就美国证券交易委员会提起的民事诉讼达成和解，同意支付150万美元罚款，了结关于其2022年收购推特期间未能及时披露持股的指控。
+中新网乌鲁木齐6月17日电 (王殿雄)记者17日从国网新疆电力有限公司获悉，±800千伏哈密至郑州特高压直流输电工程(简称“哈郑直流”)2026年累计外送电量超200亿千瓦时，较去年同期提前8天实现突破200亿千瓦时关口，这条横贯东西的能源大通道输送效能持续提升。
 
-根据5月4日提交给华盛顿特区联邦法院的和解协议，马斯克名下的一个信托将支付这笔民事罚款。
+哈郑直流是我国首个额定电压、额定输送功率均为800千伏、800万千瓦的“双八百”特高压直流工程。
 
-马斯克既未承认存在不当行为，也无需退还其因延迟披露而声称节约的1.5亿美元资金。
+线路西起新疆哈密，东至河南郑州，全长2192公里，穿越新疆、甘肃、宁夏、陕西、山西、河南六省区，也是国家“疆电外送”战略首个建成投运的特高压直流项目。
 
-此前曾要求马斯克退还该笔款项并支付额外罚款，据悉该机构在早期和解提议中一度要求2亿美元。
+工程自2014年投运以来，持续将新疆富余电力送往中原地区，截至目前总外送电量已超4691.83亿千瓦时，并且连续七年年外送电量稳定保持在400亿千瓦时以上。
 
-在2025年1月提起的诉讼中指出，马斯克在2022年3月14日持有推特股份超过5%的门槛，但直至4月4日才披露其持股已达9.2%，延迟了11天。
+今年以来，哈郑直流始终保持平稳高效运行状态，日均外送电量1.23亿千瓦时，单日最大外送电量达1.46亿千瓦时，通道大功率输电优势充分显现。
 
-这期间，马斯克得以以较低价格购买了价值超过5亿美元的股票，而推特股价在他披露持股当天大涨27%。
+随着夏季用电高峰临近，保供电任务逐步加重。
 
-马斯克律师亚历克斯·斯皮罗发表声明称：“马斯克先生现在已经了结了与推特收购案中迟交表格相关的所有问题，正如我们从一开始所说的那样。
+国网新疆电力提前部署、全面启动迎峰度夏运维保障工作，全力守护这条千里输电大动脉安全稳定运行。
 
-” 此次和解正值在特朗普政府领导下调整执法优先事项之际。
+运维团队在入夏前完成全站百余项设备缺陷治理、散热系统升级及防汛隐患排查，针对高温高负荷工况下易出现问题的关键设备，建立专项监护机制。
 
 ## 相关推荐
 
-- 2026-06-30 06:07 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 05:57 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 05:49 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 05:42 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 05:58 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 05:46 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 06:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 06:04 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 06:09 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 05:58 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 05:47 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 05:58 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 06:04 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 05:53 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 05:48 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 05:59 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 06:03 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 06:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 06:01 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 06:10 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 06:01 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 05:54 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 05:58 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 06:15 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 05:51 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 05:56 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 06:09 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:01 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/752950.shtml)
-- 2026-06-30 06:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/375588.shtml)
-- 2026-06-30 05:55 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/8177973283.shtml)
-- 2026-06-30 06:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/3081273.shtml)
-- 2026-06-30 05:43 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/9729374284.shtml)
-- 2026-06-30 05:56 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/7707057908.shtml)
-- 2026-06-30 05:42 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/40059123.shtml)
-- 2026-06-30 06:01 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/01013843.shtml)
-- 2026-06-30 05:51 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/59496591023.shtml)
-- 2026-06-30 05:46 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/12038427.shtml)
-- 2026-06-30 05:49 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/801895.shtml)
-- 2026-06-30 05:49 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/5160330270.shtml)
-- 2026-06-30 06:11 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/070434417.shtml)
-- 2026-06-30 05:49 - [沙丘](http://www.blog.minike.top/Article/details/70086.shtml)
-- 2026-06-30 06:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/885201.shtml)
+- 2026-06-30 06:01 - [起风了](https://www.blog.minike.top/Article/details/262849491013.shtml)
+- 2026-06-30 05:52 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/8758998.shtml)
+- 2026-06-30 06:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/928305843.shtml)
+- 2026-06-30 06:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/19432.shtml)
+- 2026-06-30 05:57 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/496632816361.shtml)
+- 2026-06-30 05:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/45386631073.shtml)
+- 2026-06-30 06:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/401707136.shtml)
+- 2026-06-30 06:02 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/2204938785.shtml)
+- 2026-06-30 05:55 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/01388629135.shtml)
+- 2026-06-30 05:56 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/25402.shtml)
+- 2026-06-30 06:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/742957084.shtml)
+- 2026-06-30 06:09 - [青春环游记第三季](http://www.blog.minike.top/Article/details/183813940.shtml)
+- 2026-06-30 06:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/73070333.shtml)
+- 2026-06-30 05:48 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/9891822885.shtml)
+- 2026-06-30 06:00 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/065714647.shtml)
