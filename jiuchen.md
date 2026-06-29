@@ -1,56 +1,60 @@
-# “我的工作经验被开发成技能包，侵权吗”
+# 中国央行连续17个月增持黄金
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-编者按 人工智能技术快速发展，为科技进步按下加速键，也深刻地影响着劳动场景与就业形态。数字分身与人机协同重新定义岗位，却也让劳动关系双方的权责边界变得模糊；企业借AI降本增效无可厚非，但“AI替岗”引发调岗与解雇争议；算法管理精准高效，却无形中侵蚀着“工作”与“休息”的界限，劳动者休息权等合法权益保障面临新挑战…… 今日起，本版推出系列报道《AI浪潮下的劳动者权益保护观察》，聚
+中新社北京4月7日电 (陶思阅)中国央行7日发布的数据显示，3月末黄金储备报7438万盎司，较2月末的7422万盎司增加16万盎司。此为中国央行连续第17个月增持黄金。 国家金融与发展实验室特聘高级研究员庞溟接受中新社采访时表示，过去一年多来，全球央行普遍提高黄金配置比例，以对冲美元资产波动、分散地缘政治风险。中国央行连续17个月增持黄金，体现了在外汇储备结构中提升“非信用资产
 
 ## 正文
 
-编者按 人工智能技术快速发展，为科技进步按下加速键，也深刻地影响着劳动场景与就业形态。
+中新社北京4月7日电 (陶思阅)中国央行7日发布的数据显示，3月末黄金储备报7438万盎司，较2月末的7422万盎司增加16万盎司。
 
-数字分身与人机协同重新定义岗位，却也让劳动关系双方的权责边界变得模糊；企业借AI降本增效无可厚非，但“AI替岗”引发调岗与解雇争议；算法管理精准高效，却无形中侵蚀着“工作”与“休息”的界限，劳动者休息权等合法权益保障面临新挑战…… 今日起，本版推出系列报道《AI浪潮下的劳动者权益保护观察》，聚焦AI时代劳动用工领域新情况，探寻技术创新与劳动者权益保护的平衡路径，以期为规范用工秩序、守护劳动者权益提供新的思考。
+此为中国央行连续第17个月增持黄金。
 
-“你好，我是已经离职员工XX的数字分身，你可以随时向我提问，我会根据我在职期间的文档对你回复，并回答你的问题。
+国家金融与发展实验室特聘高级研究员庞溟接受中新社采访时表示，过去一年多来，全球央行普遍提高黄金配置比例，以对冲美元资产波动、分散地缘政治风险。
 
-”不久前，一张聊天截图在网上传开。
+中国央行连续17个月增持黄金，体现了在外汇储备结构中提升“非信用资产”比重的明确取向，也反映出在全球货币体系调整加速的背景下，中国央行更重视储备资产的安全性与长期稳定性。
 
-山东一家游戏传媒公司尝试将离职员工复刻成AI数字员工，让数字员工继续干活，引发关注和讨论。
+庞溟认为，在全球央行纷纷“屯金”的背景下，中国央行低量、多次、小幅的补仓节奏，更易于平滑市场波动、把握成本窗口、降低一次性大批量购入对金价的冲击。
 
-胡宇轩在北京一家互联网公司做运营，2026年年初，他所在的公司要求核心部门员工全员“养龙虾”——部署并使用AI智能体。
+此举既提前对冲了全球宏观风险，又可以在关键节点提供“官方预期”信号，持续为市场预期提供“稳定器”功效。
 
-按照公司安排，员工需要把自己的工作痕迹和经验不断“投喂”给“龙虾”，训练出可以模仿自身工作模式的AI机器人。
+展望未来，瑞银在近期研报中指出，官方部门购金的结构性趋势并未改变，全球央行仍将是黄金净买家，但购金量会逐渐减少。
 
-随着“龙虾”等AI智能体的兴起，“数字员工”“赛博同事”“机器人老板”等新兴劳动主体不断涌现，在提升工作效率的同时，也对AI浪潮下的劳动者权益保障提出了新课题。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 02:42 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 02:30 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 02:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 02:47 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 02:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 02:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 02:26 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 02:28 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 02:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 02:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 02:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 02:32 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 02:36 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 02:37 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 02:53 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 02:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 02:31 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 02:51 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 02:58 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 02:39 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 02:56 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 02:42 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 02:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/8848683058.shtml)
-- 2026-06-30 02:31 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/1315797.shtml)
-- 2026-06-30 02:33 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/97396278687.shtml)
-- 2026-06-30 02:26 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/6333996030.shtml)
-- 2026-06-30 02:33 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/00957.shtml)
-- 2026-06-30 02:49 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/47545088626.shtml)
-- 2026-06-30 02:53 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/70457906146.shtml)
-- 2026-06-30 02:31 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/7048564.shtml)
-- 2026-06-30 02:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/7565524334.shtml)
-- 2026-06-30 02:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/08704943920.shtml)
-- 2026-06-30 02:46 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/77887255661.shtml)
-- 2026-06-30 02:29 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/547341474616.shtml)
-- 2026-06-30 02:43 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/4125154059.shtml)
-- 2026-06-30 02:31 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/8966126.shtml)
-- 2026-06-30 02:30 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/711439547005.shtml)
+- 2026-06-30 02:54 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/71733672922.shtml)
+- 2026-06-30 02:42 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/7548096764.shtml)
+- 2026-06-30 02:42 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/78636482.shtml)
+- 2026-06-30 02:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/032437493677.shtml)
+- 2026-06-30 02:42 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/7342976.shtml)
+- 2026-06-30 02:34 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/008783071904.shtml)
+- 2026-06-30 02:58 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/136676.shtml)
+- 2026-06-30 02:48 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/607053.shtml)
+- 2026-06-30 02:40 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/2543989778.shtml)
+- 2026-06-30 02:50 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/332617540964.shtml)
+- 2026-06-30 02:52 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/530151034168.shtml)
+- 2026-06-30 02:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/260984830303.shtml)
+- 2026-06-30 02:46 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/16477.shtml)
+- 2026-06-30 02:52 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/06026989632.shtml)
+- 2026-06-30 02:46 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/9368216390.shtml)

@@ -1,56 +1,60 @@
-# ETF放量突破上市高点！买点信号显现？澜起科技涨超10%，华宝基金科创人工智能ETF盘中拉升2.2%续创新高
+# 中信建投：油价持续上涨的影响解读
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-接着奏乐接着舞！今日（5月21日）A股主要指数悉数上涨，科创50、科创综指等科创板表现显著居前，同时具备科创板+AI赛道双重优势的科创人工智能ETF华宝（589520）场内价格盘中涨超2.2%，现涨1.95%，续创历史新高！ 值得关注的是，昨日，该ETF放量突破上市高点，或为资金买点信号，事实上，该ETF昨天单日吸金230万元，或已有资金逐步进场布局！ 成份股方面，星环科技-U
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中信建投证券研究 受中东冲突升级预期影响，国际油价大幅走高。 中信建投宏观研究首席周君芝团队、化工研究首席杨晖团队、全球能源与运输首席韩军团队、汽车首席程似骐团队推出【油价持续上涨的影响】系列研究： 乘用车底部回升在即，高油价带来海外需求戴维斯双击 油价持续上行，市场风偏下行，寻找错杀品种的受益机会
 
 ## 正文
 
-接着奏乐接着舞！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-今日（5月21日）A股主要指数悉数上涨，科创50、科创综指等科创板表现显著居前，同时具备科创板+AI赛道双重优势的科创人工智能ETF华宝（589520）场内价格盘中涨超2.2%，现涨1.95%，续创历史新高！
+来源：中信建投证券研究 受中东冲突升级预期影响，国际油价大幅走高。
 
-值得关注的是，昨日，该ETF放量突破上市高点，或为资金买点信号，事实上，该ETF昨天单日吸金230万元，或已有资金逐步进场布局！
+中信建投宏观研究首席周君芝团队、化工研究首席杨晖团队、全球能源与运输首席韩军团队、汽车首席程似骐团队推出【油价持续上涨的影响】系列研究： 乘用车底部回升在即，高油价带来海外需求戴维斯双击 油价持续上行，市场风偏下行，寻找错杀品种的受益机会 油价推升价格价差，库存快速去化 油价飙升重塑资产定价 国际原油价格震荡上行，石油巨头重视上游勘探 01 乘用车底部回升在即，高油价带来海外需求戴维斯双击 当前时点，3月上半月乘用车批发64.8万辆（同比-20%、环比+36%），2月销量底部基本确认，3月景气度环比改善趋势明确。
 
-成份股方面，星环科技-U领涨超13%，澜起科技涨逾10%，道通科技、奥比中光-W、金山办公、乐鑫科技等个股跟涨。
+商用车出口维持高增，重卡Q1有望实现“开门红”。
 
-在AI热潮推动下，半导体方向正在经历一轮罕见的大行情，即便经历大幅上涨，著名经济学家洪灝认为，存储半导体未来两年的产能或已全部卖完，半导体的盈利至少未来两年无法证伪，半导体行情还没有走完。
+物理AI板块迎来密集催化：英伟达GTC发布Alpamayo1.5自动驾驶模型、特斯拉Optimus V3定型量产在即、Cybercab 4月启动规模量产、FSD入华冲刺落地，叠加小鹏二代VLA/文远知行Robotaxi出海等进展，当前建议积极布局科技主线。
 
-而国泰海通证券认为，AI Agent将开启下一轮产业链通胀周期。
+当前时点，3月上半月乘用车批发64.8万辆（同比-20%、环比+36%），2月销量底部基本确认，3月景气度环比改善趋势明确。
 
-Agent落地，使Token消耗量实现指数级跃升，供需矛盾将进一步加剧，预计引发AI全产业链新一轮资源争夺与价格上行。
+商用车出口维持高增，重卡Q 1有望实现“开门红”。
 
-业绩层面，权重股寒武纪一季度营收28.85亿元，同比大增159.56%，归母净利润10.13亿元，同比飙升185.04%，双双创下历史最优纪录。
+物理AI板块迎来密集催化：英伟达GTC发布Alpamayo1.5自动驾驶模型、特斯拉Optimus V3定型量产在即、Cybercab 4月启动规模量产、FSD入华冲刺落地，叠加小鹏二代VLA/文远知行Robotaxi出海等进展，当前建议积极布局科技主线。
 
 ## 相关推荐
 
-- 2026-06-30 02:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 02:31 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 02:25 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 02:48 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 02:46 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 02:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 02:40 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 02:34 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 02:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 02:36 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 02:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 02:58 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 02:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 02:39 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 02:53 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 02:43 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 02:54 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 02:38 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 02:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 02:55 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 02:34 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 02:52 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 02:34 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 02:39 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:36 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/615042.shtml)
-- 2026-06-30 02:53 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/0167856818.shtml)
-- 2026-06-30 02:52 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/999992234.shtml)
-- 2026-06-30 02:52 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/01354477553.shtml)
-- 2026-06-30 02:44 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/2132150.shtml)
-- 2026-06-30 02:35 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/194742.shtml)
-- 2026-06-30 02:51 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/5181354321.shtml)
-- 2026-06-30 02:29 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/57388.shtml)
-- 2026-06-30 02:50 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/40220716403.shtml)
-- 2026-06-30 02:34 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/91770.shtml)
-- 2026-06-30 02:53 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/51412942.shtml)
-- 2026-06-30 02:33 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/143245981533.shtml)
-- 2026-06-30 02:42 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/86174836784.shtml)
-- 2026-06-30 02:32 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/958258.shtml)
-- 2026-06-30 02:31 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/77478770186.shtml)
+- 2026-06-30 02:45 - [这一刀 会很帅](https://www.share.minike.top/Article/details/18413502238.shtml)
+- 2026-06-30 02:45 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/467900.shtml)
+- 2026-06-30 02:40 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/488820.shtml)
+- 2026-06-30 02:48 - [女心理师](http://www.share.minike.top/Article/details/6610875520.shtml)
+- 2026-06-30 02:54 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/508554936.shtml)
+- 2026-06-30 02:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/794818582251.shtml)
+- 2026-06-30 02:33 - [巴西vs日本](http://www.share.minike.top/Article/details/30979832.shtml)
+- 2026-06-30 02:45 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/462528.shtml)
+- 2026-06-30 02:52 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/7417969.shtml)
+- 2026-06-30 02:50 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/90467443.shtml)
+- 2026-06-30 02:54 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/27753829.shtml)
+- 2026-06-30 02:46 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/22410028951.shtml)
+- 2026-06-30 02:38 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/2981646.shtml)
+- 2026-06-30 02:32 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/006732.shtml)
+- 2026-06-30 02:57 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/88141128.shtml)

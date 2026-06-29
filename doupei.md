@@ -1,59 +1,56 @@
-# 印度总理赠礼引发资本市场乌龙 一软件企业股价异动上涨
+# 开盘：美股周三大幅高开道指涨1300点 美伊停火协议提振风险偏好
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-受印度总理纳伦德拉·莫迪向意大利总理乔治娅·梅洛尼赠送特定品牌糖果一事发酵影响，印度资本市场出现一起乌龙交易事件。因部分投资者混淆企业名称，印度小型软件企业Parle Industries Ltd遭遇资金盲目买入，其股价单日异常上涨5%，创下近两个月以来的最大涨幅。 据悉，事件直接起因于梅洛尼日前在社交媒体发布的一段视频。视频画面显示，莫迪向其赠送了一包名为“Melody”的焦
+北京时间4月8日晚，美股周三大幅高开。道指期货飙升1300点。原油期货价格暴跌。美伊达成两周停火协议提振了风险偏好，交易员争相买入股票。 道指涨1312.35点，涨幅为2.82%，报47896.81点；标普500指数涨173.69点，涨幅为2.62%，报6790.54点；纳指涨762.75点，涨幅为3.46%，报22780.60点。 美国总统特朗普7日宣布，同意暂停对伊朗的轰炸
 
 ## 正文
 
-受印度总理纳伦德拉·莫迪向意大利总理乔治娅·梅洛尼赠送特定品牌糖果一事发酵影响，印度资本市场出现一起乌龙交易事件。
+北京时间4月8日晚，美股周三大幅高开。
 
-因部分投资者混淆企业名称，印度小型软件企业Parle Industries Ltd遭遇资金盲目买入，其股价单日异常上涨5%，创下近两个月以来的最大涨幅。
+道指期货飙升1300点。
 
-据悉，事件直接起因于梅洛尼日前在社交媒体发布的一段视频。
+原油期货价格暴跌。
 
-视频画面显示，莫迪向其赠送了一包名为“Melody”的焦糖太妃糖。
+美伊达成两周停火协议提振了风险偏好，交易员争相买入股票。
 
-该互动引发网络关注后，部分印度投资者误将从事软件业务的上市企业Parle Industries Ltd，等同于该糖果及知名饼干品牌的实际生产商Parle Products Pvt，进而引发了此次脱离企业基本面的异动上涨。
+道指涨1312.35点，涨幅为2.82%，报47896.81点；标普500指数涨173.69点，涨幅为2.62%，报6790.54点；纳指涨762.75点，涨幅为3.46%，报22780.60点。
 
-针对此次市场炒作，相关金融分析人士指出，这显然是一起因身份错认导致的非理性交易行为。
+美国总统特朗普7日宣布，同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡。
 
-Kejriwal研究与投资服务公司创始人阿伦·凯杰里瓦尔（Arun Kejriwal）强调，当前印度资本市场中散户参与度持续攀升，中小投资者已成为一股重要力量，但由于缺乏专业的甄别能力，大量投资者仍极易受碎片化或错误信息误导，进而盲目跟风引发市场波动。
+他同时表示，“这将是一次双向停火。
 
-责任编辑：龙运翔
+” 美东时间4月7日晚6时30分许，特朗普通过社交媒体宣布了上述消息。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 02:49 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 02:33 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 02:25 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 02:34 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 02:49 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 02:53 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 02:53 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 02:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 02:32 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 02:37 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 02:52 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 02:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 02:57 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 02:36 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 02:33 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 02:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 02:32 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 02:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 02:34 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 02:54 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 02:36 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 02:42 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:30 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/87882663393.shtml)
-- 2026-06-30 02:50 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/0847672512.shtml)
-- 2026-06-30 02:25 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/380358548396.shtml)
-- 2026-06-30 02:41 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/595382.shtml)
-- 2026-06-30 02:51 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/9210916089.shtml)
-- 2026-06-30 02:45 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/3984877790.shtml)
-- 2026-06-30 02:38 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/78143679.shtml)
-- 2026-06-30 02:44 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/595977.shtml)
-- 2026-06-30 02:46 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/964696511805.shtml)
-- 2026-06-30 02:47 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/41014016.shtml)
-- 2026-06-30 02:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/980031.shtml)
-- 2026-06-30 02:46 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/279030142.shtml)
-- 2026-06-30 02:35 - [千与千寻](https://www.share.kurohicncr.top/Article/details/51804110.shtml)
-- 2026-06-30 02:45 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/3298488.shtml)
-- 2026-06-30 02:41 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/20037.shtml)
+- 2026-06-30 02:53 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/036340.shtml)
+- 2026-06-30 02:53 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/447353350.shtml)
+- 2026-06-30 02:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/5142495.shtml)
+- 2026-06-30 02:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/2538793.shtml)
+- 2026-06-30 02:47 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/742486129745.shtml)
+- 2026-06-30 02:36 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/8642507245.shtml)
+- 2026-06-30 02:37 - [金刚川](https://www.blog.minike.top/Article/details/161582.shtml)
+- 2026-06-30 02:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/48197469.shtml)
+- 2026-06-30 02:35 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/287157830125.shtml)
+- 2026-06-30 02:43 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/98130533.shtml)
+- 2026-06-30 02:31 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/03918089802.shtml)
+- 2026-06-30 02:53 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/23714.shtml)
+- 2026-06-30 02:58 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/258645.shtml)
+- 2026-06-30 02:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/6080872.shtml)
+- 2026-06-30 02:31 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/00174.shtml)

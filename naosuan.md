@@ -1,45 +1,56 @@
-# 夯爆了！荣获“知乎2025年度新知答主”
+# “强基计划”报名启动，4月完成报名！
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-5月16日以“人人都是创作者 新知从哪里来”为主题的知乎第十二届新知青年大会在北京举行中国能建知乎账号作为唯一央企账号荣获“2025年度新知答主”荣誉新知答主是知乎根据过去一年创作内容及表现综合评选而出的年度优秀创作者荣誉头衔2025年围绕公司“2+9”业务布局尤其是能源电力、水利两大核心业务领域中国能建知乎帐号回答多次登上知乎热榜深受知乎用户喜爱被知乎评为电力、能源、核电站话
+随着试点高校陆续发布“强基计划”招生简章，备受考生与家长关注的2026年“强基计划”招生工作即将启动，网上报名将于4月全面展开。“强基计划”自2020年启动实施以来，持续推进基础学科拔尖创新人才选拔培养机制的建立健全，每年数千名学子通过强基计划进入心仪高校。哪些考生适合报考强基计划？今年报考流程是怎样的？报考强基计划是否影响其他志愿填报？以下为考生梳理相关要点。4月集中完成报名
 
 ## 正文
 
-5月16日以“人人都是创作者 新知从哪里来”为主题的知乎第十二届新知青年大会在北京举行中国能建知乎账号作为唯一央企账号荣获“2025年度新知答主”荣誉新知答主是知乎根据过去一年创作内容及表现综合评选而出的年度优秀创作者荣誉头衔2025年围绕公司“2+9”业务布局尤其是能源电力、水利两大核心业务领域中国能建知乎帐号回答多次登上知乎热榜深受知乎用户喜爱被知乎评为电力、能源、核电站话题领域优秀答主也是知乎2025年度唯一一家获得新知答主的政务号延展阅读能源，是“国之大者”中国能建作为能源电力水利基础设施建设的国家队与主力军荣获6项国家科技进步特等奖推动并见证了我国能源电力水利事业发展从赶跑并跑到世界领先的历史性跨越承建了三峡工程、西气东输、西电东送、三代核电等一批享誉全球的重大超级工程在“一带一路”打造标志性项目让中国标准、中国方案惠及全球从江河安澜的水利
+随着试点高校陆续发布“强基计划”招生简章，备受考生与家长关注的2026年“强基计划”招生工作即将启动，网上报名将于4月全面展开。
+
+“强基计划”自2020年启动实施以来，持续推进基础学科拔尖创新人才选拔培养机制的建立健全，每年数千名学子通过强基计划进入心仪高校。
+
+哪些考生适合报考强基计划？
+
+今年报考流程是怎样的？
+
+报考强基计划是否影响其他志愿填报？
+
+以下为考生梳理相关要点。
+
+4月集中完成报名 需要注意的是，2026年招生简章发布与网上报名均集中在4月进行，以下为关键时间流程： 4月，简章公布，网上报名。
+
+6月，考生参加统一高考。
 
 ## 相关推荐
 
-- 2026-06-30 02:31 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 02:41 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 02:49 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 02:32 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 02:30 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 02:27 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 02:41 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 02:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 02:47 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 02:28 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 02:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 02:46 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 02:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 02:35 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 02:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 02:47 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 02:56 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 02:34 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 02:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 02:54 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 02:39 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 02:30 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 02:43 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:43 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/126376661.shtml)
-- 2026-06-30 02:44 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/533792.shtml)
-- 2026-06-30 02:27 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/9904504593.shtml)
-- 2026-06-30 02:43 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/18713851267.shtml)
-- 2026-06-30 02:24 - [沙丘](https://www.share.kurohicncr.top/Article/details/18436701.shtml)
-- 2026-06-30 02:28 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/6404099333.shtml)
-- 2026-06-30 02:48 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/0884828846.shtml)
-- 2026-06-30 02:40 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/42928897868.shtml)
-- 2026-06-30 02:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/506418906330.shtml)
-- 2026-06-30 02:24 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/854713.shtml)
-- 2026-06-30 02:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/21251.shtml)
-- 2026-06-30 02:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/67185922.shtml)
-- 2026-06-30 02:37 - [一见倾心](https://www.share.kurohicncr.top/Article/details/771780764.shtml)
-- 2026-06-30 02:39 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.kurohicncr.top/Article/details/8596156974.shtml)
-- 2026-06-30 02:46 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/9583137138.shtml)
+- 2026-06-30 02:41 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/59861881.shtml)
+- 2026-06-30 02:38 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/36182576915.shtml)
+- 2026-06-30 02:58 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/4784977.shtml)
+- 2026-06-30 02:48 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/88763504.shtml)
+- 2026-06-30 02:34 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/58977537.shtml)
+- 2026-06-30 02:30 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/278711344941.shtml)
+- 2026-06-30 02:44 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/180848261853.shtml)
+- 2026-06-30 02:40 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/518113.shtml)
+- 2026-06-30 02:56 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/50550.shtml)
+- 2026-06-30 02:37 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/2804254.shtml)
+- 2026-06-30 02:41 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/05249374.shtml)
+- 2026-06-30 02:58 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/4963889.shtml)
+- 2026-06-30 02:55 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/548263346.shtml)
+- 2026-06-30 02:48 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/89803747912.shtml)
+- 2026-06-30 02:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/440861549927.shtml)

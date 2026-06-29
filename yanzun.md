@@ -1,61 +1,44 @@
-# 李鸿忠率全国人大代表团访问斯洛伐克
+# 美光科技因人工智能内存效率担忧而下跌
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-新华社布拉迪斯拉发5月20日电 中共中央政治局委员、全国人大常委会副委员长李鸿忠5月18日至20日率全国人大代表团访问斯洛伐克。在布拉迪斯拉发，李鸿忠分别会见斯洛伐克总统佩列格里尼、总理菲佐、国民议会议长莱希，并同国民议会副议长加什帕尔举行会谈。 李鸿忠表示，在习近平主席同斯洛伐克领导人战略引领下，中斯战略伙伴关系发展进入新阶段。双方应持续巩固政治互信，深化传统友谊，坚定支持彼
+由于谷歌“TurboQuant”压缩技术的突破引发市场对未来内存需求的担忧，美光科技下跌约10%。责任编辑：张俊 SF065
 
 ## 正文
 
-新华社布拉迪斯拉发5月20日电 中共中央政治局委员、全国人大常委会副委员长李鸿忠5月18日至20日率全国人大代表团访问斯洛伐克。
+由于谷歌“TurboQuant”压缩技术的突破引发市场对未来内存需求的担忧，美光科技下跌约10%。
 
-在布拉迪斯拉发，李鸿忠分别会见斯洛伐克总统佩列格里尼、总理菲佐、国民议会议长莱希，并同国民议会副议长加什帕尔举行会谈。
-
-李鸿忠表示，在习近平主席同斯洛伐克领导人战略引领下，中斯战略伙伴关系发展进入新阶段。
-
-双方应持续巩固政治互信，深化传统友谊，坚定支持彼此核心利益和重大关切，不断夯实两国关系基石。
-
-今年是中国“十五五”开局之年，中国经济势头良好。
-
-中方将以高质量发展同世界各国分享发展机遇，愿同斯方加强发展战略对接，深化和拓展贸易投资、新能源、数字经济等领域务实合作，推进高质量共建“一带一路”和中国－中东欧国家合作，密切人文交流，更好造福两国人民。
-
-中国全国人大愿同斯国民议会加强各层级各领域交流，发挥立法机构职能作用，助力中斯关系取得更大发展。
-
-斯方表示高度重视中国大国地位和斯中友好关系，坚定奉行一个中国政策，愿同中方密切经贸、人文等领域交流合作，欢迎更多中国企业到斯投资兴业，加强立法机构交往，推动斯中战略伙伴关系更具活力。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 02:27 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 02:41 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 02:48 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 02:39 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 02:30 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 02:44 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 02:25 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 02:51 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 02:40 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 02:47 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 02:37 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 02:24 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 02:27 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 02:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 02:44 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 02:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 02:43 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 02:51 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 02:39 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 02:51 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 02:36 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 02:39 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 02:42 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 02:59 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 02:56 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [沙丘](https://www.blog.kurohicncr.top/Article/details/0395181.shtml)
-- 2026-06-30 02:38 - [扫黑风暴](http://www.blog.minike.top/Article/details/9381531.shtml)
-- 2026-06-30 02:44 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/58913137.shtml)
-- 2026-06-30 02:44 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/2484892093.shtml)
-- 2026-06-30 02:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/19086712.shtml)
-- 2026-06-30 02:41 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/1960546667.shtml)
-- 2026-06-30 02:45 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/93593857.shtml)
-- 2026-06-30 02:26 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/348176002.shtml)
-- 2026-06-30 02:49 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/9005797529.shtml)
-- 2026-06-30 02:53 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/691945.shtml)
-- 2026-06-30 02:25 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/27382265.shtml)
-- 2026-06-30 02:33 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/603359.shtml)
-- 2026-06-30 02:30 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/37001.shtml)
-- 2026-06-30 02:34 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/942320.shtml)
-- 2026-06-30 02:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/505085.shtml)
+- 2026-06-30 02:47 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/681557.shtml)
+- 2026-06-30 02:59 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/61133752.shtml)
+- 2026-06-30 02:56 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/831093206868.shtml)
+- 2026-06-30 02:53 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/93029.shtml)
+- 2026-06-30 02:42 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/567630.shtml)
+- 2026-06-30 02:52 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/03315788.shtml)
+- 2026-06-30 02:31 - [扬名立万](https://www.blog.minike.top/Article/details/6923764551.shtml)
+- 2026-06-30 02:54 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/85859327393.shtml)
+- 2026-06-30 02:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/87345327.shtml)
+- 2026-06-30 02:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/1175141.shtml)
+- 2026-06-30 02:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/288006146.shtml)
+- 2026-06-30 02:48 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/383085.shtml)
+- 2026-06-30 02:54 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/72473010.shtml)
+- 2026-06-30 02:52 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/51793678373.shtml)
+- 2026-06-30 02:47 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/8547839805.shtml)

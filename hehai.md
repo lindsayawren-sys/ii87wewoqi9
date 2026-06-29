@@ -1,57 +1,57 @@
-# 日媒：为军事演习 美军计划在日部署“堤丰”中导系统
+# 央行货币政策委员会第一季度例会提出 加强货币政策调控 维护金融市场稳定运行
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网5月21日电 据日本共同社5月20日援引消息人士报道称，美军计划6月至9月在日本鹿儿岛县鹿屋航空基地部署“堤丰”中导系统以及高机动性火箭炮系统(海马斯)，用于美日联合演习。 据报道，日本自卫队和美军计划于6月下旬至7月初举行“勇敢之盾”联合演习，并于9月举行“东方之盾”联合演习。演习结束后，部署在当地的“堤丰”中导系统将从鹿屋航空基地撤离，转移至驻日美军基地。 据此前报道
+中国人民银行3月31日消息，日前召开的央行货币政策委员会2026年第一季度例会提出，发挥增量政策和存量政策集成效应，综合运用多种工具，加强货币政策调控；维护金融市场稳定运行。 会议分析了国内外经济金融形势，认为当前外部环境变化影响加深，世界经济动能疲弱，地缘冲突和经贸冲突多发频发，主要经济体经济表现有所分化，通胀走势和货币政策调整存在不确定性。我国经济运行总体平稳、稳中有进，高
 
 ## 正文
 
-中新网5月21日电 据日本共同社5月20日援引消息人士报道称，美军计划6月至9月在日本鹿儿岛县鹿屋航空基地部署“堤丰”中导系统以及高机动性火箭炮系统(海马斯)，用于美日联合演习。
+中国人民银行3月31日消息，日前召开的央行货币政策委员会2026年第一季度例会提出，发挥增量政策和存量政策集成效应，综合运用多种工具，加强货币政策调控；维护金融市场稳定运行。
 
-据报道，日本自卫队和美军计划于6月下旬至7月初举行“勇敢之盾”联合演习，并于9月举行“东方之盾”联合演习。
+会议分析了国内外经济金融形势，认为当前外部环境变化影响加深，世界经济动能疲弱，地缘冲突和经贸冲突多发频发，主要经济体经济表现有所分化，通胀走势和货币政策调整存在不确定性。
 
-演习结束后，部署在当地的“堤丰”中导系统将从鹿屋航空基地撤离，转移至驻日美军基地。
+我国经济运行总体平稳、稳中有进，高质量发展取得新成效，但仍面临供强需弱、外部冲击等问题和挑战。
 
-据此前报道，日本自卫队和美军于2025年9月11日至25日在日本九州等地举行“坚毅之龙”大规模联合演习，其间美军在日本首次部署“堤丰”中导系统。
+要继续实施适度宽松的货币政策，加大逆周期和跨周期调节力度，更好发挥货币政策工具的总量和结构双重功能，加强货币财政政策协同配合，促进经济稳定增长和物价合理回升。
 
-日本市民团体就此提交请求书，要求日本政府敦促美军撤走相关装备，担心这一以联合演习之名进行的临时部署成为常态。
+会议研究了下阶段货币政策主要思路，建议发挥增量政策和存量政策集成效应，综合运用多种工具，加强货币政策调控，根据国内外经济金融形势和金融市场运行情况，把握好政策实施的力度、节奏和时机。
 
-相关装备最终于2025年11月撤离。
+保持流动性充裕，使社会融资规模、货币供应量增长同经济增长、价格总水平预期目标相匹配。
+
+强化央行政策利率引导，完善市场化利率形成传导机制，发挥市场利率定价自律机制作用，加强利率政策执行和监督。
+
+规范信贷市场经营行为，降低融资中间费用，促进社会综合融资成本低位运行。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 02:46 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 02:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 02:26 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 02:41 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 02:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 02:46 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 02:52 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 02:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 02:45 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 02:49 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 02:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 02:36 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 02:31 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 02:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 02:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 02:40 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 02:58 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 02:30 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 02:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 02:53 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 02:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 02:42 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 02:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 02:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 02:56 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:43 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/164973698.shtml)
-- 2026-06-30 02:31 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/584738322868.shtml)
-- 2026-06-30 02:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/436564003.shtml)
-- 2026-06-30 02:36 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/87240983420.shtml)
-- 2026-06-30 02:52 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/0794146229.shtml)
-- 2026-06-30 02:46 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/159776363629.shtml)
-- 2026-06-30 02:25 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/313795983023.shtml)
-- 2026-06-30 02:31 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/6091304.shtml)
-- 2026-06-30 02:31 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/3626283.shtml)
-- 2026-06-30 02:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/87385872814.shtml)
-- 2026-06-30 02:24 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/544641.shtml)
-- 2026-06-30 02:28 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/084680331.shtml)
-- 2026-06-30 02:28 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/8788899824.shtml)
-- 2026-06-30 02:47 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/9900868044.shtml)
-- 2026-06-30 02:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/00245671727.shtml)
+- 2026-06-30 02:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/771891.shtml)
+- 2026-06-30 02:33 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/7926255552.shtml)
+- 2026-06-30 02:57 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/942905.shtml)
+- 2026-06-30 02:31 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/21914884.shtml)
+- 2026-06-30 02:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/812499819.shtml)
+- 2026-06-30 02:36 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/7347562340.shtml)
+- 2026-06-30 02:36 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/238562775432.shtml)
+- 2026-06-30 02:56 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/790996.shtml)
+- 2026-06-30 02:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/76295354690.shtml)
+- 2026-06-30 02:43 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/09798051.shtml)
+- 2026-06-30 02:37 - [斗破苍穹](http://www.blog.minike.top/Article/details/72939886041.shtml)
+- 2026-06-30 02:45 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/05821989638.shtml)
+- 2026-06-30 02:33 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/60912888596.shtml)
+- 2026-06-30 02:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/186916.shtml)
+- 2026-06-30 02:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/69486542.shtml)

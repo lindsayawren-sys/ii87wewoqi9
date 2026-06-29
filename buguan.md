@@ -1,60 +1,59 @@
-# “中原粮仓”河南8500万亩小麦开收
+# Alphabet为Gemini增加心理健康功能
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新社河南南阳5月21日电(王宇 韩章云)21日是中国小满节气，“中原粮仓”河南8500万亩小麦陆续进入成熟期，自此由南向北进入麦收季。 受气候影响，河南南阳邓州市的220万亩小麦成熟早。今年该省麦收季从这里开始。 中国农业农村部小麦专家指导组顾问、河南农业大学教授郭天财当天接受中新社记者采访时说，河南是中国小麦生产第一大省，小麦播种面积连续多年稳定在8500万亩以上。 中新社
+Alphabet正在为其Gemini聊天机器人增加新的心理健康支持功能，并承诺在未来三年内投入3000万美元，帮助全球危机热线扩大服务能力。 谷歌表示，当对话内容表明用户可能需要心理健康支持时，Gemini现在将显示一个重新设计的“可获得帮助”模块。在涉及可能自杀或自残的情况下，聊天机器人将显示一个简化的一键式界面，让用户可以直接拨打、发送短信、在线聊天或访问危机热线。 该公司
 
 ## 正文
 
-中新社河南南阳5月21日电(王宇 韩章云)21日是中国小满节气，“中原粮仓”河南8500万亩小麦陆续进入成熟期，自此由南向北进入麦收季。
+Alphabet正在为其Gemini聊天机器人增加新的心理健康支持功能，并承诺在未来三年内投入3000万美元，帮助全球危机热线扩大服务能力。
 
-受气候影响，河南南阳邓州市的220万亩小麦成熟早。
+谷歌表示，当对话内容表明用户可能需要心理健康支持时，Gemini现在将显示一个重新设计的“可获得帮助”模块。
 
-今年该省麦收季从这里开始。
+在涉及可能自杀或自残的情况下，聊天机器人将显示一个简化的一键式界面，让用户可以直接拨打、发送短信、在线聊天或访问危机热线。
 
-中国农业农村部小麦专家指导组顾问、河南农业大学教授郭天财当天接受中新社记者采访时说，河南是中国小麦生产第一大省，小麦播种面积连续多年稳定在8500万亩以上。
+该公司表示，这些新工具是与临床专家共同开发的，旨在使获得护理的途径更加便捷。
 
-中新社记者21日在邓州市赵集镇竹园李村田间看到，伴着机器轰鸣，一台台收割机械正在麦田作业。
+谷歌还表示，一旦激活，联系专业帮助的选项将在对话的剩余部分保持可见。
 
-邓州市农业机械技术中心工作人员马博现场介绍，该市现有联合收割机2300余台，作业高峰期共需4500余台。
+除了产品更新，谷歌还表示正在扩大与ReflexAI的合作关系，包括400万美元的直接资助，以及将Gemini集成到社会部门组织使用的培训工具中。
 
-近年来，河南“三夏”(夏收、夏种和夏管)期间广泛应用AI等科技手段助力麦收。
+这一举措意义重大，因为它表明随着人们将聊天机器人用于越来越个人化和复杂的问题，Alphabet正在为人工智能安全投入更多资源。
 
-在邓州市智慧农业大数据平台上，2.7万亩高标准农田里小麦成熟度分布图一目了然。
+投资者很可能会关注谷歌如何在用户增长、安全保障措施以及围绕AI产品的监管审查之间取得平衡。
 
 ## 相关推荐
 
-- 2026-06-30 02:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 02:51 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 02:37 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 02:27 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 02:48 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 02:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 02:35 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 02:48 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 02:46 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 02:31 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 02:50 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 02:40 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 02:43 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 02:31 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 02:53 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 02:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 02:38 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 02:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 02:34 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 02:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 02:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 02:43 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 02:49 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 02:43 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 02:49 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 02:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 02:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:30 - [一生一世](http://www.share.minike.top/Article/details/22353964628.shtml)
-- 2026-06-30 02:44 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/59534474.shtml)
-- 2026-06-30 02:38 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/24097077.shtml)
-- 2026-06-30 02:31 - [日本进球](https://www.blog.kurohicncr.top/Article/details/40155123119.shtml)
-- 2026-06-30 02:41 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/210398165318.shtml)
-- 2026-06-30 02:46 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/0906222.shtml)
-- 2026-06-30 02:48 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/358141257615.shtml)
-- 2026-06-30 02:38 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/0157025.shtml)
-- 2026-06-30 02:25 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/373544237.shtml)
-- 2026-06-30 02:52 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/169655447899.shtml)
-- 2026-06-30 02:38 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/167526.shtml)
-- 2026-06-30 02:44 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/264720.shtml)
-- 2026-06-30 02:52 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/10138390282.shtml)
-- 2026-06-30 02:34 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/945630.shtml)
-- 2026-06-30 02:34 - [天道](https://www.blog.kurohicncr.top/Article/details/125229244.shtml)
+- 2026-06-30 02:41 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/296096338009.shtml)
+- 2026-06-30 02:54 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/24032409.shtml)
+- 2026-06-30 02:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/75375879139.shtml)
+- 2026-06-30 02:59 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/244134.shtml)
+- 2026-06-30 02:55 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/223958.shtml)
+- 2026-06-30 02:36 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/58592185373.shtml)
+- 2026-06-30 02:49 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/55503.shtml)
+- 2026-06-30 02:54 - [我和我的家乡](https://www.blog.minike.top/Article/details/392547517801.shtml)
+- 2026-06-30 02:57 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/5396461969.shtml)
+- 2026-06-30 02:59 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/773502373371.shtml)
+- 2026-06-30 03:00 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/50214.shtml)
+- 2026-06-30 02:33 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/91042749.shtml)
+- 2026-06-30 02:51 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/40511184769.shtml)
+- 2026-06-30 02:55 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/0310246446.shtml)
+- 2026-06-30 02:33 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/84688669011.shtml)

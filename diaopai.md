@@ -1,53 +1,49 @@
-# 摩根大通高管：全球动荡之际，跨国企业转向中国避险
+# 伊朗国家电视台：停火以来首艘船只通过霍尔木兹海峡
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-摩根大通全球投行业务主席Anu Aiyengar在接受媒体采访时表示，随着经济和地缘政治风险上升并推动并购交易热潮，全球企业愈发希望与中国创新型企业建立合作关系。随着首席执行官们依靠规模效应和并购来应对全球动荡，2026年并购交易有望再创纪录。Aiyengar表示，欧美企业日益认为，在动荡时期与成熟的中国企业合作比单打独斗风险更小。“合作、伙伴关系和收购都在考虑之列，”Aiye
+据伊朗国家电视台报道，该船在获得伊朗许可后通过了霍尔木兹海峡，但报道未透露船只的身份，报道未提及该船通过的时间。责任编辑：江学思
 
 ## 正文
 
-摩根大通全球投行业务主席Anu Aiyengar在接受媒体采访时表示，随着经济和地缘政治风险上升并推动并购交易热潮，全球企业愈发希望与中国创新型企业建立合作关系。
+据伊朗国家电视台报道，该船在获得伊朗许可后通过了霍尔木兹海峡，但报道未透露船只的身份，报道未提及该船通过的时间。
 
-随着首席执行官们依靠规模效应和并购来应对全球动荡，2026年并购交易有望再创纪录。
-
-Aiyengar表示，欧美企业日益认为，在动荡时期与成熟的中国企业合作比单打独斗风险更小。
-
-“合作、伙伴关系和收购都在考虑之列，”Aiyengar说道，“生物技术领域正涌现大量创新，科技领域亦是如此。
-
-这是一种看待中国的新框架，我认为这是朝着健康方向发展。
-
-”责任编辑：王永生
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 02:42 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 02:47 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 02:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 02:48 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 02:32 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 02:51 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 02:48 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 02:53 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 02:34 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 02:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 02:38 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 02:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 02:58 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 02:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 02:32 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 02:52 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 02:38 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 02:48 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 02:53 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 02:53 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 02:33 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 02:46 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 02:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 02:30 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 02:45 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/86583923633.shtml)
-- 2026-06-30 02:38 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/87013883379.shtml)
-- 2026-06-30 02:32 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/9920666.shtml)
-- 2026-06-30 02:32 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/18345.shtml)
-- 2026-06-30 02:34 - [“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/61210690974.shtml)
-- 2026-06-30 02:52 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/587021715.shtml)
-- 2026-06-30 02:38 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/247271974248.shtml)
-- 2026-06-30 02:27 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/95568.shtml)
-- 2026-06-30 02:39 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/29042284728.shtml)
-- 2026-06-30 02:29 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/79238.shtml)
-- 2026-06-30 02:39 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/178267970681.shtml)
-- 2026-06-30 02:43 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/197968058274.shtml)
-- 2026-06-30 02:53 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/557059.shtml)
-- 2026-06-30 02:41 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/770595210.shtml)
-- 2026-06-30 02:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/070416138.shtml)
+- 2026-06-30 02:36 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/568589974.shtml)
+- 2026-06-30 02:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/206103.shtml)
+- 2026-06-30 02:40 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/52622.shtml)
+- 2026-06-30 02:33 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/0072953760.shtml)
+- 2026-06-30 02:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/373803028863.shtml)
+- 2026-06-30 02:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/6885868208.shtml)
+- 2026-06-30 02:43 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/7109496290.shtml)
+- 2026-06-30 02:41 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/1662285.shtml)
+- 2026-06-30 02:36 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/21564890.shtml)
+- 2026-06-30 02:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/9726873847.shtml)
+- 2026-06-30 02:30 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/635871763.shtml)
+- 2026-06-30 02:30 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/02626.shtml)
+- 2026-06-30 02:55 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/750118826.shtml)
+- 2026-06-30 02:34 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/578166193765.shtml)
+- 2026-06-30 02:54 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/7394960768.shtml)

@@ -1,56 +1,56 @@
-# 大同邀民众共绘城市情书 展现古都多元气质
+# “行走的思政课”让青春在边疆绽放光彩
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网大同5月20日电 (记者 胡健)“给大同的情书”城市主题活动20日在山西大同古城东南邑丝路广场举行，活动以巨型画布为载体，邀请市民与游客共同绘写对大同的热爱，以文艺表达串联文化传承、能源转型与数字发展，旨在展现古城大同的多元气质。 本次活动围绕“你爱这座城，这座城也爱你”的主题，设置文化之城、能源之城、算力之城三大主题创作区。云冈石窟、古城墙、光伏风电、算力中心等元素被一
+【民族团结进步创建】“行走的思政课”让青春在边疆绽放光彩 近期，共青团兴安盟委员会联合兴安盟文化旅游投资集团、阿尔山市相关单位及阿尔山边防检查站，成功举办三期“学子游兴安 走进阿尔山”实践主题团日活动。此次活动聚焦铸牢中华民族共同体意识主线，为240名来自北京、黑龙江、浙江及区内各高校的青年学子带来了一场别开生面的思政教育实践之旅，全网传播量超8000万，获新华社、中国新闻网等
 
 ## 正文
 
-中新网大同5月20日电 (记者 胡健)“给大同的情书”城市主题活动20日在山西大同古城东南邑丝路广场举行，活动以巨型画布为载体，邀请市民与游客共同绘写对大同的热爱，以文艺表达串联文化传承、能源转型与数字发展，旨在展现古城大同的多元气质。
+【民族团结进步创建】“行走的思政课”让青春在边疆绽放光彩 近期，共青团兴安盟委员会联合兴安盟文化旅游投资集团、阿尔山市相关单位及阿尔山边防检查站，成功举办三期“学子游兴安 走进阿尔山”实践主题团日活动。
 
-本次活动围绕“你爱这座城，这座城也爱你”的主题，设置文化之城、能源之城、算力之城三大主题创作区。
+此次活动聚焦铸牢中华民族共同体意识主线，为240名来自北京、黑龙江、浙江及区内各高校的青年学子带来了一场别开生面的思政教育实践之旅，全网传播量超8000万，获新华社、中国新闻网等多家主流媒体报道，成为边境地区青年思政教育的鲜活实践与典型示范。
 
-云冈石窟、古城墙、光伏风电、算力中心等元素被一一绘入画布，民众以笔触寄情，用色彩告白，在互动中感受城市底蕴与发展脉动。
+打破传统，沉浸式课堂精准对接需求。
 
-在现场参与绘画的《如梦大同》演员张新岩表示，《如梦大同》剧目扎根大同历史文脉，以艺术传递大爱精神。
+活动立足青年学子求知欲强、乐于实践、崇尚体验、易于共情的群体特点，针对外地学子对边疆、戍边文化、民族团结实践了解相对薄弱的实际情况，摒弃“念文件、读政策、听讲座”的传统模式，以“行走的思政课”为核心定位，坚持分众化设计、场景化教学、体验式育人。
 
-“‘520’之际，我们以文艺作品向大同告白，希望让更多人读懂这座城市的文化底蕴。
+将思政课堂设在国门、界碑、边防哨所、边关村落、雪域林海，让青年从“台下听众”变为“课堂主角”，把抽象的爱国主义、民族团结、国土安全、戍边精神转化为可看、可听、可感、可悟的真实场景与亲身经历，实现思想政治引领从“被动灌输”向“主动体悟”、从“理论认知”向“情感认同”再到“行动自觉”的深层次转变。
 
-” “大同正从传统印象迈向绿色低碳新形象，新能源快速发展让城市充满生机，希望更多人看见多彩、清洁、奋进的新大同。
+“六个一”活动，深化实践育人成效。
 
-”晋能控股晋北能源(山西)有限公司储能分公司职员封帆在现场表示。
+同上一堂沉浸式团课，筑牢思想根基。
 
-在算力行业工作的秦能科技员工和佳雯表示，近几年大同算力建设持续向好，数字场景不断丰富，为青年提供了广阔的发展平台。
+在阿尔山口岸国门下，“青春戍边·同心向党”主题团课庄严举行。
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 02:38 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 02:27 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 02:48 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 02:52 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 02:45 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 02:40 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 02:40 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 02:24 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 02:24 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 02:30 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 02:41 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 02:42 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 02:39 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 02:33 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 02:53 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 02:46 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 02:57 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 02:40 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 02:58 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/476265308.shtml)
-- 2026-06-30 02:49 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/2753539.shtml)
-- 2026-06-30 02:50 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/893724323121.shtml)
-- 2026-06-30 02:45 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/863237019.shtml)
-- 2026-06-30 02:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/17838021371.shtml)
-- 2026-06-30 02:50 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/1350339297.shtml)
-- 2026-06-30 02:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/8991400863.shtml)
-- 2026-06-30 02:37 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/982983.shtml)
-- 2026-06-30 02:34 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/2205775.shtml)
-- 2026-06-30 02:41 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/43630799.shtml)
-- 2026-06-30 02:32 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/399652.shtml)
-- 2026-06-30 02:47 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/738919911.shtml)
-- 2026-06-30 02:35 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/62764425256.shtml)
-- 2026-06-30 02:43 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/13604382.shtml)
-- 2026-06-30 02:48 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/01343029.shtml)
+- 2026-06-30 02:59 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/44277226.shtml)
+- 2026-06-30 02:57 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/76974.shtml)
+- 2026-06-30 02:37 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/6279222.shtml)
+- 2026-06-30 02:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/39988.shtml)
+- 2026-06-30 02:43 - [流金岁月](https://www.share.kurohicncr.top/Article/details/48218596972.shtml)
+- 2026-06-30 02:30 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/916201986.shtml)
+- 2026-06-30 02:51 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/23362.shtml)
+- 2026-06-30 02:53 - [急先锋](https://www.share.kurohicncr.top/Article/details/735891.shtml)
+- 2026-06-30 02:40 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/6732314.shtml)
+- 2026-06-30 02:37 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/1266735.shtml)
+- 2026-06-30 02:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/947146.shtml)
+- 2026-06-30 02:34 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/848990.shtml)
+- 2026-06-30 02:31 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/122925339168.shtml)
+- 2026-06-30 02:30 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/04100269.shtml)
+- 2026-06-30 02:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/989893.shtml)

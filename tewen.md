@@ -1,58 +1,58 @@
-# 巴基斯坦票房冠军电影《烈刃之怒》在华上映
+# 武汉全民读书月活动启幕 以科技赋能书香城市
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月21日电 巴基斯坦电影史票房冠军、史诗动作影片《烈刃之怒》21日在中国上映。巴方表示，恰逢巴中建交75周年，该影片在华上映，标志着巴中电影合作“历史性里程碑”，两国间文化交流将不断深化。 该片的上映是两国庆祝建交75周年系列活动之一。巴基斯坦驻华大使馆消息称，这是2024年6月巴中签署《电影合作协议》后取得的成果，是巴基斯坦电影首次以票房分账模式走进中国影院，标志
+中新网武汉4月8日电 (李晓艺 王梦媛)2026年“书香武汉·全民读书月”集中发布活动8日在湖北省科学技术馆举办，标志着这场贯穿全年、覆盖全域、全民参与的年度阅读盛典拉开帷幕。 本次活动以“书香武汉，智创未来——科技让生活更美好”为主题，由中共武汉市委宣传部主办、武汉出版集团有限公司承办。活动当天，“书香武汉”科创感知地图与“书香作伴·你我同行”全民阅读主题研学路线正式公布，让
 
 ## 正文
 
-中新网北京5月21日电 巴基斯坦电影史票房冠军、史诗动作影片《烈刃之怒》21日在中国上映。
+中新网武汉4月8日电 (李晓艺 王梦媛)2026年“书香武汉·全民读书月”集中发布活动8日在湖北省科学技术馆举办，标志着这场贯穿全年、覆盖全域、全民参与的年度阅读盛典拉开帷幕。
 
-巴方表示，恰逢巴中建交75周年，该影片在华上映，标志着巴中电影合作“历史性里程碑”，两国间文化交流将不断深化。
+本次活动以“书香武汉，智创未来——科技让生活更美好”为主题，由中共武汉市委宣传部主办、武汉出版集团有限公司承办。
 
-该片的上映是两国庆祝建交75周年系列活动之一。
+活动当天，“书香武汉”科创感知地图与“书香作伴·你我同行”全民阅读主题研学路线正式公布，让整座城市成为可实地品读的“移动书香空间”。
 
-巴基斯坦驻华大使馆消息称，这是2024年6月巴中签署《电影合作协议》后取得的成果，是巴基斯坦电影首次以票房分账模式走进中国影院，标志着巴中电影合作“历史性里程碑”。
+据介绍，“书香武汉”科创感知地图共标注27个特色点位，涵盖“五谷”展示场馆、重要科普场馆、重点科学设施、新兴产业展示场馆及重点科技企业五大类别，系统整合武汉在人工智能、激光、量子、低空经济等领域的优质科普资源，实现科普场景与阅读体验有机衔接。
 
-上映前夕，《烈刃之怒》在北京举行中国首映礼。
+同步推出的“书香作伴·你我同行”全民阅读主题研学路线，以“阅读+实地+体验”为核心，面向全年龄段尤其是青少年，设计了五大主题共12条具体线路。
 
-巴基斯坦驻华大使哈什米、影片导演兼制片人拉沙里等巴方代表，以及中国国家电影局、中国电影集团公司等机构中方代表出席并交流观影感受。
+每条线路均明确主题方向、串联特色点位、设置互动体验环节，并配套推荐阅读书目，让阅读从书本延伸至城市空间。
 
-哈什米表示，巴中建交75周年，两国间不断深化文化交流合作，将进一步巩固两国全天候战略合作伙伴关系。
+著名作家祝勇近年来多次应邀参与武汉读书月、书展等文化活动。
 
-“巴基斯坦有广阔的电影市场和先进的影院设施，我们有高质量内容制作的基础，也对多元化的电影内容有日益强烈的需求”，他表示，巴方热切期待更多巴基斯坦电影进入中国观众的视野，同时也希望更多中国影片能够在巴基斯坦上映。
+“武汉是一座文化底蕴深厚、全民阅读推广扎实深入、富有创新活力的城市，阅读氛围浓厚、覆盖面广，科技与人文交融共生。
 
 ## 相关推荐
 
-- 2026-06-30 02:29 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 02:31 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 02:49 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 02:32 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 02:53 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 02:42 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 02:50 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 02:44 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 02:42 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 02:38 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 02:47 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 02:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 02:59 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 02:40 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 02:41 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 02:30 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 02:33 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 02:37 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 02:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 02:37 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 02:32 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 02:59 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 02:34 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 02:34 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/35742476.shtml)
-- 2026-06-30 02:34 - [刘念回应](http://www.share.minike.top/Article/details/721495542.shtml)
-- 2026-06-30 02:49 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/0702651.shtml)
-- 2026-06-30 02:44 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/36324602381.shtml)
-- 2026-06-30 02:25 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/12874768498.shtml)
-- 2026-06-30 02:53 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/43807492.shtml)
-- 2026-06-30 02:47 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/3161598255.shtml)
-- 2026-06-30 02:24 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/22249649.shtml)
-- 2026-06-30 02:25 - [扬名立万](https://www.share.kurohicncr.top/Article/details/762871665.shtml)
-- 2026-06-30 02:25 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/4615647.shtml)
-- 2026-06-30 02:50 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/696603496907.shtml)
-- 2026-06-30 02:26 - [我们的少年时代2](https://www.blog.minike.top/Article/details/669103.shtml)
-- 2026-06-30 02:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/62761299699.shtml)
-- 2026-06-30 02:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/063292157.shtml)
-- 2026-06-30 02:33 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/27798386562.shtml)
+- 2026-06-30 02:49 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/70876.shtml)
+- 2026-06-30 02:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/317797857235.shtml)
+- 2026-06-30 02:30 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/417529399717.shtml)
+- 2026-06-30 02:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/149322.shtml)
+- 2026-06-30 02:56 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/957923001669.shtml)
+- 2026-06-30 02:35 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/7920144.shtml)
+- 2026-06-30 02:47 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/26683125.shtml)
+- 2026-06-30 02:32 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/452380.shtml)
+- 2026-06-30 02:44 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/411296195.shtml)
+- 2026-06-30 02:56 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/9743240702.shtml)
+- 2026-06-30 02:35 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/384237.shtml)
+- 2026-06-30 02:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/75837574933.shtml)
+- 2026-06-30 02:47 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/3408434626.shtml)
+- 2026-06-30 02:44 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/291418.shtml)
+- 2026-06-30 02:34 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/6392064582.shtml)

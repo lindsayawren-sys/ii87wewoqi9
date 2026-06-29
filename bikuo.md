@@ -1,58 +1,57 @@
-# 商务部：如欧方执意对中国企业或产品采取歧视性限制措施 中方将坚决反制
+# 昔日“最贵CEO”联想集团杨元庆，再向母校捐2亿
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网5月21日电 商务部21日召开例行新闻发布会。会上有记者提问，近日有媒体报道，欧委会正在抓紧制定一项新贸易工具，以应对中国“产能过剩”问题。请问中方对此有何评论？ 商务部新闻发言人何亚东表示，我们注意到了相关报道。关于所谓“产能过剩”问题，中方此前已多次阐明了立场。在全球化的大背景下，应尊重经济规律和市场原则，客观、全面、长远地看待产能问题。如果因为存在贸易顺差，就贴上“
+来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 曾因校友慷慨捐赠电脑而初次叩开代码世界大门的杨元庆，如今以“豪捐”2亿的壮举深情回馈母校。 4月6日，联想集团董事长兼CEO杨元庆回到上海交通大学，以个人名义向母校捐赠2亿元。 同时，杨元庆还推动联想集团与上海交通大学达成新一轮战略合作：未来五年投入3亿元，实现校企协同再升级。 而杨元庆慷慨回馈母校的底气，源于其多年打
 
 ## 正文
 
-中新网5月21日电 商务部21日召开例行新闻发布会。
+来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 曾因校友慷慨捐赠电脑而初次叩开代码世界大门的杨元庆，如今以“豪捐”2亿的壮举深情回馈母校。
 
-会上有记者提问，近日有媒体报道，欧委会正在抓紧制定一项新贸易工具，以应对中国“产能过剩”问题。
+4月6日，联想集团董事长兼CEO杨元庆回到上海交通大学，以个人名义向母校捐赠2亿元。
 
-请问中方对此有何评论？
+同时，杨元庆还推动联想集团与上海交通大学达成新一轮战略合作：未来五年投入3亿元，实现校企协同再升级。
 
-商务部新闻发言人何亚东表示，我们注意到了相关报道。
+而杨元庆慷慨回馈母校的底气，源于其多年打拼积攒下的财富。
 
-关于所谓“产能过剩”问题，中方此前已多次阐明了立场。
+在3月出炉的《2026胡润全球富豪榜》中，杨元庆以75亿元的财富再度登榜。
 
-在全球化的大背景下，应尊重经济规律和市场原则，客观、全面、长远地看待产能问题。
+作为联想集团当前的掌舵者，杨元庆曾多次问鼎福布斯中资港股CEO薪酬榜，还一度被外界冠以“最贵CEO”的称号。
 
-如果因为存在贸易顺差，就贴上“产能过剩”的标签，那欧盟出口的汽车、药品、葡萄酒、化妆品是不是都存在“产能过剩”？
+在2024/25财年（截至2025年3月31日），杨元庆从联想集团获得的酬金总计达2238.6万美元（折合人民币约1.6亿元）。
 
-我们关注到，有关国家正在调查欧盟的“产能过剩”问题，欧盟更不应在此种情况下采取双重标准。
+不过，其中约1459.8万美元为长期激励奖励。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 02:39 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 02:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 02:50 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 02:44 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 02:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 02:45 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 02:27 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 02:47 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 02:27 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 02:41 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 02:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 02:31 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 02:55 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 02:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 02:40 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 02:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 02:51 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 02:47 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 02:36 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 02:37 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 02:43 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 02:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:52 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/98122.shtml)
-- 2026-06-30 02:41 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/08131099693.shtml)
-- 2026-06-30 02:39 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/1409092422.shtml)
-- 2026-06-30 02:34 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/030009771395.shtml)
-- 2026-06-30 02:45 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/965408.shtml)
-- 2026-06-30 02:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/4239931.shtml)
-- 2026-06-30 02:51 - [一见倾心](http://www.share.kurohicncr.top/Article/details/44085374886.shtml)
-- 2026-06-30 02:36 - [恋与深空 日服](http://www.share.minike.top/Article/details/04385.shtml)
-- 2026-06-30 02:53 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/171012075833.shtml)
-- 2026-06-30 02:31 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/66270438.shtml)
-- 2026-06-30 02:51 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/58415.shtml)
-- 2026-06-30 02:46 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/73517.shtml)
-- 2026-06-30 02:31 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/01530.shtml)
-- 2026-06-30 02:29 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/19396.shtml)
-- 2026-06-30 02:40 - [起风了](http://www.blog.kurohicncr.top/Article/details/83810294.shtml)
+- 2026-06-30 02:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/341778.shtml)
+- 2026-06-30 02:51 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/49911.shtml)
+- 2026-06-30 02:32 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/7233881462.shtml)
+- 2026-06-30 02:39 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/7750793214.shtml)
+- 2026-06-30 02:38 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/4169343.shtml)
+- 2026-06-30 02:49 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/93345560.shtml)
+- 2026-06-30 02:56 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/348705549724.shtml)
+- 2026-06-30 02:35 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/1235519519.shtml)
+- 2026-06-30 02:53 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/294368289.shtml)
+- 2026-06-30 02:42 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/3847324.shtml)
+- 2026-06-30 02:45 - [《贺子珍》](https://www.share.minike.top/Article/details/0887961.shtml)
+- 2026-06-30 02:45 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/30106707120.shtml)
+- 2026-06-30 02:47 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/67836657198.shtml)
+- 2026-06-30 02:38 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/2534410842.shtml)
+- 2026-06-30 02:52 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/56315213.shtml)

@@ -1,59 +1,59 @@
-# 贝索斯称人工智能将导致劳动力短缺而非失业潮
+# 中国乒协公布伦敦世乒赛团体赛名单 樊振东放弃参赛资格
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-专题：A股步入上涨第三阶段 “盈利兑现”将主导新一轮结构分化 亚马逊创始人杰夫·贝索斯周三在一次采访中大力推崇人工智能，并为自己及且他亿万富豪的巨额财富辩护。 “这有点像是两种截然不同的经济状况，”贝索斯在采访开始时被问及亿万富翁们日益受到的批评时说，“这个国家有很多人过得很好，但也有很多人生活拮据。” 他很快提出了一项提议：取消美国收入最低一半人群的所得税。 “一位在皇后区年
+中新社北京4月8日电 中国乒乓球协会8日公布伦敦世乒赛团体赛中国队参赛名单。 国乒男队参赛名单为：王楚钦、林诗栋、周启豪、向鹏、梁靖崑；女队参赛名单为：孙颖莎、王曼昱、陈幸同、蒯曼、王艺迪。 樊振东作为第十五届全国运动会乒乓球项目成年组男单冠军，依据选拔办法可直接入选。记者获悉，中国乒协就参加伦敦世乒赛团体赛事宜，主动征询樊振东本人意见，樊振东表示因个人原因自愿放弃参赛资格。
 
 ## 正文
 
-专题：A股步入上涨第三阶段 “盈利兑现”将主导新一轮结构分化 亚马逊创始人杰夫·贝索斯周三在一次采访中大力推崇人工智能，并为自己及且他亿万富豪的巨额财富辩护。
+中新社北京4月8日电 中国乒乓球协会8日公布伦敦世乒赛团体赛中国队参赛名单。
 
-“这有点像是两种截然不同的经济状况，”贝索斯在采访开始时被问及亿万富翁们日益受到的批评时说，“这个国家有很多人过得很好，但也有很多人生活拮据。
+国乒男队参赛名单为：王楚钦、林诗栋、周启豪、向鹏、梁靖崑；女队参赛名单为：孙颖莎、王曼昱、陈幸同、蒯曼、王艺迪。
 
-” 他很快提出了一项提议：取消美国收入最低一半人群的所得税。
+樊振东作为第十五届全国运动会乒乓球项目成年组男单冠军，依据选拔办法可直接入选。
 
-“一位在皇后区年收入7.5万美元的护士，每年要缴纳超过1.2万美元的税款，”贝索斯说，“这真的合理吗？
+记者获悉，中国乒协就参加伦敦世乒赛团体赛事宜，主动征询樊振东本人意见，樊振东表示因个人原因自愿放弃参赛资格。
 
-” 在承认美国人面临经济困境之后，这位全球第四大富豪指责政客们惯用“老掉牙的伎俩”——“挑个替罪羊，然后互相指责”。
+男团阵容中，王楚钦和林诗栋直接入选，周启豪和向鹏通过队内选拔赛获得两个名额。
 
-“问题是，这样做解决不了任何问题，”贝索斯说道。
+男队主教练王皓介绍最后一个参赛名额时说：“经教练组集体商议，并结合获得名额的运动员和相关专家意见，确定第五个参赛运动员为梁靖崑。
 
-随后，他又批评了纽约市长佐兰·马姆达尼，因为马姆达尼最近发布了一段备受争议的视频，在视频中他公开指责亿万富翁、城堡投资集团CEO肯·格里芬，同时宣布了一项新的“第二居所税”。
+”王皓表示，梁靖崑在世乒赛和亚锦赛上的经验、稳定性、关键场次的表现大家有目共睹，虽然从去年亚锦赛结束后受到伤病困扰，成绩不算很好，但随着伤病康复，状态也在回升。
 
-贝索斯说：“市长站在肯·格里芬家门口，把他当成什么恶棍，这是不对的。
+相信之后的备战，他可以调整到最好的状态。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 02:25 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 02:49 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 02:43 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 02:33 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 02:48 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 02:42 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 02:35 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 02:26 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 02:35 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 02:42 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 02:39 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 02:24 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 02:30 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 02:51 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 02:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 02:31 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 02:51 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 02:58 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 02:54 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 02:35 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 02:36 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 02:59 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 02:35 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 02:46 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 02:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/76205308.shtml)
-- 2026-06-30 02:46 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/394032.shtml)
-- 2026-06-30 02:49 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/5194874169.shtml)
-- 2026-06-30 02:36 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/4645166343.shtml)
-- 2026-06-30 02:34 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/43707875866.shtml)
-- 2026-06-30 02:34 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/61015.shtml)
-- 2026-06-30 02:40 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/82422794127.shtml)
-- 2026-06-30 02:37 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/698931432.shtml)
-- 2026-06-30 02:34 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/6254090.shtml)
-- 2026-06-30 02:25 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/338166.shtml)
-- 2026-06-30 02:26 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/12838308.shtml)
-- 2026-06-30 02:29 - [啊啊啊](http://www.blog.minike.top/Article/details/66847.shtml)
-- 2026-06-30 02:32 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/212662454372.shtml)
-- 2026-06-30 02:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/817831676.shtml)
-- 2026-06-30 02:42 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/12148.shtml)
+- 2026-06-30 02:48 - [青春环游记第三季](https://www.share.minike.top/Article/details/895155088824.shtml)
+- 2026-06-30 02:44 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/56675135485.shtml)
+- 2026-06-30 02:35 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/268105249.shtml)
+- 2026-06-30 02:45 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/66205913917.shtml)
+- 2026-06-30 02:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/95954.shtml)
+- 2026-06-30 02:51 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/785222970.shtml)
+- 2026-06-30 02:49 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/39077948.shtml)
+- 2026-06-30 02:54 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/79500.shtml)
+- 2026-06-30 02:58 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/8595573.shtml)
+- 2026-06-30 02:30 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/444514034.shtml)
+- 2026-06-30 02:42 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/40182102.shtml)
+- 2026-06-30 02:59 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/71730322.shtml)
+- 2026-06-30 02:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/8208256870.shtml)
+- 2026-06-30 02:57 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/4731011115.shtml)
+- 2026-06-30 02:55 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/58930615126.shtml)

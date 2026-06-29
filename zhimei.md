@@ -1,57 +1,60 @@
-# 5月22日外盘头条：美伊和谈铀问题及海峡通行费仍添变数 报道称OpenAI第一季度营收约为57亿美元
+# 甲骨文任命Hilary Maxson为首席财务官
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美伊和谈略现进展 铀问题及海峡通行费仍添变数 2、 沙特、阿联酋等五国要求商船勿用伊朗指定的霍尔木兹海峡航线 3、Information：OpenAI第一季度营收约为57亿美元 4、IBM获得美国政府资金支持 将投入20亿美元用于量子计算芯片项目 5、里士满联储行长警告供应冲击频发考验通胀预期锚定 6、Pimco首席投资官：若
+甲骨文已任命Hilary Maxson为其新任首席财务官。她于4月6日上任。这是该公司通过调整领导团队来支持其持续增长努力的一部分。 Maxson从施耐德电气加入甲骨文，此前她担任执行副总裁兼集团首席财务官。在新职位上，她将负责甲骨文的全球财务部门，并直接向首席执行官Clay Magouyrk汇报。 据该公司称，她将接替Doug Kehring，后者此前担任首席财务官，现在将专
 
 ## 正文
 
-全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美伊和谈略现进展 铀问题及海峡通行费仍添变数 2、 沙特、阿联酋等五国要求商船勿用伊朗指定的霍尔木兹海峡航线 3、Information：OpenAI第一季度营收约为57亿美元 4、IBM获得美国政府资金支持 将投入20亿美元用于量子计算芯片项目 5、里士满联储行长警告供应冲击频发考验通胀预期锚定 6、Pimco首席投资官：若通胀预期继续上升 美联储将不得不采取行动 美伊和谈略现进展 铀问题及海峡通行费仍添变数 伊朗表示，美国提出的最新方案已在一定程度上缩小交战方之间的分歧。
+甲骨文已任命Hilary Maxson为其新任首席财务官。
 
-然而，伊朗最高领袖保留铀库存的言论以及围绕霍尔木兹海峡收费系统的争执，阻碍了局势取得突破的前景。
+她于4月6日上任。
 
-据媒体周四报道，德黑兰正处于回应美国一份文本的过程中。
+这是该公司通过调整领导团队来支持其持续增长努力的一部分。
 
-报道称该文本“在一定程度上缩小了分歧”，“要进一步缩小分歧，就需要华盛顿方面终结战争的冲动。
+Maxson从施耐德电气加入甲骨文，此前她担任执行副总裁兼集团首席财务官。
 
-”该报道未说明消息来源。
+在新职位上，她将负责甲骨文的全球财务部门，并直接向首席执行官Clay Magouyrk汇报。
 
-尽管这一表态显示出一定进展，但据报道，伊朗最高领袖已下达指示，不得将接近武器级的铀运往国外，此消息推动油价上涨。
+据该公司称，她将接替Doug Kehring，后者此前担任首席财务官，现在将专注于市场运营。
 
-随后，美国总统特朗普表示，他反对伊朗与阿曼就霍尔木兹海峡通航建立某种永久性收费体系的举措。
+这一领导层变动意味着，随着甲骨文企业云和人工智能服务的发展，它们将承担新的职责。
 
-“我们希望它开放，我们希望它免费，我们不希望有通行费，”特朗普周四在白宫对记者表示，“这是一条国际水道。
+甲骨文目前正在大力投资云基础设施和人工智能能力，这意味着他们需要在资金及支出方面非常谨慎。
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 02:32 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 02:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 02:52 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 02:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 02:29 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 02:49 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 02:53 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 02:51 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 02:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 02:38 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 02:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 02:50 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 02:48 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 02:55 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 02:32 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 02:55 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 02:39 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 02:55 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 02:44 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 02:56 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 02:53 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 02:47 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 02:56 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 02:57 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/38682.shtml)
-- 2026-06-30 02:44 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/675815.shtml)
-- 2026-06-30 02:50 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/9832210853.shtml)
-- 2026-06-30 02:51 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/688452.shtml)
-- 2026-06-30 02:34 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/10592856.shtml)
-- 2026-06-30 02:50 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/12300.shtml)
-- 2026-06-30 02:30 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/44649652.shtml)
-- 2026-06-30 02:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/6472922.shtml)
-- 2026-06-30 02:46 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/77129920398.shtml)
-- 2026-06-30 02:43 - [绘画区你赢了](http://www.blog.minike.top/Article/details/2590678.shtml)
-- 2026-06-30 02:50 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/2609516.shtml)
-- 2026-06-30 02:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/757566059549.shtml)
-- 2026-06-30 02:41 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/79422644.shtml)
-- 2026-06-30 02:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/12360331001.shtml)
-- 2026-06-30 02:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/098846056.shtml)
+- 2026-06-30 02:31 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/73055936.shtml)
+- 2026-06-30 02:47 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/0002731688.shtml)
+- 2026-06-30 02:51 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/41976667598.shtml)
+- 2026-06-30 02:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/6147858227.shtml)
+- 2026-06-30 02:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/400244.shtml)
+- 2026-06-30 02:35 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/4696348.shtml)
+- 2026-06-30 02:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/32931426491.shtml)
+- 2026-06-30 02:38 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/63023094271.shtml)
+- 2026-06-30 02:42 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/194687104935.shtml)
+- 2026-06-30 02:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/069993243.shtml)
+- 2026-06-30 02:51 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/42297.shtml)
+- 2026-06-30 02:45 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/747531009155.shtml)
+- 2026-06-30 02:48 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/3593860210.shtml)
+- 2026-06-30 02:45 - [日本16强魔咒](http://www.blog.minike.top/Article/details/0776479.shtml)
+- 2026-06-30 02:38 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/9559923725.shtml)

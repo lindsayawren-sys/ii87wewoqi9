@@ -1,56 +1,60 @@
-# 中国足协：17人被终身禁止从事任何与足球有关的活动
+# 内塔尼亚胡称以色列今日正打击伊朗境内铁路与桥梁
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月21日电 中国足球协会21日公布第三批行业处罚名单，此次处罚涉及65人，其中17人被给予终身禁止从事任何与足球有关的活动的处罚，48人被给予禁止从事任何与足球有关的活动五年或以下的处罚。 中国足球协会先后于2024年9月、2026年1月公布了前两批行业处罚名单。在其21日发布的关于第三批行业处罚情况的相关通报中称，中国足球协会纪律与道德委员会近期对现已掌握的足球行
+达纳・卡尔尼、劳伦・赛义德 - 穆尔豪斯 以色列总理本雅明・内塔尼亚胡表示，以色列于周二对伊朗境内的铁路和桥梁发动了打击。 “昨日，我们的飞行员摧毁了伊朗一处空军基地的运输机及数十架直升机。今日，他们袭击了革命卫队使用的铁路与桥梁。” 内塔尼亚胡在总理办公室发布的视频声明中称。 “伊朗方面利用这些设施运输武器原材料、武器本身，以及袭击我们、美国和地区国家的武装人员 —— 正是这
 
 ## 正文
 
-中新网北京5月21日电 中国足球协会21日公布第三批行业处罚名单，此次处罚涉及65人，其中17人被给予终身禁止从事任何与足球有关的活动的处罚，48人被给予禁止从事任何与足球有关的活动五年或以下的处罚。
+达纳・卡尔尼、劳伦・赛义德 - 穆尔豪斯 以色列总理本雅明・内塔尼亚胡表示，以色列于周二对伊朗境内的铁路和桥梁发动了打击。
 
-中国足球协会先后于2024年9月、2026年1月公布了前两批行业处罚名单。
+“昨日，我们的飞行员摧毁了伊朗一处空军基地的运输机及数十架直升机。
 
-在其21日发布的关于第三批行业处罚情况的相关通报中称，中国足球协会纪律与道德委员会近期对现已掌握的足球行业“假赌黑”问题案件材料进行系统梳理和认真研究，按照《中国足球协会纪律准则》等相关规定，完成对涉案人员及涉案俱乐部的行业处罚审议工作。
+今日，他们袭击了革命卫队使用的铁路与桥梁。
 
-为严肃行业纪律，净化足球环境，维护竞赛公平，中国足球协会通报了如下处罚决定： 一、对涉案人员的处罚决定 (一)对经人民法院认定构成犯罪的丁勇、吴静博等17名从业人员，给予终身禁止从事任何与足球有关的活动的处罚。
+” 内塔尼亚胡在总理办公室发布的视频声明中称。
 
-(二)对严重违反行业纪律的高寒、王波等48名从业人员，根据其行为性质、涉案金额、违规频次、主观恶性等因素，相应给予禁止从事任何与足球有关的活动五年或以下的处罚。
+“伊朗方面利用这些设施运输武器原材料、武器本身，以及袭击我们、美国和地区国家的武装人员 —— 正是这些人同时在压迫伊朗民众。
 
-二、对涉案俱乐部的处罚决定 根据最新掌握的刑事司法判决材料，发现梅州客家足球俱乐部还存在其他严重违规违纪行为，参照过往对涉案俱乐部的行业处罚原则，现决定对梅州客家足球俱乐部追加扣除2026年职业联赛积分6分并罚款人民币80万元。
+” 他继续说道。
 
-中国足球协会表示，各会员单位、各俱乐部及相关从业人员应深刻汲取教训、切实以案为鉴、时刻警钟长鸣，做到知敬畏、存戒惧、守底线，坚决杜绝“假赌黑”、不正当交易等破坏竞赛公平的行为。
+内塔尼亚胡强调，此次打击 “并非以伊朗民众为目标”。
 
-中国足球协会同时强调，将始终保持战略定力和高压态势，认真推进体育领域“深化治理年”行动，强化行业纪律建设，完善长效监管机制，推动足球行业风气实现根本好转。
+以色列军方于周二晚些时候宣布，已打击了 8 座被用于运输武器及军事装备的伊朗桥梁。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 02:34 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 02:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 02:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 02:50 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 02:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 02:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 02:25 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 02:49 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 02:42 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 02:44 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 02:40 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 02:44 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 02:38 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 02:48 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 02:38 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 02:47 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 02:59 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 02:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 02:42 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 02:41 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 02:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 02:50 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 02:46 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/407821849185.shtml)
-- 2026-06-30 02:52 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/289822413.shtml)
-- 2026-06-30 02:40 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/78430557830.shtml)
-- 2026-06-30 02:53 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/346862564.shtml)
-- 2026-06-30 02:50 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/273992.shtml)
-- 2026-06-30 02:46 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/19675874.shtml)
-- 2026-06-30 02:41 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/0068386.shtml)
-- 2026-06-30 02:37 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/431307606970.shtml)
-- 2026-06-30 02:28 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/28713255.shtml)
-- 2026-06-30 02:39 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/27399297.shtml)
-- 2026-06-30 02:52 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/613114644502.shtml)
-- 2026-06-30 02:53 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/08134870876.shtml)
-- 2026-06-30 02:37 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/1383294.shtml)
-- 2026-06-30 02:43 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/42712134910.shtml)
-- 2026-06-30 02:38 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/38050.shtml)
+- 2026-06-30 02:32 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/7999474338.shtml)
+- 2026-06-30 02:55 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/697606143677.shtml)
+- 2026-06-30 02:55 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/6145108.shtml)
+- 2026-06-30 02:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/4092240.shtml)
+- 2026-06-30 02:31 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/95699408553.shtml)
+- 2026-06-30 02:37 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/7502094383.shtml)
+- 2026-06-30 02:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/599894.shtml)
+- 2026-06-30 02:53 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/458032.shtml)
+- 2026-06-30 02:33 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/6600144.shtml)
+- 2026-06-30 02:35 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/33269085.shtml)
+- 2026-06-30 02:36 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/40812721099.shtml)
+- 2026-06-30 02:43 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/179782389.shtml)
+- 2026-06-30 02:55 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/362937048236.shtml)
+- 2026-06-30 02:43 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/593094.shtml)
+- 2026-06-30 02:36 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/75515064.shtml)

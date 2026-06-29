@@ -1,58 +1,61 @@
-# 金融灰产“两大门派”，乔装潜入淘宝
+# 美国原油价格上涨，特朗普在最后期限前对伊朗发出严厉威胁
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：柒财经 近期，淘宝平台出现一批神秘商家，声称可以帮助借款人“拯救综合评分不足”，服务范围包罗各大主流借款平台，业务操作支持全新开通额度和继续提额。 据柒财经观察，提供此类服务的店铺不在少数，标价20元左右。这到底是一门什么生意？背后的卖家是果真拥有通天本领，还是只是在收智商税？ 01 个人卖家“便民劳
+油价周二上涨，此前美国总统唐纳德·特朗普在其设定的霍尔木兹海峡重新开放的最后期限前对伊朗发出了严厉的威胁。 截至美国东部时间上午8：19，美国原油价格上涨约2%，至每桶114.81美元。国际基准布伦特原油6月期货合约价格小幅上涨，至每桶110.50美元。 特朗普在社交媒体上发帖称：“整个文明将在今晚消亡，再也无法恢复。我不希望这种情况发生，但很可能会。” 特朗普表示：“然而，既
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+油价周二上涨，此前美国总统唐纳德·特朗普在其设定的霍尔木兹海峡重新开放的最后期限前对伊朗发出了严厉的威胁。
 
-来源：柒财经 近期，淘宝平台出现一批神秘商家，声称可以帮助借款人“拯救综合评分不足”，服务范围包罗各大主流借款平台，业务操作支持全新开通额度和继续提额。
+截至美国东部时间上午8：19，美国原油价格上涨约2%，至每桶114.81美元。
 
-据柒财经观察，提供此类服务的店铺不在少数，标价20元左右。
+国际基准布伦特原油6月期货合约价格小幅上涨，至每桶110.50美元。
 
-这到底是一门什么生意？
+特朗普在社交媒体上发帖称：“整个文明将在今晚消亡，再也无法恢复。
 
-背后的卖家是果真拥有通天本领，还是只是在收智商税？
+我不希望这种情况发生，但很可能会。
 
-01 个人卖家“便民劳务活动” 淘宝平台售卖此类店铺，都以个人名义开设，名称中大多包含“科技工作室”、“科技中心”、“网络技术服务”等字样。
+” 特朗普表示：“然而，既然我们实现了彻底、完全的政权更迭，由不同、更聪明、不那么激进的思维主导，也许会发生某种革命性的奇妙事情。
 
-如此设置，是为了将服务包装成“便民劳务活动”、“零星小额交易活动”，因为按照电子商务相关法律法规，“个人利用自己的技能从事依法务虚取得许可的便民劳务活动和零星小额交易活动”，可以“不需要办理市场主体登记”。
+谁知道呢？
 
-这类服务的商品标题大同小异，基本都是市面上常见网贷品牌的简单罗列，很难看出其中的门道，部分商家会在商品图片中打上“拯救综合评分不足”等字样，但比较隐晦。
+” 周一，特朗普重申了他的威胁，即如果德黑兰不在美国东部时间周二晚8点之前重新开放霍尔木兹海峡，美国将摧毁伊朗的发电厂和桥梁，同时他也表示伊朗领导层正在认真谈判。
 
 ## 相关推荐
 
-- 2026-06-30 02:33 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 02:46 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 02:43 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 02:47 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 02:38 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 02:33 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 02:26 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 02:47 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 02:30 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 02:32 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 02:38 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 02:28 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 02:55 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 02:32 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 02:51 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 02:32 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 02:32 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 02:40 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 02:49 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 02:39 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 02:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 02:30 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 02:38 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 02:33 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 02:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 02:53 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 02:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:36 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/3313879.shtml)
-- 2026-06-30 02:50 - [毒液2](http://www.share.minike.top/Article/details/5495618.shtml)
-- 2026-06-30 02:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/4558028992.shtml)
-- 2026-06-30 02:26 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/28556974.shtml)
-- 2026-06-30 02:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/472585644648.shtml)
-- 2026-06-30 02:48 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/0402495920.shtml)
-- 2026-06-30 02:32 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/271782741919.shtml)
-- 2026-06-30 02:34 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/329566.shtml)
-- 2026-06-30 02:44 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/96576794367.shtml)
-- 2026-06-30 02:50 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/491118676680.shtml)
-- 2026-06-30 02:50 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/0506176260.shtml)
-- 2026-06-30 02:34 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/683263.shtml)
-- 2026-06-30 02:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/4273051078.shtml)
-- 2026-06-30 02:53 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/40749190.shtml)
-- 2026-06-30 02:34 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/29178.shtml)
+- 2026-06-30 02:47 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/023299.shtml)
+- 2026-06-30 02:42 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/20072.shtml)
+- 2026-06-30 02:39 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/10894.shtml)
+- 2026-06-30 02:43 - [沙丘](https://www.share.minike.top/Article/details/917057709424.shtml)
+- 2026-06-30 02:54 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/3363169169.shtml)
+- 2026-06-30 02:55 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/038762.shtml)
+- 2026-06-30 02:38 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/52872184.shtml)
+- 2026-06-30 02:56 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/976676365410.shtml)
+- 2026-06-30 02:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/958313695930.shtml)
+- 2026-06-30 02:35 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/3161696170.shtml)
+- 2026-06-30 02:38 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/61562641510.shtml)
+- 2026-06-30 02:59 - [小娘惹](http://www.share.minike.top/Article/details/51517065669.shtml)
+- 2026-06-30 02:51 - [乔家的儿女](http://www.blog.minike.top/Article/details/399637197.shtml)
+- 2026-06-30 02:43 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/68719822565.shtml)
+- 2026-06-30 02:51 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/012551.shtml)

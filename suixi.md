@@ -1,60 +1,55 @@
-# 北京市政协聚焦以科技创新推动京津冀协同发展
+# 施培德获批担任海峡金桥财险总经理
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-北京市政协、市委统战部近日联合召开议政会，围绕“发挥北京(京津冀)国际科技创新中心作用 推动京津冀协同发展”协商议政。北京市委书记尹力出席会议并讲话。北京市政协主席魏小东主持会议。 会前，北京市政协科技教育委员会紧扣北京(京津冀)国际科技创新中心定位和发展目标，深入企业、科研机构并赴天津、河北等开展调研。调研发现，目前京津冀区域创新投入与产业承接能力、颠覆性引领性技术、三地互补
+4月7日金融一线消息，福建金融监管局发布《关于施培德海峡金桥财险公司总经理任职资格的批复》，核准施培德海峡金桥财产保险股份有限公司总经理的任职资格。 值得注意的是，1月6日，海峡金桥财险发布两则公告称，自2025年12月25日起，施培德不再担任该公司董事长，叶远航担任公司董事长；经该公司董事会决议，自2025年12月25日起，施培德担任公司临时负责人，代行总裁职责。 公开资料显
 
 ## 正文
 
-北京市政协、市委统战部近日联合召开议政会，围绕“发挥北京(京津冀)国际科技创新中心作用 推动京津冀协同发展”协商议政。
+4月7日金融一线消息，福建金融监管局发布《关于施培德海峡金桥财险公司总经理任职资格的批复》，核准施培德海峡金桥财产保险股份有限公司总经理的任职资格。
 
-北京市委书记尹力出席会议并讲话。
+值得注意的是，1月6日，海峡金桥财险发布两则公告称，自2025年12月25日起，施培德不再担任该公司董事长，叶远航担任公司董事长；经该公司董事会决议，自2025年12月25日起，施培德担任公司临时负责人，代行总裁职责。
 
-北京市政协主席魏小东主持会议。
+公开资料显示，施培德出生于1971年9月，于2021年1月起任海峡保险党委书记，于当年6月起担任董事长。
 
-会前，北京市政协科技教育委员会紧扣北京(京津冀)国际科技创新中心定位和发展目标，深入企业、科研机构并赴天津、河北等开展调研。
+他曾长期任职于中国人保系统，曾任中国人民财产保险股份有限公司厦门市分公司党委书记、总经理。
 
-调研发现，目前京津冀区域创新投入与产业承接能力、颠覆性引领性技术、三地互补性与体系化等方面有待进一步提升。
-
-在优化机制层面，调研组建议，制定协调统一的区域科技创新发展规划和产业协同发展专项规划，建立三地年度任务清单调度机制；积极营造市场化导向的创新协同发展机制，促进京津冀各创新主体之间多采用市场机制搞合作、搞联合；共建统一开放、智能互联的京津冀协同创新数字化平台，实现跨区域数据共享与业务协同。
-
-如何促进三地创新要素充分流动与高效配置，更好推动协同创新？
-
-调研组提出具体对策：以人工智能赋能重要产业链，推动三地新兴支柱产业群链式发展；以特色产业园为支撑，推动中关村先行先试政策在津冀协同的重点园区落地；进一步支持中关村论坛在雄安新区、滨海新区、河北其他地市设立分论坛，推动三地围绕成果转化和重点产业链路演对接，同步营造“鼓励创新、包容失败”的创新文化，吸引更多人才来京津冀创新创业等。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 02:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 02:42 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 02:53 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 02:50 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 02:44 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 02:32 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 02:48 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 02:53 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 02:32 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 02:24 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 02:28 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 02:42 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 02:53 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 02:35 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 02:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 02:54 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 02:31 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 02:49 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 02:46 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 02:45 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 02:37 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 02:57 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 02:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 02:45 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 02:59 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 02:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 02:37 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 02:55 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 02:57 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/46140.shtml)
-- 2026-06-30 02:43 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/0893220051.shtml)
-- 2026-06-30 02:28 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/66833990521.shtml)
-- 2026-06-30 02:31 - [毒液2](http://www.blog.minike.top/Article/details/225800780877.shtml)
-- 2026-06-30 02:33 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/550102906.shtml)
-- 2026-06-30 02:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/7439159.shtml)
-- 2026-06-30 02:27 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/82048.shtml)
-- 2026-06-30 02:51 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/832123213.shtml)
-- 2026-06-30 02:52 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/08728791.shtml)
-- 2026-06-30 02:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/92758850.shtml)
-- 2026-06-30 02:29 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/5343573.shtml)
-- 2026-06-30 02:26 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/067980967.shtml)
-- 2026-06-30 02:36 - [沙丘](https://www.share.kurohicncr.top/Article/details/28070.shtml)
-- 2026-06-30 02:39 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/7774078905.shtml)
-- 2026-06-30 02:44 - [天道](http://www.blog.minike.top/Article/details/16272377639.shtml)
+- 2026-06-30 02:35 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/0603461.shtml)
+- 2026-06-30 02:52 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/96862.shtml)
+- 2026-06-30 02:31 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/03157128500.shtml)
+- 2026-06-30 02:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/9645476260.shtml)
+- 2026-06-30 02:59 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/004568053.shtml)
+- 2026-06-30 02:57 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/71643970901.shtml)
+- 2026-06-30 02:58 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/962697651044.shtml)
+- 2026-06-30 02:45 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/230138.shtml)
+- 2026-06-30 02:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/823067451304.shtml)
+- 2026-06-30 02:53 - [我和我的家乡](https://www.share.minike.top/Article/details/6062168035.shtml)
+- 2026-06-30 02:38 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/51836874064.shtml)
+- 2026-06-30 02:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/7323387369.shtml)
+- 2026-06-30 02:49 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/479332885.shtml)
+- 2026-06-30 02:56 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/596079.shtml)
+- 2026-06-30 02:40 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/767084.shtml)

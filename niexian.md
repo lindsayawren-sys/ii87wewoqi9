@@ -1,60 +1,56 @@
-# 特朗普周五主持美联储主席沃什宣誓就职仪式
+# 女子冒充房东在成都“一房多租” 警方：嫌疑人已被刑拘
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-美国政府周四表示，总统特朗普周五将在白宫主持美联储主席沃什宣誓就职仪式。美国参议院5月13日表决确认沃什的任命案，他将接替鲍威尔担任美联储主席，不过鲍威尔将继续担任美联储理事直至2028年。现年56岁的沃什将展开四年的美联储主席任期及14年的美联储理事任期。特朗普选择他作为抵御进一步加息的堡垒。沃什长期以来一直表示希望在削减美联储资产负债表的同时降低利率。目前一些美联储决策官员
+中新网4月8日电 据“成都公安”微信公众号消息，4月7日，成都市公安局高新区分局发布警情通报。 近日，成都市公安局高新区分局陆续接到多名群众报警，称在租房过程中疑似遭遇诈骗。 经查，犯罪嫌疑人童某(女，39岁)在成都市高新区、武侯区、天府新区等地租赁房屋后，冒充房东或以转租名义，通过网络平台发布虚假租房信息，采取“一房多租”的方式，与多名被害人签订租赁合同，骗取租金、押金等款项
 
 ## 正文
 
-美国政府周四表示，总统特朗普周五将在白宫主持美联储主席沃什宣誓就职仪式。
+中新网4月8日电 据“成都公安”微信公众号消息，4月7日，成都市公安局高新区分局发布警情通报。
 
-美国参议院5月13日表决确认沃什的任命案，他将接替鲍威尔担任美联储主席，不过鲍威尔将继续担任美联储理事直至2028年。
+近日，成都市公安局高新区分局陆续接到多名群众报警，称在租房过程中疑似遭遇诈骗。
 
-现年56岁的沃什将展开四年的美联储主席任期及14年的美联储理事任期。
+经查，犯罪嫌疑人童某(女，39岁)在成都市高新区、武侯区、天府新区等地租赁房屋后，冒充房东或以转租名义，通过网络平台发布虚假租房信息，采取“一房多租”的方式，与多名被害人签订租赁合同，骗取租金、押金等款项，后以各种理由拖延被害人入住，并携款潜逃。
 
-特朗普选择他作为抵御进一步加息的堡垒。
+其间：童某存在向被害人出示伪造的房产证等行为。
 
-沃什长期以来一直表示希望在削减美联储资产负债表的同时降低利率。
+接部分被害人报案后，成都市公安局高新区分局立即成立工作专班，将相关案件并案侦查，于4月3日将童某抓获。
 
-目前一些美联储决策官员正考虑加息以抑制伊朗战争所引发的通胀。
+目前，童某已被依法刑事拘留，案件正在进一步侦办中。
 
-根据周三公布的会议记录，在4月28日至29日的会议上，多数美联储决策者认为，如果通胀持续高于2%的目标，“采取一些政策收紧措施可能变得合适”。
-
-责任编辑：王永生
+通报中提到，为全面查清案件事实，切实维护被害人合法权益，请尚未报案的被害人携带本人身份证及复印件、租房合同原件及复印件、资金交易明细等相关证据材料，前往成都市公安局高新区分局经济犯罪侦查大队登记报案，配合公安机关开展调查取证工作。
 
 ## 相关推荐
 
-- 2026-06-30 02:38 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 02:49 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 02:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 02:39 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 02:42 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 02:44 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 02:36 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-30 02:46 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 02:24 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 02:37 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 02:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 02:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 02:52 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 02:43 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 02:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 02:58 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 02:55 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 02:38 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 02:47 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 02:53 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 02:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 02:41 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 02:44 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 02:34 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 02:38 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 02:52 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:50 - [房价什么时候能涨](https://www.share.minike.top/Article/details/19509.shtml)
-- 2026-06-30 02:28 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/3633302.shtml)
-- 2026-06-30 02:33 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/360840904130.shtml)
-- 2026-06-30 02:43 - [急先锋](http://www.share.minike.top/Article/details/237588613.shtml)
-- 2026-06-30 02:36 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/405455.shtml)
-- 2026-06-30 02:30 - [蔚来车主罚站](https://www.share.minike.top/Article/details/190897123862.shtml)
-- 2026-06-30 02:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/669986.shtml)
-- 2026-06-30 02:24 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/3277841387.shtml)
-- 2026-06-30 02:26 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/72863595851.shtml)
-- 2026-06-30 02:36 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/1968821543.shtml)
-- 2026-06-30 02:30 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/618964747.shtml)
-- 2026-06-30 02:37 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/2853439979.shtml)
-- 2026-06-30 02:47 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/75291456.shtml)
-- 2026-06-30 02:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/4528918.shtml)
-- 2026-06-30 02:48 - [千与千寻](https://www.share.kurohicncr.top/Article/details/443997.shtml)
+- 2026-06-30 02:31 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/67866.shtml)
+- 2026-06-30 02:45 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/78442.shtml)
+- 2026-06-30 02:45 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/7075473085.shtml)
+- 2026-06-30 02:57 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/72758.shtml)
+- 2026-06-30 02:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/670245071.shtml)
+- 2026-06-30 02:53 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/804991173376.shtml)
+- 2026-06-30 02:45 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/15715.shtml)
+- 2026-06-30 02:51 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/4260916.shtml)
+- 2026-06-30 02:39 - [急先锋](http://www.share.kurohicncr.top/Article/details/74363.shtml)
+- 2026-06-30 02:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/363797993408.shtml)
+- 2026-06-30 02:42 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/6429576.shtml)
+- 2026-06-30 02:39 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/35381769.shtml)
+- 2026-06-30 02:32 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/64641825925.shtml)
+- 2026-06-30 02:33 - [第一炉香](http://www.share.kurohicncr.top/Article/details/683789.shtml)
+- 2026-06-30 02:38 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/8209348201.shtml)

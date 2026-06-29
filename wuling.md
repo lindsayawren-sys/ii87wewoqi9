@@ -1,58 +1,61 @@
-# 从“被颠覆”到“大反攻”？ 只用一年，谷歌开始正面挑战英伟达，让“硅谷质疑派”闭上了嘴 | 硅谷观察
+# 中信建投期货：4月3日工业品早报
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 | 《硅谷观察》栏目 郑峻 两年前，“谷歌会被 ChatGPT 颠覆”是硅谷最流行的叙事。但在过去一年，这个故事已经被市场重新评估。从股价到产品，从模型到生态，谷歌在 2026 年正在完成 AI 时代的历史性反超，其还首次推出双TPU战略，正面挑战英伟达。 就在今天，谷歌年度开发者大会 Google I
+铜：中东冲突扰动，铜价维持震荡 周四晚沪铜主力震荡收于96150元，伦铜几乎收平于12360美金附近。 宏观中性。特朗普升级对伊军事行动，市场避险情绪升温，同时伊朗与阿曼起草霍尔木兹海峡通行费用征收协议，通胀粘性担忧升温。此外，特朗普调整签署声明，调整对铜半制品的进口关税政策，税率将基于美国消费者支付的价格来计算，对含铜量低于15%的铜衍生品，取消50%关税，反之征收25%关税
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+铜：中东冲突扰动，铜价维持震荡 周四晚沪铜主力震荡收于96150元，伦铜几乎收平于12360美金附近。
 
-文 | 《硅谷观察》栏目 郑峻 两年前，“谷歌会被 ChatGPT 颠覆”是硅谷最流行的叙事。
+宏观中性。
 
-但在过去一年，这个故事已经被市场重新评估。
+特朗普升级对伊军事行动，市场避险情绪升温，同时伊朗与阿曼起草霍尔木兹海峡通行费用征收协议，通胀粘性担忧升温。
 
-从股价到产品，从模型到生态，谷歌在 2026 年正在完成 AI 时代的历史性反超，其还首次推出双TPU战略，正面挑战英伟达。
+此外，特朗普调整签署声明，调整对铜半制品的进口关税政策，税率将基于美国消费者支付的价格来计算，对含铜量低于15%的铜衍生品，取消50%关税，反之征收25%关税。
 
-就在今天，谷歌年度开发者大会 Google I/O 在总部加州山景城圆形剧场拉开帷幕。
+基本面中性。
 
-这是谷歌史上规模最大的一次AI产品集团更新——从多模态旗舰 Gemini Omni、高性能 Gemini 3.5 Flash，到消费级全天候智能体 Gemini Spark，以及对标 Claude Code 的 AI 编程平台 Antigravity 2.0，还有新一代TPU双芯片系列。
+昨日上期所铜仓单减少7475吨至20.54万吨，LME铜累库2525吨至36.44万吨。
 
-这场发布会的背景，是华尔街在重新定价谷歌的AI实力：谷歌股价一年内从 162 美元飙升至近 400 美元，市值一度突破 4.8 万亿美元，成为美国市值前五的上市公司中涨幅最猛的一家。
+据SMM，本周中国铜社会库存去化3.57万吨至36.74万吨，铜线缆企业开工率环比小幅下降，主要与铜价回升、新增订单承接乏力有关。
 
-《硅谷观察》认为，在今年I/O大会这些品类繁多的产品发布中，有四大核心产品成为行业关注焦点。
+总体来看，中东局势反复带来需求前景的不确定性，叠加下方偏强的基本面支撑，预计短期铜价维持宽幅震荡。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 02:42 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 02:49 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 02:24 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 02:28 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 02:24 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-30 02:39 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 02:34 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 02:51 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 02:46 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 02:37 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 02:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 02:45 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 02:37 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 02:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 02:41 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 02:46 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 02:35 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 02:37 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 02:36 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 02:57 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 02:54 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 02:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 02:50 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 02:30 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 02:58 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 02:49 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/16077.shtml)
-- 2026-06-30 02:31 - [TOP Prada](http://www.blog.minike.top/Article/details/281450918.shtml)
-- 2026-06-30 02:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/4243254.shtml)
-- 2026-06-30 02:26 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/88865158.shtml)
-- 2026-06-30 02:42 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/79625116.shtml)
-- 2026-06-30 02:36 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/739374701034.shtml)
-- 2026-06-30 02:43 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/50225931478.shtml)
-- 2026-06-30 02:39 - [电影后室值得看吗](https://www.share.minike.top/Article/details/586430.shtml)
-- 2026-06-30 02:47 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/147092.shtml)
-- 2026-06-30 02:39 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/3795523.shtml)
-- 2026-06-30 02:29 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/8204554.shtml)
-- 2026-06-30 02:24 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/323016.shtml)
-- 2026-06-30 02:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/96842410.shtml)
-- 2026-06-30 02:47 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/4593046.shtml)
-- 2026-06-30 02:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/187822656338.shtml)
+- 2026-06-30 02:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/293564799.shtml)
+- 2026-06-30 02:50 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/0591983.shtml)
+- 2026-06-30 02:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/650748387.shtml)
+- 2026-06-30 02:47 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/4660360735.shtml)
+- 2026-06-30 02:41 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/05340067.shtml)
+- 2026-06-30 02:50 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/664277.shtml)
+- 2026-06-30 02:57 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/06664.shtml)
+- 2026-06-30 02:56 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/67085.shtml)
+- 2026-06-30 02:48 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/85744.shtml)
+- 2026-06-30 02:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/698015710.shtml)
+- 2026-06-30 02:33 - [啊啊啊](https://www.blog.minike.top/Article/details/5134276.shtml)
+- 2026-06-30 02:54 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/239861.shtml)
+- 2026-06-30 02:35 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/76080.shtml)
+- 2026-06-30 02:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/1127760.shtml)
+- 2026-06-30 02:42 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/95560.shtml)

@@ -1,59 +1,57 @@
-# 长盛基金评市场：震荡消化浮筹 科技韧性犹存
+# 奋进“十五五” 实干开新局丨“新农具”上岗 田间地头尽显“科技范”
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-5月21日，A股三大指数集体收跌，对此，长盛基金表示， 获利盘集中兑现：科技板块（如AI算力、半导体）前期涨幅较大，短期资金分歧引发抛压；外部情绪传导：隔夜中概股走弱叠加韩国半导体供应链波动，加剧市场谨慎情绪，板块分化加剧：非银金融、锂电等权重板块资金持续流出，拖累指数表现。未来短期震荡整固，中期慢牛逻辑未变。 详情如下： 市场表现：5月21日A股三大指数集体收跌，沪指失守41
+春耕时节，四川成都新都区的田间地头一片忙碌。如今，这里最“赶时间”的不仅是农人，还有这些“会飞的新农具”，正在进行一场从地头到餐桌的“鲜味”接力赛。跟随记者镜头一探究竟。 上午10时，成都新都区一家农业企业的电商后台响起了提示音——几份“春菜包”订单跳了出来。 记者：这些都是刚收到的订单吗？ 四川流航农业有限公司工作人员 唐孝倩：对，是刚收到的订单。有些客户要求今天到，有些客户
 
 ## 正文
 
-5月21日，A股三大指数集体收跌，对此，长盛基金表示， 获利盘集中兑现：科技板块（如AI算力、半导体）前期涨幅较大，短期资金分歧引发抛压；外部情绪传导：隔夜中概股走弱叠加韩国半导体供应链波动，加剧市场谨慎情绪，板块分化加剧：非银金融、锂电等权重板块资金持续流出，拖累指数表现。
+春耕时节，四川成都新都区的田间地头一片忙碌。
 
-未来短期震荡整固，中期慢牛逻辑未变。
+如今，这里最“赶时间”的不仅是农人，还有这些“会飞的新农具”，正在进行一场从地头到餐桌的“鲜味”接力赛。
 
-详情如下： 市场表现：5月21日A股三大指数集体收跌，沪指失守4100点报4077.28点（-2.04%），深成指跌-2.07%，创业板指跌-2.35%。
+跟随记者镜头一探究竟。
 
-全市场超4700只个股下跌，但成交额连续多日突破3万亿，资金交投活跃度未减。
+上午10时，成都新都区一家农业企业的电商后台响起了提示音——几份“春菜包”订单跳了出来。
 
-下跌主因： 获利盘集中兑现：科技板块（如AI算力、半导体）前期涨幅较大，短期资金分歧引发抛压；外部情绪传导：隔夜中概股走弱叠加韩国半导体供应链波动，加剧市场谨慎情绪，板块分化加剧：非银金融、锂电等权重板块资金持续流出，拖累指数表现。
+记者：这些都是刚收到的订单吗？
 
-未来展望：短期震荡整固，中期慢牛逻辑未变。
+四川流航农业有限公司工作人员 唐孝倩：对，是刚收到的订单。
 
-压力消化：4200点附近获利盘仍需时间消化，量能维持高位预示调整空间有限； 核心支撑：国内货币政策宽松延续，商业航天、AI算力等产业获政策强力扶持（如SpaceX上市倒逼国产替代加速）； 市场短期波动是健康整固，而非趋势逆转。
+有些客户要求今天到，有些客户要求明天到，都要加急处理。
 
-保持耐心聚焦产业确定性，逢低布局优质标的，避免追高纯题材炒作。
+记者注意到，订单不算大，要求却不低：蔬菜需按客户指定组合，且必须当日发货。
 
 ## 相关推荐
 
-- 2026-06-30 02:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 02:46 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 02:39 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 02:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 02:31 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-30 02:29 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 02:51 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 02:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 02:46 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 02:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 02:28 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 02:52 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 02:41 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 02:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 02:52 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 02:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 02:30 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 02:39 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 02:48 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 02:59 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 02:44 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 02:45 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 02:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 02:49 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:42 - [世界杯](https://www.share.kurohicncr.top/Article/details/81643358.shtml)
-- 2026-06-30 02:36 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/4700067.shtml)
-- 2026-06-30 02:33 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/89381015.shtml)
-- 2026-06-30 02:32 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/03800687220.shtml)
-- 2026-06-30 02:48 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/64667575146.shtml)
-- 2026-06-30 02:47 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/66640635146.shtml)
-- 2026-06-30 02:39 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/210293655.shtml)
-- 2026-06-30 02:39 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/028463.shtml)
-- 2026-06-30 02:36 - [日本领先巴西](http://www.share.minike.top/Article/details/6029411888.shtml)
-- 2026-06-30 02:36 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/185443826755.shtml)
-- 2026-06-30 02:53 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/049572561145.shtml)
-- 2026-06-30 02:42 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/715811161589.shtml)
-- 2026-06-30 02:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/923602944.shtml)
-- 2026-06-30 02:47 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/579373614.shtml)
-- 2026-06-30 02:29 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/19448684.shtml)
+- 2026-06-30 02:54 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/2808306464.shtml)
+- 2026-06-30 02:42 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/969121775.shtml)
+- 2026-06-30 02:39 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/71008305.shtml)
+- 2026-06-30 02:38 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/759818030303.shtml)
+- 2026-06-30 02:42 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/513533.shtml)
+- 2026-06-30 02:56 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/3453093.shtml)
+- 2026-06-30 02:54 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/37096861796.shtml)
+- 2026-06-30 02:53 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/47581895825.shtml)
+- 2026-06-30 02:39 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/796513246.shtml)
+- 2026-06-30 02:41 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/925305023.shtml)
+- 2026-06-30 02:50 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/529353089381.shtml)
+- 2026-06-30 02:57 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/73985453014.shtml)
+- 2026-06-30 02:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/1097995619.shtml)
+- 2026-06-30 02:39 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/048875210.shtml)
+- 2026-06-30 02:58 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/5048444179.shtml)

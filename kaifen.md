@@ -1,56 +1,56 @@
-# 日韩股市，开盘大涨！
+# 王毅会见泰国公主诗琳通
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！韩国股市开盘大涨。 5月21日，日韩股市均高开高走，截至发稿，日经225指数涨2.68%，韩国KOSPI指数涨4.6%。 消息面上，当地时间20日深夜，当天下午再度重启的三星电子劳资谈判结束，双方签署劳资协议暂定方案。三星电子工会一方表示，原定于21日开始进行的大罢工暂缓，工会内部将针对劳资谈判协议暂定方案
+新华社北京4月8日电（记者董雪）中共中央政治局委员、外交部长王毅8日在北京会见泰国公主诗琳通。 王毅表示，2025年，习近平主席同哇集拉隆功国王就推进中泰命运共同体建设达成重要共识，为深化中泰友好指明了方向。公主殿下是中国人民的老朋友、好朋友，为深化中泰友好作出突出贡献。中方愿同泰方一道，以两国元首重要共识为根本遵循，在殿下关心的高科技、教育、民生等领域与泰方加强合作。 诗琳通
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社北京4月8日电（记者董雪）中共中央政治局委员、外交部长王毅8日在北京会见泰国公主诗琳通。
 
-韩国股市开盘大涨。
+王毅表示，2025年，习近平主席同哇集拉隆功国王就推进中泰命运共同体建设达成重要共识，为深化中泰友好指明了方向。
 
-5月21日，日韩股市均高开高走，截至发稿，日经225指数涨2.68%，韩国KOSPI指数涨4.6%。
+公主殿下是中国人民的老朋友、好朋友，为深化中泰友好作出突出贡献。
 
-消息面上，当地时间20日深夜，当天下午再度重启的三星电子劳资谈判结束，双方签署劳资协议暂定方案。
+中方愿同泰方一道，以两国元首重要共识为根本遵循，在殿下关心的高科技、教育、民生等领域与泰方加强合作。
 
-三星电子工会一方表示，原定于21日开始进行的大罢工暂缓，工会内部将针对劳资谈判协议暂定方案进行投票，后续行动将视投票结果决定。
+诗琳通表示，我此次访华收获很大。
 
-此外，美伊局势乐观预期升温，美国总统特朗普20日表示，如果美国和伊朗能达成协议，他愿意多花几天等待伊方消息。
+希望同中方进一步密切沟通交流，促进两国人民相知相亲，推进泰中友好事业枝繁叶茂。
 
-隔夜美股三大指数集体收涨超1%，道指重回50000点上方；欧洲主要股指亦集体收涨。
-
-责任编辑：韦子蓉
+（完） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 02:51 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 02:32 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 02:26 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 02:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 02:49 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 02:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 02:25 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 02:31 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 02:29 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 02:44 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 02:46 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 02:53 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 02:37 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 02:35 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 02:57 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 02:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 02:41 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 02:33 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 02:41 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 02:38 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 02:59 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:30 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/383075.shtml)
-- 2026-06-30 02:26 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/97046254.shtml)
-- 2026-06-30 02:39 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/275567460.shtml)
-- 2026-06-30 02:27 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/617458.shtml)
-- 2026-06-30 02:24 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/164822965.shtml)
-- 2026-06-30 02:26 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/546247239.shtml)
-- 2026-06-30 02:53 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/449394989.shtml)
-- 2026-06-30 02:42 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/025913459.shtml)
-- 2026-06-30 02:45 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/884008313208.shtml)
-- 2026-06-30 02:43 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/61143668.shtml)
-- 2026-06-30 02:26 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/387688.shtml)
-- 2026-06-30 02:32 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/453122522.shtml)
-- 2026-06-30 02:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/189171954.shtml)
-- 2026-06-30 02:28 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/0297822635.shtml)
-- 2026-06-30 02:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/496533452228.shtml)
+- 2026-06-30 02:49 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/15517.shtml)
+- 2026-06-30 02:37 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/717959.shtml)
+- 2026-06-30 02:47 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/6208226.shtml)
+- 2026-06-30 02:49 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/52635.shtml)
+- 2026-06-30 02:35 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/713239.shtml)
+- 2026-06-30 02:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/0747553870.shtml)
+- 2026-06-30 02:58 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/5636902.shtml)
+- 2026-06-30 02:44 - [千与千寻](https://www.share.minike.top/Article/details/7580572291.shtml)
+- 2026-06-30 02:43 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/258945430.shtml)
+- 2026-06-30 02:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/992724178987.shtml)
+- 2026-06-30 02:43 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/08862.shtml)
+- 2026-06-30 02:50 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/6197924451.shtml)
+- 2026-06-30 02:51 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/2998004.shtml)
+- 2026-06-30 02:39 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/475758932.shtml)
+- 2026-06-30 02:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/55069.shtml)

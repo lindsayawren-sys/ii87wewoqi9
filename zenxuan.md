@@ -1,58 +1,56 @@
-# 上海开启“甜蜜经济” 长三角三地推出“甜蜜护照”
+# 涨价逻辑继续演绎，科创芯片大爆发！华宝基金科创芯片ETF（589190）暴涨超5%！
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网上海5月20日电 (记者 郑莹莹)记者从上海市民政局获悉，5月20日，共有3729对新人在上海登记结婚，其中双方均为外省市户籍的“全国通办”共1735对，约占46.53%。 婚姻登记“全国通办”于2025年5月10日起实施，当事人办理婚姻登记不再受常住户口所在地限制。 为迎接“520”，上海各区因地制宜，形成了各具特色的“甜蜜经济”模式。 当天，2026“爱在上海·甜蜜启
+4月8日，芯片股强势爆发！全“芯”布局芯片产业的科创芯片ETF华宝（589190）跳空高开，持续拉涨，场内价格现涨超5%！成份股方面，华润微、思瑞浦涨超9%！中微公司、盛科通信-U、中科飞测涨超8%。 消息面上，行业数据显示，2025年全球半导体行业资本支出约1660亿美元，预计2026年将进一步攀升。业绩面，科创板128家半导体企业2025年合计实现营收超3600亿元，同比增
 
 ## 正文
 
-中新网上海5月20日电 (记者 郑莹莹)记者从上海市民政局获悉，5月20日，共有3729对新人在上海登记结婚，其中双方均为外省市户籍的“全国通办”共1735对，约占46.53%。
+4月8日，芯片股强势爆发！
 
-婚姻登记“全国通办”于2025年5月10日起实施，当事人办理婚姻登记不再受常住户口所在地限制。
+全“芯”布局芯片产业的科创芯片ETF华宝（589190）跳空高开，持续拉涨，场内价格现涨超5%！
 
-为迎接“520”，上海各区因地制宜，形成了各具特色的“甜蜜经济”模式。
+成份股方面，华润微、思瑞浦涨超9%！
 
-当天，2026“爱在上海·甜蜜启航”系列活动在上海全市拉开帷幕。
+中微公司、盛科通信-U、中科飞测涨超8%。
 
-在上海嘉定区的上海汽车博览公园“甜蜜车站”里，一场新人权益发布仪式暨520集体婚礼活动浪漫启幕，新人们收获“新婚大礼包”。
+消息面上，行业数据显示，2025年全球半导体行业资本支出约1660亿美元，预计2026年将进一步攀升。
 
-多家车企化身“甜蜜推荐官”，为2026年在沪登记结婚的新人推出专属购车福利。
+业绩面，科创板128家半导体企业2025年合计实现营收超3600亿元，同比增长25%，产业呈现良好发展态势。
 
-据介绍，相关优惠是车企在国补、市补、区补等之外的额外让利。
+申万宏源证券指出，对于半导体领域，出口是重要证据，2026年前两个月出口额同比暴增72.6%至433亿美元，且价格同比上涨超过50%。
 
-一张结婚证，即可“甜蜜启程”。
+算力底座采用国产供应+架构创新，与海外封锁弱相关，例如RISC-V开源架构、超节点等是中国较为独特的创新。
 
 ## 相关推荐
 
-- 2026-06-30 02:36 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-30 02:28 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 02:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 02:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 02:37 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 02:24 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 02:30 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 02:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 02:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 02:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 02:27 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 02:44 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 02:54 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 02:54 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 02:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 02:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 02:44 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 02:40 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 02:55 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 02:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 02:56 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 02:35 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:37 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/64129639167.shtml)
-- 2026-06-30 02:26 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/489666.shtml)
-- 2026-06-30 02:41 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/53403553.shtml)
-- 2026-06-30 02:27 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/047131289523.shtml)
-- 2026-06-30 02:46 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/8158378379.shtml)
-- 2026-06-30 02:30 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/588401322265.shtml)
-- 2026-06-30 02:41 - [世界杯](https://www.share.kurohicncr.top/Article/details/7537783434.shtml)
-- 2026-06-30 02:49 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/24806.shtml)
-- 2026-06-30 02:41 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/56304899.shtml)
-- 2026-06-30 02:42 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/11079571763.shtml)
-- 2026-06-30 02:43 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/067232.shtml)
-- 2026-06-30 02:47 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/8584004.shtml)
-- 2026-06-30 02:34 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/1712529653.shtml)
-- 2026-06-30 02:51 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/71313255.shtml)
-- 2026-06-30 02:35 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/91525678976.shtml)
+- 2026-06-30 02:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/379053376.shtml)
+- 2026-06-30 02:41 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/4298007.shtml)
+- 2026-06-30 02:49 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/3020159511.shtml)
+- 2026-06-30 02:50 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/17744.shtml)
+- 2026-06-30 02:56 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/106007657.shtml)
+- 2026-06-30 02:52 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/38150.shtml)
+- 2026-06-30 02:36 - [美人鱼](https://www.share.minike.top/Article/details/73315731849.shtml)
+- 2026-06-30 02:58 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/787317812429.shtml)
+- 2026-06-30 02:58 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/0783688921.shtml)
+- 2026-06-30 02:34 - [流金岁月](https://www.share.minike.top/Article/details/465137944957.shtml)
+- 2026-06-30 02:33 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/2477202.shtml)
+- 2026-06-30 02:40 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/57608.shtml)
+- 2026-06-30 02:53 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/992743881828.shtml)
+- 2026-06-30 02:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/43512387568.shtml)
+- 2026-06-30 02:56 - [一生一世](https://www.share.minike.top/Article/details/0711212.shtml)

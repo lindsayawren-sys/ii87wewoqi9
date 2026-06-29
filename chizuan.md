@@ -1,58 +1,58 @@
-# 沈阳：G520次爱情主题列车浪漫启程
+# 暴力反弹，这一幕似曾相识！沪指百点长阳，全A上涨家数创年内新高
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 07:59 来源：中国新闻网 5月20日，国铁沈阳局精心打造的“山海为誓·高铁传情”G520次爱情主题列车从沈阳北站温情启程。 当日，沈阳北站候车大厅爱意浓浓，主题列车专属候车区布置着浪漫花艺与爱情打卡墙，随处可见“520”浪漫元素，让出行旅途充满仪式感。一对对情侣、夫妻携手等候，怀揣期待，有序检票登车。列车由大连客运段动车一队“小云有礼”服务
+记者|肖芮冬 编辑|赵云 4月8日，市场集体反弹，沪指百点长阳，创业板指涨近6%、科创50指数涨超6%。截至收盘，沪指涨2.7%，深成指涨4.79%，创业板指涨5.91%。 板块来看，AI产业链集体爆发，算力硬件概念快速拉升，AI应用端表现活跃，贵金属概念集体走高。下跌方面，油气概念集体调整。 全市场超5100只个股上涨，其中135只个股涨停，连续两日超百股涨停。沪深两市成交额
 
 ## 正文
 
-发布时间：2026年05月21日 07:59 来源：中国新闻网 5月20日，国铁沈阳局精心打造的“山海为誓·高铁传情”G520次爱情主题列车从沈阳北站温情启程。
+记者|肖芮冬 编辑|赵云 4月8日，市场集体反弹，沪指百点长阳，创业板指涨近6%、科创50指数涨超6%。
 
-当日，沈阳北站候车大厅爱意浓浓，主题列车专属候车区布置着浪漫花艺与爱情打卡墙，随处可见“520”浪漫元素，让出行旅途充满仪式感。
+截至收盘，沪指涨2.7%，深成指涨4.79%，创业板指涨5.91%。
 
-一对对情侣、夫妻携手等候，怀揣期待，有序检票登车。
+板块来看，AI产业链集体爆发，算力硬件概念快速拉升，AI应用端表现活跃，贵金属概念集体走高。
 
-列车由大连客运段动车一队“小云有礼”服务团队担当值乘，以“小鸥专班”特色服务为载体。
+下跌方面，油气概念集体调整。
 
-情侣们在车厢入口处的爱情签到墙上签名、按手印，领取甜蜜伴手礼。
+全市场超5100只个股上涨，其中135只个股涨停，连续两日超百股涨停。
 
-车厢内精心装点，车窗、座椅、过道处处点缀着温馨的爱情主题装饰，定制爱情纪念车票、浪漫提示贴等细节尽显用心。
+沪深两市成交额2.43万亿元，较上一个交易日放量8201亿。
 
-列车驶出沈阳北站后，列车长宣布活动正式启动。
+从昨天到今天，A股市场似乎有意“致敬”去年的走势，先探底、后普涨。
 
-情歌《小情歌》《特别的人》瞬间点燃车厢氛围，随后三分钟告白、爱情默契大考验、情歌接唱、爱的抱抱挑战、默契猜猜猜等趣味游戏轮番上演，全程洋溢着幸福与甜蜜。
+节奏似曾相识，但不一样的是：昨天既没有砸出去年“4·7”的深坑，今天更是直接暴力修复，涨幅远超去年“4·8”，加快了上涨速度。
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 02:52 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 02:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 02:44 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 02:33 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 02:35 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 02:48 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 02:31 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 02:32 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 02:42 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 02:27 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 02:51 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 02:57 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 02:58 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 02:56 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 02:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 02:41 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 02:30 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 02:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 02:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 02:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 02:40 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 02:49 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 02:33 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/191614597.shtml)
-- 2026-06-30 02:33 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/677844016747.shtml)
-- 2026-06-30 02:24 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/43502141390.shtml)
-- 2026-06-30 02:33 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/0494913047.shtml)
-- 2026-06-30 02:35 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/274616128374.shtml)
-- 2026-06-30 02:32 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/676559773487.shtml)
-- 2026-06-30 02:27 - [起风了](https://www.blog.kurohicncr.top/Article/details/222992857649.shtml)
-- 2026-06-30 02:24 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/6893917.shtml)
-- 2026-06-30 02:26 - [千与千寻](https://www.blog.minike.top/Article/details/84411513.shtml)
-- 2026-06-30 02:25 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/4406610009.shtml)
-- 2026-06-30 02:51 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/697868347728.shtml)
-- 2026-06-30 02:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/4600011021.shtml)
-- 2026-06-30 02:45 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/413868446.shtml)
-- 2026-06-30 02:30 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/5361230.shtml)
-- 2026-06-30 02:47 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/44382370.shtml)
+- 2026-06-30 02:44 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/72818278858.shtml)
+- 2026-06-30 02:34 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/89711461.shtml)
+- 2026-06-30 02:39 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/684383.shtml)
+- 2026-06-30 02:32 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/42283812055.shtml)
+- 2026-06-30 02:57 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/711851808717.shtml)
+- 2026-06-30 02:57 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/057025604.shtml)
+- 2026-06-30 02:34 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/675519786.shtml)
+- 2026-06-30 02:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/44061876069.shtml)
+- 2026-06-30 02:48 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/02573567.shtml)
+- 2026-06-30 02:53 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/2993235.shtml)
+- 2026-06-30 02:31 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/598138092.shtml)
+- 2026-06-30 02:59 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/752960.shtml)
+- 2026-06-30 02:46 - [内马尔替补](https://www.blog.minike.top/Article/details/010472198.shtml)
+- 2026-06-30 02:40 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/187894.shtml)
+- 2026-06-30 02:32 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/888608592.shtml)

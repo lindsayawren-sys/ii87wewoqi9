@@ -1,53 +1,56 @@
-# 日本超长期国债收益率下跌 投资者对美伊有望达成协议抱乐观预期
+# 巴菲特：感谢盖茨没拉上我，爱泼斯坦文件曝光后，没和他再说过话
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-日本超长期国债收益率下跌，投资者对美伊有望就结束战事达成协议的乐观情绪依旧高涨。 20年期收益率下跌3.5个基点至3.705%。 30年期收益率下跌6个基点至4.04%。 40年期收益率下跌7个基点至4.25%。责任编辑：江学思
+北京时间3月31日晚，沃伦·巴菲特接受媒体采访，谈及美联储、投资、苹果、爱泼斯坦等热门话题。 “希望美联储通胀目标设为0” 巴菲特表示，他希望美联储的通胀目标设定为0%。 在回答关于“若身处美联储会优先关注什么”的提问时，巴菲特称，相比美联储的就业目标，他会更担忧通胀问题，同时也会聚焦银行体系稳定。他强调，希望央行对通胀采取零容忍政策，因为若美联储容忍2%的通胀，其影响会快速累
 
 ## 正文
 
-日本超长期国债收益率下跌，投资者对美伊有望就结束战事达成协议的乐观情绪依旧高涨。
+北京时间3月31日晚，沃伦·巴菲特接受媒体采访，谈及美联储、投资、苹果、爱泼斯坦等热门话题。
 
-20年期收益率下跌3.5个基点至3.705%。
+“希望美联储通胀目标设为0” 巴菲特表示，他希望美联储的通胀目标设定为0%。
 
-30年期收益率下跌6个基点至4.04%。
+在回答关于“若身处美联储会优先关注什么”的提问时，巴菲特称，相比美联储的就业目标，他会更担忧通胀问题，同时也会聚焦银行体系稳定。
 
-40年期收益率下跌7个基点至4.25%。
+他强调，希望央行对通胀采取零容忍政策，因为若美联储容忍2%的通胀，其影响会快速累积放大。
 
-责任编辑：江学思
+巴菲特表示，“如果由我执掌美联储，我将全力聚焦通胀与银行体系稳定。
+
+” 这位亿万富豪还表示，美联储主席杰罗姆·鲍威尔降息的决定是正确的，并称若不降息将是一场“灾难”；但他拒绝就鲍威尔是否如特朗普所言“降息等待过久”发表评论。
+
+仍在伯克希尔主导投资决策 巴菲特表示，即便已卸任首席执行官，他仍深度参与伯克希尔·哈撒韦的投资决策，并补充称近期完成了一笔“小额”新买入。
+
+这位95岁的投资大师称，他仍每天到办公室上班，持续关注市场，并与同事共同开展交易操作。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 02:46 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 02:33 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 02:49 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 02:41 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 02:32 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 02:42 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 02:41 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-30 02:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 02:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 02:54 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 02:53 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 02:42 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 02:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 02:55 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 02:32 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 02:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 02:53 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 02:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 02:33 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 02:43 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 02:35 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 02:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:42 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/99464.shtml)
-- 2026-06-30 02:37 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/906655.shtml)
-- 2026-06-30 02:36 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/10131770015.shtml)
-- 2026-06-30 02:33 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/72958072476.shtml)
-- 2026-06-30 02:50 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/49518.shtml)
-- 2026-06-30 02:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/397153429.shtml)
-- 2026-06-30 02:46 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/02663587503.shtml)
-- 2026-06-30 02:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/1578227.shtml)
-- 2026-06-30 02:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/2515028.shtml)
-- 2026-06-30 02:42 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/560922.shtml)
-- 2026-06-30 02:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/911172507.shtml)
-- 2026-06-30 02:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/22405171.shtml)
-- 2026-06-30 02:32 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/75912230057.shtml)
-- 2026-06-30 02:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/881390760000.shtml)
-- 2026-06-30 02:44 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/927897757107.shtml)
+- 2026-06-30 02:45 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/9336107.shtml)
+- 2026-06-30 02:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/1491240.shtml)
+- 2026-06-30 02:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/80776735.shtml)
+- 2026-06-30 02:44 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/310047886488.shtml)
+- 2026-06-30 02:47 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/140919905198.shtml)
+- 2026-06-30 02:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/37380.shtml)
+- 2026-06-30 02:49 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/0742535885.shtml)
+- 2026-06-30 02:55 - [请回答王牌2019](https://www.share.minike.top/Article/details/6966245.shtml)
+- 2026-06-30 02:55 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/59494218893.shtml)
+- 2026-06-30 02:33 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/229600458.shtml)
+- 2026-06-30 02:56 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/055873.shtml)
+- 2026-06-30 02:46 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/64247139.shtml)
+- 2026-06-30 02:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/2578358283.shtml)
+- 2026-06-30 02:53 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/172073655.shtml)
+- 2026-06-30 02:35 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/43030675.shtml)

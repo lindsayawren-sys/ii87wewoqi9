@@ -1,57 +1,61 @@
-# 这届年轻人，又想去中际创旭的流水线上班了
+# 布鲁克菲尔德以10.5亿欧元从黑石收购马德里住宅资产组合
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-来源：每日人物 与多数高科技工厂质检岗动辄要求大专以上学历不同，中际旭创的质检岗学历门槛放宽至高中毕业。在旭创的蓝领工种里，会显微镜等技能，远比学历重要。 文 | 钱玉娟 来源 | 经济观察报（id：eeo-com-cn） 5月的苏州，AI算力的热潮同时在资本市场和现实世界激荡。 一边，中际旭创（300308.SZ）股价突破千元，两年涨近十倍，总市值站上1.11万亿元，成为A股
+正推进一项重大的欧洲房地产投资，而此刻许多投资者仍在重新评估风险。该公司已同意以超过10亿欧元的价格从黑石集团收购一个西班牙租赁住宅资产组合，这被描述为自美以对伊朗发动袭击以来欧洲最大的一笔房地产交易。该交易涉及Fidere Patrimonio Socimi SA，布鲁克菲尔德的基金已签订股份购买协议，税后及调整后的净价为10.5亿欧元，与黑石持有这些资产的估值一致。 该资产
 
 ## 正文
 
-来源：每日人物 与多数高科技工厂质检岗动辄要求大专以上学历不同，中际旭创的质检岗学历门槛放宽至高中毕业。
+正推进一项重大的欧洲房地产投资，而此刻许多投资者仍在重新评估风险。
 
-在旭创的蓝领工种里，会显微镜等技能，远比学历重要。
+该公司已同意以超过10亿欧元的价格从黑石集团收购一个西班牙租赁住宅资产组合，这被描述为自美以对伊朗发动袭击以来欧洲最大的一笔房地产交易。
 
-文 | 钱玉娟 来源 | 经济观察报（id：eeo-com-cn） 5月的苏州，AI算力的热潮同时在资本市场和现实世界激荡。
+该交易涉及Fidere Patrimonio Socimi SA，布鲁克菲尔德的基金已签订股份购买协议，税后及调整后的净价为10.5亿欧元，与黑石持有这些资产的估值一致。
 
-一边，中际旭创（300308.SZ）股价突破千元，两年涨近十倍，总市值站上1.11万亿元，成为A股光模块“市值一哥”。
+该资产组合包括马德里47栋建筑中的约5000套公寓，在一个受融资条件和宏观不确定性不断变化影响的市场中，提供了即时规模。
 
-另一边，产线扩增，招工不断。
+在中东局势升级后，通常被用作房地产估值参考的债券收益率随能源价格一同走高，增加了资本成本，并增加了先前已达成协议的交易破裂的可能性。
 
-5月9日，在位于苏州市吴中区胜浦路168号的旭创光电产业园外，百余名年轻人排成数列。
+尽管随着交易员评估潜在的经济放缓风险，收益率近期已从高位回落，但当前环境仍反映出2022年通胀飙升后脆弱的复苏态势。
 
-他们攥着身份证，脚边放着背包、行李箱，有人甚至用麻袋装着被褥直接赶来，想要进入生产光模块的流水线。
+布鲁克菲尔德最初于1月提出报价，并选择在地缘政治紧张局势加剧后仍继续推进，这可能表明尽管存在短期波动，但该公司对住宅资产的长期前景抱有信心。
 
-这些年轻人不一定了解光模块在AI时代的含金量：一个光模块仅打火机大小，速率从400G升级到800G，再到1.6T，直接决定整个AI算力集群的运转效率。
+对黑石而言，此交易延续了其在全球金融危机后开始的一项战略，当时它大举扩张进入西班牙房地产市场，包括收购Fidere以及随后与西班牙大众银行和Testa Residencial SOCIMI SA相关的交易。
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 02:25 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 02:31 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 02:25 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 02:36 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 02:28 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 02:46 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 02:39 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 02:46 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 02:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 02:50 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 02:35 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 02:42 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 02:31 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 02:50 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 02:32 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 02:57 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 02:51 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 02:50 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 02:32 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 02:36 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 02:42 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 02:47 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 02:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 02:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 02:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/81035814.shtml)
-- 2026-06-30 02:32 - [田曦薇没招了](https://www.share.minike.top/Article/details/9739776.shtml)
-- 2026-06-30 02:37 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/1323729565.shtml)
-- 2026-06-30 02:27 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/55186353.shtml)
-- 2026-06-30 02:42 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/21286876775.shtml)
-- 2026-06-30 02:49 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/14326209.shtml)
-- 2026-06-30 02:33 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/846163121949.shtml)
-- 2026-06-30 02:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/1490212978.shtml)
-- 2026-06-30 02:32 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/201812521386.shtml)
-- 2026-06-30 02:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/49954579818.shtml)
-- 2026-06-30 02:34 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/415287724854.shtml)
-- 2026-06-30 02:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/23764541932.shtml)
-- 2026-06-30 02:47 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/9181912905.shtml)
-- 2026-06-30 02:30 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/741386863.shtml)
-- 2026-06-30 02:33 - [绘画区你赢了](https://www.blog.minike.top/Article/details/824665915.shtml)
+- 2026-06-30 02:35 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/844470418.shtml)
+- 2026-06-30 02:40 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/488014678.shtml)
+- 2026-06-30 02:33 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/3787864606.shtml)
+- 2026-06-30 02:53 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/62101789968.shtml)
+- 2026-06-30 02:38 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/1569098283.shtml)
+- 2026-06-30 02:47 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/0751149269.shtml)
+- 2026-06-30 02:47 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/965817450231.shtml)
+- 2026-06-30 02:47 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/2324716166.shtml)
+- 2026-06-30 02:57 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/7803158211.shtml)
+- 2026-06-30 02:50 - [《贺子珍》](https://www.blog.minike.top/Article/details/76494.shtml)
+- 2026-06-30 02:30 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/354785282.shtml)
+- 2026-06-30 02:46 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/04568594284.shtml)
+- 2026-06-30 02:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/812523530.shtml)
+- 2026-06-30 02:48 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/647493664.shtml)
+- 2026-06-30 02:40 - [我和我的家乡](https://www.blog.minike.top/Article/details/864079715897.shtml)

@@ -1,58 +1,57 @@
-# 海关总署出台20项具体措施支持粤港澳大湾区建设
+# 第139届广交会首批进境展品在广州南沙口岸入境
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新社广州5月21日电 (记者 程景伟)中国海关总署党委委员、广东分署主任张格萍21日在广州举行的新闻发布会上表示，海关总署制定《海关支持粤港澳大湾区建设若干措施》(下称《若干措施》)，从5个方面提出20项具体举措，为加快推动粤港澳大湾区建设注入新动能。张格萍介绍，《若干措施》聚焦融合发展，强化规则衔接、机制对接，对“港车澳车北上”“粤车南下”实施“一站式”监管，畅通粤港澳三地
+中新网广州4月8日电 (许青青 关悦)经广州海关4月8日监管验放，第139届中国进出口商品交易会(简称“广交会”)首批进境展品在广州南沙口岸顺利通关入境。 该批展品为土耳其生产的家居用品、厨房用品等，共计137件、总重约1.8万千克，刷新历届广交会单票进境展品重量纪录，标志着第139届广交会布展工作拉开序幕。 作为中国历史最久、规模最大的综合性国际贸易盛会，广交会享有“中国第一
 
 ## 正文
 
-中新社广州5月21日电 (记者 程景伟)中国海关总署党委委员、广东分署主任张格萍21日在广州举行的新闻发布会上表示，海关总署制定《海关支持粤港澳大湾区建设若干措施》(下称《若干措施》)，从5个方面提出20项具体举措，为加快推动粤港澳大湾区建设注入新动能。
+中新网广州4月8日电 (许青青 关悦)经广州海关4月8日监管验放，第139届中国进出口商品交易会(简称“广交会”)首批进境展品在广州南沙口岸顺利通关入境。
 
-张格萍介绍，《若干措施》聚焦融合发展，强化规则衔接、机制对接，对“港车澳车北上”“粤车南下”实施“一站式”监管，畅通粤港澳三地跨境通行；探索供港澳短保质期食品便利通关措施，推广出口农食产品“批次检验”改革，助力大湾区“菜篮子”安全稳定供给。
+该批展品为土耳其生产的家居用品、厨房用品等，共计137件、总重约1.8万千克，刷新历届广交会单票进境展品重量纪录，标志着第139届广交会布展工作拉开序幕。
 
-《若干措施》显示，支持扩大正面清单实施范围，便利科研用物资跨境流动；探索对用于生物医药研发的进口料件实施保税监管、简化提交单证；支持符合免税条件的进口集成电路、新型显示器件企业，参与“自行申报享惠”业务模式试点。
+作为中国历史最久、规模最大的综合性国际贸易盛会，广交会享有“中国第一展”等美誉。
 
-在推进监管制度创新方面，《若干措施》提出，扩大跨境电商出口“先查验、后装运”试点范围；探索开展口岸通关环节碳足迹全生命周期管理试点。
+据了解，本届广交会将于4月15日至5月5日分三期在广州举办，展览总面积约155万平方米，展位数量7.55万个，吸引3.2万家企业报名参展。
 
-同时，《若干措施》提出，推动扩大“组合港(一港通)”航线，推进海铁、水水等多式联运业务模式试点，支持因地制宜设置航空前置货站；支持新皇岗口岸建设、沙头角口岸重建等重点项目，推动实施“一地两检”等便利通关措施。
+“本届广交会参展热度高、展品品类新，在海关的通关一体化模式下，我们可以线上完成申报手续，货物抵达口岸后便能实现快速验放、高效通关。
 
-《若干措施》还提出，支持横琴“澳门单牌车北上”，推动海关查验结果共享互认试点；支持前海持续完善离岸现货大豆监管服务措施，发展全球集拼分拨、全球保税维修等业态；支持南沙发展大宗商品贸易，整合仓储资源打造全球供应链中心；推进河套“一区两园”协同发展。
+”负责承接首票展品入境物流工作的海程邦达国际物流有限公司项目经理何锡山表示。
 
-(完)
+此前，中国财政部、海关总署、国家税务总局联合印发相关通知，明确在“十五五”期间，对广交会每个展商在展期内销售的免税额度内的进口展品，免征进口关税、进口环节增值税和消费税。
+
+广州海关所属广州会展中心海关副关长安冉表示，该项政策不仅让符合条件的进口留购展品享受税收优惠政策，更有效稳定境外参展企业预期，有利于更好发挥广交会对外开放平台作用。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 02:32 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 02:30 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 02:34 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 02:38 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 02:47 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 02:24 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 02:37 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 02:30 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 02:49 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 02:39 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 02:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 02:25 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 02:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 02:59 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 02:31 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 02:55 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 02:37 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 02:43 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 02:40 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 02:39 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 02:51 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 02:47 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 02:56 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 02:46 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:45 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/09059078879.shtml)
-- 2026-06-30 02:45 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/054121425061.shtml)
-- 2026-06-30 02:37 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/59927194.shtml)
-- 2026-06-30 02:42 - [请回答王牌2019](http://www.share.minike.top/Article/details/395235.shtml)
-- 2026-06-30 02:42 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/741901658.shtml)
-- 2026-06-30 02:39 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/064723.shtml)
-- 2026-06-30 02:32 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/450695651.shtml)
-- 2026-06-30 02:30 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/89944961494.shtml)
-- 2026-06-30 02:26 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/60001994994.shtml)
-- 2026-06-30 02:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/29909567904.shtml)
-- 2026-06-30 02:43 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/914537255.shtml)
-- 2026-06-30 02:41 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/51533904257.shtml)
-- 2026-06-30 02:50 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/897299766550.shtml)
-- 2026-06-30 02:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/59034176.shtml)
-- 2026-06-30 02:25 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/54814069521.shtml)
+- 2026-06-30 02:48 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/6436566.shtml)
+- 2026-06-30 02:39 - [孙兴慜道歉](http://www.share.minike.top/Article/details/158630320.shtml)
+- 2026-06-30 02:50 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/0035125035.shtml)
+- 2026-06-30 02:31 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/5609446.shtml)
+- 2026-06-30 02:51 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/5170802600.shtml)
+- 2026-06-30 02:41 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/603332.shtml)
+- 2026-06-30 02:44 - [月亮](http://www.share.minike.top/Article/details/97943767.shtml)
+- 2026-06-30 02:42 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/251259.shtml)
+- 2026-06-30 02:44 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/8651164642.shtml)
+- 2026-06-30 02:39 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/8423185324.shtml)
+- 2026-06-30 02:44 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/54591.shtml)
+- 2026-06-30 02:32 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/913741.shtml)
+- 2026-06-30 02:41 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/7378696.shtml)
+- 2026-06-30 02:47 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/566945014028.shtml)
+- 2026-06-30 02:30 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/32082.shtml)

@@ -1,59 +1,56 @@
-# 港媒镜头下的青海：与香港“双向奔赴”赋能高原开放发展
+# 油价暴跌，金价反弹
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网西宁5月21日电 题：港媒镜头下的青海：与香港“双向奔赴”赋能高原开放发展 作者 潘雨洁 李隽 “整场发布会让我感受最深的是开放包容的氛围，青海已从过去的‘远在天边’变得‘近在眼前’。”20日，香港大公文汇传媒记者张仕珍表示，希望发挥港媒平台与传播优势，让更多人了解和走进“大美青海”。 当日，开局起步“十五五”青海专场新闻发布会召开，多家港媒记者参与并积极提问。 “这既是
+当地时间4月7日，美股收盘涨跌不一，道指跌0.18%，纳指涨0.10%，标普涨0.08%。盘后期指大幅拉升，道指期货涨1.69%，纳指100期货涨2.00%。 国际油价暴跌：WTI原油跌13.10%报98.15美元，布油跌5.78%报103.42美元。 贵金属大涨：现货黄金涨2.43%报4815.48美元，现货白银涨4.93%报76.535美元。 消息面上，特朗普宣布应巴基斯坦
 
 ## 正文
 
-中新网西宁5月21日电 题：港媒镜头下的青海：与香港“双向奔赴”赋能高原开放发展 作者 潘雨洁 李隽 “整场发布会让我感受最深的是开放包容的氛围，青海已从过去的‘远在天边’变得‘近在眼前’。
+当地时间4月7日，美股收盘涨跌不一，道指跌0.18%，纳指涨0.10%，标普涨0.08%。
 
-”20日，香港大公文汇传媒记者张仕珍表示，希望发挥港媒平台与传播优势，让更多人了解和走进“大美青海”。
+盘后期指大幅拉升，道指期货涨1.69%，纳指100期货涨2.00%。
 
-当日，开局起步“十五五”青海专场新闻发布会召开，多家港媒记者参与并积极提问。
+国际油价暴跌：WTI原油跌13.10%报98.15美元，布油跌5.78%报103.42美元。
 
-“这既是青海和香港‘双向奔赴’的缩影，更体现了大家对青海发展的关心。
+贵金属大涨：现货黄金涨2.43%报4815.48美元，现货白银涨4.93%报76.535美元。
 
-”青海省委副书记、省长罗东川在现场表示。
+消息面上，特朗普宣布应巴基斯坦请求暂缓对伊朗军事打击，提出“双向停火”两周，称伊朗十点建议可作为谈判基础，市场对中东能源供应担忧大幅缓解。
 
-“十四五”时期，青海省借港出海、借力赋能，两地经贸文化交流与合作迈向机制化、产业化、常态化双向互通，不断促进山水相连、民心相通。
-
-过去五年“青字号”高原冷凉蔬菜供港实现历史性突破：从2023年8月“青字号”紫叶生菜、甘蓝等8种蔬菜装箱发往香港，实现青海冷凉蔬菜出口破“零”，发展至今，高原冷凉蔬菜种植面积稳定在60万亩左右，年产量179万吨，每年供港澳达到1万吨。
-
-“高效便捷的冷链物流可以保证供港蔬菜‘朝发夕至’，早上采摘的蔬菜，晚上就可以送达，第二天就可以摆上香港人的超市和餐桌。
+(中新网微信公众号)
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 02:25 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 02:25 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 02:48 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 02:43 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 02:52 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 02:26 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 02:33 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 02:29 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 02:37 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 02:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 02:49 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 02:25 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 02:59 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 02:46 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 02:58 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 02:42 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 02:45 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 02:54 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 02:37 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 02:46 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 02:50 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 02:56 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 02:41 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 02:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 02:38 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 02:52 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:27 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/4713159.shtml)
-- 2026-06-30 02:43 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/33840350901.shtml)
-- 2026-06-30 02:35 - [毒液2](http://www.share.minike.top/Article/details/6745878531.shtml)
-- 2026-06-30 02:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/480013.shtml)
-- 2026-06-30 02:25 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/1022427453.shtml)
-- 2026-06-30 02:38 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/1762117.shtml)
-- 2026-06-30 02:27 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/23204259.shtml)
-- 2026-06-30 02:36 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/07360.shtml)
-- 2026-06-30 02:45 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/8536502077.shtml)
-- 2026-06-30 02:52 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/9619848310.shtml)
-- 2026-06-30 02:30 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/076333.shtml)
-- 2026-06-30 02:31 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/85919392.shtml)
-- 2026-06-30 02:31 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/1060803.shtml)
-- 2026-06-30 02:29 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/4852767.shtml)
-- 2026-06-30 02:29 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/1898593.shtml)
+- 2026-06-30 02:46 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/500394790382.shtml)
+- 2026-06-30 02:30 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/0948747530.shtml)
+- 2026-06-30 02:57 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/4506906.shtml)
+- 2026-06-30 02:44 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/48741.shtml)
+- 2026-06-30 02:33 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/452601.shtml)
+- 2026-06-30 02:51 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/5231277382.shtml)
+- 2026-06-30 02:37 - [刘念回应](http://www.share.kurohicncr.top/Article/details/727397476566.shtml)
+- 2026-06-30 02:43 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/0542222.shtml)
+- 2026-06-30 02:37 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/525544752.shtml)
+- 2026-06-30 02:34 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/69688600707.shtml)
+- 2026-06-30 02:41 - [沉睡花园](https://www.blog.minike.top/Article/details/08037061695.shtml)
+- 2026-06-30 02:44 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/762436201.shtml)
+- 2026-06-30 02:56 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/762363303.shtml)
+- 2026-06-30 02:48 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/03986.shtml)
+- 2026-06-30 02:30 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/78924095770.shtml)

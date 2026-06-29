@@ -1,57 +1,61 @@
-# 张津镭:黄金遭美债美元双杀压力 反弹高空静待美纪要
+# 国台办：赖清德当局破坏两岸经济联系的图谋不会得逞
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-5月20日，昨日金价走了一个回落行情，亚盘开盘直接一波高走最高是到了4588美元。到亚盘尾盘波动至4560附近进场空单，随后进场空单，美盘一波跳水跌破4500关口，最低是到了4464美元，空单于4480自动止盈离场，大赚80美金。后续未能延续，最终金价是收盘于4481美元，日线收于一根阴线。 周三（5月20日）昨日市场经历了一场由“谈判矛盾信号”引发的多空绞杀——美国副总统万斯
+发布时间：2026年04月08日 12:04 来源：中国新闻网 4月8日，国务院台办举行例行新闻发布会。有记者问，赖清德近日称，美国已成为台湾最大对外投资目的地与出口市场，台湾对大陆投资下降，将持续与美国深化合作，维护全球供应链安全。请问对此有何评论？ 发言人朱凤莲在答问时表示，赖清德当局出于一党的政治私利，不断对美输诚，企图推动两岸经济脱钩断链，损害岛内产业和民众利益福祉，其
 
 ## 正文
 
-5月20日，昨日金价走了一个回落行情，亚盘开盘直接一波高走最高是到了4588美元。
+发布时间：2026年04月08日 12:04 来源：中国新闻网 4月8日，国务院台办举行例行新闻发布会。
 
-到亚盘尾盘波动至4560附近进场空单，随后进场空单，美盘一波跳水跌破4500关口，最低是到了4464美元，空单于4480自动止盈离场，大赚80美金。
+有记者问，赖清德近日称，美国已成为台湾最大对外投资目的地与出口市场，台湾对大陆投资下降，将持续与美国深化合作，维护全球供应链安全。
 
-后续未能延续，最终金价是收盘于4481美元，日线收于一根阴线。
+请问对此有何评论？
 
-周三（5月20日）昨日市场经历了一场由“谈判矛盾信号”引发的多空绞杀——美国副总统万斯宣称美伊谈判取得“很大进展”，而调解方却认为谈判几无进展、伊朗坚持核心诉求不变。
+发言人朱凤莲在答问时表示，赖清德当局出于一党的政治私利，不断对美输诚，企图推动两岸经济脱钩断链，损害岛内产业和民众利益福祉，其大言不惭所说的“与美深化合作，维护全球供应链安全”，本质上是“倚美卖台”，更加暴露其为了“倚外谋独”而处心积虑，不择手段。
 
-这种驴唇不对马嘴的预期管理，让资金选择“先跑为敬”，叠加加息预期升温推动美元走强，黄金大跌。
+朱凤莲说，据海关总署统计，今年前两个月，两岸贸易总额保持稳定增长势头，达到525.4亿美元，其中大陆对台出口增长了28.1%，大陆自台进口增长了19%。
 
-美联储已进入“沃什时代”，市场对其偏鹰立场的定价仍在进行中。
+这充分说明两岸经济脱不了钩、断不了链。
 
-12月加息概率已飙升至75%，这几乎是“板上钉钉”的预期。
+深化两岸融合发展，符合两岸同胞的共同利益和市场规律，赖清德当局破坏两岸经济联系的图谋不得人心、不会得逞。
 
-正如中信期货所指出，本周美联储会议纪要是核心变量，若纪要继续强调通胀风险与政策耐心，实际利率约束仍可能压制黄金表现。
+(记者 刘世炯 制作 王佳琪） 责任编辑：【刘欢】
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 02:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 02:32 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 02:32 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 02:35 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 02:37 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 02:50 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 02:46 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 02:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 02:28 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 02:46 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 02:59 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 02:37 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 02:53 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 02:54 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 02:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 02:31 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 02:37 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 02:59 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 02:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 02:36 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 02:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 02:54 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 02:31 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 02:42 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 02:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:29 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/98419545884.shtml)
-- 2026-06-30 02:38 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/9271452727.shtml)
-- 2026-06-30 02:44 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/37888538896.shtml)
-- 2026-06-30 02:29 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/782408008.shtml)
-- 2026-06-30 02:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/7575068870.shtml)
-- 2026-06-30 02:36 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/57079325949.shtml)
-- 2026-06-30 02:34 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/09328325.shtml)
-- 2026-06-30 02:41 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/0130171.shtml)
-- 2026-06-30 02:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/805993142501.shtml)
-- 2026-06-30 02:35 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/33761378406.shtml)
-- 2026-06-30 02:43 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/759192566082.shtml)
-- 2026-06-30 02:43 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/85290.shtml)
-- 2026-06-30 02:38 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/791395.shtml)
-- 2026-06-30 02:44 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/25996878.shtml)
-- 2026-06-30 02:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/797308878108.shtml)
+- 2026-06-30 02:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/188580144906.shtml)
+- 2026-06-30 02:46 - [小娘惹](http://www.share.minike.top/Article/details/2512117.shtml)
+- 2026-06-30 02:55 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/965428009.shtml)
+- 2026-06-30 02:43 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/847269196279.shtml)
+- 2026-06-30 02:39 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/9461569841.shtml)
+- 2026-06-30 02:35 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/4364371094.shtml)
+- 2026-06-30 02:47 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/448437.shtml)
+- 2026-06-30 02:32 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/54701.shtml)
+- 2026-06-30 02:37 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/449596664352.shtml)
+- 2026-06-30 02:58 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/618428229295.shtml)
+- 2026-06-30 02:52 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/24384027.shtml)
+- 2026-06-30 02:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/8833254256.shtml)
+- 2026-06-30 02:53 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/49999.shtml)
+- 2026-06-30 02:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/10785.shtml)
+- 2026-06-30 02:59 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/647279656.shtml)

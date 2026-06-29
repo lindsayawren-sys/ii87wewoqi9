@@ -1,58 +1,61 @@
-# Scholar Rock将出席杰富瑞全球医疗保健大会，聚焦SMA新药apitegromab关键审批
+# 原油：油价回落 美伊释放缓和信号削弱风险溢价
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-Scholar Rock公司宣布，管理层将于2026年6月3日上午11：40在纽约出席杰富瑞全球医疗保健大会并进行炉边谈话。此次活动正值公司核心药物apitegromab处于FDA审批的关键窗口期，备受投资者关注。 会议日程与参与方式 根据公司公告，Scholar Rock董事长兼首席执行官David Hallal将代表公司出席此次大会。活动将在纽约举行，投资者可通过Schol
+由于伊朗与美国释放出愿意推动冲突解决的信号，风险溢价收窄促使油价回落。 WTI下跌1.5%，收于每桶101美元左右，此前盘中一度上涨3.9%。 伊朗国家通讯社周二报道称，伊朗总统佩泽希齐扬重申德黑兰愿意结束战争，但前提是满足若干条件。 但交易员仍担心，即便冲突迅速结束，也难以立即消除全球能源体系受到的扰动。 OnyxPoint Global Management首席投资官Sha
 
 ## 正文
 
-Scholar Rock公司宣布，管理层将于2026年6月3日上午11：40在纽约出席杰富瑞全球医疗保健大会并进行炉边谈话。
+由于伊朗与美国释放出愿意推动冲突解决的信号，风险溢价收窄促使油价回落。
 
-此次活动正值公司核心药物apitegromab处于FDA审批的关键窗口期，备受投资者关注。
+WTI下跌1.5%，收于每桶101美元左右，此前盘中一度上涨3.9%。
 
-会议日程与参与方式 根据公司公告，Scholar Rock董事长兼首席执行官David Hallal将代表公司出席此次大会。
+伊朗国家通讯社周二报道称，伊朗总统佩泽希齐扬重申德黑兰愿意结束战争，但前提是满足若干条件。
 
-活动将在纽约举行，投资者可通过Scholar Rock官网投资者板块的“活动与演示”页面观看现场网络直播，回放将在网站上保留约90天。
+但交易员仍担心，即便冲突迅速结束，也难以立即消除全球能源体系受到的扰动。
 
-此外，公司还计划出席6月6日的杰富瑞会议环节以及6月13日的高盛全球医疗保健大会。
+OnyxPoint Global Management首席投资官Shaia Hosseinzadeh表示：“即使冲突明天结束，恢复运输也需要数周甚至数月时间”。
 
-Apitegromab审批进入倒计时 Scholar Rock的核心资产apitegromab是一种首创的肌肉靶向单克隆抗体，用于治疗脊髓性肌萎缩症。
+在伊朗战争持续之际，全球基准布伦特录得史上最大月度涨幅。
 
-FDA已于2026年5月接受了该药的生物制剂许可申请重新提交，并设定了2026年9月30日的处方药使用者费用法案行动日期。
+全美汽油平均价格自2022年8月以来首次升破每加仑4美元，在中期选举之年对特朗普政府构成重大政治风险。
 
-此次重新提交的BLA包括了Catalent Indiana工厂和第二家美国工厂两个生产设施。
+来自伊朗的表态也呼应了美国方面的信号，显示冲突可能很快得到解决。
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 02:41 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 02:29 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 02:32 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 02:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 02:26 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 02:43 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 02:45 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 02:29 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 02:40 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 02:52 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 02:44 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 02:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 02:33 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 02:48 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 02:34 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 02:48 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 02:32 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 02:32 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 02:50 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 02:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 02:57 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 02:59 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 02:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 02:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 02:43 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 02:59 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:41 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/9462994.shtml)
-- 2026-06-30 02:52 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/7071389.shtml)
-- 2026-06-30 02:24 - [千与千寻](http://www.share.kurohicncr.top/Article/details/61193915342.shtml)
-- 2026-06-30 02:27 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/1109775459.shtml)
-- 2026-06-30 02:24 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/472883550.shtml)
-- 2026-06-30 02:42 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/259279730124.shtml)
-- 2026-06-30 02:29 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/174417736651.shtml)
-- 2026-06-30 02:46 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/269977338.shtml)
-- 2026-06-30 02:31 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/809735758624.shtml)
-- 2026-06-30 02:46 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/3610154309.shtml)
-- 2026-06-30 02:45 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/823582283.shtml)
-- 2026-06-30 02:28 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/37703556501.shtml)
-- 2026-06-30 02:53 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/2604763.shtml)
-- 2026-06-30 02:30 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/85265.shtml)
-- 2026-06-30 02:34 - [天道](https://www.blog.kurohicncr.top/Article/details/80550395.shtml)
+- 2026-06-30 02:56 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/248521.shtml)
+- 2026-06-30 02:45 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/971530.shtml)
+- 2026-06-30 02:56 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/02775702.shtml)
+- 2026-06-30 02:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/2903415264.shtml)
+- 2026-06-30 02:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/853486502775.shtml)
+- 2026-06-30 02:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/2036341.shtml)
+- 2026-06-30 02:31 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/79268.shtml)
+- 2026-06-30 02:48 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/83518681.shtml)
+- 2026-06-30 02:59 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/2316227375.shtml)
+- 2026-06-30 02:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/969114.shtml)
+- 2026-06-30 02:30 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/9911418.shtml)
+- 2026-06-30 02:52 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/4674444628.shtml)
+- 2026-06-30 02:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/933562839091.shtml)
+- 2026-06-30 02:51 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/2396428238.shtml)
+- 2026-06-30 02:37 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/1574478.shtml)

@@ -1,60 +1,56 @@
-# 新主席沃什会给美联储带来什么变化？
+# 4月1日热门中概股多数上涨 小马智行涨10.54%，中国新城农村跌4.96%
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-文章来源：上观新闻 沃什13日获得美国参议院投票通过，将在完成宣誓程序后正式就任美联储主席一职。对于沃什上任后将给美联储货币政策带来的改变，学者和市场做了各种解读和预测，普遍认为沃什主导下的美联储货币政策操作框架和基本原则将发生重大变化，甚至有人认为美联储货币调控机制也将发生重要改变。 可能加快缩表 每一任美联储主席囿于自身出身、学术背景以及经济大环境差异，率领美联储在货币政策
+4月1日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高2.8%。 上涨股当中（按市值从高到低），台积电涨6.78%，阿里巴巴涨2.88%，拼多多涨3.82%，网易涨1.74%，日月光半导体涨3.83%，京东涨2.18%，百度涨4.52%，中华电信涨0.57%，携程涨1.26%，联电涨4.30%，中通涨3.41%，富途控股涨4.10%，理想汽车涨1.60%，小鹏汽车涨2.
 
 ## 正文
 
-文章来源：上观新闻 沃什13日获得美国参议院投票通过，将在完成宣誓程序后正式就任美联储主席一职。
+4月1日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高2.8%。
 
-对于沃什上任后将给美联储货币政策带来的改变，学者和市场做了各种解读和预测，普遍认为沃什主导下的美联储货币政策操作框架和基本原则将发生重大变化，甚至有人认为美联储货币调控机制也将发生重要改变。
+上涨股当中（按市值从高到低），台积电涨6.78%，阿里巴巴涨2.88%，拼多多涨3.82%，网易涨1.74%，日月光半导体涨3.83%，京东涨2.18%，百度涨4.52%，中华电信涨0.57%，携程涨1.26%，联电涨4.30%，中通涨3.41%，富途控股涨4.10%，理想汽车涨1.60%，小鹏汽车涨2.45%，华住酒店集团涨2.91%，蔚来涨9.26%，哔哩哔哩涨4.01%，新东方涨3.62%，满帮涨2.41%，万国数据涨2.60%，BOSS直聘涨0.37%，WSP控股涨1.48%，亚朵集团涨4.75%，名创优品涨5.70%，小马智行涨10.54%，慧荣科技涨6.49%，欢聚涨3.40%，禾赛科技涨7.84%，雾芯科技涨2.57%。
 
-可能加快缩表 每一任美联储主席囿于自身出身、学术背景以及经济大环境差异，率领美联储在货币政策操作过程中会具有不同的特色，回过头来看都可以列出重要的贡献，也都存在被后人批评的不足。
+下跌股当中（按市值从高到低），贝壳跌0.27%，腾讯音乐跌0.32%，中国新城农村跌4.96%，唯品会跌1.69%，拓臻生物跌0.30%，金山云跌0.60%。
 
-沃什曾经在2006到2011年任美联储理事，其间美国次贷危机引发大萧条，他协助时任美联储主席伯南克应对危机，作出了被伯南克认可的贡献。
+美股周二收高，道指上涨逾1100点。
 
-但沃什在2008年年底美联储将联邦基金利率降至0.25%时表示反对，担心引起通胀，在美联储2011年启动6000亿美元第二轮量化宽松政策时也表示反对。
+但在一季度，美股三大股指均录得跌幅。
 
-离开美联储后，他一直公开反对美联储在2012年启动的第三轮量化宽松政策，对美联储2020年大规模扩张资产负债表导致2022年高通胀持严厉批评态度，赢得了反通胀“鹰派”的名声。
+据称美伊两国总统均对结束战争持开放态度，令投资者看到美以对伊战争结束的可能性。
 
-此后，他对美联储的批评延伸至美联储不应介入绿色低碳、多元化、平等包容等议题，在政治上与共和党保守派看齐，呼吁美联储改革。
+道指涨1125.19点，涨幅为2.49%，报46341.33点；纳指涨795.99点，涨幅为3.83%，报21590.63点；标普500指数涨184.80点，涨幅为2.91%，报6528.52点。
 
-笔者认为，沃什主持下的美联储可能加快缩表进程。
+在刚刚过去的第一季度，美股三大股指均录得跌幅。
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 02:30 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 02:30 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 02:29 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 02:48 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 02:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 02:39 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 02:38 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 02:39 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 02:30 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 02:47 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 02:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 02:29 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 02:53 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 02:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 02:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 02:57 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 02:46 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 02:53 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 02:37 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 02:48 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 02:34 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 02:47 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 02:44 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:42 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/5285907924.shtml)
-- 2026-06-30 02:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/89130445599.shtml)
-- 2026-06-30 02:39 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/27926.shtml)
-- 2026-06-30 02:28 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/43295.shtml)
-- 2026-06-30 02:53 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/2528462.shtml)
-- 2026-06-30 02:24 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/2835938.shtml)
-- 2026-06-30 02:49 - [第一炉香](https://www.blog.minike.top/Article/details/42095888.shtml)
-- 2026-06-30 02:52 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/238738749.shtml)
-- 2026-06-30 02:44 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/456879.shtml)
-- 2026-06-30 02:29 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/2471030276.shtml)
-- 2026-06-30 02:51 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/4219099.shtml)
-- 2026-06-30 02:49 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/86178433.shtml)
-- 2026-06-30 02:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/98718.shtml)
-- 2026-06-30 02:50 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/1149564200.shtml)
-- 2026-06-30 02:48 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/38234115.shtml)
+- 2026-06-30 02:58 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/8338646.shtml)
+- 2026-06-30 02:54 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/12586127.shtml)
+- 2026-06-30 02:57 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/587027591561.shtml)
+- 2026-06-30 02:51 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/31097919999.shtml)
+- 2026-06-30 02:53 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/1416319.shtml)
+- 2026-06-30 02:38 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/509698.shtml)
+- 2026-06-30 02:33 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/76304854303.shtml)
+- 2026-06-30 02:46 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/42519196.shtml)
+- 2026-06-30 02:34 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/073158.shtml)
+- 2026-06-30 02:58 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/2991311495.shtml)
+- 2026-06-30 02:58 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/644464.shtml)
+- 2026-06-30 02:40 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/913427433544.shtml)
+- 2026-06-30 02:41 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/5156322111.shtml)
+- 2026-06-30 02:44 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/4702888.shtml)
+- 2026-06-30 02:31 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/745075534823.shtml)

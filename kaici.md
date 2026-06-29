@@ -1,55 +1,51 @@
-# 联想集团早盘高开近8% 第四财季收入创新高AI营收占比升至38%
+# 中国信达：2025年归母净利润35.62亿元 同比增长17.32%
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-联想集团（00992）早盘高开近8%，截至发稿，股价上涨7.76%，现报14.17港元，成交额7.08亿港元。 联想集团今早公布截至2026年3月31日的2025/26财年第四季度及全年业绩。集团全年收入同比增长20%，创831亿美元新高。剔除一次性重组费用、认股权证的非现金公允值收益、可换股债券的名义利息及其他非现金项目的影响后，经调整权益持有人应占溢利同比增长42%至20亿
+3月31日金融一线消息，中国信达发布2025年度经营业绩，截至2025年末，资产总额1.72万亿元，较上年末增长5.02%，负债总额1.50万亿元，较上年末增长5.78%。归属于本公司股东权益1958.99亿元，较上年末增长0.88%。全年实现归属于本公司股东净利润35.62亿元，同比增长17.32%。责任编辑：秦艺
 
 ## 正文
 
-联想集团（00992）早盘高开近8%，截至发稿，股价上涨7.76%，现报14.17港元，成交额7.08亿港元。
+3月31日金融一线消息，中国信达发布2025年度经营业绩，截至2025年末，资产总额1.72万亿元，较上年末增长5.02%，负债总额1.50万亿元，较上年末增长5.78%。
 
-联想集团今早公布截至2026年3月31日的2025/26财年第四季度及全年业绩。
+归属于本公司股东权益1958.99亿元，较上年末增长0.88%。
 
-集团全年收入同比增长20%，创831亿美元新高。
+全年实现归属于本公司股东净利润35.62亿元，同比增长17.32%。
 
-剔除一次性重组费用、认股权证的非现金公允值收益、可换股债券的名义利息及其他非现金项目的影响后，经调整权益持有人应占溢利同比增长42%至20亿美元。
-
-于第四财季，收入达到216亿美元的历史新高，同比增长27%，创下过去五年来最高增速；经调整权益持有人应占溢利增至5.59亿美元，同比增长101%。
-
-人工智能相关收入同比增长84%，占集团总收入的38%。
-
-责任编辑：卢昱君
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 02:38 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-30 02:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-30 02:48 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 02:51 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 02:38 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 02:52 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 02:46 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 02:30 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 02:45 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 02:30 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 02:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 02:50 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 02:59 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 02:41 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 02:31 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 02:43 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 02:45 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 02:48 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 02:33 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 02:40 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 02:32 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 02:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 02:47 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 02:41 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/091172.shtml)
-- 2026-06-30 02:52 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/28764795121.shtml)
-- 2026-06-30 02:25 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/204810341.shtml)
-- 2026-06-30 02:27 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/669545083426.shtml)
-- 2026-06-30 02:44 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/19340030688.shtml)
-- 2026-06-30 02:34 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/471797.shtml)
-- 2026-06-30 02:35 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/28446429.shtml)
-- 2026-06-30 02:50 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/9181536548.shtml)
-- 2026-06-30 02:48 - [毒液2](https://www.share.kurohicncr.top/Article/details/96156280710.shtml)
-- 2026-06-30 02:34 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/78970447.shtml)
-- 2026-06-30 02:49 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/763098802953.shtml)
-- 2026-06-30 02:41 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/8772214299.shtml)
-- 2026-06-30 02:24 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/213881.shtml)
-- 2026-06-30 02:24 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/14216.shtml)
-- 2026-06-30 02:36 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/278230406.shtml)
+- 2026-06-30 02:52 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/755193313862.shtml)
+- 2026-06-30 02:40 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/630362360336.shtml)
+- 2026-06-30 02:35 - [急先锋](http://www.share.kurohicncr.top/Article/details/317946577.shtml)
+- 2026-06-30 02:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/152654.shtml)
+- 2026-06-30 02:38 - [我和我的家乡](https://www.share.minike.top/Article/details/69944818506.shtml)
+- 2026-06-30 02:35 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/771049798.shtml)
+- 2026-06-30 02:34 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/877490.shtml)
+- 2026-06-30 02:43 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/837872231000.shtml)
+- 2026-06-30 02:36 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/45840320.shtml)
+- 2026-06-30 02:41 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/21291.shtml)
+- 2026-06-30 02:56 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/16876.shtml)
+- 2026-06-30 02:51 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/1167985.shtml)
+- 2026-06-30 02:58 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/6468441.shtml)
+- 2026-06-30 02:34 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/913358.shtml)
+- 2026-06-30 02:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/068448177.shtml)

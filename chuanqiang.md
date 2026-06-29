@@ -1,56 +1,58 @@
-# 从卡萨布兰卡到渤海之滨：摩洛哥姑娘李霏雅的“鲁班”情缘
+# 事关孩子升学 2026阳光招生新政来了
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网天津5月20日电 题：从卡萨布兰卡到渤海之滨：摩洛哥姑娘李霏雅的“鲁班”情缘 作者 周亚强 薛淳月 “我坚信未来是电子商务的时代，而中国是这个行业发展最快的国家。鲁班工坊帮我找到了实现梦想的最佳路径。”26岁的摩洛哥姑娘李霏雅20日对中新网记者说。 鲁班工坊是天津率先主导推动实施的职业教育国际品牌，面向共建“一带一路”国家分享中国职教资源。2023年，作为天津商务职业学院
+教育部今天(3日)发布通知，启动实施2026年中小学阳光招生专项行动，不断健全公平公开、规范透明、监管有力的长效机制。 据了解，2024、2025年，教育部已连续两年部署开展义务教育阳光招生专项行动，但部分地方、部分学校在学区划片调整、特定类型招生、均衡分班等关键环节还存在不足之处。今年，专项行动全面升级，首次将普通高中招生全面纳入专项行动，贯通义务教育与高中阶段治理链条。过去
 
 ## 正文
 
-中新网天津5月20日电 题：从卡萨布兰卡到渤海之滨：摩洛哥姑娘李霏雅的“鲁班”情缘 作者 周亚强 薛淳月 “我坚信未来是电子商务的时代，而中国是这个行业发展最快的国家。
+教育部今天(3日)发布通知，启动实施2026年中小学阳光招生专项行动，不断健全公平公开、规范透明、监管有力的长效机制。
 
-鲁班工坊帮我找到了实现梦想的最佳路径。
+据了解，2024、2025年，教育部已连续两年部署开展义务教育阳光招生专项行动，但部分地方、部分学校在学区划片调整、特定类型招生、均衡分班等关键环节还存在不足之处。
 
-”26岁的摩洛哥姑娘李霏雅20日对中新网记者说。
+今年，专项行动全面升级，首次将普通高中招生全面纳入专项行动，贯通义务教育与高中阶段治理链条。
 
-鲁班工坊是天津率先主导推动实施的职业教育国际品牌，面向共建“一带一路”国家分享中国职教资源。
+过去，专项行动侧重于对招生环节的规范，今年将统筹推进资源前瞻布局、招生行为规范、均衡编班管理、风险防控保障，构建起覆盖招生全流程、全要素的系统治理框架。
 
-2023年，作为天津商务职业学院与摩洛哥鲁班工坊合作项目的首批学员，李霏雅从卡萨布兰卡来到天津。
+专项行动提出了八项重点任务 强化资源前瞻布局建好学龄人口预测数据库。
 
-“在摩洛哥我就读商务专业，对市场营销和社交媒体很感兴趣。
+定期以县域为单位开展校舍资产、教师配备、装备配置等基本办学条件摸排，精准分析研判各学段各年度基础教育学位余缺状况，进行学位预测预警。
 
-”李霏雅说，鲁班工坊的课程中，最令她着迷的是直播带货实训课。
+积极适应学龄人口变化，妥善处理好学区划分调整、学校布局调整等。
 
-她向记者描述课堂场景：中国学生当观众，在真实的直播平台上观摩他们如何推介。
+严禁各类违规招生 中小学严禁违规提前招生、超计划招生、跨区域招生，严禁通过“意向登记”“预录取协议”“保底录取协议”“分班保证协议”等名义变相提前招生，严禁在招生环节收取所谓的“择校费”“意向金”，严禁将招生录取与“捐资助学”“教育基金”等各类赞助挂钩。
 
 ## 相关推荐
 
-- 2026-06-30 02:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 02:45 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 02:26 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 02:29 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 02:46 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 02:47 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 02:31 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 02:33 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 02:42 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 02:35 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 02:36 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 02:47 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 02:55 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 02:51 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 02:30 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 02:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 02:33 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 02:58 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 02:32 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 02:51 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 02:55 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 02:38 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/32188022.shtml)
-- 2026-06-30 02:27 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/2659249670.shtml)
-- 2026-06-30 02:28 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/12308.shtml)
-- 2026-06-30 02:46 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/88100831471.shtml)
-- 2026-06-30 02:53 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/448739.shtml)
-- 2026-06-30 02:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/1847890.shtml)
-- 2026-06-30 02:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/157849.shtml)
-- 2026-06-30 02:35 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/481122126.shtml)
-- 2026-06-30 02:31 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/542722616.shtml)
-- 2026-06-30 02:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/242220844821.shtml)
-- 2026-06-30 02:33 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/9528705.shtml)
-- 2026-06-30 02:50 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/673723040683.shtml)
-- 2026-06-30 02:33 - [一见倾心](https://www.blog.minike.top/Article/details/899203462691.shtml)
-- 2026-06-30 02:39 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/2664120.shtml)
-- 2026-06-30 02:46 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/979098255047.shtml)
+- 2026-06-30 02:36 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/54442934776.shtml)
+- 2026-06-30 02:38 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/4538507.shtml)
+- 2026-06-30 02:42 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/206471155439.shtml)
+- 2026-06-30 02:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/621211219.shtml)
+- 2026-06-30 02:55 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/6829024.shtml)
+- 2026-06-30 02:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/880944724.shtml)
+- 2026-06-30 02:30 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/465289.shtml)
+- 2026-06-30 02:49 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/98707450.shtml)
+- 2026-06-30 02:57 - [女心理师](https://www.blog.kurohicncr.top/Article/details/6122974404.shtml)
+- 2026-06-30 02:40 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/240727013.shtml)
+- 2026-06-30 02:58 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/190771531.shtml)
+- 2026-06-30 02:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/24558.shtml)
+- 2026-06-30 02:53 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/14060532690.shtml)
+- 2026-06-30 02:42 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/7463254.shtml)
+- 2026-06-30 02:43 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/518682475.shtml)

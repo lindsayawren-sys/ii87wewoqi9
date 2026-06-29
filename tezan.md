@@ -1,44 +1,56 @@
-# A股三大股指集体高开
+# 亿纬锂能首季净利润预计增长25.00%~35.00%
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网5月22日电(记者 谢艺观)22日，A股开盘，上证指数高开0.46%，深证成指高开0.89%，创业板指高开1.2%。办公用品、电子元器件、电脑硬件、半导体等板块涨幅居前。
+亿纬锂能（维权）（300014）4月7日发布首季业绩预增公告，预计实现净利润为13.76亿元~14.87亿元，净利润同比增长25.00%~35.00%。证券时报·数据宝统计显示，亿纬锂能今日收于60.68元，上涨1.13%，日换手率为1.71%，成交额为21.15亿元，近5日下跌12.17%。资金面上，该股今日主力资金净流入5023.22万元，近5日资金净流出26.48亿元。最
 
 ## 正文
 
-中新网5月22日电(记者 谢艺观)22日，A股开盘，上证指数高开0.46%，深证成指高开0.89%，创业板指高开1.2%。
+亿纬锂能（维权）（300014）4月7日发布首季业绩预增公告，预计实现净利润为13.76亿元~14.87亿元，净利润同比增长25.00%~35.00%。
 
-办公用品、电子元器件、电脑硬件、半导体等板块涨幅居前。
+证券时报·数据宝统计显示，亿纬锂能今日收于60.68元，上涨1.13%，日换手率为1.71%，成交额为21.15亿元，近5日下跌12.17%。
+
+资金面上，该股今日主力资金净流入5023.22万元，近5日资金净流出26.48亿元。
+
+最新（4月3日）两融余额54.45亿元，其中，融资余额54.32亿元，环比前一交易日下降1.04%，近5日融资余额累计下降4.42%。
+
+从机构评级来看，近一个月该股被8家机构评级买入。
+
+预计目标价最高的是东吴证券，3月30日东吴证券发布的研报给予公司目标价位105.00元。
+
+（数据宝）（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 02:41 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 02:33 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 02:36 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 02:54 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 02:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 02:33 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 02:31 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 02:53 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 02:33 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 02:49 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 02:38 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 02:52 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 02:45 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 02:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 02:39 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 03:00 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 02:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 02:42 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 02:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 02:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 02:33 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:25 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/073338.shtml)
-- 2026-06-30 02:38 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/751064384.shtml)
-- 2026-06-30 02:28 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/96319.shtml)
-- 2026-06-30 02:31 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/72154.shtml)
-- 2026-06-30 02:51 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/205051193458.shtml)
-- 2026-06-30 02:25 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/439453.shtml)
-- 2026-06-30 02:35 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/2365190.shtml)
-- 2026-06-30 02:36 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/72553121964.shtml)
-- 2026-06-30 02:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/480937.shtml)
-- 2026-06-30 02:37 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/8806056300.shtml)
-- 2026-06-30 02:31 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/346297422.shtml)
-- 2026-06-30 02:33 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/8325107.shtml)
-- 2026-06-30 02:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/221361.shtml)
-- 2026-06-30 02:39 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/197293110109.shtml)
-- 2026-06-30 02:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/62258.shtml)
+- 2026-06-30 02:48 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/677345907745.shtml)
+- 2026-06-30 02:35 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/0844305.shtml)
+- 2026-06-30 02:54 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/059707178.shtml)
+- 2026-06-30 02:31 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/832627201039.shtml)
+- 2026-06-30 02:34 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/16578.shtml)
+- 2026-06-30 02:46 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/016414694.shtml)
+- 2026-06-30 02:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/6031964.shtml)
+- 2026-06-30 02:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/27341.shtml)
+- 2026-06-30 02:48 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/3080202.shtml)
+- 2026-06-30 02:47 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/010861130.shtml)
+- 2026-06-30 02:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/160846147444.shtml)
+- 2026-06-30 02:48 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/0519453.shtml)
+- 2026-06-30 02:45 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/683318.shtml)
+- 2026-06-30 02:59 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/86613004.shtml)
+- 2026-06-30 02:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/9992854477.shtml)

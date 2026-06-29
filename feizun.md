@@ -1,57 +1,59 @@
-# OpenAI拟秘密提交IPO文件，目标最早9月上市
+# “十五五”规划纲要关注民生福祉 7项指标传递暖意
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-当地时间5月20日，据知情人士消息，ChatGPT开发商OpenAI正在筹备秘密提交首次公开募股（IPO）申请，目标是最早在9月登陆公开市场。 据悉，OpenAI已与高盛和摩根士丹利等投行合作起草招股说明书，计划最早于本周五向监管机构秘密提交文件。此次IPO若能成行，将成为人工智能领域规模最大的上市案之一。该公司在最近一轮私人融资中的估值已达约8500亿美元。 OpenAI本周
+覆盖人民群众最关心最直接最现实的问题—— 民生福祉，7项指标传递暖意(20项主要指标，描绘未来五年中国发展新图景③) 就业、收入、教育、健康、养老、托育……“十五五”规划纲要列出20项经济社会发展主要指标，其中民生福祉类有7项，占比超过1/3，覆盖人民群众最关心最直接最现实的问题。 从居民人均可支配收入增长与GDP增长同步，到养老机构护理型床位占比增加、3岁以下婴幼儿入托率提高
 
 ## 正文
 
-当地时间5月20日，据知情人士消息，ChatGPT开发商OpenAI正在筹备秘密提交首次公开募股（IPO）申请，目标是最早在9月登陆公开市场。
+覆盖人民群众最关心最直接最现实的问题—— 民生福祉，7项指标传递暖意(20项主要指标，描绘未来五年中国发展新图景③) 就业、收入、教育、健康、养老、托育……“十五五”规划纲要列出20项经济社会发展主要指标，其中民生福祉类有7项，占比超过1/3，覆盖人民群众最关心最直接最现实的问题。
 
-据悉，OpenAI已与高盛和摩根士丹利等投行合作起草招股说明书，计划最早于本周五向监管机构秘密提交文件。
+从居民人均可支配收入增长与GDP增长同步，到养老机构护理型床位占比增加、3岁以下婴幼儿入托率提高，一系列明确的指标，意味着未来5年居民生活的诸多方面都将迎来新变化。
 
-此次IPO若能成行，将成为人工智能领域规模最大的上市案之一。
+正如有网友评价，“这不仅是国家蓝图，更是14亿多人触手可及的美好生活。
 
-该公司在最近一轮私人融资中的估值已达约8500亿美元。
+”“一增一调一转”，增强群众获得感 7项民生福祉指标都有啥？
 
-OpenAI本周稍早刚跨过IPO的重要障碍之一，公司在与联合创始人埃隆·马斯克的法律诉讼中获胜，法院裁定对OpenAI有利。
+根据“十五五”规划纲要，这7项分别是：未来5年，城镇调查失业率低于5.5%；居民人均可支配收入增长与GDP增长同步；劳动年龄人口平均受教育年限再增长0.4年，也就是从2025年的11.3年增长到2030年的11.7年；每千人口拥有医护人员数中，执业医师数到2030年增加到3.7人，注册护士数到2030年增加到5.1人；养老机构护理型床位占比提升5个百分点，2030年达73%；3岁以下婴幼儿入托率5年提高6个百分点；人均预期寿命到2030年达80岁。
 
-不过马斯克已表示将提出上诉。
+其中，劳动年龄人口平均受教育年限为约束性指标，其他为预期性指标。
 
-值得注意的是，OpenAI此次筹备上市恰逢竞争对手SpaceX也在推进其IPO计划。
+“这体现出以人民为中心的发展思想贯穿民生发展各领域。
 
-SpaceX已于上月秘密提交S-1文件，目标估值约1.75万亿美元。
+”国家发展改革委社会发展研究所室主任李璐认为，主要民生指标相较“十四五”有较强的延续性，在目标值设置上科学合理，呈现问题导向与目标导向相结合、满足需求与引导预期相结合的特征。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 02:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 02:25 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 02:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 02:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 02:48 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 02:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 02:49 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 02:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 02:24 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 02:44 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 02:49 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 02:51 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 02:55 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 02:37 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 02:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 02:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 02:37 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 02:45 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 02:43 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 02:37 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 02:55 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 02:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 02:55 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:44 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/04728.shtml)
-- 2026-06-30 02:49 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/230752418.shtml)
-- 2026-06-30 02:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/389043255203.shtml)
-- 2026-06-30 02:47 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/8554519.shtml)
-- 2026-06-30 02:36 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/40791740.shtml)
-- 2026-06-30 02:28 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/085776.shtml)
-- 2026-06-30 02:47 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/5072626.shtml)
-- 2026-06-30 02:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/2059811841.shtml)
-- 2026-06-30 02:36 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/751229.shtml)
-- 2026-06-30 02:27 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/71746.shtml)
-- 2026-06-30 02:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/23561.shtml)
-- 2026-06-30 02:53 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/78556216.shtml)
-- 2026-06-30 02:30 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/441407931350.shtml)
-- 2026-06-30 02:28 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/70629.shtml)
-- 2026-06-30 02:50 - [日本进球](https://www.blog.kurohicncr.top/Article/details/18605.shtml)
+- 2026-06-30 02:52 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/974377601506.shtml)
+- 2026-06-30 02:59 - [美股](https://www.blog.kurohicncr.top/Article/details/1003126118.shtml)
+- 2026-06-30 02:50 - [沉睡花园](http://www.blog.minike.top/Article/details/305526108.shtml)
+- 2026-06-30 02:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/00694991.shtml)
+- 2026-06-30 02:34 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/136267.shtml)
+- 2026-06-30 02:39 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/049963.shtml)
+- 2026-06-30 02:31 - [日本进球](https://www.blog.minike.top/Article/details/799367059.shtml)
+- 2026-06-30 02:50 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/08078470244.shtml)
+- 2026-06-30 02:43 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/329426.shtml)
+- 2026-06-30 02:43 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/724011176.shtml)
+- 2026-06-30 02:32 - [金牌调解](http://www.share.minike.top/Article/details/02019541984.shtml)
+- 2026-06-30 02:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/568326.shtml)
+- 2026-06-30 02:30 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/4599542734.shtml)
+- 2026-06-30 02:38 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/19342.shtml)
+- 2026-06-30 02:43 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/879364637.shtml)

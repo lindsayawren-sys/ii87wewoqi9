@@ -1,56 +1,59 @@
-# 消费者扎堆涌入折扣零售卖场 TJX上调全年业绩预期
+# （近观中国）政绩观｜习近平：我在正定时经常骑着自行车下乡
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 公司将本财年同店销售额增长预期上调至 3%—4% 内容速览 TJX 集团一季度销售额与净利润双双走高，顺势上调全年经营业绩指引。 旗下拥有 TJ 麦克斯品牌的折扣零售巨头TJX 集团一季度营收业绩向好。在大众消费趋于谨慎的市场环境下，该品牌持续吸引客流入局，公司随即上调全年业绩预期。 财报显示，企业当期净利润达13.3 亿美元，折合每股收益
+中新社北京4月7日电 题：习近平：我在正定时经常骑着自行车下乡 中新社记者 谢雁冰 “我在正定时经常骑着自行车下乡，从滹沱河北岸到滹沱河以南的公社去，每次骑到滹沱河沙滩就得扛着自行车走。” 2015年，中共中央总书记、国家主席、中央军委主席习近平主持召开座谈会，会上谈到自己在河北正定工作时的经历。 20世纪80年代，一辆老式凤凰牌“二八”自行车是习近平在正定最常用的交通工具。三
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 公司将本财年同店销售额增长预期上调至 3%—4% 内容速览 TJX 集团一季度销售额与净利润双双走高，顺势上调全年经营业绩指引。
+中新社北京4月7日电 题：习近平：我在正定时经常骑着自行车下乡 中新社记者 谢雁冰 “我在正定时经常骑着自行车下乡，从滹沱河北岸到滹沱河以南的公社去，每次骑到滹沱河沙滩就得扛着自行车走。
 
-旗下拥有 TJ 麦克斯品牌的折扣零售巨头TJX 集团一季度营收业绩向好。
+” 2015年，中共中央总书记、国家主席、中央军委主席习近平主持召开座谈会，会上谈到自己在河北正定工作时的经历。
 
-在大众消费趋于谨慎的市场环境下，该品牌持续吸引客流入局，公司随即上调全年业绩预期。
+20世纪80年代，一辆老式凤凰牌“二八”自行车是习近平在正定最常用的交通工具。
 
-财报显示，企业当期净利润达13.3 亿美元，折合每股收益 1.19 美元；去年同期净利润为 10.4 亿美元，每股收益 0.92 美元，大幅高于市场预期的每股 1.02 美元。
+三年间，这辆自行车陪着他跑遍全县25个公社、220多个大队。
 
-季度净销售额从上年 131.1 亿美元增至143.2 亿美元，超出华尔街 140.2 亿美元的预估数值。
+提及这段经历，习近平说，“虽然辛苦一点，但确实摸清了情况，同基层干部和老百姓拉近了距离、增进了感情。
 
-同店销售额同比上涨 6%，远超分析师此前 4.1% 的预测值。
+” 调查研究是中国共产党的传家宝，深入扎实的调查研究是树立和践行正确政绩观的前提和基础。
 
-公司上调本财年业绩指引： 将全年同店销售额增速预期，从此前 2%—3% 上调至3%—4%； 全年每股收益预期同步上调，由 4.93—5.02 美元调整至5.08—5.15 美元。
+在地方工作时，靠着跑遍、跑透基层，习近平掌握实情、抓住症结，解决问题、干出实绩。
 
-市场机构普遍预测其全年同店销售增速为 3.4%，调整后每股收益 5.13 美元。
+中共十八大以来，滹沱河畔、太行深处、南海之滨、雪域高原，习近平的足迹遍布大江南北，深入了解各地资源禀赋、比较优势。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 02:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 02:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 02:28 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 02:38 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 02:53 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 02:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 02:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 02:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 02:25 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 02:46 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 02:59 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 02:31 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 02:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 02:44 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 02:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 02:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 02:59 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 02:48 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 02:54 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 02:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 02:39 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 02:54 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/72691.shtml)
-- 2026-06-30 02:25 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/2268969350.shtml)
-- 2026-06-30 02:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/306215566.shtml)
-- 2026-06-30 02:43 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/05522040.shtml)
-- 2026-06-30 02:45 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/3545316.shtml)
-- 2026-06-30 02:40 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/242813853643.shtml)
-- 2026-06-30 02:52 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/40561290.shtml)
-- 2026-06-30 02:41 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/6547729.shtml)
-- 2026-06-30 02:31 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/65800.shtml)
-- 2026-06-30 02:51 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/461991130.shtml)
-- 2026-06-30 02:35 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/99461970546.shtml)
-- 2026-06-30 02:50 - [急先锋](http://www.blog.kurohicncr.top/Article/details/345433.shtml)
-- 2026-06-30 02:27 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/93958249618.shtml)
-- 2026-06-30 02:45 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/304215047088.shtml)
-- 2026-06-30 02:37 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/657910423.shtml)
+- 2026-06-30 02:30 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/37847.shtml)
+- 2026-06-30 02:47 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/29437268296.shtml)
+- 2026-06-30 02:43 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/04840.shtml)
+- 2026-06-30 02:30 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/575106748213.shtml)
+- 2026-06-30 02:37 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/81346190.shtml)
+- 2026-06-30 02:57 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/88710789876.shtml)
+- 2026-06-30 02:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/157573372.shtml)
+- 2026-06-30 02:58 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/078295606.shtml)
+- 2026-06-30 02:36 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/65927.shtml)
+- 2026-06-30 02:56 - [我们的少年时代2](http://www.share.minike.top/Article/details/921947604609.shtml)
+- 2026-06-30 02:53 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/804112.shtml)
+- 2026-06-30 02:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/17149817165.shtml)
+- 2026-06-30 02:46 - [85花告别古偶](http://www.blog.minike.top/Article/details/523410359726.shtml)
+- 2026-06-30 02:42 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/6565461842.shtml)
+- 2026-06-30 02:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/0351340.shtml)

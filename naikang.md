@@ -1,60 +1,50 @@
-# SmartStop Q1净利扭亏为盈达960万美元，同店业绩超指引
+# 快讯：恒指高开2.61% 科指涨2.95% 科网股、黄金股普涨 AI应用股高开 油气股走弱 山东墨龙跌超14%
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-SmartStop Self Storage REIT， Inc．于5月20日公布了2026年第一季度财务数据。公司本季度净利实现扭亏为盈，核心运营指标同店净营业收入录得2.0%的增长，超过了公司自身的预期。 核心财务数据：归属普通股股东净利润扭亏为盈 根据财报数据，公司一季度归属普通股股东的净利润为960万美元，较去年同期大幅改善约1800万美元。归属普通股股东的净利润为每股
+今日港股三大指数集体高开，恒指开盘涨2.61%，报25772.56点，恒科指涨2.95%，国企指数涨1.67%。盘面上，科网股普涨，哔哩哔哩涨超5%，网易、百度、腾讯涨超3%；黄金股高开，中国黄金国际涨超7%；AI应用股普遍上涨，智谱涨超14%；汽车股活跃，蔚来涨超3%；油气股走弱，山东墨龙跌超14%。 责任编辑：郝欣煜
 
 ## 正文
 
-SmartStop Self Storage REIT， Inc．于5月20日公布了2026年第一季度财务数据。
+今日港股三大指数集体高开，恒指开盘涨2.61%，报25772.56点，恒科指涨2.95%，国企指数涨1.67%。
 
-公司本季度净利实现扭亏为盈，核心运营指标同店净营业收入录得2.0%的增长，超过了公司自身的预期。
+盘面上，科网股普涨，哔哩哔哩涨超5%，网易、百度、腾讯涨超3%；黄金股高开，中国黄金国际涨超7%；AI应用股普遍上涨，智谱涨超14%；汽车股活跃，蔚来涨超3%；油气股走弱，山东墨龙跌超14%。
 
-核心财务数据：归属普通股股东净利润扭亏为盈 根据财报数据，公司一季度归属普通股股东的净利润为960万美元，较去年同期大幅改善约1800万美元。
-
-归属普通股股东的净利润为每股0.17美元，而去年同期为每股亏损0.35美元。
-
-总自助仓储相关收入约为6480万美元，同比增长约560万美元。
-
-运营表现：同店NOI增长2%，FFO同比大增19% SmartStop本季度同店经营韧性突出。
-
-同店收入增长1.5%，同店NOI增长2.0%，两项指标均在面临去年同期最艰难季度比较基数的情况下达成。
-
-同店平均物理出租率为92.5%，与去年同期持平。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 02:40 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 02:41 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 02:31 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 02:44 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 02:35 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 02:43 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 02:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 02:48 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 02:52 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 02:26 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 02:44 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 02:25 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 02:33 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 02:51 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 02:59 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 02:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 02:33 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 02:30 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 02:48 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 02:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 02:49 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 02:31 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 02:37 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 02:38 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 02:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 02:51 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 02:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:43 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/103089312122.shtml)
-- 2026-06-30 02:28 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/33117239720.shtml)
-- 2026-06-30 02:53 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/84294899272.shtml)
-- 2026-06-30 02:39 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/24273927303.shtml)
-- 2026-06-30 02:39 - [第一炉香](https://www.blog.minike.top/Article/details/9415081.shtml)
-- 2026-06-30 02:33 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/69340686.shtml)
-- 2026-06-30 02:38 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/795332333.shtml)
-- 2026-06-30 02:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/593766.shtml)
-- 2026-06-30 02:49 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/484248500.shtml)
-- 2026-06-30 02:36 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/90955.shtml)
-- 2026-06-30 02:45 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/8911546.shtml)
-- 2026-06-30 02:34 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/14795.shtml)
-- 2026-06-30 02:34 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/95356888.shtml)
-- 2026-06-30 02:31 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/342420944.shtml)
-- 2026-06-30 02:30 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/8512087.shtml)
+- 2026-06-30 02:45 - [斗破苍穹](https://www.blog.minike.top/Article/details/6033912.shtml)
+- 2026-06-30 02:32 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/59012521.shtml)
+- 2026-06-30 02:56 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/02926.shtml)
+- 2026-06-30 02:55 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/55818585.shtml)
+- 2026-06-30 02:37 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/996580472695.shtml)
+- 2026-06-30 02:54 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/0188479.shtml)
+- 2026-06-30 02:37 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/442851612864.shtml)
+- 2026-06-30 02:44 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/821220628205.shtml)
+- 2026-06-30 02:52 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/66637524625.shtml)
+- 2026-06-30 02:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/548341.shtml)
+- 2026-06-30 02:44 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/68612609170.shtml)
+- 2026-06-30 02:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/9433446.shtml)
+- 2026-06-30 02:54 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/034732.shtml)
+- 2026-06-30 02:49 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/30090793.shtml)
+- 2026-06-30 02:41 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/93589209838.shtml)

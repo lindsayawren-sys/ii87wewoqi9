@@ -1,59 +1,58 @@
-# 郑氏家族落幕，预计年底国资入主！杉杉股份创始人遗孀将卸任董事长，曾与继子争夺实控人地位
+# 中国医疗队为赤道几内亚白内障患者诊疗
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！红星资本局5月21日消息，昨日，杉杉股份（维权）（600884.SH）召开2025年年度股东会，董事长周婷出席会议，若无意外，这将是周婷最后一次以董事长身份出席公司的年度股东会。 此次股东会审议通过了《关于董事会延期换届的议案》，原因在于杉杉股份的控股股东杉杉集团有限公司（以下简称“杉杉集团”）正处于重整关
+中新网约翰内斯堡4月7日电 (谭顺谋 孙翔)马拉博消息：第34批援赤道几内亚中国医疗队近日与赤道几内亚第一夫人康斯坦西娅基金会联合开展“爱与光明之旅”首期白内障免费手术活动。医疗队在马拉博地区医院为当地贫困患者提供免费白内障复明手术及多项眼科诊疗服务。“听说中国医生是最好的，技术也是最好的，所以我就来找中国医生做手术了。”在赤道几内亚马拉博地区医院，一位刚接受完白内障手术的当地
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网约翰内斯堡4月7日电 (谭顺谋 孙翔)马拉博消息：第34批援赤道几内亚中国医疗队近日与赤道几内亚第一夫人康斯坦西娅基金会联合开展“爱与光明之旅”首期白内障免费手术活动。
 
-红星资本局5月21日消息，昨日，杉杉股份（维权）（600884.SH）召开2025年年度股东会，董事长周婷出席会议，若无意外，这将是周婷最后一次以董事长身份出席公司的年度股东会。
+医疗队在马拉博地区医院为当地贫困患者提供免费白内障复明手术及多项眼科诊疗服务。
 
-此次股东会审议通过了《关于董事会延期换届的议案》，原因在于杉杉股份的控股股东杉杉集团有限公司（以下简称“杉杉集团”）正处于重整关键阶段。
+“听说中国医生是最好的，技术也是最好的，所以我就来找中国医生做手术了。
 
-重整成功后，杉杉股份将易主，控股股东将变更为安徽皖维集团有限责任公司（以下简称“皖维集团”）。
+”在赤道几内亚马拉博地区医院，一位刚接受完白内障手术的当地患者普拉西奥说。
 
-据界面新闻报道，有知情人士透露，预计到今年年底，皖维集团就可以完成入主。
+手术前，他的眼睛几乎什么都看不见，在揭开纱布的那一刻，“眼前一片光明，就像新生儿一样，就像给了我一次新的生命一样。
 
-届时，随着皖维集团对杉杉股份董事会改组的实施，周婷将卸任董事长，公司由郑氏家族主导的时代就此落幕，正式开启国资时代。
+”普拉西奥这次治疗右眼的白内障，“下一次有机会，我还要来找中国医生给另外一只眼睛做手术。
 
-有分析人士指出，皖维集团作为安徽国资旗下新材料领域企业，与杉杉股份负极材料、偏光片的主业赛道存在产业协同性，能为杉杉股份带来资金支持、产业链资源整合能力，同时提升融资信用与市场信心。
+” 79岁的患者玛丽亚同时患有胬肉和白内障，多年来的眼疾严重影响了她的日常生活。
 
-杉杉股份或年底易主 周婷将卸任董事长 5月20日，杉杉股份2025年年度股东会在浙江省宁波市鄞州区杉杉大厦28层会议室召开，董事长周婷、董事兼副总经理朱志勇等管理层出席会议。
+医疗队为她先行胬肉切除手术，待恢复后再择期进行白内障手术。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 02:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 02:27 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 02:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 02:43 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 02:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 02:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 02:33 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 02:34 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 02:37 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 02:34 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 02:26 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 02:49 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 02:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 02:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 02:50 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 02:55 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 02:42 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 02:42 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 02:55 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 02:56 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 02:37 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 02:45 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 02:31 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 02:43 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:28 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/33026.shtml)
-- 2026-06-30 02:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/554121.shtml)
-- 2026-06-30 02:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/61689564.shtml)
-- 2026-06-30 02:47 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/02468961158.shtml)
-- 2026-06-30 02:38 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/392478587.shtml)
-- 2026-06-30 02:35 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/771486087.shtml)
-- 2026-06-30 02:34 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/275251071.shtml)
-- 2026-06-30 02:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/186087375.shtml)
-- 2026-06-30 02:35 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/16560368.shtml)
-- 2026-06-30 02:43 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/78273885.shtml)
-- 2026-06-30 02:28 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/45117611199.shtml)
-- 2026-06-30 02:36 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/90902.shtml)
-- 2026-06-30 02:24 - [金牌调解](http://www.share.minike.top/Article/details/7424979.shtml)
-- 2026-06-30 02:26 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/959680578037.shtml)
-- 2026-06-30 02:41 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/10169915473.shtml)
+- 2026-06-30 02:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/742708796829.shtml)
+- 2026-06-30 02:58 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/4490558.shtml)
+- 2026-06-30 02:59 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/3237269.shtml)
+- 2026-06-30 02:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/41205971.shtml)
+- 2026-06-30 02:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/5757825.shtml)
+- 2026-06-30 02:43 - [啊啊啊](https://www.blog.minike.top/Article/details/761736689.shtml)
+- 2026-06-30 02:46 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/4300019.shtml)
+- 2026-06-30 02:42 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/1237592375.shtml)
+- 2026-06-30 02:52 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/4595157.shtml)
+- 2026-06-30 02:37 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/49240.shtml)
+- 2026-06-30 02:46 - [巴西vs日本](http://www.share.minike.top/Article/details/73764361239.shtml)
+- 2026-06-30 02:31 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/77013948.shtml)
+- 2026-06-30 02:35 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/5253506.shtml)
+- 2026-06-30 02:33 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/58563.shtml)
+- 2026-06-30 02:43 - [乔家的儿女](http://www.share.minike.top/Article/details/63573246.shtml)

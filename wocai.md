@@ -1,58 +1,53 @@
-# 河北产业组团亮相文博会 七大展区呈现燕赵文化盛宴
+# 国家广电总局：已清理“AI魔改”相关违规视频23000余条
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？最高法案例“划重点”黄金，再跌也不能买了？日赚近4亿！中国最牛存储公司为什么在合肥“Token包”来了，以后用AI就像交话费？小满万物盈 茶香沁寰宇郑丽文：全世界都不支持“台独”洁丽雅晒老板出生证自证，都是短剧惹的祸？倾听民企心声，国家发改委多维
+中新网4月8日电 据国家广播电视总局微信公众号消息，为整治“AI魔改”视频传播乱象，国家广播电视总局2026年1月开展了为期一个月的专项治理工作，重点清理基于四大名著、历史题材、革命题材、英模人物等经典电视剧作品进行“AI魔改”的违规视频，并同步清理各类邪典动画。专项治理工作共清理相关违规视频23000余条、处置违规账号100余个，有效遏制违规视频蔓延的不良态势。自2月1日起，
 
 ## 正文
 
-郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
+中新网4月8日电 据国家广播电视总局微信公众号消息，为整治“AI魔改”视频传播乱象，国家广播电视总局2026年1月开展了为期一个月的专项治理工作，重点清理基于四大名著、历史题材、革命题材、英模人物等经典电视剧作品进行“AI魔改”的违规视频，并同步清理各类邪典动画。
 
-建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
+专项治理工作共清理相关违规视频23000余条、处置违规账号100余个，有效遏制违规视频蔓延的不良态势。
 
-最高法案例“划重点”黄金，再跌也不能买了？
+自2月1日起，“AI魔改”视频治理工作通过常态化、制度化长效机制持续开展。
 
-日赚近4亿！
+针对“AI魔改”违规视频生产和传播特点，广电总局督导各主要网络视听平台进一步深化落实主体责任，完善工作流程，强化审核能力，加强日常排查，坚决清理违规视频，并按月发布治理成果，接受社会监督。
 
-中国最牛存储公司为什么在合肥“Token包”来了，以后用AI就像交话费？
+截至3月31日，主要网络视听平台已清理违规视频近29000条、处置违规账号40余个。
 
-小满万物盈 茶香沁寰宇郑丽文：全世界都不支持“台独”洁丽雅晒老板出生证自证，都是短剧惹的祸？
-
-倾听民企心声，国家发改委多维发力护航民营经济从“月季花环”看中国9.9元的“抽象娃娃”卖疯了：有厂家半个月卖出几十万个法治护航民营经济行稳致远从三个“更”看中国有力护航民企“轻装上阵”六小龄童：愚公精神与西游精神一脉相承算法时代，如何让阅读更加深入？
-
-黄金白银，为何集体大跌？
+广电总局将密切关注AI技术发展，强化价值引领，筑牢文化安全防线，不断净化网络视听生态，营造风清气正的广电视听文艺创作环境。
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 02:53 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 02:34 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 02:28 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 02:26 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 02:53 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 02:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 02:30 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 02:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 02:29 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 02:27 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 02:28 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 02:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 02:33 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 02:33 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 02:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 02:34 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 02:30 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 02:50 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 02:33 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 02:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 02:55 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 02:57 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:37 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/211849987062.shtml)
-- 2026-06-30 02:29 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/61223191.shtml)
-- 2026-06-30 02:42 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/59630091524.shtml)
-- 2026-06-30 02:36 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/999436124.shtml)
-- 2026-06-30 02:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/1384877367.shtml)
-- 2026-06-30 02:30 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/309276791.shtml)
-- 2026-06-30 02:47 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/4757275968.shtml)
-- 2026-06-30 02:35 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/757225.shtml)
-- 2026-06-30 02:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/244775199.shtml)
-- 2026-06-30 02:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/448060.shtml)
-- 2026-06-30 02:27 - [我们的少年时代2](http://www.share.minike.top/Article/details/009550.shtml)
-- 2026-06-30 02:25 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/101886200120.shtml)
-- 2026-06-30 02:40 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/60558.shtml)
-- 2026-06-30 02:51 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/60666971390.shtml)
-- 2026-06-30 02:31 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/33840733.shtml)
+- 2026-06-30 02:55 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/469592592.shtml)
+- 2026-06-30 02:43 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/9943420860.shtml)
+- 2026-06-30 02:37 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/7729672543.shtml)
+- 2026-06-30 02:52 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/3540321.shtml)
+- 2026-06-30 02:42 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/35880.shtml)
+- 2026-06-30 02:36 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/469395229846.shtml)
+- 2026-06-30 02:58 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/850888845.shtml)
+- 2026-06-30 02:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/8003077915.shtml)
+- 2026-06-30 02:42 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/073897015671.shtml)
+- 2026-06-30 02:57 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/4604374701.shtml)
+- 2026-06-30 02:43 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/8830387949.shtml)
+- 2026-06-30 02:52 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/24097985291.shtml)
+- 2026-06-30 02:53 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/58342.shtml)
+- 2026-06-30 02:35 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/199574991800.shtml)
+- 2026-06-30 02:59 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/0639858.shtml)

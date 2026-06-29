@@ -1,61 +1,47 @@
-# 美国抵押贷款利率上周升至近两个月高点
+# 石油美元压力成为焦点
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-美国抵押贷款利率上周升至近两个月高点，拖累购房活动。 根据美国抵押贷款银行家协会（MBA）周三公布的数据，截至5月15日当周，30年期抵押贷款合约利率上升10个基点至6.56%，略低于3月底录得的6.57%。自2月底伊朗战争爆发以来，该利率累计上升了近0.5个百分点。 购房贷款申请指数下降4.1%，创截至3月20日当周以来最大跌幅。MBA再融资指数则小幅回落。 作为房贷融资成本
+分析师强调，随着海湾贸易多元化以及有报道指出非美元货币结算的货运，去美元化风险上升；其影响波及沙特阿美及全球能源流动。责任编辑：张俊 SF065
 
 ## 正文
 
-美国抵押贷款利率上周升至近两个月高点，拖累购房活动。
+分析师强调，随着海湾贸易多元化以及有报道指出非美元货币结算的货运，去美元化风险上升；其影响波及沙特阿美及全球能源流动。
 
-根据美国抵押贷款银行家协会（MBA）周三公布的数据，截至5月15日当周，30年期抵押贷款合约利率上升10个基点至6.56%，略低于3月底录得的6.57%。
-
-自2月底伊朗战争爆发以来，该利率累计上升了近0.5个百分点。
-
-购房贷款申请指数下降4.1%，创截至3月20日当周以来最大跌幅。
-
-MBA再融资指数则小幅回落。
-
-作为房贷融资成本风向标的美国10年期国债收益率近期持续攀升。
-
-由于中东冲突推高能源价格，市场对通胀的担忧加剧，进而推动收益率上涨。
-
-周二，10年期美债收益率升至去年1月以来最高水平。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 02:47 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 02:25 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 02:49 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 02:25 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 02:25 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 02:50 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 02:40 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 02:24 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 02:45 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 02:28 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 02:45 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 02:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 02:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 02:53 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 02:30 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 02:36 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 02:33 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 02:36 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 02:48 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 02:59 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 02:54 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 02:34 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 02:37 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 02:34 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 02:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 02:37 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 02:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 02:40 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:46 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/91093944872.shtml)
-- 2026-06-30 02:31 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/466550397.shtml)
-- 2026-06-30 02:25 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/6802004060.shtml)
-- 2026-06-30 02:28 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/36829639.shtml)
-- 2026-06-30 02:37 - [沙丘](https://www.blog.minike.top/Article/details/637063961.shtml)
-- 2026-06-30 02:40 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/0934445.shtml)
-- 2026-06-30 02:34 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/9162363394.shtml)
-- 2026-06-30 02:43 - [勇敢的心第二部](https://www.share.minike.top/Article/details/0210967298.shtml)
-- 2026-06-30 02:28 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/84564358213.shtml)
-- 2026-06-30 02:41 - [千香](http://www.blog.minike.top/Article/details/4384822704.shtml)
-- 2026-06-30 02:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/363916.shtml)
-- 2026-06-30 02:34 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/7015200205.shtml)
-- 2026-06-30 02:39 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/50454308888.shtml)
-- 2026-06-30 02:50 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/32567.shtml)
-- 2026-06-30 02:31 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/65995.shtml)
+- 2026-06-30 02:42 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/99341549128.shtml)
+- 2026-06-30 02:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/724474017.shtml)
+- 2026-06-30 02:53 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/7608584138.shtml)
+- 2026-06-30 02:37 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/06093725010.shtml)
+- 2026-06-30 02:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/911385.shtml)
+- 2026-06-30 02:50 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/6523792.shtml)
+- 2026-06-30 02:37 - [毒液2](https://www.share.kurohicncr.top/Article/details/5632482773.shtml)
+- 2026-06-30 02:43 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/25564645885.shtml)
+- 2026-06-30 02:41 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/82171563.shtml)
+- 2026-06-30 02:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/91615777.shtml)
+- 2026-06-30 02:31 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/30442.shtml)
+- 2026-06-30 02:32 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/60539598184.shtml)
+- 2026-06-30 02:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/6764347953.shtml)
+- 2026-06-30 02:38 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/305820519653.shtml)
+- 2026-06-30 02:35 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/492549083.shtml)

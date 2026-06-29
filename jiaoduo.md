@@ -1,58 +1,61 @@
-# 温蒂汉堡任命罗伯特・赖特为首席执行官
+# 85岁“紫檀女王”陈丽华逝世：坐拥56亿美元身家，每天只花10块钱
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-赖特曾在温蒂汉堡担任高管，还曾任首席运营官一职 内容速览 罗伯特・赖特将于本周四正式回归出任温蒂汉堡首席执行官，全力扭转品牌在美国市场销售额下滑的颓势。 罗伯特・赖特重返温蒂汉堡担任首席执行官，主导推动这家快餐连锁品牌扭转美国市场营收低迷的局面。 赖特此前在温蒂汉堡任职超四年，曾任首席运营官。他离职后出任三明治连锁品牌波特贝利首席执行官，去年主导完成该品牌以约 5.66 亿美元
+中新经纬4月7日电 (薛宇飞 谢婧雯)富华国际集团官网7日发布讣告，85岁的陈丽华于2026年4月5日在北京逝世。 陈丽华的讣告中，她有两个头衔，一个是富华国际集团荣誉主席，另一个是中国紫檀博物馆馆长，这就是这位女性企业家一生足迹的注脚：在商业界拼杀向前，在文化界匠心传承。 “生活费一天10块钱” 陈丽华资料图 来源：中新网 陈丽华的人生，是一个从“北京大妞”到“香港富豪”的蜕
 
 ## 正文
 
-赖特曾在温蒂汉堡担任高管，还曾任首席运营官一职 内容速览 罗伯特・赖特将于本周四正式回归出任温蒂汉堡首席执行官，全力扭转品牌在美国市场销售额下滑的颓势。
+中新经纬4月7日电 (薛宇飞 谢婧雯)富华国际集团官网7日发布讣告，85岁的陈丽华于2026年4月5日在北京逝世。
 
-罗伯特・赖特重返温蒂汉堡担任首席执行官，主导推动这家快餐连锁品牌扭转美国市场营收低迷的局面。
+陈丽华的讣告中，她有两个头衔，一个是富华国际集团荣誉主席，另一个是中国紫檀博物馆馆长，这就是这位女性企业家一生足迹的注脚：在商业界拼杀向前，在文化界匠心传承。
 
-赖特此前在温蒂汉堡任职超四年，曾任首席运营官。
+“生活费一天10块钱” 陈丽华资料图 来源：中新网 陈丽华的人生，是一个从“北京大妞”到“香港富豪”的蜕变故事。
 
-他离职后出任三明治连锁品牌波特贝利首席执行官，去年主导完成该品牌以约 5.66 亿美元出售给连锁便利店运营商瑞斯崔克的交易。
+由于出身满族世家，她自小与祖传的家具为伴，练就了一双鉴别红木的“火眼金睛”。
 
-此外他还曾在查利芝士牛排、查克斯汽车餐厅、达美乐披萨等餐饮企业担任高层管理职务。
+上世纪80年代初，陈丽华在北京的一家家具厂里，发现了一批无人问津的明清紫檀、黄花梨古家具。
 
-此次人事任命于本周四正式生效，赖特同时将进入公司董事会。
+她买下“无主”之木，带着它们去了香港。
 
-温蒂汉堡周三宣布，现任临时首席执行官肯・库克将继续留任首席财务官。
+这批家具在市场上大受欢迎，为她换来了创业的第一桶金。
 
-眼下温蒂汉堡正全力推进经营扭转计划，核心举措为优化餐品品质、关停经营不善门店。
+之后，她在香港房地产市场开启“扫货”模式，比如在香港比华利山楼盘购置了12栋别墅，低价买进高价出手。
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 02:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 02:39 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 02:44 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 02:25 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 02:24 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 02:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 02:34 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 02:30 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 02:27 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 02:25 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 02:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 02:31 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 02:51 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 02:59 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 02:56 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 02:57 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 02:37 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 02:30 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 02:32 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 02:52 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 02:58 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 02:51 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 02:30 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 02:46 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 02:53 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 02:33 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/151122001.shtml)
-- 2026-06-30 02:41 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/82525.shtml)
-- 2026-06-30 02:49 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/369311927.shtml)
-- 2026-06-30 02:52 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/15189.shtml)
-- 2026-06-30 02:29 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/4050129.shtml)
-- 2026-06-30 02:45 - [扬名立万](http://www.share.kurohicncr.top/Article/details/38724.shtml)
-- 2026-06-30 02:37 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/771166.shtml)
-- 2026-06-30 02:35 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/1570324390.shtml)
-- 2026-06-30 02:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/03672.shtml)
-- 2026-06-30 02:28 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/390031327060.shtml)
-- 2026-06-30 02:48 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/91116019.shtml)
-- 2026-06-30 02:48 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/22841519361.shtml)
-- 2026-06-30 02:33 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/6058111.shtml)
-- 2026-06-30 02:32 - [美人鱼](http://www.share.minike.top/Article/details/50862.shtml)
-- 2026-06-30 02:26 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/63031927600.shtml)
+- 2026-06-30 02:58 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/766197996809.shtml)
+- 2026-06-30 02:39 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/223153189.shtml)
+- 2026-06-30 02:44 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/80806.shtml)
+- 2026-06-30 02:33 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/7238647.shtml)
+- 2026-06-30 02:32 - [逃狱兄弟](https://www.share.minike.top/Article/details/226751801087.shtml)
+- 2026-06-30 02:46 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/574954898.shtml)
+- 2026-06-30 02:36 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/83979739009.shtml)
+- 2026-06-30 02:34 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/678015938.shtml)
+- 2026-06-30 02:56 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/79571125298.shtml)
+- 2026-06-30 02:39 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/89060470.shtml)
+- 2026-06-30 02:48 - [千与千寻](https://www.share.kurohicncr.top/Article/details/95939298603.shtml)
+- 2026-06-30 02:41 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/102405748202.shtml)
+- 2026-06-30 02:51 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/52389.shtml)
+- 2026-06-30 02:39 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/124088.shtml)
+- 2026-06-30 02:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/54945.shtml)

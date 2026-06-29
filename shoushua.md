@@ -1,56 +1,46 @@
-# 南非姆普马兰加省发生交通事故致10人死亡
+# 美国联邦医疗保险优惠计划费率上调提振保险股
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新社约翰内斯堡5月21日电 当地时间21日凌晨5时许，南非姆普马兰加省斯坦德顿(Standerton)与莫根宗(Morgenzon)之间的R39公路发生一起小巴车与巴士迎面相撞事故。截至目前，事故已造成10人死亡。 姆普马兰加省社区安全部门发言人莫埃蒂·姆穆西(Moeti Mmusi)介绍，8人在事故现场死亡，1人在送医途中身亡，另有1人在斯坦德顿一家医院接受治疗期间去世。死
+美国医疗保险和医疗补助服务中心最终确定将2027年的联邦医疗保险优惠计划（Medicare Advantage）支付费率提高2.48%，带动联合健康、CVS健康以及Humana股价上涨。责任编辑：张俊 SF065
 
 ## 正文
 
-中新社约翰内斯堡5月21日电 当地时间21日凌晨5时许，南非姆普马兰加省斯坦德顿(Standerton)与莫根宗(Morgenzon)之间的R39公路发生一起小巴车与巴士迎面相撞事故。
+美国医疗保险和医疗补助服务中心最终确定将2027年的联邦医疗保险优惠计划（Medicare Advantage）支付费率提高2.48%，带动联合健康、CVS健康以及Humana股价上涨。
 
-截至目前，事故已造成10人死亡。
-
-姆普马兰加省社区安全部门发言人莫埃蒂·姆穆西(Moeti Mmusi)介绍，8人在事故现场死亡，1人在送医途中身亡，另有1人在斯坦德顿一家医院接受治疗期间去世。
-
-死者为小巴车司机及乘客。
-
-目前事故原因尚不明确，相关部门已展开调查。
-
-当地市政部门提醒驾驶员，冬季清晨当地常出现浓雾天气，导致道路能见度下降，呼吁司机减速慢行、谨慎驾驶并开启车灯。
-
-(完)
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 02:33 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 02:25 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 02:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 02:46 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 02:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 02:38 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 02:49 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 02:31 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 02:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 02:38 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 02:47 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 02:45 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 02:51 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 02:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 02:52 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 02:41 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 02:46 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 02:48 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 02:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 02:30 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 02:59 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 02:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 02:47 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 02:45 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:52 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/823815849.shtml)
-- 2026-06-30 02:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/89057078.shtml)
-- 2026-06-30 02:27 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/5447255663.shtml)
-- 2026-06-30 02:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/3699554.shtml)
-- 2026-06-30 02:33 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/844652054.shtml)
-- 2026-06-30 02:50 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/81701.shtml)
-- 2026-06-30 02:33 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/62764171.shtml)
-- 2026-06-30 02:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/9738724.shtml)
-- 2026-06-30 02:29 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/27178.shtml)
-- 2026-06-30 02:42 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/99524.shtml)
-- 2026-06-30 02:45 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/494249407.shtml)
-- 2026-06-30 02:30 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/1307429082.shtml)
-- 2026-06-30 02:29 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/7245543.shtml)
-- 2026-06-30 02:46 - [金刚川](https://www.share.minike.top/Article/details/625987661.shtml)
-- 2026-06-30 02:43 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/97071782.shtml)
+- 2026-06-30 02:57 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/8993128.shtml)
+- 2026-06-30 02:56 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/28689315.shtml)
+- 2026-06-30 02:50 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/8898752.shtml)
+- 2026-06-30 02:48 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/021004288.shtml)
+- 2026-06-30 02:37 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/6521049.shtml)
+- 2026-06-30 02:43 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/388700649400.shtml)
+- 2026-06-30 02:35 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/84172.shtml)
+- 2026-06-30 02:40 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/17249555.shtml)
+- 2026-06-30 02:59 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/08627.shtml)
+- 2026-06-30 02:44 - [斛珠夫人](http://www.share.minike.top/Article/details/758151.shtml)
+- 2026-06-30 02:35 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/576784187.shtml)
+- 2026-06-30 02:46 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/7488617.shtml)
+- 2026-06-30 02:38 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/9399863.shtml)
+- 2026-06-30 02:35 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/85423460099.shtml)
+- 2026-06-30 02:49 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/0265153.shtml)

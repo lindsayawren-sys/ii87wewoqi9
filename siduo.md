@@ -1,56 +1,59 @@
-# 中国团队领衔研发出可穿戴机器人设备 助力患儿神经肌肉恢复
+# 大摩：降新城发展目标价至2.88港元 评级为“增持”
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月21日电 (记者 孙自法)国际学术期刊《自然》最新发表一篇工程学论文称，中国研究团队领衔研发出一种轻量的机器人装置，可促进脊髓性肌萎缩症(SMA)患儿神经肌肉功能的恢复，帮助他们独立站立。在停止训练后，功能改善仍然持续，展示出该机器人装置在长期康复上的潜力。 脊髓性肌萎缩症是一种影响神经、导致肌肉无力的神经肌肉疾病，会限制患者的运动能力。相关症状可通过等速抗阻训练
+摩根士丹利发布研报称，对新城发展（01030）目标价由3.17港元下调至2.88港元，基于维持40%的资产净值（NAV）折让不变。该行认为，营运正恢复正常，投资物业价值有望释放，而住宅业务的拖累正在减少，中期而言有望恢复派息，予“增持”评级。 更新新城发展的风险回报分析。该行纳入2025年业绩及引入2028年预测，下调新城发展2026年核心每股盈利预测9%及2027年预测3%，
 
 ## 正文
 
-中新网北京5月21日电 (记者 孙自法)国际学术期刊《自然》最新发表一篇工程学论文称，中国研究团队领衔研发出一种轻量的机器人装置，可促进脊髓性肌萎缩症(SMA)患儿神经肌肉功能的恢复，帮助他们独立站立。
+摩根士丹利发布研报称，对新城发展（01030）目标价由3.17港元下调至2.88港元，基于维持40%的资产净值（NAV）折让不变。
 
-在停止训练后，功能改善仍然持续，展示出该机器人装置在长期康复上的潜力。
+该行认为，营运正恢复正常，投资物业价值有望释放，而住宅业务的拖累正在减少，中期而言有望恢复派息，予“增持”评级。
 
-脊髓性肌萎缩症是一种影响神经、导致肌肉无力的神经肌肉疾病，会限制患者的运动能力。
+更新新城发展的风险回报分析。
 
-相关症状可通过等速抗阻训练等物理治疗来改善，这类训练使用控制速度的锻炼来增强力量，但其训练需要的器械通常仅有专门机构可提供，而且训练所需的装置过于笨重，不便于儿童使用。
+该行纳入2025年业绩及引入2028年预测，下调新城发展2026年核心每股盈利预测9%及2027年预测3%，以反映：一）更新后的开发物业入账及完工时间表；二）物业销售疲弱；三）较佳的开发物业毛利率。
 
-在本项研究中，论文通讯作者、北京航空航天大学冯仰刚副教授和同事及中外合作者一起，共同设计出一种自重仅0.96公斤的轻量可穿戴膝部机器人，来帮助II型脊髓性肌萎缩症(该病的中间型)患儿进行等速训练。
+该行表示，考虑到重资产模式下新开业商场数量减少，下调中期商场租金增长预测，由原来的7%至8%年复合增长率降至5%至6%。
 
-临床试验中，研究团队在6名儿童(6岁-10岁)中开展了测试，这些儿童无法在无辅助情况下由坐姿站立。
+但因融资成本下降及流动性显著改善，将加权平均资本成本由10.4%下调至9%。
 
-在用该机器人设备进行训练6周(每周5次)之后，研究团队观察到了他们运动能力的改善(所有6名儿童都能无需机器人辅助由坐姿站起)、膝部功能改善，以及肌肉体积增加(股四头肌增加19%)。
-
-这些儿童继续进行了6周的低强度等速训练(每周使用该设备3次)，随后恢复常规物理治疗，并进行了30天的随访。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 02:51 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 02:51 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 02:33 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 02:27 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 02:33 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 02:34 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 02:30 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 02:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 02:44 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 02:35 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 02:39 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 02:49 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 02:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 02:37 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 02:33 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 02:55 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 02:55 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 02:56 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 02:53 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 02:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 02:30 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 02:43 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 02:44 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 02:39 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:45 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/6097541.shtml)
-- 2026-06-30 02:51 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/8340821976.shtml)
-- 2026-06-30 02:33 - [巴西扳平比分](http://www.blog.minike.top/Article/details/014026628.shtml)
-- 2026-06-30 02:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/0901489.shtml)
-- 2026-06-30 02:48 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/95096517.shtml)
-- 2026-06-30 02:51 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/3545198350.shtml)
-- 2026-06-30 02:39 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/27472973439.shtml)
-- 2026-06-30 02:41 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/8378075.shtml)
-- 2026-06-30 02:27 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/87850.shtml)
-- 2026-06-30 02:27 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/53278316555.shtml)
-- 2026-06-30 02:28 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/887941597.shtml)
-- 2026-06-30 02:35 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/08579.shtml)
-- 2026-06-30 02:30 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/9665409.shtml)
-- 2026-06-30 02:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/44109927.shtml)
-- 2026-06-30 02:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/0730735081.shtml)
+- 2026-06-30 02:32 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/1295674.shtml)
+- 2026-06-30 02:30 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/088814274.shtml)
+- 2026-06-30 02:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/479878416168.shtml)
+- 2026-06-30 02:51 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/3094716205.shtml)
+- 2026-06-30 02:41 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/007596.shtml)
+- 2026-06-30 02:53 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/73736743.shtml)
+- 2026-06-30 02:53 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/3299274119.shtml)
+- 2026-06-30 02:37 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/0611097426.shtml)
+- 2026-06-30 02:49 - [沉睡花园](https://www.blog.minike.top/Article/details/07601439726.shtml)
+- 2026-06-30 02:59 - [沉睡花园](https://www.share.minike.top/Article/details/82133.shtml)
+- 2026-06-30 02:51 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/22562778533.shtml)
+- 2026-06-30 02:53 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/3632033.shtml)
+- 2026-06-30 02:50 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/942237.shtml)
+- 2026-06-30 02:38 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/8966156216.shtml)
+- 2026-06-30 02:32 - [女心理师](https://www.blog.minike.top/Article/details/05403681.shtml)

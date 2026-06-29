@@ -1,61 +1,59 @@
-# 戴蒙称摩根大通未来或将多聘AI人才 少聘传统银行家
+# 沃尔玛信号警示经济放缓 折扣零售与奢侈品消费差距扩大
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-摩根大通首席执行官杰米‧戴蒙表示，随着AI技术加速普及，这家华尔街巨头未来可能会僱用更多AI专家，减少传统银行家的招聘。 “我认为，从长远来看，它将减少我们的工作职缺，”戴蒙在上海接受采访时表示。“未来将出现各种不同类型的工作，我认为我们会招聘更多AI人才，在某些类别中减少银行家的人数，但同时也会让员工的生产力更高。” 戴蒙的发言凸显出金融业正全面转向自动化与AI应用，这股趋势
+资深策略师吉姆·保尔森表示，沃尔玛正发出美国经济的早期预警信号。他指出，一项关键市场指标正指向潜在的经济放缓。 “沃尔玛衰退信号”衡量的是沃尔玛股价与标普全球奢侈品指数的相对表现。其逻辑很简单：当平价商店表现优于高端商品时，通常意味着消费者正在减少支出。 目前这一差距正迅速扩大。沃尔玛股价今年迄今上涨约11%，而奢侈品指数则下跌约15%。两者差距已接近2008-2009年金融危
 
 ## 正文
 
-摩根大通首席执行官杰米‧戴蒙表示，随着AI技术加速普及，这家华尔街巨头未来可能会僱用更多AI专家，减少传统银行家的招聘。
+资深策略师吉姆·保尔森表示，沃尔玛正发出美国经济的早期预警信号。
 
-“我认为，从长远来看，它将减少我们的工作职缺，”戴蒙在上海接受采访时表示。
+他指出，一项关键市场指标正指向潜在的经济放缓。
 
-“未来将出现各种不同类型的工作，我认为我们会招聘更多AI人才，在某些类别中减少银行家的人数，但同时也会让员工的生产力更高。
+“沃尔玛衰退信号”衡量的是沃尔玛股价与标普全球奢侈品指数的相对表现。
 
-” 戴蒙的发言凸显出金融业正全面转向自动化与AI应用，这股趋势正在重塑金融业劳动市场。
+其逻辑很简单：当平价商店表现优于高端商品时，通常意味着消费者正在减少支出。
 
-本周稍早，渣打银行行政总裁温拓思也引发市场热议。
+目前这一差距正迅速扩大。
 
-他宣称，这家银行将在未来四年内以科技取代“低价值人力资本”，裁减8000个后勤支持职位。
+沃尔玛股价今年迄今上涨约11%，而奢侈品指数则下跌约15%。
 
-此前，高盛集团总裁John Waldron也曾形容，传统后台作业如同一条“人力装配线”，非常适合被自动化技术取代。
+两者差距已接近2008-2009年金融危机以来的水平。
 
-汇丰控股行政总裁艾桥智本周也警告，AI将“摧毁”部分职位，但同时也会创造新的工作机会，并呼吁员工应该适应技术转型，而非抗拒变革。
+保尔森认为，这一趋势表明财务压力正在加剧，尤其是在中低收入家庭群体中。
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 02:47 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 02:47 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 02:25 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 02:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 02:52 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 02:28 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 02:37 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 02:40 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 02:35 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 02:41 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 02:47 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 02:35 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 02:42 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 02:40 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 02:59 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 02:38 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 02:51 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 02:46 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 02:49 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 02:48 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 02:35 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 02:38 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-30 02:46 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 02:34 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 02:42 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 02:33 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 02:48 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:30 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/38599.shtml)
-- 2026-06-30 02:42 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/63053390.shtml)
-- 2026-06-30 02:48 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/69276.shtml)
-- 2026-06-30 02:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/055022.shtml)
-- 2026-06-30 02:39 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/55345120386.shtml)
-- 2026-06-30 02:43 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/924713845972.shtml)
-- 2026-06-30 02:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/7651052221.shtml)
-- 2026-06-30 02:44 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/37337767942.shtml)
-- 2026-06-30 02:45 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/3426225991.shtml)
-- 2026-06-30 02:36 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/65431.shtml)
-- 2026-06-30 02:48 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/80538038.shtml)
-- 2026-06-30 02:31 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/90988051.shtml)
-- 2026-06-30 02:46 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/2830704.shtml)
-- 2026-06-30 02:49 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/518350383390.shtml)
-- 2026-06-30 02:44 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/8679443.shtml)
+- 2026-06-30 02:57 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/7009629114.shtml)
+- 2026-06-30 02:50 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/501921772046.shtml)
+- 2026-06-30 02:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/765527254.shtml)
+- 2026-06-30 02:31 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/453577188.shtml)
+- 2026-06-30 02:38 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/7931421702.shtml)
+- 2026-06-30 02:52 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/484850735501.shtml)
+- 2026-06-30 02:46 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/91811.shtml)
+- 2026-06-30 02:45 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/175851191304.shtml)
+- 2026-06-30 02:44 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/8680862.shtml)
+- 2026-06-30 02:43 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/5068630.shtml)
+- 2026-06-30 02:38 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/8782177.shtml)
+- 2026-06-30 02:49 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/77349230.shtml)
+- 2026-06-30 02:51 - [极限挑战第一季](https://www.share.minike.top/Article/details/58887005.shtml)
+- 2026-06-30 02:33 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/939196180.shtml)
+- 2026-06-30 02:40 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/93164838.shtml)

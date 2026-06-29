@@ -1,58 +1,60 @@
-# 通胀重燃+印度关税“双杀”，国际金银再度震荡
+# 习近平就服务业发展作出重要指示
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新经纬5月20日电 (张芷菡)20日，国际现货黄金价格持续震荡。盘中一度下跌4455美元/盎司水平，截至发稿，国际黄金现货报4493.47美元/盎司，微涨0.35%。 5月中旬以来，国际现货黄金整体大幅下挫；伦敦黄金现货自5月15日起连续破位下跌，从4650美元附近跌至5月19日4481.6美元。 东方金诚研究发展部高级副总监瞿瑞表示，国际金价震荡，主要是由通胀预期升温导致美
+原标题：习近平就服务业发展作出重要指示强调 突出需求牵引改革攻坚科技赋能开放合作 努力开创服务业高质量发展新局面 李强出席全国服务业大会并讲话 丁薛祥作总结讲话 新华社北京4月8日电 中共中央总书记、国家主席、中央军委主席习近平近日就服务业发展作出重要指示指出，党的十八大以来，我国服务业规模稳步扩大，质效持续提升，在支撑产业升级、满足民生需要、带动就业扩容等方面发挥了重要作用。
 
 ## 正文
 
-中新经纬5月20日电 (张芷菡)20日，国际现货黄金价格持续震荡。
+原标题：习近平就服务业发展作出重要指示强调 突出需求牵引改革攻坚科技赋能开放合作 努力开创服务业高质量发展新局面 李强出席全国服务业大会并讲话 丁薛祥作总结讲话 新华社北京4月8日电 中共中央总书记、国家主席、中央军委主席习近平近日就服务业发展作出重要指示指出，党的十八大以来，我国服务业规模稳步扩大，质效持续提升，在支撑产业升级、满足民生需要、带动就业扩容等方面发挥了重要作用。
 
-盘中一度下跌4455美元/盎司水平，截至发稿，国际黄金现货报4493.47美元/盎司，微涨0.35%。
+习近平强调，新征程上，要坚持以新时代中国特色社会主义思想为指导，完整准确全面贯彻新发展理念，突出需求牵引、改革攻坚、科技赋能、开放合作，深入实施服务业扩能提质行动，推进生产性服务业向专业化和价值链高端延伸，促进生活性服务业高品质多样化便利化发展，培育更多“中国服务”品牌，努力开创服务业高质量发展新局面。
 
-5月中旬以来，国际现货黄金整体大幅下挫；伦敦黄金现货自5月15日起连续破位下跌，从4650美元附近跌至5月19日4481.6美元。
+全国服务业大会4月7日至8日在京召开。
 
-东方金诚研究发展部高级副总监瞿瑞表示，国际金价震荡，主要是由通胀预期升温导致美联储货币政策预期发生逆转，以及美元与美债同步走强的双重压力驱动。
+会上传达了习近平重要指示。
 
-瞿瑞具体指出，4月美国消费者价格指数同比上涨3.8%，超预期反弹引发的通胀担忧升温，年内降息预期已基本消失，加息概率大幅攀升。
+中共中央政治局常委、国务院总理李强出席会议并讲话，中共中央政治局常委、国务院副总理丁薛祥作总结讲话。
 
-利率预期的逆转直接推动美元与美债收益率全面走强，对黄金价格形成压制。
+李强在讲话中指出，习近平总书记的重要指示深刻阐明了发展服务业的重大意义、重要原则、重点任务，具有很强的思想性、指导性、针对性，为做好相关工作进一步指明了方向。
 
-值得注意的是，印度大幅上调了对黄金和白银的进口关税，以稳定不断贬值的卢比。
+我们要认真学习领会，坚决贯彻落实，自觉从战略和全局的高度深化对服务业的认识，坚持扩能和提质并举、发展和监管统筹，更好促进服务业优质高效发展，确保既充满活力又健康有序。
 
-根据5月12日晚间发布的两项官方指令，印度政府将对黄金和白银的进口税从现行的6%提高到约15%，增幅逾一倍。
+李强指出，要顺应人口结构变化、消费结构升级和产业结构转型趋势，聚焦生产生活重点领域，分层分类推动服务业发展，不断培育服务业新增长点，提升服务业数智化、标准化、融合化、国际化发展水平。
 
 ## 相关推荐
 
-- 2026-06-30 02:52 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 02:53 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 02:28 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 02:28 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 02:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 02:26 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 02:31 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-30 02:41 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 02:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 02:29 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 02:29 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 02:29 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 02:42 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 02:50 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 02:49 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 02:56 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 02:54 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 02:56 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 02:38 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 02:47 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 02:45 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 02:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 02:36 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 02:53 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 02:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 02:46 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:32 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/439222495.shtml)
-- 2026-06-30 02:28 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/966221421.shtml)
-- 2026-06-30 02:35 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/08042225311.shtml)
-- 2026-06-30 02:30 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/4390328.shtml)
-- 2026-06-30 02:34 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/20263622.shtml)
-- 2026-06-30 02:42 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/10496019833.shtml)
-- 2026-06-30 02:44 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/577701368676.shtml)
-- 2026-06-30 02:38 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/0245110152.shtml)
-- 2026-06-30 02:39 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/96810327446.shtml)
-- 2026-06-30 02:50 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/459179166.shtml)
-- 2026-06-30 02:35 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/76649.shtml)
-- 2026-06-30 02:39 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/79092209587.shtml)
-- 2026-06-30 02:49 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/248741.shtml)
-- 2026-06-30 02:43 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/50525694646.shtml)
-- 2026-06-30 02:51 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/71473732.shtml)
+- 2026-06-30 02:35 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/286351.shtml)
+- 2026-06-30 02:41 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/31971831.shtml)
+- 2026-06-30 02:40 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/202677905.shtml)
+- 2026-06-30 02:46 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/74914177381.shtml)
+- 2026-06-30 02:43 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/86067.shtml)
+- 2026-06-30 02:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/869288257.shtml)
+- 2026-06-30 02:46 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/797838717870.shtml)
+- 2026-06-30 02:48 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/873686447.shtml)
+- 2026-06-30 02:34 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/10195132.shtml)
+- 2026-06-30 02:41 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/68509.shtml)
+- 2026-06-30 02:35 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/7548479663.shtml)
+- 2026-06-30 02:36 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/374376.shtml)
+- 2026-06-30 02:57 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/62343.shtml)
+- 2026-06-30 02:41 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/418908135134.shtml)
+- 2026-06-30 02:54 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/28569248.shtml)

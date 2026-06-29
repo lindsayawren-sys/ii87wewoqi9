@@ -1,46 +1,53 @@
-# 永辉超市：向王健林、孙喜双等讨债超38亿元仲裁裁决文书已生效，法院决定立案执行
+# AI短片“雪山救狐狸”火到台湾 国台办回应
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-5月21日晚间，永辉超市（601933.SH）发布公告称，公司于近日收到法院出具的《受理案件通知书》。澎湃新闻首席记者 李晓青
+4月8日，国务院台办举行例行新闻发布会。有记者问：最近AI短片“雪山救狐狸”在大陆爆红之后也火到了台湾，很多的台湾网友和知名艺人纷纷进行了各种形式的“二创”，请问发言人对此有何评论？ 发言人朱凤莲表示，我们乐见两岸网友善用新技术进行生动有趣的创意表达和互动，乐见两岸同胞多交流、常来往、共发展。 (总台央视记者 黄达 赵晶)
 
 ## 正文
 
-5月21日晚间，永辉超市（601933.SH）发布公告称，公司于近日收到法院出具的《受理案件通知书》。
+4月8日，国务院台办举行例行新闻发布会。
 
-澎湃新闻首席记者 李晓青
+有记者问：最近AI短片“雪山救狐狸”在大陆爆红之后也火到了台湾，很多的台湾网友和知名艺人纷纷进行了各种形式的“二创”，请问发言人对此有何评论？
+
+发言人朱凤莲表示，我们乐见两岸网友善用新技术进行生动有趣的创意表达和互动，乐见两岸同胞多交流、常来往、共发展。
+
+(总台央视记者 黄达 赵晶)
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 02:24 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 02:43 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 02:46 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 02:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 02:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 02:40 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 02:53 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 02:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 02:43 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 02:26 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 02:44 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 02:50 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 02:57 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 02:30 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 02:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 02:40 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 02:41 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 02:32 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 02:58 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 02:58 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 02:43 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 02:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 02:57 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 02:58 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 02:34 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 02:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:53 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/894404.shtml)
-- 2026-06-30 02:53 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/39107396335.shtml)
-- 2026-06-30 02:36 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/877826.shtml)
-- 2026-06-30 02:37 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/409186.shtml)
-- 2026-06-30 02:26 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/8121524306.shtml)
-- 2026-06-30 02:48 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/469556.shtml)
-- 2026-06-30 02:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/7745189264.shtml)
-- 2026-06-30 02:33 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/979927.shtml)
-- 2026-06-30 02:53 - [逃狱兄弟](https://www.share.minike.top/Article/details/4247409391.shtml)
-- 2026-06-30 02:34 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/56756.shtml)
-- 2026-06-30 02:44 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/1564687362.shtml)
-- 2026-06-30 02:47 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/78336448736.shtml)
-- 2026-06-30 02:29 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/949826.shtml)
-- 2026-06-30 02:52 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/670926.shtml)
-- 2026-06-30 02:28 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/9130028115.shtml)
+- 2026-06-30 02:47 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/20584.shtml)
+- 2026-06-30 02:40 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/04598022.shtml)
+- 2026-06-30 02:53 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/08348.shtml)
+- 2026-06-30 02:37 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/88103541535.shtml)
+- 2026-06-30 02:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/243818904.shtml)
+- 2026-06-30 02:48 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/057094121.shtml)
+- 2026-06-30 02:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/758762.shtml)
+- 2026-06-30 02:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/70588.shtml)
+- 2026-06-30 02:44 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/2600948443.shtml)
+- 2026-06-30 02:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/309985390622.shtml)
+- 2026-06-30 02:45 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/899226.shtml)
+- 2026-06-30 02:41 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/88764.shtml)
+- 2026-06-30 02:54 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/2663438.shtml)
+- 2026-06-30 02:51 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/5551679497.shtml)
+- 2026-06-30 02:49 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/86481.shtml)

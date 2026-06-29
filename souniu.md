@@ -1,59 +1,59 @@
-# 工业物流地产信托公司将出席Nareit 2026年REITweek投资者大会
+# 中东局势缓和，A股大科技集体走强，创业板软件 ETF 富国（159107）盘中涨幅达5.49%
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-工业物流地产信托公司（Industrial Logistics Properties Trust）宣布，公司总裁兼首席执行官Yael Duffy及首席财务官兼财务主管Tiffany Sy将于2026年6月2日出席在纽约举行的Nareit REITweek 2026投资者大会，并于美国东部时间下午3时15分进行专题演讲。 投资者可通过公司官网投资者关系页面收听演讲直播，建议于会议
+今天大科技集体走强，盘中软件开发、消费电子、大数据、互联网等细分方向涨幅居前，截至发稿，创业板软件 ETF 富国（159107）盘中涨幅达5.49%，创业板人工智能ETF富国（159246）盘中涨幅达5.44%，科创AIETF富国（589380）盘中涨幅达4.7%。其中创业板软件 ETF 富国成分股东方国信涨幅超15%，网宿科技涨超9%。 消息面，美伊在巴基斯坦斡旋下达成两周临
 
 ## 正文
 
-工业物流地产信托公司（Industrial Logistics Properties Trust）宣布，公司总裁兼首席执行官Yael Duffy及首席财务官兼财务主管Tiffany Sy将于2026年6月2日出席在纽约举行的Nareit REITweek 2026投资者大会，并于美国东部时间下午3时15分进行专题演讲。
+今天大科技集体走强，盘中软件开发、消费电子、大数据、互联网等细分方向涨幅居前，截至发稿，创业板软件 ETF 富国（159107）盘中涨幅达5.49%，创业板人工智能ETF富国（159246）盘中涨幅达5.44%，科创AIETF富国（589380）盘中涨幅达4.7%。
 
-投资者可通过公司官网投资者关系页面收听演讲直播，建议于会议开始前约15分钟访问。
+其中创业板软件 ETF 富国成分股东方国信涨幅超15%，网宿科技涨超9%。
 
-Industrial Logistics Properties Trust是一家专注于工业与物流地产的房地产投资信托基金。
+消息面，美伊在巴基斯坦斡旋下达成两周临时停火，局势骤然缓和。
 
-截至2026年3月31日，公司投资组合涵盖409处物业，可租赁面积约5960万平方英尺，分布于39个州。
+另据工信部最新发布数据显示，前2个月，信息技术服务收入14474亿元，同比增长13.1%，占全行业收入的67.2%。
 
-约77%的年化租金收入来自投资级租户或其子公司。
+其中，云计算、大数据服务共实现收入2809亿元，同比增长11.4%，占信息技术服务收入的19.4%；集成电路设计收入636亿元，同比增长15.7%；电子商务平台技术服务收入1793亿元，同比增长10.5%。
 
-公司近期业绩表现强劲。
+机构分析指出，两会首提 “智能经济新形态” 与 “算电协同”，明确 2027 年 AI 与 6 大重点领域融合普及率超 70%，政策催化国产算力与电力基础设施深度融合。
 
-2026年第一季度财报显示，标准化营运资金达2200万美元，合每股0.33美元，同比增长超过60%，为连续第六个季度实现两位数租金增长。
+短期需关注 5-6 月多模态模型迭代与 Agent 规模化商用进展，中长期看好算力基建 + 行业应用双轮驱动，算力租赁、IDC、边缘算力等细分赛道业绩确定性较强。
 
-公司成功完成16.2亿美元固定利率再融资，将全部合并债务转换为固定利率，加权平均利率约5.48%，且直至2029年无债务到期，预计每年释放近2000万美元现金流。
+创业板软件 ETF 富国（159107）跟踪创业板软件指数（399264），精选 50 只创业板软件核心标的，覆盖基础软件、应用软件、IT 服务全链条，自带 20CM 高弹性属性。
 
 ## 相关推荐
 
-- 2026-06-30 02:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 02:26 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 02:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 02:28 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 02:27 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 02:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 02:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 02:32 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-30 02:44 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 02:41 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 02:37 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 02:49 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 02:26 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 02:59 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 02:35 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 02:46 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 02:41 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 02:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 02:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 02:51 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 02:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 02:40 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 02:37 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 02:53 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 02:34 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 02:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/323745.shtml)
-- 2026-06-30 02:48 - [斛珠夫人](https://www.share.minike.top/Article/details/88743649682.shtml)
-- 2026-06-30 02:34 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/042096993458.shtml)
-- 2026-06-30 02:39 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/04049448920.shtml)
-- 2026-06-30 02:49 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/811847360850.shtml)
-- 2026-06-30 02:47 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/06262.shtml)
-- 2026-06-30 02:28 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/2012186.shtml)
-- 2026-06-30 02:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/028245478877.shtml)
-- 2026-06-30 02:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/66073385.shtml)
-- 2026-06-30 02:26 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/73995066.shtml)
-- 2026-06-30 02:33 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/0299269502.shtml)
-- 2026-06-30 02:52 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/60576426.shtml)
-- 2026-06-30 02:33 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/5527004145.shtml)
-- 2026-06-30 02:38 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/3949226307.shtml)
-- 2026-06-30 02:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/447744.shtml)
+- 2026-06-30 02:49 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/3220189.shtml)
+- 2026-06-30 02:48 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/886471828.shtml)
+- 2026-06-30 02:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/9100202.shtml)
+- 2026-06-30 02:55 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/6154534.shtml)
+- 2026-06-30 02:44 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/537164.shtml)
+- 2026-06-30 02:46 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/655626346.shtml)
+- 2026-06-30 02:49 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/89553.shtml)
+- 2026-06-30 02:36 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/0343969782.shtml)
+- 2026-06-30 02:58 - [一生一世](https://www.share.kurohicncr.top/Article/details/405141.shtml)
+- 2026-06-30 02:36 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/9329537535.shtml)
+- 2026-06-30 02:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/204853382.shtml)
+- 2026-06-30 02:39 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/730094040941.shtml)
+- 2026-06-30 02:41 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/283076.shtml)
+- 2026-06-30 02:39 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/11603556552.shtml)
+- 2026-06-30 02:38 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/034521184.shtml)

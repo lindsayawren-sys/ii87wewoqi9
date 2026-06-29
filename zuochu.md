@@ -1,60 +1,55 @@
-# 大理医博会聚焦AI医疗 共探南亚东南亚合作新机遇
+# 国际油价，大跌15%！特朗普说停火两周，伊朗接受了
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网云南大理5月21日电 (记者 韩帅南)21日，正在云南省大理州弥渡县举行的2026年第二届大理医疗器械产业博览会暨南亚东南亚国际医疗产业合作交流推介会(下称“大理医博会”)上，AI医疗成为关注焦点。现场展示了AI在医疗领域的应用成果，多位专家学者也就AI如何赋能医疗健康产业展开探讨，共商南亚东南亚医疗领域合作新机遇。 本届大理医博会以“新机遇、新动能、新合作、新标准·共建
+周三亚太早盘，WTI原油跌幅持续扩大，一度跌至15%。 消息层面，美国总统特朗普7日在社交媒体平台发文称：“我同意暂停对伊朗的轰炸和袭击行动，为期两周。” 伊朗最高国家安全委员会当地时间8日凌晨发表声明称，根据最高领袖的建议和最高国家安全委员会批准，接受巴基斯坦提出的停火提议。 另，伊朗方面当地时间8日凌晨援引伊朗最高国家安全委员会秘书处声明报道，与美国的谈判将于4月10日在巴
 
 ## 正文
 
-中新网云南大理5月21日电 (记者 韩帅南)21日，正在云南省大理州弥渡县举行的2026年第二届大理医疗器械产业博览会暨南亚东南亚国际医疗产业合作交流推介会(下称“大理医博会”)上，AI医疗成为关注焦点。
+周三亚太早盘，WTI原油跌幅持续扩大，一度跌至15%。
 
-现场展示了AI在医疗领域的应用成果，多位专家学者也就AI如何赋能医疗健康产业展开探讨，共商南亚东南亚医疗领域合作新机遇。
+消息层面，美国总统特朗普7日在社交媒体平台发文称：“我同意暂停对伊朗的轰炸和袭击行动，为期两周。
 
-本届大理医博会以“新机遇、新动能、新合作、新标准·共建健康丝绸之路，推动医疗健康产业高质量发展”为主题，共有169家中外企业参展，还邀请到缅甸、泰国、孟加拉国、柬埔寨等9个国家的官方代表团、企业、商协会和医疗机构参会。
+” 伊朗最高国家安全委员会当地时间8日凌晨发表声明称，根据最高领袖的建议和最高国家安全委员会批准，接受巴基斯坦提出的停火提议。
 
-在医疗器械展区，来自深圳的一家企业此次带来了医院医保AI智能审核机器人及医院智慧服务整体解决方案的展示，该企业已是第二次参展大理医博会。
+另，伊朗方面当地时间8日凌晨援引伊朗最高国家安全委员会秘书处声明报道，与美国的谈判将于4月10日在巴基斯坦首都伊斯兰堡开始，为期两周。
 
-该企业代表黄祎表示，AI正成为医疗服务升级的核心引擎。
-
-他介绍，该企业研发的智能导诊系统，通过分析医院历史就诊数据实现精准分诊，减少患者无效排队。
-
-企业未来的新产品都将全面融入AI技术。
-
-“我们看中了大理弥渡的区位优势，希望能借助此次大理医博会开拓南亚东南亚市场。
+中新经纬综自央视新闻等
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 02:30 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 02:31 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 02:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 02:50 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 02:47 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 02:42 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 02:50 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 02:37 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 02:34 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 02:41 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 02:24 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 02:50 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 02:37 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 02:42 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 02:54 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 02:50 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 02:32 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 02:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 02:39 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 02:32 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 02:49 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 02:48 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 02:34 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 02:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 02:35 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 02:48 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 02:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 02:31 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/990243866338.shtml)
-- 2026-06-30 02:36 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/3842347297.shtml)
-- 2026-06-30 02:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/42908098653.shtml)
-- 2026-06-30 02:37 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/2831109.shtml)
-- 2026-06-30 02:50 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/500571436.shtml)
-- 2026-06-30 02:37 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/53156352214.shtml)
-- 2026-06-30 02:28 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/132357999.shtml)
-- 2026-06-30 02:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/71102200.shtml)
-- 2026-06-30 02:29 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/202443229.shtml)
-- 2026-06-30 02:29 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/3045566882.shtml)
-- 2026-06-30 02:33 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/39258.shtml)
-- 2026-06-30 02:49 - [美人鱼](https://www.share.kurohicncr.top/Article/details/86634881715.shtml)
-- 2026-06-30 02:49 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/790058247602.shtml)
-- 2026-06-30 02:33 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/05962378942.shtml)
-- 2026-06-30 02:37 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/7070521.shtml)
+- 2026-06-30 02:43 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/290431.shtml)
+- 2026-06-30 02:54 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/6840788.shtml)
+- 2026-06-30 02:43 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/3991047.shtml)
+- 2026-06-30 02:54 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/620418862.shtml)
+- 2026-06-30 02:33 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/9886860.shtml)
+- 2026-06-30 02:35 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/64169370022.shtml)
+- 2026-06-30 02:56 - [刘念回应](http://www.share.minike.top/Article/details/754043848.shtml)
+- 2026-06-30 02:49 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/0707589.shtml)
+- 2026-06-30 02:57 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/70695919445.shtml)
+- 2026-06-30 02:46 - [房价什么时候能涨](https://www.share.minike.top/Article/details/783574641.shtml)
+- 2026-06-30 02:53 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/07019154.shtml)
+- 2026-06-30 02:39 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/98996.shtml)
+- 2026-06-30 02:44 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/020510663.shtml)
+- 2026-06-30 02:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/794826162.shtml)
+- 2026-06-30 02:31 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/30946108.shtml)

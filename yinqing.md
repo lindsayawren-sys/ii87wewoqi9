@@ -1,58 +1,57 @@
-# 华泰期货：多空分歧加剧，碳酸锂价格宽幅震荡
+# 特朗普宣布暂停攻击伊朗两周 媒体称德黑兰和以色列都接受停火协议
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 师橙 市场分析 2026-05-20，碳酸锂主力合约2609开于182120元/吨，收于183100元/吨，当日收盘价较昨日结算价变化-1.30%。当日成交量为411021手，持仓量为447264手，前一交易日持仓量446424手，根据SMM现货报价，目前基差为2180元/吨（电碳均价-期货）。当日碳酸锂仓单53083手，较上个交易日变化504手。 碳酸
+随着谈判各方接近达成内容包括伊朗重开霍尔木兹海峡的停火协议，美国总统唐纳德·特朗普将其打击伊朗民用基础设施的威胁推迟两周。 特朗普周二在社交媒体上发帖称，该协议的生效“取决于伊朗伊斯兰共和国同意完全、立即、安全地开放霍尔木兹海峡”。 “我同意暂停对伊朗的轰炸和攻击，为期两周。这将是一项双向停火！”特朗普写道。 据《纽约时报》援引三名伊朗官员的话报道，伊朗接受了巴基斯坦提出的为期
 
 ## 正文
 
-来源：华泰期货 作者： 师橙 市场分析 2026-05-20，碳酸锂主力合约2609开于182120元/吨，收于183100元/吨，当日收盘价较昨日结算价变化-1.30%。
+随着谈判各方接近达成内容包括伊朗重开霍尔木兹海峡的停火协议，美国总统唐纳德·特朗普将其打击伊朗民用基础设施的威胁推迟两周。
 
-当日成交量为411021手，持仓量为447264手，前一交易日持仓量446424手，根据SMM现货报价，目前基差为2180元/吨（电碳均价-期货）。
+特朗普周二在社交媒体上发帖称，该协议的生效“取决于伊朗伊斯兰共和国同意完全、立即、安全地开放霍尔木兹海峡”。
 
-当日碳酸锂仓单53083手，较上个交易日变化504手。
+“我同意暂停对伊朗的轰炸和攻击，为期两周。
 
-碳酸锂现货：根据SMM数据，电池级碳酸锂报价174000-184000元/吨，较前一交易日变化-7500元/吨，工业级碳酸锂报价170000-180000元/吨，较前一交易日变化-7500元/吨。
+这将是一项双向停火！
 
-6%锂精矿价格2630美元/吨，较前一日变化-115美元/吨。
+”特朗普写道。
 
-供应：据 SMM 统计，碳酸锂周度总产量26016吨，环比+122吨；其中辉石产碳酸锂14987吨，环比+37吨；云母产碳酸锂3235吨，环比-66吨；盐湖产碳酸锂4795吨，环比+140吨；回收产碳酸锂2999吨，环比+11吨。
+据《纽约时报》援引三名伊朗官员的话报道，伊朗接受了巴基斯坦提出的为期两周的停火提议。
 
-库存：根据SMM最新统计数据，现货库存为101418吨，环比-1255吨。
+伊朗新任最高领袖穆杰塔巴·哈梅内伊批准了停火。
 
-其中冶炼厂库存为19091吨，环比+296吨；下游库存为37147吨，环比-3421吨；其他库存为45180吨，环比+1870吨。
+另外，CNN一位记者在X上援引了白宫一位高级官员发帖表示，以色列是特朗普宣布的为期两周伊朗停火协议的参与方之一。
 
 ## 相关推荐
 
-- 2026-06-30 02:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 02:45 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 02:27 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 02:43 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 02:37 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 02:45 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 02:51 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 02:42 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 02:48 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 02:24 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 02:40 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 02:42 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 02:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 02:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 02:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 02:40 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 02:55 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 02:33 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 02:53 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 02:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 02:31 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 02:37 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 02:49 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:41 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/3892942.shtml)
-- 2026-06-30 02:25 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/36812764.shtml)
-- 2026-06-30 02:41 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/884767989.shtml)
-- 2026-06-30 02:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/02567.shtml)
-- 2026-06-30 02:40 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/32032515580.shtml)
-- 2026-06-30 02:32 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/04526766.shtml)
-- 2026-06-30 02:37 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/45773829.shtml)
-- 2026-06-30 02:28 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/93419.shtml)
-- 2026-06-30 02:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/70703118.shtml)
-- 2026-06-30 02:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/33866125.shtml)
-- 2026-06-30 02:28 - [毒液2](http://www.blog.kurohicncr.top/Article/details/02542637.shtml)
-- 2026-06-30 02:31 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/575090364706.shtml)
-- 2026-06-30 02:28 - [金牌调解](https://www.share.minike.top/Article/details/1592683.shtml)
-- 2026-06-30 02:30 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/4205924.shtml)
-- 2026-06-30 02:25 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/11327782.shtml)
+- 2026-06-30 02:58 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/84231866.shtml)
+- 2026-06-30 02:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/7456230402.shtml)
+- 2026-06-30 02:58 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/819352716404.shtml)
+- 2026-06-30 02:52 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/29627835.shtml)
+- 2026-06-30 02:35 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/942388083205.shtml)
+- 2026-06-30 02:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/872047387126.shtml)
+- 2026-06-30 02:48 - [起风了](https://www.share.minike.top/Article/details/2450504325.shtml)
+- 2026-06-30 02:42 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/362029743994.shtml)
+- 2026-06-30 02:34 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/02237.shtml)
+- 2026-06-30 02:59 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/55168540081.shtml)
+- 2026-06-30 02:47 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/47534932736.shtml)
+- 2026-06-30 02:55 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/55959148818.shtml)
+- 2026-06-30 02:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/75555483577.shtml)
+- 2026-06-30 02:43 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/989055741.shtml)
+- 2026-06-30 02:33 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/74518.shtml)

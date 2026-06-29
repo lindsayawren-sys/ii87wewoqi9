@@ -1,61 +1,56 @@
-# 通胀担忧席卷工业金属 后市价格走势展望
+# Stellantis正与中国零跑汽车深入洽谈合作开发欧宝纯电动车
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-核心要点 随着通胀担忧情绪不断升温，全球债券市场承压，本周各类工业金属价格走势震荡加剧。 伦敦金属交易所 8 月交割期铜期货周二下跌 1.3%，周三小幅反弹 0.5%，收于每吨 13477 美元。铜广泛应用于电线、机械设备、管道工程等领域，向来是研判全球经济景气度的重要风向标。 铝、镍、锡、锌等品种同样涨跌交替、走势反复。 当下全球股市、债市整体交易情绪动荡，投资者一边评估企业
+三位消息人士透露，Stellantis 集团正与零跑汽车展开深入谈判，拟合作开发一款欧宝（Opel）品牌纯电动 SUV。新车将采用这家中国车企的技术，在 Stellantis 位于西班牙的萨拉戈萨工厂生产。 若该协议最终敲定，将帮助 Stellantis 降低全新电动车型的研发成本、缩短研发周期。这家法意合资车企正将重心转向油电混动汽车。今年早些时候，该集团宣布因缩减电动车业务
 
 ## 正文
 
-核心要点 随着通胀担忧情绪不断升温，全球债券市场承压，本周各类工业金属价格走势震荡加剧。
+三位消息人士透露，Stellantis 集团正与零跑汽车展开深入谈判，拟合作开发一款欧宝（Opel）品牌纯电动 SUV。
 
-伦敦金属交易所 8 月交割期铜期货周二下跌 1.3%，周三小幅反弹 0.5%，收于每吨 13477 美元。
+新车将采用这家中国车企的技术，在 Stellantis 位于西班牙的萨拉戈萨工厂生产。
 
-铜广泛应用于电线、机械设备、管道工程等领域，向来是研判全球经济景气度的重要风向标。
+若该协议最终敲定，将帮助 Stellantis 降低全新电动车型的研发成本、缩短研发周期。
 
-铝、镍、锡、锌等品种同样涨跌交替、走势反复。
+这家法意合资车企正将重心转向油电混动汽车。
 
-当下全球股市、债市整体交易情绪动荡，投资者一边评估企业财报表现，一边紧盯屡创数十年新高的美国国债收益率，市场情绪起伏不定。
+今年早些时候，该集团宣布因缩减电动车业务规划，计提 250 亿美元资产减值。
 
-分析师向美国消费者新闻与商业频道表示，工业金属行业供需两端接连出现各类变数，行业后市前景愈发不明朗。
+此举同时意在抵御比亚迪等中国品牌在欧洲市场的竞争，并提升其欧洲工厂的产能利用率。
 
-锌 麦格理策略师在上周研报中指出，锌价下行风险主要集中在需求端。
+Stellantis 首席执行官安东尼奥・菲洛萨于去年 6 月上任，将于 5 月 21 日公布全新长期业务规划。
 
-锌约 55% 的终端需求来自建筑行业，经济一旦走弱，相关需求会直接受到冲击。
+Stellantis 于 2023 年收购零跑汽车约五分之一股份后，双方建立合作关系，并共同成立零跑国际合资公司，负责零跑汽车在海外市场的销售与生产。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 02:25 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 02:50 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 02:40 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 02:43 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 02:46 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 02:25 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 02:40 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 02:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 02:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 02:34 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 02:29 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 02:27 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 02:31 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 02:47 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 02:58 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 02:41 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 02:32 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 02:36 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 02:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 02:32 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 02:53 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 02:54 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 02:46 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 02:59 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:50 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/8423542.shtml)
-- 2026-06-30 02:29 - [世界杯](https://www.share.kurohicncr.top/Article/details/08719448510.shtml)
-- 2026-06-30 02:50 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/766339066744.shtml)
-- 2026-06-30 02:40 - [《贺子珍》](http://www.share.minike.top/Article/details/885644254.shtml)
-- 2026-06-30 02:32 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/5787948839.shtml)
-- 2026-06-30 02:42 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/9742442529.shtml)
-- 2026-06-30 02:52 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/87235218.shtml)
-- 2026-06-30 02:31 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/42177912186.shtml)
-- 2026-06-30 02:25 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/840265583425.shtml)
-- 2026-06-30 02:35 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/176444572.shtml)
-- 2026-06-30 02:47 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/170684273519.shtml)
-- 2026-06-30 02:40 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/9022470944.shtml)
-- 2026-06-30 02:35 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/932206901243.shtml)
-- 2026-06-30 02:38 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/576102786.shtml)
-- 2026-06-30 02:37 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/421042.shtml)
+- 2026-06-30 02:35 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/9399099567.shtml)
+- 2026-06-30 02:34 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/5588151050.shtml)
+- 2026-06-30 02:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/822377982544.shtml)
+- 2026-06-30 02:50 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/9190028.shtml)
+- 2026-06-30 02:33 - [周生如故](http://www.share.kurohicncr.top/Article/details/1685349494.shtml)
+- 2026-06-30 02:57 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/266351.shtml)
+- 2026-06-30 02:53 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/36931981444.shtml)
+- 2026-06-30 02:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/31542111716.shtml)
+- 2026-06-30 02:31 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/36582436608.shtml)
+- 2026-06-30 02:50 - [周生如故](http://www.blog.kurohicncr.top/Article/details/77240423530.shtml)
+- 2026-06-30 02:48 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/6628708.shtml)
+- 2026-06-30 02:48 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/925850701755.shtml)
+- 2026-06-30 02:52 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/028903267.shtml)
+- 2026-06-30 02:39 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/610342764383.shtml)
+- 2026-06-30 02:46 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/70306677.shtml)

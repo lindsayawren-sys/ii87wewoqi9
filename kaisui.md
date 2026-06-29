@@ -1,56 +1,46 @@
-# 亚马逊创始人贝索斯：美国税法是裙带资本主义 需要修正
+# 伦敦世乒赛团体赛国乒阵容公布
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-亚马逊创始人贝索斯在接受采访时表示，他认为美国现行税法是裙带资本主义，需要修正。 贝索斯还表示，他将倡导对低收入者不征税。他说自己缴纳了“数十亿美元”税款。 贝索斯称，纽约市市长马姆达尼计划对非主要住所豪宅征税，对该市而言是一件“好事”。 谈及美国经济，贝索斯表示，美国的问题不在于收入，而在于支出。 他还表示，企业福利和补贴过多。 贝索斯认为，企业对政治的影响力也过大。他预计某
+中国乒乓球协会8日在官网公布了伦敦世乒赛团体赛中国队参赛名单。 国乒参赛名单为男队：王楚钦、林诗栋、周启豪、向鹏、梁靖崑；女队：孙颖莎、王曼昱、陈幸同、蒯曼、王艺迪。 伦敦世乒赛团体赛将于4月28日至5月10日进行。
 
 ## 正文
 
-亚马逊创始人贝索斯在接受采访时表示，他认为美国现行税法是裙带资本主义，需要修正。
+中国乒乓球协会8日在官网公布了伦敦世乒赛团体赛中国队参赛名单。
 
-贝索斯还表示，他将倡导对低收入者不征税。
+国乒参赛名单为男队：王楚钦、林诗栋、周启豪、向鹏、梁靖崑；女队：孙颖莎、王曼昱、陈幸同、蒯曼、王艺迪。
 
-他说自己缴纳了“数十亿美元”税款。
-
-贝索斯称，纽约市市长马姆达尼计划对非主要住所豪宅征税，对该市而言是一件“好事”。
-
-谈及美国经济，贝索斯表示，美国的问题不在于收入，而在于支出。
-
-他还表示，企业福利和补贴过多。
-
-贝索斯认为，企业对政治的影响力也过大。
-
-他预计某些核心商品会出现通缩。
+伦敦世乒赛团体赛将于4月28日至5月10日进行。
 
 ## 相关推荐
 
-- 2026-06-30 02:36 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 02:48 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 02:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 02:29 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 02:24 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 02:47 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 02:47 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 02:35 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 02:49 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 02:49 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 02:49 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 02:37 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 02:30 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 02:34 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 02:56 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 02:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 02:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 02:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 02:40 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 02:33 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/11600558411.shtml)
-- 2026-06-30 02:48 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/194877970.shtml)
-- 2026-06-30 02:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/5890836004.shtml)
-- 2026-06-30 02:37 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/5895438.shtml)
-- 2026-06-30 02:41 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/454264875.shtml)
-- 2026-06-30 02:33 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/9945337.shtml)
-- 2026-06-30 02:30 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/176401.shtml)
-- 2026-06-30 02:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/36806771.shtml)
-- 2026-06-30 02:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/8981040970.shtml)
-- 2026-06-30 02:51 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/877180.shtml)
-- 2026-06-30 02:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/9908877.shtml)
-- 2026-06-30 02:33 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/8363763072.shtml)
-- 2026-06-30 02:49 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/95119.shtml)
-- 2026-06-30 02:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/35056820.shtml)
-- 2026-06-30 02:53 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/3890838446.shtml)
+- 2026-06-30 02:37 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/2904199.shtml)
+- 2026-06-30 02:36 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/0186265.shtml)
+- 2026-06-30 02:36 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/841709934606.shtml)
+- 2026-06-30 02:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/560680627914.shtml)
+- 2026-06-30 02:48 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/02595955.shtml)
+- 2026-06-30 02:43 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/9371562211.shtml)
+- 2026-06-30 02:34 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/629599.shtml)
+- 2026-06-30 02:31 - [日本16强魔咒](http://www.share.minike.top/Article/details/923941750109.shtml)
+- 2026-06-30 02:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/38504.shtml)
+- 2026-06-30 02:49 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/57721039299.shtml)
+- 2026-06-30 02:55 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/4549435904.shtml)
+- 2026-06-30 02:48 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/36600.shtml)
+- 2026-06-30 02:55 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/036377.shtml)
+- 2026-06-30 02:34 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/384611795775.shtml)
+- 2026-06-30 02:45 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/348144482245.shtml)

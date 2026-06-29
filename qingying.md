@@ -1,59 +1,58 @@
-# 603779，六连板后紧急澄清：无注入“算力”相关计划
+# 从修车学徒到冠军缔造者，张雪能否给国产摩托车产业带来新机遇？
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-来源：中国基金报 【导读】六连板威龙股份：目前无注入“算力”相关计划 中国基金报记者 忆山 5月20日，威龙股份发布公告称，近期有媒体报道公司将注入算力资产。为避免相关信息对广大投资者造成误导，现予澄清，公司截至目前无注入“算力”相关计划。 当日，威龙股份开盘涨停，报13.2元/股，斩获六连板。 此前，威龙股份于5月12日发布公告称，公司控股股东星河息壤与山东爱特云翔信息技术有
+张雪机车在世界顶级赛事夺冠的背后，是一位草根创业者的坚守，也藏着中国摩托车产业的新可能。 3月28日、29日进行的世界超级摩托车锦标赛（WSBK）中量级赛事（葡萄牙站）中，法国车手Valentin Debise驾驶张雪机车（编号53）820RR-RS车型，连续两次夺冠，实现了中国摩托车品牌在该项顶级赛事中的历史性突破。其中，首个冠军冲线时领先近4秒，打破了杜卡迪、雅马哈、川崎等
 
 ## 正文
 
-来源：中国基金报 【导读】六连板威龙股份：目前无注入“算力”相关计划 中国基金报记者 忆山 5月20日，威龙股份发布公告称，近期有媒体报道公司将注入算力资产。
+张雪机车在世界顶级赛事夺冠的背后，是一位草根创业者的坚守，也藏着中国摩托车产业的新可能。
 
-为避免相关信息对广大投资者造成误导，现予澄清，公司截至目前无注入“算力”相关计划。
+3月28日、29日进行的世界超级摩托车锦标赛（WSBK）中量级赛事（葡萄牙站）中，法国车手Valentin Debise驾驶张雪机车（编号53）820RR-RS车型，连续两次夺冠，实现了中国摩托车品牌在该项顶级赛事中的历史性突破。
 
-当日，威龙股份开盘涨停，报13.2元/股，斩获六连板。
+其中，首个冠军冲线时领先近4秒，打破了杜卡迪、雅马哈、川崎等国际巨头对该组别长达数十年的垄断。
 
-此前，威龙股份于5月12日发布公告称，公司控股股东星河息壤与山东爱特云翔信息技术有限公司、山东齐信数字科技有限公司（以下简称齐信数科）签订股份转让协议，在股份转让完成后，公司控股股东将由星河息壤变更为齐信数科。
+分析认为，张雪机车的崛起，是中国摩托车产业从“代工模仿”走向“自主创新”的标志事件之一。
 
-资料显示，齐信数科是一家专注于数字科技领域的企业，主营业务涵盖大数据服务、信息技术咨询服务和信息系统集成服务。
+中国摩托车商会对此评价称，此次夺冠绝非偶然，是国内摩托车企业长期坚持技术创新、专注产品与赛事技术打磨、培育本土品牌的成果。
 
-在最新公告中，威龙股份表示，截至目前，受让方无未来12个月对上市公司或其子公司的资产和业务进行出售、合并、与他人合资或合作的计划，或上市公司拟购买或置换资产的重组计划。
+春风、钱江、凯越、宗申等国内品牌也在国际赛场多点开花，在MotoGP、达喀尔拉力赛、世界耐力赛等顶级赛事中屡创佳绩，共同展现中国摩托车产业的整体实力。
 
-公司控制权变更事项尚需取得主管国资监管机构的批准、取得上海证券交易所的合规性确认意见，并在中国证券登记结算公司上海分公司办理股份过户登记手续。
+“一冠封神”不仅提振了国产摩托产业的信心，更吸引了地方政府的重点关注——3月31日，重庆市两江新区宣布正规划打造高端摩托车产业园，为张雪机车提供近200亩新基地，积极服务企业，助力高端摩托车产业发展。
 
-该事项能否最终实施完成及实施结果尚存在不确定性。
+与此同时，创始人张雪的经历也引发了社会广泛关注。
 
 ## 相关推荐
 
-- 2026-06-30 02:42 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 02:40 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 02:45 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 02:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 02:27 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 02:51 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 02:40 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 02:37 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 02:42 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 02:43 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 02:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 02:38 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 02:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 02:45 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 02:39 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 02:31 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 02:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 02:41 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 02:56 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 02:47 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 02:43 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 02:36 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 02:50 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 02:36 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 02:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:44 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/9771351.shtml)
-- 2026-06-30 02:28 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/2296456637.shtml)
-- 2026-06-30 02:45 - [勇敢的心第二部](http://www.share.minike.top/Article/details/3768569279.shtml)
-- 2026-06-30 02:38 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/79702440.shtml)
-- 2026-06-30 02:34 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/71926.shtml)
-- 2026-06-30 02:24 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/7527445832.shtml)
-- 2026-06-30 02:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/60454.shtml)
-- 2026-06-30 02:45 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/811957409048.shtml)
-- 2026-06-30 02:52 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/4821925582.shtml)
-- 2026-06-30 02:49 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/5931296.shtml)
-- 2026-06-30 02:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/10548.shtml)
-- 2026-06-30 02:33 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/588406403549.shtml)
-- 2026-06-30 02:47 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/202449.shtml)
-- 2026-06-30 02:29 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/2903837.shtml)
-- 2026-06-30 02:26 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/411715009.shtml)
+- 2026-06-30 02:39 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/554579382640.shtml)
+- 2026-06-30 02:48 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/961984647.shtml)
+- 2026-06-30 02:48 - [沉睡花园](http://www.share.minike.top/Article/details/8340716.shtml)
+- 2026-06-30 02:49 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/74073639.shtml)
+- 2026-06-30 02:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/741922.shtml)
+- 2026-06-30 02:44 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/5633905697.shtml)
+- 2026-06-30 02:39 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/84498.shtml)
+- 2026-06-30 02:52 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/734235417999.shtml)
+- 2026-06-30 02:51 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/663310.shtml)
+- 2026-06-30 02:48 - [送你一朵小红花](http://www.blog.minike.top/Article/details/3582727.shtml)
+- 2026-06-30 02:42 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/29368559631.shtml)
+- 2026-06-30 02:30 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/7024660.shtml)
+- 2026-06-30 02:30 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/681268643.shtml)
+- 2026-06-30 02:41 - [扬名立万](http://www.share.kurohicncr.top/Article/details/70575147.shtml)
+- 2026-06-30 02:30 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/8474945016.shtml)

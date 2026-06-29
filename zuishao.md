@@ -1,61 +1,56 @@
-# 独家对话坦桑尼亚信息技术部长凯鲁基：中国技术如何让我们的农村不再“离线”？ | 欧陆志
+# 美国最高将领凯恩：若停火协议破裂，美国已做好恢复战斗的准备
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 | 《欧陆志》栏目 郝倩 发自瑞士日内瓦 在上周国际电联（ITU）举行的第三届联合国虚拟世界日，新浪财经独家对话了坦桑尼亚信息、通信和信息技术部长安吉拉·凯鲁基（Angellah Kairuki）。凯鲁基同时也是国际电联AI和虚拟世界国际动议执行委员会副主席。 凯鲁基认为：“中国在快速部署基础设施、光纤
+美国最高将领凯恩警告称，如果停火破裂，五角大楼准备恢复对伊朗的军事行动。“停火只是暂停。”凯恩表示。 他阐述了此次行动的三大军事目标：摧毁伊朗的弹道导弹与无人机能力、消灭其海军力量、摧毁其国防工业基础。凯恩称，美国“已达成总统设定的军事目标”。 凯恩在开场发言中未提及伊朗的高浓铀储备及其后续处置。他表示，冲突爆发以来，美军已打击伊朗超过13，000个目标，摧毁其80%的防空系统
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国最高将领凯恩警告称，如果停火破裂，五角大楼准备恢复对伊朗的军事行动。
 
-文 | 《欧陆志》栏目 郝倩 发自瑞士日内瓦 在上周国际电联（ITU）举行的第三届联合国虚拟世界日，新浪财经独家对话了坦桑尼亚信息、通信和信息技术部长安吉拉·凯鲁基（Angellah Kairuki）。
+“停火只是暂停。
 
-凯鲁基同时也是国际电联AI和虚拟世界国际动议执行委员会副主席。
+”凯恩表示。
 
-凯鲁基认为：“中国在快速部署基础设施、光纤网络、数据中心和智慧城市项目方面拥有丰富经验，这让中国成为坦桑尼亚天然的合作伙伴。
+他阐述了此次行动的三大军事目标：摧毁伊朗的弹道导弹与无人机能力、消灭其海军力量、摧毁其国防工业基础。
 
-” 坦桑尼亚的目标是要实现“数字驱动型经济”，中国技术和技术设施投资，对坦桑尼亚推进数字经济具有重要意义。
+凯恩称，美国“已达成总统设定的军事目标”。
 
-数字经济成为坦桑尼亚经济发展重要抓手 过去两年，如同其他诸多非洲国家一样，坦桑尼亚数字化进程明显提速。
+凯恩在开场发言中未提及伊朗的高浓铀储备及其后续处置。
 
-一个值得注意的变化是：坦桑尼亚已经不再只是给通信基础设施“补课”，而已经开始把“数字经济”作为工业化和金融普惠的重要抓手。
+他表示，冲突爆发以来，美军已打击伊朗超过13，000个目标，摧毁其80%的防空系统、450余座弹道导弹储存设施、800座单程攻击无人机储存设施；还摧毁2，000余个指挥控制节点、90%以上的海军舰艇以及95%以上的水雷。
 
-凯鲁基对《欧陆志》介绍说，“目前坦桑尼亚数字化议程的核心，是实现三个相互关联的成果：普及数字接入、安全自主的数字基础设施，以及利用数字工具提高生产力和包容性的经济。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 02:25 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 02:51 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 02:42 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 02:29 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 02:31 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 02:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 02:40 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 02:52 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 02:48 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 02:53 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 02:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 02:43 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 02:48 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 02:46 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 02:38 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 02:55 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 02:30 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 02:52 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 02:59 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 02:36 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 02:46 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 02:49 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 02:58 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 02:40 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:43 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/0520251276.shtml)
-- 2026-06-30 02:44 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/1881705922.shtml)
-- 2026-06-30 02:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/35939736035.shtml)
-- 2026-06-30 02:53 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/738009.shtml)
-- 2026-06-30 02:28 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/4101155.shtml)
-- 2026-06-30 02:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/2871074024.shtml)
-- 2026-06-30 02:50 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/594178.shtml)
-- 2026-06-30 02:34 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/78812694.shtml)
-- 2026-06-30 02:30 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/583708143.shtml)
-- 2026-06-30 02:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/7741689189.shtml)
-- 2026-06-30 02:37 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/34020.shtml)
-- 2026-06-30 02:51 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/92311382892.shtml)
-- 2026-06-30 02:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/7246013.shtml)
-- 2026-06-30 02:41 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/68342.shtml)
-- 2026-06-30 02:30 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/2365102.shtml)
+- 2026-06-30 02:58 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/180233.shtml)
+- 2026-06-30 02:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/2897938.shtml)
+- 2026-06-30 02:48 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/2281461.shtml)
+- 2026-06-30 02:39 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/677717.shtml)
+- 2026-06-30 02:30 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/7837030316.shtml)
+- 2026-06-30 02:45 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/553817351634.shtml)
+- 2026-06-30 02:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/005604112.shtml)
+- 2026-06-30 02:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/0925485906.shtml)
+- 2026-06-30 02:59 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/9818039688.shtml)
+- 2026-06-30 02:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/085064219015.shtml)
+- 2026-06-30 02:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/190249.shtml)
+- 2026-06-30 02:54 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/83643.shtml)
+- 2026-06-30 02:50 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/08546786.shtml)
+- 2026-06-30 02:54 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/29733840748.shtml)
+- 2026-06-30 02:59 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/524347414.shtml)

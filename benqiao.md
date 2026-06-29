@@ -1,60 +1,49 @@
-# 斯特兰蒂斯首席执行官即将公布企业扭亏改革方案
+# 祥源文旅：公司从低空经济产业投资基金中退出主要基于公司低空战略规划及投资模式的调整
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-核心要点 斯特兰蒂斯首席执行官安东尼奥・菲洛萨曾直言，执掌这家横跨欧美两大市场的跨国车企是自己的梦想，但在其上任后的短短任期内，公司股价走势却让投资者大失所望。 出身公司内部、一路晋升上位的意大利本土高管菲洛萨，就任首席执行官已满近一年，在此期间斯特兰蒂斯股价跌幅接近三成；自去年 6 月正式走马上任算起，股价下跌幅度约 21%。 本周四将成为菲洛萨团队改革路上的关键时点，团队将
+证券日报网讯 4月7日，祥源文旅（维权）在互动平台回答投资者提问时表示，公司从低空经济产业投资基金中退出主要基于公司低空战略规划及投资模式的调整，为进一步聚焦对于低空文旅业态投资而做出。公司将结合新项目自身持续盈利能力、与公司主营业务的协同效应及公司资金情况等因素综合考虑新项目的推进。
 
 ## 正文
 
-核心要点 斯特兰蒂斯首席执行官安东尼奥・菲洛萨曾直言，执掌这家横跨欧美两大市场的跨国车企是自己的梦想，但在其上任后的短短任期内，公司股价走势却让投资者大失所望。
+证券日报网讯 4月7日，祥源文旅（维权）在互动平台回答投资者提问时表示，公司从低空经济产业投资基金中退出主要基于公司低空战略规划及投资模式的调整，为进一步聚焦对于低空文旅业态投资而做出。
 
-出身公司内部、一路晋升上位的意大利本土高管菲洛萨，就任首席执行官已满近一年，在此期间斯特兰蒂斯股价跌幅接近三成；自去年 6 月正式走马上任算起，股价下跌幅度约 21%。
-
-本周四将成为菲洛萨团队改革路上的关键时点，团队将在位于底特律近郊的斯特兰蒂斯北美总部举办资本市场日活动，正式对外发布车企整体扭亏脱困方案。
-
-菲洛萨向投资者表态，此次活动会清晰梳理企业下一阶段战略布局，确立明确发展重心、量化经营目标，同时制定条理清晰的落地执行规划。
-
-本周即将对外公布的全新战略，将按区域聚焦核心品牌布局：深耕美国市场的吉普、公羊品牌，以及主打欧洲市场的菲亚特、标致品牌；同时详细披露降本增效举措，规划企业重回盈利正轨的路径。
-
-去年斯特兰蒂斯全年净亏损高达 223 亿欧元（折合 263 亿美元）。
-
-菲洛萨在上周《金融时报》举办的活动中表示：“执掌斯特兰蒂斯曾是我的心愿，但上任之初我和团队就清楚，企业尚有诸多问题亟待解决。
-
-如今我们正全力加速整改，我坚信一切都在向好发展，5 月 21 日投资者交流会上，我们会正式公布清晰可行、稳健长效的稳步增长发展蓝图。
+公司将结合新项目自身持续盈利能力、与公司主营业务的协同效应及公司资金情况等因素综合考虑新项目的推进。
 
 ## 相关推荐
 
-- 2026-06-30 02:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 02:53 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 02:38 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 02:50 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 02:40 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 02:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 02:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 02:37 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 02:46 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 02:33 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 02:25 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 02:38 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 02:32 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 02:40 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 02:57 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 02:44 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 02:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 02:39 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 02:41 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 02:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 02:46 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 02:38 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 02:47 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 02:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 02:59 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 02:39 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 02:44 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 02:52 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 02:40 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:41 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/7574988097.shtml)
-- 2026-06-30 02:43 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/3616713.shtml)
-- 2026-06-30 02:36 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/381449319657.shtml)
-- 2026-06-30 02:52 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/8601745221.shtml)
-- 2026-06-30 02:52 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/3819072429.shtml)
-- 2026-06-30 02:27 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/96668740639.shtml)
-- 2026-06-30 02:25 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/3276558219.shtml)
-- 2026-06-30 02:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/818472.shtml)
-- 2026-06-30 02:31 - [巴西扳平比分](http://www.blog.minike.top/Article/details/3863280009.shtml)
-- 2026-06-30 02:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/046743398.shtml)
-- 2026-06-30 02:32 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/0746216.shtml)
-- 2026-06-30 02:24 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/8961234.shtml)
-- 2026-06-30 02:26 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/5045510075.shtml)
-- 2026-06-30 02:34 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/746908055583.shtml)
-- 2026-06-30 02:41 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/22160483.shtml)
+- 2026-06-30 02:32 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/45178298.shtml)
+- 2026-06-30 02:33 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/7283062.shtml)
+- 2026-06-30 02:58 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/7071662.shtml)
+- 2026-06-30 02:31 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/5580061469.shtml)
+- 2026-06-30 02:53 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/476963.shtml)
+- 2026-06-30 02:53 - [美人鱼](https://www.share.minike.top/Article/details/55269942.shtml)
+- 2026-06-30 02:39 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/8130233.shtml)
+- 2026-06-30 02:46 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/1981894608.shtml)
+- 2026-06-30 02:59 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/78941.shtml)
+- 2026-06-30 02:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/72272942.shtml)
+- 2026-06-30 02:59 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/26657718.shtml)
+- 2026-06-30 02:44 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/77437803367.shtml)
+- 2026-06-30 02:41 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/49078679494.shtml)
+- 2026-06-30 02:35 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/87278943.shtml)
+- 2026-06-30 02:49 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/47254129.shtml)

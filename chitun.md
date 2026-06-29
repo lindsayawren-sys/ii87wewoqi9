@@ -1,44 +1,45 @@
-# 中再资环：根据《废弃电器电子产品处理专项资金管理办法》，不再有确定的单台补贴标准
+# 我国成功发射千帆星座第7批组网卫星
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-证券日报网5月21日讯 ，中再资环在接受调研者提问时表示，根据《废弃电器电子产品处理专项资金管理办法》，不再有确定的单台补贴标准，公司按照《企业会计准则第14号——收入》确认专项资金收入。根据财政部2025年7月发布的《财政部关于下达2025年废弃电器电子产品处理专项资金预算的通知》（财资环〔2025〕59号），公司已按照企业会计准则相关规定完成会计处理。
+新华社海南文昌4月7日电(记者陈凯姿)7日21时32分，长征八号运载火箭在海南商业航天发射场以“一箭十八星”方式，将千帆星座第7批组网卫星送入预定轨道，发射任务获得圆满成功。(完)
 
 ## 正文
 
-证券日报网5月21日讯 ，中再资环在接受调研者提问时表示，根据《废弃电器电子产品处理专项资金管理办法》，不再有确定的单台补贴标准，公司按照《企业会计准则第14号——收入》确认专项资金收入。
+新华社海南文昌4月7日电(记者陈凯姿)7日21时32分，长征八号运载火箭在海南商业航天发射场以“一箭十八星”方式，将千帆星座第7批组网卫星送入预定轨道，发射任务获得圆满成功。
 
-根据财政部2025年7月发布的《财政部关于下达2025年废弃电器电子产品处理专项资金预算的通知》（财资环〔2025〕59号），公司已按照企业会计准则相关规定完成会计处理。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 02:47 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 02:40 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 02:25 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 02:43 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 02:48 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 02:30 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 02:51 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 02:26 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 02:32 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 02:30 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 02:36 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 02:50 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 02:38 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 02:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 02:54 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 02:35 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 02:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 02:44 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 02:48 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 02:56 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:43 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/6522848259.shtml)
-- 2026-06-30 02:49 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/32145857.shtml)
-- 2026-06-30 02:27 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/2265270.shtml)
-- 2026-06-30 02:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/4972135.shtml)
-- 2026-06-30 02:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/3283549944.shtml)
-- 2026-06-30 02:47 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/0947955.shtml)
-- 2026-06-30 02:38 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/30714.shtml)
-- 2026-06-30 02:31 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/82832860883.shtml)
-- 2026-06-30 02:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/820984460.shtml)
-- 2026-06-30 02:34 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/62021.shtml)
-- 2026-06-30 02:26 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/169983974.shtml)
-- 2026-06-30 02:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/26677649.shtml)
-- 2026-06-30 02:43 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/877748.shtml)
-- 2026-06-30 02:52 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/585951.shtml)
-- 2026-06-30 02:45 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/8312143802.shtml)
+- 2026-06-30 02:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/60978.shtml)
+- 2026-06-30 02:52 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/285983991691.shtml)
+- 2026-06-30 02:46 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/595764736746.shtml)
+- 2026-06-30 02:30 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/24759366.shtml)
+- 2026-06-30 02:46 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/16986433.shtml)
+- 2026-06-30 02:47 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/71658670.shtml)
+- 2026-06-30 02:43 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/36028166854.shtml)
+- 2026-06-30 02:31 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/2894798619.shtml)
+- 2026-06-30 02:30 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/3962762.shtml)
+- 2026-06-30 02:52 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/355556.shtml)
+- 2026-06-30 02:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/191806516.shtml)
+- 2026-06-30 02:36 - [周生如故](https://www.share.kurohicncr.top/Article/details/31159973.shtml)
+- 2026-06-30 02:44 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/61644530952.shtml)
+- 2026-06-30 02:40 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/02157029559.shtml)
+- 2026-06-30 02:45 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/00532056332.shtml)

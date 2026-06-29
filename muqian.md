@@ -1,61 +1,61 @@
-# SpaceX IPO招股书首度曝光：星链年赚113亿美元，航天业务亏损，估值剑指1.8万亿美元
+# 清明假期广西多措并举 助推消费市场火热
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-SpaceX终于向投资者公开了其内部财务状况。这家火箭公司已向美国证券交易委员会（SEC）提交了S-1 IPO招股说明书，为其投资者路演做准备。据报道，路演计划于6月5日启动。 截至2026年3月31日的三个月内，SpaceX在合并基础上实现营收46.94亿美元，运营亏损19.43亿美元，调整后EBITDA为11.27亿美元。 2025年全年，SpaceX在合并基础上实现营收1
+中新网南宁4月8日电(韦佳秀)广西商务厅8日介绍，今年清明假期(4月4日—6日)期间，该部门紧扣“今年春假来广西 畅游畅购三月三”主题，推出系列促消费举措，创新打造多元沉浸式消费场景，为春季消费市场注入新活力。 清明假期期间，广西各地扎实推进消费品以旧换新活动。贵港、防城港、贺州等市推出新车购车补贴，消费者购车最高可享补贴4000元。南宁、柳州等地部分4S店推出置换补贴加码活动
 
 ## 正文
 
-SpaceX终于向投资者公开了其内部财务状况。
+中新网南宁4月8日电(韦佳秀)广西商务厅8日介绍，今年清明假期(4月4日—6日)期间，该部门紧扣“今年春假来广西 畅游畅购三月三”主题，推出系列促消费举措，创新打造多元沉浸式消费场景，为春季消费市场注入新活力。
 
-这家火箭公司已向美国证券交易委员会（SEC）提交了S-1 IPO招股说明书，为其投资者路演做准备。
+清明假期期间，广西各地扎实推进消费品以旧换新活动。
 
-据报道，路演计划于6月5日启动。
+贵港、防城港、贺州等市推出新车购车补贴，消费者购车最高可享补贴4000元。
 
-截至2026年3月31日的三个月内，SpaceX在合并基础上实现营收46.94亿美元，运营亏损19.43亿美元，调整后EBITDA为11.27亿美元。
+南宁、柳州等地部分4S店推出置换补贴加码活动，部分车型可享4000元置换补贴、3年0息等多重优惠。
 
-2025年全年，SpaceX在合并基础上实现营收186.74亿美元，运营亏损25.89亿美元，调整后EBITDA为65.84亿美元。
+京东电器、苏宁易购等单台家电最高补贴5000元。
 
-SpaceX表示，其航天与连接两大业务板块“贡献了截至2026年3月31日止三个月及2025年12月31日止年度合并收入的绝大部分”。
+南宁市还创新推出“以旧换新+有奖发票”活动，截至4月6日，活动累计参与36万人次，上传发票174.2万张，拉动消费8.6亿元。
 
-主要由星链（Starlink）驱动的连接业务板块，在截至2026年3月31日的三个月内实现营收32.57亿美元，运营利润11.88亿美元，调整后EBITDA为20.87亿美元。
+广西175家零售企业商品销售额同比(下同)增长10.1%，其中汽车类、通讯器材类、石油及制品类分别增长6.7%、21.8%和24.6%。
 
-2025年全年，该业务板块实现营收113.87亿美元，运营利润44.23亿美元，调整后EBITDA为71.68亿美元，同比分别增长49.8%、120.4%和86.2%。
+清明假期适逢各地“春假”，“双假”叠加带动出行消费活跃，短途游、自驾游成主流。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 02:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 02:37 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 02:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 02:46 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 02:52 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 02:34 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 02:26 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 02:40 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 02:34 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 02:43 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 02:24 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 02:48 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 02:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 02:44 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 02:37 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 02:53 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 02:49 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 02:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 02:52 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 02:48 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 02:43 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 02:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 02:54 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 02:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 02:59 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 02:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 02:41 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 02:35 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 02:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:53 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/02263012759.shtml)
-- 2026-06-30 02:25 - [千香](http://www.share.kurohicncr.top/Article/details/771375878.shtml)
-- 2026-06-30 02:51 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/63392522619.shtml)
-- 2026-06-30 02:42 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/3713750.shtml)
-- 2026-06-30 02:36 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/1908404.shtml)
-- 2026-06-30 02:50 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/5744905137.shtml)
-- 2026-06-30 02:27 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/510913.shtml)
-- 2026-06-30 02:39 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/136679.shtml)
-- 2026-06-30 02:46 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/262134.shtml)
-- 2026-06-30 02:32 - [千香](https://www.blog.minike.top/Article/details/3784237.shtml)
-- 2026-06-30 02:31 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/29616.shtml)
-- 2026-06-30 02:40 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/129136745.shtml)
-- 2026-06-30 02:40 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/613403931.shtml)
-- 2026-06-30 02:30 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/33158.shtml)
-- 2026-06-30 02:49 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/8009761.shtml)
+- 2026-06-30 02:54 - [时光音乐会](http://www.blog.minike.top/Article/details/23600186568.shtml)
+- 2026-06-30 02:49 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/12040681.shtml)
+- 2026-06-30 02:43 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/16018231.shtml)
+- 2026-06-30 02:38 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/65248.shtml)
+- 2026-06-30 02:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/910650443.shtml)
+- 2026-06-30 02:58 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/61642.shtml)
+- 2026-06-30 02:32 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/511628790945.shtml)
+- 2026-06-30 02:32 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/9026402716.shtml)
+- 2026-06-30 02:48 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/02080278.shtml)
+- 2026-06-30 02:38 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/02681.shtml)
+- 2026-06-30 02:42 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/36076920.shtml)
+- 2026-06-30 02:33 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/31335835246.shtml)
+- 2026-06-30 02:33 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/9995055.shtml)
+- 2026-06-30 02:59 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/33664357.shtml)
+- 2026-06-30 02:48 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/73346297.shtml)

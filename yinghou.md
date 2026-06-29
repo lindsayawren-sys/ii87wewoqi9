@@ -1,44 +1,46 @@
-# 经纬线·寄望中俄关系发展，习主席这样引经据典
+# 荣尊国际控股于4月8日上午起短暂停牌 待刊发内幕消息
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 08:55 来源：人民日报客户端 责任编辑：【杨彦宇】
+荣尊国际控股（01780）发布公告，公司股份已由2026年4月8日上午九时正起于香港联合交易所有限公司短暂停止买卖，以待刊发有关公司内幕消息及根据香港公司收购及合并守则作出的公告。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年05月22日 08:55 来源：人民日报客户端 责任编辑：【杨彦宇】
+荣尊国际控股（01780）发布公告，公司股份已由2026年4月8日上午九时正起于香港联合交易所有限公司短暂停止买卖，以待刊发有关公司内幕消息及根据香港公司收购及合并守则作出的公告。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 02:41 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 02:47 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 02:27 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 02:29 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 02:46 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 02:47 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 02:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 02:42 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 02:53 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 02:32 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 02:30 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 02:34 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 02:48 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 02:48 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 02:49 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 02:57 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 02:36 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 02:31 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 02:49 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 02:31 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 02:40 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 02:54 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 02:51 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:42 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/49491.shtml)
-- 2026-06-30 02:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/489381591089.shtml)
-- 2026-06-30 02:35 - [爱很美味](https://www.share.minike.top/Article/details/731349173944.shtml)
-- 2026-06-30 02:53 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/145695.shtml)
-- 2026-06-30 02:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/679402095.shtml)
-- 2026-06-30 02:34 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/23728.shtml)
-- 2026-06-30 02:48 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/031940.shtml)
-- 2026-06-30 02:52 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/69274.shtml)
-- 2026-06-30 02:29 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/0467000.shtml)
-- 2026-06-30 02:40 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/335820380.shtml)
-- 2026-06-30 02:41 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/0232299.shtml)
-- 2026-06-30 02:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/8045549462.shtml)
-- 2026-06-30 02:47 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/3415515411.shtml)
-- 2026-06-30 02:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/946959777334.shtml)
-- 2026-06-30 02:28 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/05339.shtml)
+- 2026-06-30 02:57 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/2467220.shtml)
+- 2026-06-30 02:56 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/567765512624.shtml)
+- 2026-06-30 02:33 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/67166067568.shtml)
+- 2026-06-30 02:46 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/86953752.shtml)
+- 2026-06-30 02:41 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/8823592.shtml)
+- 2026-06-30 02:54 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/78164708.shtml)
+- 2026-06-30 02:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/42724827.shtml)
+- 2026-06-30 02:45 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/54562699107.shtml)
+- 2026-06-30 02:50 - [一生一世](https://www.share.kurohicncr.top/Article/details/101801868.shtml)
+- 2026-06-30 02:36 - [内马尔替补](https://www.blog.minike.top/Article/details/084399964.shtml)
+- 2026-06-30 02:49 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/739558.shtml)
+- 2026-06-30 02:47 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/97989752549.shtml)
+- 2026-06-30 02:53 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/709792984431.shtml)
+- 2026-06-30 02:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/13078672032.shtml)
+- 2026-06-30 02:34 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/71957.shtml)

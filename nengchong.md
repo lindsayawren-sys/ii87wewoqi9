@@ -1,51 +1,58 @@
-# 深圳文博会“雄安三座城”模型勾勒未来之城新图景
+# A股高开高走放量暴涨，沪指百点长阳剑指4000点
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 23:11 来源：中国新闻网 5月21日，第二十二届中国(深圳)国际文化产业博览交易会启幕。在本届文博会河北产业组团中，“妙不可言·心向往之”展区聚焦雄安新区建设成就，借助“雄安三座城”数字模型，立体化呈现地上城、地下城、云上城的未来图景。 地上城部分展示了雄安新区作为疏解北京非首都功能集中承载地和高质量发展的城市样板；地下城部分展示了综合管廊
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股三大股指4月8日集体高开。早盘两市高开高走，单边大幅上涨。午后依旧涨势不改，创指涨超5%，沪指上涨超百点剑指4000点。 从盘面上看，科技股全线反弹，算力硬件、半导体设备、AI算力、消费电子、人形机器人、商业航天、金融科技题材涨幅居前；黄金、工业金属、大金融板块表现强势。油气、煤炭股调整。 至收盘，上证
 
 ## 正文
 
-发布时间：2026年05月21日 23:11 来源：中国新闻网 5月21日，第二十二届中国(深圳)国际文化产业博览交易会启幕。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在本届文博会河北产业组团中，“妙不可言·心向往之”展区聚焦雄安新区建设成就，借助“雄安三座城”数字模型，立体化呈现地上城、地下城、云上城的未来图景。
+A股三大股指4月8日集体高开。
 
-地上城部分展示了雄安新区作为疏解北京非首都功能集中承载地和高质量发展的城市样板；地下城部分展示了综合管廊、商场与街区的地下布局和立体交通网络；云上城则展示了雄安物理空间与数字空间的孪生共长。
+早盘两市高开高走，单边大幅上涨。
 
-(张艺 高红超 宋文浩 制作 王佳琪) 责任编辑：【张令旗】
+午后依旧涨势不改，创指涨超5%，沪指上涨超百点剑指4000点。
+
+从盘面上看，科技股全线反弹，算力硬件、半导体设备、AI算力、消费电子、人形机器人、商业航天、金融科技题材涨幅居前；黄金、工业金属、大金融板块表现强势。
+
+油气、煤炭股调整。
+
+至收盘，上证综指涨2.69%，报3995点；深证成指涨4.79%，报14042.5点；创业板指涨5.91%，报3347.61点。
+
+Wind统计显示，两市及北交所共5164家上涨，301家下跌，平盘有24家。
 
 ## 相关推荐
 
-- 2026-06-30 02:42 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 02:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 02:26 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 02:24 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 02:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 02:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 02:36 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 02:40 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 02:35 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 02:50 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 02:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 02:48 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 02:33 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 02:46 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 02:50 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 02:45 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 02:44 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 02:30 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 02:54 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 02:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 02:47 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 02:55 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 02:32 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 02:35 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 02:47 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:29 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/938213625255.shtml)
-- 2026-06-30 02:38 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/4666136492.shtml)
-- 2026-06-30 02:51 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/329533038179.shtml)
-- 2026-06-30 02:28 - [刘念回应](https://www.share.minike.top/Article/details/63733.shtml)
-- 2026-06-30 02:36 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/771548.shtml)
-- 2026-06-30 02:30 - [斗破苍穹](http://www.blog.minike.top/Article/details/888291113156.shtml)
-- 2026-06-30 02:51 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/75971274787.shtml)
-- 2026-06-30 02:33 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/87319819347.shtml)
-- 2026-06-30 02:31 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/51502049865.shtml)
-- 2026-06-30 02:51 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/551162821332.shtml)
-- 2026-06-30 02:49 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/502017.shtml)
-- 2026-06-30 02:40 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/28626.shtml)
-- 2026-06-30 02:44 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/05963161.shtml)
-- 2026-06-30 02:32 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/080021.shtml)
-- 2026-06-30 02:28 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/72980.shtml)
+- 2026-06-30 02:37 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/1660121414.shtml)
+- 2026-06-30 02:44 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/5689725.shtml)
+- 2026-06-30 02:49 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/661309089.shtml)
+- 2026-06-30 02:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/46082271.shtml)
+- 2026-06-30 02:43 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/1579502.shtml)
+- 2026-06-30 02:44 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/975410100.shtml)
+- 2026-06-30 02:47 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/001066756295.shtml)
+- 2026-06-30 02:30 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/968877190469.shtml)
+- 2026-06-30 02:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/20109881102.shtml)
+- 2026-06-30 02:53 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/2496827.shtml)
+- 2026-06-30 02:30 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/34118703.shtml)
+- 2026-06-30 02:57 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/15878.shtml)
+- 2026-06-30 02:54 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/98785.shtml)
+- 2026-06-30 02:31 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/93445.shtml)
+- 2026-06-30 02:42 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/4919435.shtml)

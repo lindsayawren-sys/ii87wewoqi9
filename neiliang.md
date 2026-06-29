@@ -1,60 +1,57 @@
-# 香港警方联同9地打击跨境诈骗 拘捕3018人涉7.52亿美元
+# 中俄在安理会否决涉霍尔木兹海峡决议草案 中方回应
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新社香港5月20日电 香港特区政府新闻处20日消息，香港特区政府警务处(简称“香港警方”)与澳门、文莱、加拿大、印尼、马来西亚、马尔代夫、新加坡、韩国、泰国等9个国家和地区的警方，通过反诈骗跨境合作平台“FRONTIER+”开展联合行动，打击跨境诈骗与洗黑钱活动。在持续近两个月的行动中，10地执法部门出动超过3200名执法人员，成功识别并瓦解多个跨境诈骗网络，共拘捕3018人
+中新网北京4月8日电(记者 郭超凯 谢雁冰)中国外交部发言人毛宁4月8日主持例行记者会。 有记者提问：据报道，安理会7日表决巴林提出的涉霍尔木兹海峡决议草案。中国、俄罗斯投了反对票，行使否决权，该草案未获通过。但据中国、俄罗斯常驻联合国代表称，两国就当前中东局势及海上安全提出新的安理会决议草案，发言人能否介绍有关情况？ 毛宁：关于安理会刚刚表决的霍尔木兹海峡问题决议草案，中国常
 
 ## 正文
 
-中新社香港5月20日电 香港特区政府新闻处20日消息，香港特区政府警务处(简称“香港警方”)与澳门、文莱、加拿大、印尼、马来西亚、马尔代夫、新加坡、韩国、泰国等9个国家和地区的警方，通过反诈骗跨境合作平台“FRONTIER+”开展联合行动，打击跨境诈骗与洗黑钱活动。
+中新网北京4月8日电(记者 郭超凯 谢雁冰)中国外交部发言人毛宁4月8日主持例行记者会。
 
-在持续近两个月的行动中，10地执法部门出动超过3200名执法人员，成功识别并瓦解多个跨境诈骗网络，共拘捕3018人，涉及超13.8万宗诈骗案，包括网购诈骗、求职诈骗、投资诈骗等，总损失达7.52亿美元。
+有记者提问：据报道，安理会7日表决巴林提出的涉霍尔木兹海峡决议草案。
 
-行动冻结超10万个银行帐户，拦截骗款约1.61亿美元。
+中国、俄罗斯投了反对票，行使否决权，该草案未获通过。
 
-在联合行动中，香港警方共拘捕870人，涉及742宗案件，主要包括网购、电话、投资和求职诈骗案，并成功拦截约5.39亿港元骗款。
+但据中国、俄罗斯常驻联合国代表称，两国就当前中东局势及海上安全提出新的安理会决议草案，发言人能否介绍有关情况？
 
-其中，损失最大的一宗案件由香港警方与新加坡警方联合侦破，该案中的受害公司被骗3600万美元。
+毛宁：关于安理会刚刚表决的霍尔木兹海峡问题决议草案，中国常驻联合国代表已在解释性发言中阐明了中方立场。
 
-两地警方经调查及追踪后，成功拦截其中2000万美元。
+中方主张，海湾国家的主权、安全和领土完整应得到充分尊重，航道以及能源基础设施安全应当得到保障。
 
-调查显示，诈骗集团通过虚拟资产平台洗黑钱情况呈上升趋势，各地需继续通过情报互通和协作机制，提升应对涉及虚拟资产罪行的能力。
+霍尔木兹海峡通航受阻的根本原因是美国和以色列对伊朗的非法军事行动。
 
-(完)
+解决霍尔木兹海峡通航问题的根本之策是尽快停火止战。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 02:49 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 02:34 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 02:28 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 02:34 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 02:48 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 02:26 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 02:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 02:43 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 02:37 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 02:36 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 02:46 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 02:42 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 02:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 02:48 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 02:59 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 02:51 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 02:43 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 02:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 02:38 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 02:55 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 02:39 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 02:46 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 02:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 02:36 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/39786478.shtml)
-- 2026-06-30 02:26 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/00821361.shtml)
-- 2026-06-30 02:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/56222.shtml)
-- 2026-06-30 02:45 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/4511968236.shtml)
-- 2026-06-30 02:30 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/130754.shtml)
-- 2026-06-30 02:43 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/728545604.shtml)
-- 2026-06-30 02:49 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/395679.shtml)
-- 2026-06-30 02:30 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/98723075464.shtml)
-- 2026-06-30 02:35 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/577233.shtml)
-- 2026-06-30 02:34 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/298185215.shtml)
-- 2026-06-30 02:34 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/8121721606.shtml)
-- 2026-06-30 02:31 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/700493757293.shtml)
-- 2026-06-30 02:34 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/68359053247.shtml)
-- 2026-06-30 02:39 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/2959255.shtml)
-- 2026-06-30 02:53 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/773145966.shtml)
+- 2026-06-30 02:43 - [沙丘](https://www.blog.kurohicncr.top/Article/details/6372995553.shtml)
+- 2026-06-30 02:57 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/709184958.shtml)
+- 2026-06-30 02:40 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/71639234504.shtml)
+- 2026-06-30 02:42 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/038789.shtml)
+- 2026-06-30 02:30 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/01373095030.shtml)
+- 2026-06-30 02:36 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/40120.shtml)
+- 2026-06-30 02:30 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/980638.shtml)
+- 2026-06-30 02:55 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/1607907.shtml)
+- 2026-06-30 02:36 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/39551290064.shtml)
+- 2026-06-30 02:42 - [起风了](https://www.blog.kurohicncr.top/Article/details/5065222.shtml)
+- 2026-06-30 02:41 - [美股](https://www.blog.kurohicncr.top/Article/details/33990.shtml)
+- 2026-06-30 02:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/3758696.shtml)
+- 2026-06-30 02:53 - [沙丘](http://www.share.kurohicncr.top/Article/details/56935620902.shtml)
+- 2026-06-30 02:56 - [天道](http://www.blog.minike.top/Article/details/74017.shtml)
+- 2026-06-30 02:58 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/57446456.shtml)

@@ -1,59 +1,56 @@
-# 半年大涨77% 陶氏化学如何成为霍尔木兹僵局的最大赢家
+# 地缘降温，油价暴跌，接下来盯紧4月24日
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-霍尔木兹海峡持续封航的风险，对绝大多数工业股而言堪称宏观层面的利空信号，但对于陶氏化学（DOW）来说，这一局势已推动其股价在过去六个月大涨77%，若航运受限局面长期延续，还将持续成为其股价上涨的利好催化剂。 据悉，全球大量聚乙烯（包装、管材等各类产品通用塑料原料）产自中东地区，且生产依赖石油基原料。 中东地区供应链中断会收紧全球供给、推高产品售价。与此同时，油价上涨也抬高了全球
+中新经纬4月8日电 (宋亚芬)以色列国防军8日宣布已暂停对伊朗的打击。美以伊冲突终于实现短暂停火，霍尔木兹海峡也短暂恢复通行。 这无疑是各方都乐于看到的一个结果。“停火”的消息发布后，各国纷纷表示欢迎。 德国总理默茨希望“通过谈判达成一项持久结束战争的协议”，并就此开展协调。英国首相斯塔默还将前往中东，与海湾国家举行会谈，以确保霍尔木兹海峡在美伊停火后永久开放。 不过，对油价市
 
 ## 正文
 
-霍尔木兹海峡持续封航的风险，对绝大多数工业股而言堪称宏观层面的利空信号，但对于陶氏化学（DOW）来说，这一局势已推动其股价在过去六个月大涨77%，若航运受限局面长期延续，还将持续成为其股价上涨的利好催化剂。
+中新经纬4月8日电 (宋亚芬)以色列国防军8日宣布已暂停对伊朗的打击。
 
-据悉，全球大量聚乙烯（包装、管材等各类产品通用塑料原料）产自中东地区，且生产依赖石油基原料。
+美以伊冲突终于实现短暂停火，霍尔木兹海峡也短暂恢复通行。
 
-中东地区供应链中断会收紧全球供给、推高产品售价。
+这无疑是各方都乐于看到的一个结果。
 
-与此同时，油价上涨也抬高了全球各地以石脑油为原料的同业厂商生产成本。
+“停火”的消息发布后，各国纷纷表示欢迎。
 
-而陶氏化学则坐拥差异化优势，依托美国本土低成本乙烷原料生产聚乙烯。
+德国总理默茨希望“通过谈判达成一项持久结束战争的协议”，并就此开展协调。
 
-在全球售价走高、同行生产成本激增的大环境下，陶氏化学可顺势上调产品售价，无需调整经营策略，便能直接实现利润率扩张。
+英国首相斯塔默还将前往中东，与海湾国家举行会谈，以确保霍尔木兹海峡在美伊停火后永久开放。
 
-供给冲击重塑聚乙烯行业盈利格局 陶氏化学经营管理层最新研判改写了公司发展预期。
+不过，对油价市场而言，冲突的缓和却如同浇了一盆冷水，让此前火热的国际油价进入“速降”模式，WTI油价一度暴跌超19%，布伦特油价盘中跌幅也超过16%，双双跌回“90”区间。
 
-管理层在4月表示，中东供应链扰动局面将延续至2026年，全球聚乙烯供给将持续偏紧，而陶氏依托美国乙烷原料的生产模式，成本结构性优势将进一步凸显。
+隆众资讯原油分析师吴燕对中新经纬表示，国际油价盘面反应非常迅速，暂时实现了风险溢价的回落和出清。
 
 ## 相关推荐
 
-- 2026-06-30 02:33 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 02:53 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 02:36 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 02:32 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 02:24 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 02:47 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 02:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 02:45 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 02:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 02:35 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 02:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 02:50 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 02:43 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 02:35 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 02:32 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 02:40 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 02:44 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 02:58 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 02:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 02:33 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 02:31 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 02:46 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 02:37 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/06843603.shtml)
-- 2026-06-30 02:36 - [日本16强魔咒](https://www.share.minike.top/Article/details/56240.shtml)
-- 2026-06-30 02:47 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/84801139550.shtml)
-- 2026-06-30 02:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/11604952617.shtml)
-- 2026-06-30 02:41 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/22626040756.shtml)
-- 2026-06-30 02:30 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/63154546.shtml)
-- 2026-06-30 02:38 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/2194205649.shtml)
-- 2026-06-30 02:44 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/85940180533.shtml)
-- 2026-06-30 02:53 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/5631690251.shtml)
-- 2026-06-30 02:41 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/82273.shtml)
-- 2026-06-30 02:38 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/2357919425.shtml)
-- 2026-06-30 02:51 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/7576159784.shtml)
-- 2026-06-30 02:41 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/0960420914.shtml)
-- 2026-06-30 02:45 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/25543.shtml)
-- 2026-06-30 02:31 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/3128130995.shtml)
+- 2026-06-30 02:39 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/767991.shtml)
+- 2026-06-30 02:54 - [周生如故](https://www.blog.kurohicncr.top/Article/details/0320190.shtml)
+- 2026-06-30 02:47 - [85花告别古偶](https://www.blog.minike.top/Article/details/71915.shtml)
+- 2026-06-30 02:50 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/748520800627.shtml)
+- 2026-06-30 02:49 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/555916.shtml)
+- 2026-06-30 02:48 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/90829120.shtml)
+- 2026-06-30 02:31 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/122325589.shtml)
+- 2026-06-30 02:49 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/98995924.shtml)
+- 2026-06-30 02:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/61926602402.shtml)
+- 2026-06-30 02:40 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/64581443067.shtml)
+- 2026-06-30 02:57 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/24234.shtml)
+- 2026-06-30 02:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/234650632005.shtml)
+- 2026-06-30 02:34 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/880948172738.shtml)
+- 2026-06-30 02:48 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/072589.shtml)
+- 2026-06-30 02:44 - [金牌调解](https://www.share.kurohicncr.top/Article/details/9994668905.shtml)

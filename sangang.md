@@ -1,50 +1,60 @@
-# 伊朗：美国的威胁和最后通牒不会影响德黑兰的决定
+# 联合国研究预计：伊朗战争恐对阿拉伯国家造成近2000亿美元经济损失
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-据伊朗国家电视台IRIB报道，外交部发言人巴加埃表示，巴基斯坦内政部长正在伊朗访问“以促进美伊之间的信息交流”。 巴加埃表示：“伊朗和美国双方正根据伊朗提出的14点建议继续交换信息”。 他还补充说，美国以“最后通牒和期限”相威胁不会影响德黑兰的决定。责任编辑：李桐
+一项新的联合国研究发现，美国和以色列对伊朗的战争可能令中东地区损失近2000亿美元经济增长。 联合国开发计划署周二早间发布的一份关于战争对阿拉伯国家经济和社会影响的分析显示，由于这场战争带来的扰动，阿拉伯国家国内生产总值损失可能介于1200亿美元至1940亿美元之间。 该机构表示，已研究多种不同情景，以判断这场自2月28日开始的冲突可能如何影响该地区国家。报告作者指出，即便战争
 
 ## 正文
 
-据伊朗国家电视台IRIB报道，外交部发言人巴加埃表示，巴基斯坦内政部长正在伊朗访问“以促进美伊之间的信息交流”。
+一项新的联合国研究发现，美国和以色列对伊朗的战争可能令中东地区损失近2000亿美元经济增长。
 
-巴加埃表示：“伊朗和美国双方正根据伊朗提出的14点建议继续交换信息”。
+联合国开发计划署周二早间发布的一份关于战争对阿拉伯国家经济和社会影响的分析显示，由于这场战争带来的扰动，阿拉伯国家国内生产总值损失可能介于1200亿美元至1940亿美元之间。
 
-他还补充说，美国以“最后通牒和期限”相威胁不会影响德黑兰的决定。
+该机构表示，已研究多种不同情景，以判断这场自2月28日开始的冲突可能如何影响该地区国家。
 
-责任编辑：李桐
+报告作者指出，即便战争较快结束，造成的破坏也可能十分深远。
+
+他们表示：“中东地区短暂的军事升级，也可能在阿拉伯国家区域内引发深刻而广泛的社会经济影响。
+
+” 报告称，整体损失可能导致地区失业率上升多达4个百分点，造成约360万个就业岗位流失，并使多达400万人陷入贫困。
+
+主管联合国开发计划署阿拉伯国家局的联合国助理秘书长Abdallah Al Dardari在声明中表示：“这场危机为地区国家敲响了警钟。
+
+” 受打击最严重的地区将集中在海湾合作委员会国家和黎凡特地区，各自的GDP预计都将损失逾5.2%。
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 02:34 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 02:46 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 02:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 02:37 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 02:39 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 02:29 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 02:47 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 02:42 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 02:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 02:35 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 02:35 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 02:45 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 02:38 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 02:55 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 02:44 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 02:34 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 02:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 02:57 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 02:55 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 02:48 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 02:51 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 02:31 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 02:46 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 02:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 02:50 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:42 - [时光音乐会](https://www.share.minike.top/Article/details/6058435331.shtml)
-- 2026-06-30 02:25 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/680893679.shtml)
-- 2026-06-30 02:50 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/30481.shtml)
-- 2026-06-30 02:35 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/640027.shtml)
-- 2026-06-30 02:35 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/288269548.shtml)
-- 2026-06-30 02:41 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/3760424373.shtml)
-- 2026-06-30 02:45 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/504361.shtml)
-- 2026-06-30 02:29 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/756242.shtml)
-- 2026-06-30 02:30 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/861575325899.shtml)
-- 2026-06-30 02:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/572648.shtml)
-- 2026-06-30 02:27 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/9783144904.shtml)
-- 2026-06-30 02:30 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/779738.shtml)
-- 2026-06-30 02:37 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/92763.shtml)
-- 2026-06-30 02:29 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/9652988315.shtml)
-- 2026-06-30 02:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/87724259.shtml)
+- 2026-06-30 02:56 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/3659293787.shtml)
+- 2026-06-30 02:54 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/40745682.shtml)
+- 2026-06-30 02:46 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/40302.shtml)
+- 2026-06-30 02:51 - [急先锋](https://www.share.minike.top/Article/details/0401499984.shtml)
+- 2026-06-30 02:51 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/6113493673.shtml)
+- 2026-06-30 02:41 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/9272904100.shtml)
+- 2026-06-30 02:37 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/31280536110.shtml)
+- 2026-06-30 02:55 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/4401463.shtml)
+- 2026-06-30 02:30 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/87019454684.shtml)
+- 2026-06-30 02:39 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/589041302.shtml)
+- 2026-06-30 02:45 - [天道](http://www.blog.kurohicncr.top/Article/details/51689278.shtml)
+- 2026-06-30 02:50 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/919473728.shtml)
+- 2026-06-30 02:37 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/596261915428.shtml)
+- 2026-06-30 02:56 - [急先锋](http://www.blog.kurohicncr.top/Article/details/518012346.shtml)
+- 2026-06-30 02:59 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/03474502318.shtml)

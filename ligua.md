@@ -1,61 +1,57 @@
-# 广东江门开平全市范围内停工、停课 深圳发布暴雨橙色预警信号
+# 2025银行年报观察室｜信用卡跌破7亿张：大行发卡量“踩刹车”，贷款余额集体负增长
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-记者从广东省江门市开平市人民政府防汛防旱防风指挥部获悉，根据气象和水文部门预测，21日开平市仍有大雨到暴雨，局部大暴雨。同时，受潭江上游洪水影响，潭江干流长沙站将于21日16时前后出现2.4米左右的最高潮位，超警戒0.4米，开平市防汛形势严峻。为全力保障人民群众生命财产安全，开平市三防指挥部决定在全市范围内实行停工、停课。 一、开平市所有在建工地停工，高空作业人员、户外作业人员
+来源：北京商报 曾作为零售业务核心抓手的信用卡业务，正迎来全面调整期。4月7日，北京商报记者梳理已披露2025年年报的A股上市银行数据发现，国有大行按下扩张“刹车键”，交通银行、邮储银行累计发卡量降幅超5%，工商银行、建设银行亦同步收缩。股份行呈现分化，招商银行流通卡量微增、中信银行等小幅增长，但信用卡贷款余额“降多升少”成主基调；部分银行信用卡资产质量整体承压，风险敞口有所扩
 
 ## 正文
 
-记者从广东省江门市开平市人民政府防汛防旱防风指挥部获悉，根据气象和水文部门预测，21日开平市仍有大雨到暴雨，局部大暴雨。
+来源：北京商报 曾作为零售业务核心抓手的信用卡业务，正迎来全面调整期。
 
-同时，受潭江上游洪水影响，潭江干流长沙站将于21日16时前后出现2.4米左右的最高潮位，超警戒0.4米，开平市防汛形势严峻。
+4月7日，北京商报记者梳理已披露2025年年报的A股上市银行数据发现，国有大行按下扩张“刹车键”，交通银行、邮储银行累计发卡量降幅超5%，工商银行、建设银行亦同步收缩。
 
-为全力保障人民群众生命财产安全，开平市三防指挥部决定在全市范围内实行停工、停课。
+股份行呈现分化，招商银行流通卡量微增、中信银行等小幅增长，但信用卡贷款余额“降多升少”成主基调；部分银行信用卡资产质量整体承压，风险敞口有所扩大。
 
-一、开平市所有在建工地停工，高空作业人员、户外作业人员全部停止施工作业。
+从中国人民银行公布的数据来看，截至2025年末，全国信用卡和借贷合一卡在用发卡量为6.96亿张，为2022年达到峰值后首次跌破7亿张，“退潮”背后是信用卡行业告别粗放增长、迈向精益发展的必然转型，随着信用卡从“规模竞争”转向“价值竞争”，行业将向场景、生态、服务的综合化方向转型。
 
-二、开平市所有托儿所、幼儿园、中小学校、中等职业学校、技工院校和各类教育培训机构自21日上午起实施停课。
+扩张按下“刹车键” 作为行业风向标，国有大行按下信用卡规模扩张的“刹车键”。
 
-三、开平市全体市民尽可能居家避险、非必要不外出，远离积水路段、低洼地带、地下空间及在建工程，注意用电用气安全。
+尽管各行统计口径与披露标准不尽相同，但收缩趋势呈现一致。
 
-深圳发布暴雨橙色预警信号 此外，过去3小时，深圳福田区(沙头街道)、南山区(西丽街道)、盐田区(盐田、梅沙街道)、宝安区(新安、西乡街道)、龙岗区(平湖、南湾、布吉、龙城、横岗、吉华、宝龙、园山街道)和坪山区(碧岭街道)已出现强降雨，预计未来2~3小时还将出现30~50毫米降水，深圳市气象台2026年5月21日9时29分在上述区域发布暴雨橙色预警信号，全市进入暴雨防御状态，请远离低洼易涝等危险区域，上述区域山洪风险较大，注意防御暴雨可能引发的局部内涝、山洪、滑坡、泥石流等灾害。
+2025年交通银行以7.96%的同比降幅领跌，在册卡量从2024年末的6300.94万张降至5799.35万张，一年间减少超500万张；邮储银行同比下降5.41%，结存卡量3998.25万张降至3781.97万张。
 
-(总台记者 黄东旭 何俊儒)
+工商银行、建设银行分别同比下降3.33%、2.33%，发卡量降至1.45亿张、1.26亿张；仅中国银行实现1.46%的小幅增长，累计发卡量增至1.5亿张。
 
 ## 相关推荐
 
-- 2026-06-30 02:36 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 02:52 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 02:28 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 02:46 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 02:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 02:32 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 02:52 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 02:24 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 02:26 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 02:26 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 02:34 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 02:40 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 02:38 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 02:50 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 02:44 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 02:44 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 02:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 02:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 02:36 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 02:30 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 02:57 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 02:55 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 02:45 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 02:44 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 02:42 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 02:59 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:41 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/78448.shtml)
-- 2026-06-30 02:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/652308273475.shtml)
-- 2026-06-30 02:49 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/611895977534.shtml)
-- 2026-06-30 02:28 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/4701133.shtml)
-- 2026-06-30 02:46 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/07804955.shtml)
-- 2026-06-30 02:32 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/82266135812.shtml)
-- 2026-06-30 02:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/9863042.shtml)
-- 2026-06-30 02:48 - [绘画区你赢了](http://www.blog.minike.top/Article/details/12947907805.shtml)
-- 2026-06-30 02:28 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/10841365.shtml)
-- 2026-06-30 02:53 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/288888.shtml)
-- 2026-06-30 02:38 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/585244.shtml)
-- 2026-06-30 02:35 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/499376.shtml)
-- 2026-06-30 02:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/73361.shtml)
-- 2026-06-30 02:26 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/033581279280.shtml)
-- 2026-06-30 02:46 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/6889821.shtml)
+- 2026-06-30 02:40 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/148905665213.shtml)
+- 2026-06-30 02:43 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/586493.shtml)
+- 2026-06-30 02:34 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/0990703337.shtml)
+- 2026-06-30 02:46 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/660077.shtml)
+- 2026-06-30 02:39 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/273503.shtml)
+- 2026-06-30 02:43 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/368514.shtml)
+- 2026-06-30 02:57 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/485811958009.shtml)
+- 2026-06-30 02:48 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/9856956.shtml)
+- 2026-06-30 02:43 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/146371.shtml)
+- 2026-06-30 02:35 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/77490573910.shtml)
+- 2026-06-30 02:48 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/101225932056.shtml)
+- 2026-06-30 02:40 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/093879797017.shtml)
+- 2026-06-30 02:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/4404232407.shtml)
+- 2026-06-30 02:48 - [女心理师](https://www.blog.kurohicncr.top/Article/details/17001175622.shtml)
+- 2026-06-30 02:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/2130708.shtml)

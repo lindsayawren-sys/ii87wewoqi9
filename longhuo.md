@@ -1,56 +1,57 @@
-# 广州南沙港的治理蝶变：用“发展活水”兴港
+# 辽宁提升医疗服务水平出新招：变“抢号”为“排队”
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-中新网广州5月21日电 题：广州南沙港的治理蝶变：用“发展活水”兴港 中新网记者 王坚 广州港南沙港区五期工程近日在广州南沙区龙穴岛打下首桩，标志着这个深水良港的能级即将再次跃升。而就在不久前，这片土地才刚刚通过一场严峻考验——曾经让物流“动脉”几近栓塞的节前“大堵港”景象，如今已彻底转变。这背后，是一场“等不起、慢不得”的治理革新。 破局：从“寸步难行”到“有序高效” 曾经的
+中新网沈阳4月7日电(王涵 禹瑞斋 李雪飞)“本来没抱多大希望，结果第二天发现候补成功了，我赶紧就把号挂上了。”在沈阳，专程从外地赶来的王艳凤向记者展示着手机上的挂号成功通知。她说，为了找心仪的专家看病，以前挂不上号就得在沈阳滞留等待，“现在有了候补功能，看完当天就能走，不用再为了挂号在沈阳多待两天，省心多了。” 王艳凤的便捷体验，源于中国医科大学的两家附属医院近期推出的便民新
 
 ## 正文
 
-中新网广州5月21日电 题：广州南沙港的治理蝶变：用“发展活水”兴港 中新网记者 王坚 广州港南沙港区五期工程近日在广州南沙区龙穴岛打下首桩，标志着这个深水良港的能级即将再次跃升。
+中新网沈阳4月7日电(王涵 禹瑞斋 李雪飞)“本来没抱多大希望，结果第二天发现候补成功了，我赶紧就把号挂上了。
 
-而就在不久前，这片土地才刚刚通过一场严峻考验——曾经让物流“动脉”几近栓塞的节前“大堵港”景象，如今已彻底转变。
+”在沈阳，专程从外地赶来的王艳凤向记者展示着手机上的挂号成功通知。
 
-这背后，是一场“等不起、慢不得”的治理革新。
+她说，为了找心仪的专家看病，以前挂不上号就得在沈阳滞留等待，“现在有了候补功能，看完当天就能走，不用再为了挂号在沈阳多待两天，省心多了。
 
-破局：从“寸步难行”到“有序高效” 曾经的春节前夕，龙穴岛扬帆路便成为集卡司机的“停车场”。
+” 王艳凤的便捷体验，源于中国医科大学的两家附属医院近期推出的便民新举措。
 
-车龙绵延数公里，引擎空转，寸步难行。
+作为东北地区医疗行业影响力较广的三甲医院，中国医科大学附属医院承载着区域核心诊疗重任。
 
-“四条车道能被违停占去三条，排队几小时是常事。
+针对民众反映强烈的“挂号难”、号贩子“倒号”等痛点，中国医科大学附属第一医院与中国医科大学附属盛京医院借鉴铁路售票机制，先后上线了“候补挂号”服务。
 
-”老司机夏帮定的记忆，是昔日治理困境的缩影。
+“我们医院有近50%的患者来自沈阳市外。
 
-停车配套不足与执法权责模糊，让“年年治堵年年堵”成为顽疾。
+”中国医科大学附属第一医院信息中心主任全宇介绍，为了最大限度方便异地患者，优化就医流程，该院致力于打造更加友好的就医环境。
 
 ## 相关推荐
 
-- 2026-06-30 02:41 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 02:43 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 02:45 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 02:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 02:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 02:38 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 02:50 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 02:24 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 02:35 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 02:46 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 02:35 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 02:47 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 02:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 02:47 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 02:45 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 02:59 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 02:52 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 02:32 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 02:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 02:33 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 02:36 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:48 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/243188054211.shtml)
-- 2026-06-30 02:42 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/575208022.shtml)
-- 2026-06-30 02:52 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/57163.shtml)
-- 2026-06-30 02:32 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/74916.shtml)
-- 2026-06-30 02:36 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/17407472.shtml)
-- 2026-06-30 02:54 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/8368467.shtml)
-- 2026-06-30 02:52 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/437683.shtml)
-- 2026-06-30 02:48 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/837523.shtml)
-- 2026-06-30 02:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/45948.shtml)
-- 2026-06-30 02:32 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/729059926732.shtml)
-- 2026-06-30 02:47 - [起风了](http://www.share.kurohicncr.top/Article/details/77739208105.shtml)
-- 2026-06-30 02:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/204971801.shtml)
-- 2026-06-30 02:29 - [周生如故](http://www.blog.kurohicncr.top/Article/details/85771.shtml)
-- 2026-06-30 02:28 - [日本反击率先破门](http://www.share.minike.top/Article/details/831124127221.shtml)
-- 2026-06-30 02:31 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/5633130.shtml)
+- 2026-06-30 02:49 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/62007883829.shtml)
+- 2026-06-30 02:47 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/440903011645.shtml)
+- 2026-06-30 02:59 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/8859939.shtml)
+- 2026-06-30 02:42 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/3966857.shtml)
+- 2026-06-30 02:46 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/95172324.shtml)
+- 2026-06-30 02:45 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/58123851.shtml)
+- 2026-06-30 02:36 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/73507900.shtml)
+- 2026-06-30 02:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/864849392396.shtml)
+- 2026-06-30 02:42 - [斛珠夫人](https://www.blog.minike.top/Article/details/1659004133.shtml)
+- 2026-06-30 02:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/78377.shtml)
+- 2026-06-30 02:41 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/74127016.shtml)
+- 2026-06-30 02:56 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/28235.shtml)
+- 2026-06-30 02:32 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/39674553708.shtml)
+- 2026-06-30 02:58 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/020860871.shtml)
+- 2026-06-30 02:46 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/67404105.shtml)

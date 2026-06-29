@@ -1,51 +1,61 @@
-# 在美债收益率略微走高之际 亚市早盘金价小幅走低
+# 846万元利润“不翼而飞”！山东章鼓董事会致歉，目前尚无弥补方案
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-在亚洲市场早盘交易中，在美债收益率略微走高之际，金价小幅走低，这通常会削弱这种无收益资产的吸引力。星展集团研究部的Sherilyn Chew在评论中表示：“预计黄金的表现将主要取决于收益率走势，在利率没有明显下调的情况下，这可能会限制近期的实质性上行空间。“该多资产策略师补充说：“ETF持仓和投机性头寸相对较轻，在对近期上行空间持怀疑态度的情况下，投资者大多处于观望状态。“现货
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：@华夏时报微博华夏时报记者 帅可聪 北京报道通过财务造假的手段，山东章鼓（002598.SZ）虚减2024年利润约846万元，如今面临监管重罚。2026年4月3日晚，山东章鼓发布公告称，公司及相关当事人收到山东证监局出具的行政处罚事先告知书，山东证监局拟对公司及时任董事长等4人罚款合计690万元，其中对公司罚款250万元。
 
 ## 正文
 
-在亚洲市场早盘交易中，在美债收益率略微走高之际，金价小幅走低，这通常会削弱这种无收益资产的吸引力。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：@华夏时报微博华夏时报记者 帅可聪 北京报道通过财务造假的手段，山东章鼓（002598.SZ）虚减2024年利润约846万元，如今面临监管重罚。
 
-星展集团研究部的Sherilyn Chew在评论中表示：“预计黄金的表现将主要取决于收益率走势，在利率没有明显下调的情况下，这可能会限制近期的实质性上行空间。
+2026年4月3日晚，山东章鼓发布公告称，公司及相关当事人收到山东证监局出具的行政处罚事先告知书，山东证监局拟对公司及时任董事长等4人罚款合计690万元，其中对公司罚款250万元。
 
-“该多资产策略师补充说：“ETF持仓和投机性头寸相对较轻，在对近期上行空间持怀疑态度的情况下，投资者大多处于观望状态。
+山东章鼓表示，目前公司生产经营一切正常，董事会就本次事项向广大投资者致以诚挚的歉意。
 
-“现货黄金下跌0.1%，报每盎司4，538.27美元。
+然而，对于虚减的846万元利润，相关责任人会否进行弥补？
 
-责任编辑：王永生
+4月7日，山东章鼓证券部人士向《华夏时报》记者表示，对此暂不清楚，如有消息公司将进行公告。
+
+财务造假虚减利润846万元公开资料显示，山东章鼓始建于1968年，具有五十余年的风机设计、生产、制造的技术和经验，目前已成为集罗茨鼓风机、离心鼓风机、气力输送成套系统、电气设备等设计、生产、销售于一体的现代化机械加工规模企业。
+
+作为国家高新技术企业、国内规模最大的罗茨鼓风机生产和销售厂家，山东章鼓于2011年7月在深交所挂牌上市。
+
+2025年12月31日，因涉嫌定期报告财务信息披露违法违规，证监会对山东章鼓立案调查。
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 02:38 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 02:30 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 02:27 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 02:33 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 02:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 02:33 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 02:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 02:43 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 02:31 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 02:35 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 02:34 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 02:59 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 02:59 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 02:59 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 02:43 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 02:47 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 02:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 02:41 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 02:33 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 02:54 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 02:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 02:45 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 02:33 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 02:49 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-30 02:51 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:49 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/18899842.shtml)
-- 2026-06-30 02:53 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/425316396449.shtml)
-- 2026-06-30 02:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/402609813575.shtml)
-- 2026-06-30 02:37 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/583804194.shtml)
-- 2026-06-30 02:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/92259640.shtml)
-- 2026-06-30 02:28 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/542459706.shtml)
-- 2026-06-30 02:41 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/9705853.shtml)
-- 2026-06-30 02:39 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/38779.shtml)
-- 2026-06-30 02:53 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/8993227790.shtml)
-- 2026-06-30 02:28 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/19993.shtml)
-- 2026-06-30 02:37 - [速度与激情9](https://www.blog.minike.top/Article/details/96071430886.shtml)
-- 2026-06-30 02:45 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/6541439616.shtml)
-- 2026-06-30 02:32 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/57707.shtml)
-- 2026-06-30 02:50 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/88125778817.shtml)
-- 2026-06-30 02:43 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/936446975584.shtml)
+- 2026-06-30 02:58 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/193821914.shtml)
+- 2026-06-30 02:55 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/178474.shtml)
+- 2026-06-30 02:33 - [《贺子珍》](http://www.share.minike.top/Article/details/8827109.shtml)
+- 2026-06-30 02:41 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/0298921596.shtml)
+- 2026-06-30 02:40 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/6120215.shtml)
+- 2026-06-30 02:57 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/37931766444.shtml)
+- 2026-06-30 02:39 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/215711885.shtml)
+- 2026-06-30 02:51 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/154526210.shtml)
+- 2026-06-30 02:47 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/00065931.shtml)
+- 2026-06-30 02:56 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/877111.shtml)
+- 2026-06-30 02:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/60620277995.shtml)
+- 2026-06-30 02:44 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/897479611.shtml)
+- 2026-06-30 02:49 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/71640341668.shtml)
+- 2026-06-30 02:37 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/520464858.shtml)
+- 2026-06-30 02:42 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/75549.shtml)

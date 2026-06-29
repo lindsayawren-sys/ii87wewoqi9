@@ -1,58 +1,52 @@
-# 走进中俄博览会，看见“科创中国”冰城“新”力量
+# 伊朗总统称：停火协议采纳了伊朗的“基本原则”
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-5月17日至21日，第十届中国—俄罗斯博览会在哈尔滨国际会展中心举行。开幕当日，习近平主席与普京总统分别向博览会致贺信。在这场吸引全球46个国家和地区、1500余家中外企业参展的国际盛会上，“科创中国”品牌首次亮相，冰城“新”力量正在被世界看见。 5月17日下午，在中俄博览会主会场哈尔滨展厅，“科创中国·哈尔滨新阶科企高质量发展行动”发布暨第二届哈尔滨市民营科技企业高质量发展会
+伊朗总统马苏德・佩泽希基扬表示，与美国达成的停火协议采纳了伊朗所 “期望” 的各项基本原则。 他补充称，此次停火得益于前最高领袖阿里・哈梅内伊的牺牲 —— 哈梅内伊在战争首日美以联合打击中身亡 —— 以及伊朗人民的顽强抵抗。 他在 X 平台（原推特）上写道：“从今天起，我们将继续团结一致，无论在外交、国防、街头民生还是公共服务领域。”责任编辑：郭明煜
 
 ## 正文
 
-5月17日至21日，第十届中国—俄罗斯博览会在哈尔滨国际会展中心举行。
+伊朗总统马苏德・佩泽希基扬表示，与美国达成的停火协议采纳了伊朗所 “期望” 的各项基本原则。
 
-开幕当日，习近平主席与普京总统分别向博览会致贺信。
+他补充称，此次停火得益于前最高领袖阿里・哈梅内伊的牺牲 —— 哈梅内伊在战争首日美以联合打击中身亡 —— 以及伊朗人民的顽强抵抗。
 
-在这场吸引全球46个国家和地区、1500余家中外企业参展的国际盛会上，“科创中国”品牌首次亮相，冰城“新”力量正在被世界看见。
+他在 X 平台（原推特）上写道：“从今天起，我们将继续团结一致，无论在外交、国防、街头民生还是公共服务领域。
 
-5月17日下午，在中俄博览会主会场哈尔滨展厅，“科创中国·哈尔滨新阶科企高质量发展行动”发布暨第二届哈尔滨市民营科技企业高质量发展会议举办。
-
-本次活动由全国新的社会阶层人士服务团“科创中国”品牌活动组委会、黑龙江省委统战部指导，哈尔滨市委统战部、哈尔滨市科技局、哈尔滨市贸促会主办，“新力筑梦·科创冰城”服务中心承办。
-
-“科创中国”品牌活动组委会负责人，黑龙江省委统战部、哈尔滨市委和市委统战部等有关负责同志出席。
-
-据介绍，在2025年第三十四届哈尔滨国际经济贸易洽谈会上，“新力筑梦·科创冰城”服务中心首次登台亮相，促成三个项目落地并获首轮融资，引发媒体广泛关注。
-
-今年，哈尔滨市贸促会主动邀请服务中心，参加第十届中国—俄罗斯博览会。
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 02:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 02:31 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 02:29 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 02:35 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 02:32 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 02:26 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 02:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 02:25 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 02:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 02:38 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 02:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 02:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 02:36 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 02:35 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 02:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 02:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 02:52 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 02:55 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 02:41 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 02:55 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 02:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 02:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 02:56 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 02:56 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 02:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:45 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/70800.shtml)
-- 2026-06-30 02:28 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/653963704.shtml)
-- 2026-06-30 02:34 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/8079111.shtml)
-- 2026-06-30 02:31 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/750743790.shtml)
-- 2026-06-30 02:53 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/41877507204.shtml)
-- 2026-06-30 02:32 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/1118533723.shtml)
-- 2026-06-30 02:35 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/5203094727.shtml)
-- 2026-06-30 02:49 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/97525611.shtml)
-- 2026-06-30 02:45 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/495651402241.shtml)
-- 2026-06-30 02:29 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/76919999.shtml)
-- 2026-06-30 02:53 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/47952492313.shtml)
-- 2026-06-30 02:30 - [明星大侦探第一季](http://www.share.minike.top/Article/details/362009.shtml)
-- 2026-06-30 02:45 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/101640.shtml)
-- 2026-06-30 02:34 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/659259.shtml)
-- 2026-06-30 02:45 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/65500172.shtml)
+- 2026-06-30 02:55 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/42610759.shtml)
+- 2026-06-30 02:35 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/35961210.shtml)
+- 2026-06-30 02:50 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/06838713.shtml)
+- 2026-06-30 02:48 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/936630740056.shtml)
+- 2026-06-30 02:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/030742509532.shtml)
+- 2026-06-30 02:45 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/48124.shtml)
+- 2026-06-30 02:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/67106621278.shtml)
+- 2026-06-30 02:40 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/57410626035.shtml)
+- 2026-06-30 02:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/983379.shtml)
+- 2026-06-30 02:48 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/731274349853.shtml)
+- 2026-06-30 02:45 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/967537409075.shtml)
+- 2026-06-30 02:32 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/0330399171.shtml)
+- 2026-06-30 02:48 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/8216333.shtml)
+- 2026-06-30 02:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/91199291410.shtml)
+- 2026-06-30 02:51 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/370343.shtml)

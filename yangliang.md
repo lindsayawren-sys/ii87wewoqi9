@@ -1,59 +1,58 @@
-# 康拓将旗下李牌牛仔作价10亿美元，出售给Authentic Brands
+# 最长36个月免租金 长沙OPC共创联盟吸引大学生背包逐梦
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-康拓品牌公告敲定交易，将旗下李牌牛仔与休闲服饰业务出让给Authentic Brands集团，交易总价值最高可达 10 亿美元。 本次交易基础交易价为 7.5 亿美元，另有 2.5 亿美元后续款项，将根据李牌后续经营业绩核算支付。 康拓表示，此次出售有助于公司集中资源，发力成长性更强的品牌，重点聚焦威格牛仔裤以及海丽汉森户外服饰业务。 康拓首席执行官斯科特・巴克斯特称：“深耕威
+中新网长沙4月8日电 (记者 徐志雄)4月8日，依托天心数谷大学生创业孵化基地的启用，长沙OPC共创联盟正式成立并举行“数启天心·智创未来”长沙OPC共创联盟沙龙活动，吸引首批优秀大学生创客背包入驻，共同开启逐梦旅程。 长沙OPC共创联盟由长沙天心经开区发起，联合高校、企业、投资机构、创业服务机构等共同组建，旨在构建“创业孵化+产业对接+政策扶持+生态培育”于一体的创业生态体系
 
 ## 正文
 
-康拓品牌公告敲定交易，将旗下李牌牛仔与休闲服饰业务出让给Authentic Brands集团，交易总价值最高可达 10 亿美元。
+中新网长沙4月8日电 (记者 徐志雄)4月8日，依托天心数谷大学生创业孵化基地的启用，长沙OPC共创联盟正式成立并举行“数启天心·智创未来”长沙OPC共创联盟沙龙活动，吸引首批优秀大学生创客背包入驻，共同开启逐梦旅程。
 
-本次交易基础交易价为 7.5 亿美元，另有 2.5 亿美元后续款项，将根据李牌后续经营业绩核算支付。
+长沙OPC共创联盟由长沙天心经开区发起，联合高校、企业、投资机构、创业服务机构等共同组建，旨在构建“创业孵化+产业对接+政策扶持+生态培育”于一体的创业生态体系，推动资源共享、项目共育、成果共创，为大学生创业提供全周期、多维度的赋能支持。
 
-康拓表示，此次出售有助于公司集中资源，发力成长性更强的品牌，重点聚焦威格牛仔裤以及海丽汉森户外服饰业务。
+为支持大学生加入联盟实现创业梦想，天心数谷大学生创业孵化基地对入驻团队提供最长36个月免费办公场地，涵盖水电、物业与网络费用，共享会议室、路演厅、直播间等设施免费使用，满足多样化办公与展示需求，大幅降低初创成本。
 
-康拓首席执行官斯科特・巴克斯特称：“深耕威格与海丽汉森两大经典品牌，挖掘广阔市场增长空间，能够助力公司提速发展，为股东创造更多价值。
+同时，基地汇聚优质创业导师资源，覆盖培训、辅导与人才补贴申报等方面，提供精准创业指导、免费创业培训、路演辅导支持、政策申报协助等帮扶，通过湖南省、长沙市、天心区三级大学生创业政策衔接与资源支持，增强大学生创业稳定性与持续性。
 
-” 该交易预计于今年下半年正式完成交割。
+“非常感谢有这么好的政策支持，为我们大学生创业者提供了实实在在的帮助。
 
-Authentic Brands集团打算把李牌业务调整为品牌授权经营模式，目前正与业内头部运营企业洽谈合作，以此推动李牌业务扩容发展。
+”长沙理工大学大学生创业代表邝烨庆说，其与团队立足人工智能浪潮，致力于运用新兴技术手段，协助企业在AI模型内开展营销与内容推广，从而提升企业在人工智能场景下的可见度。
 
-责任编辑：郭明煜
+这与联盟和基地聚焦大数据与人工智能领域，推动前沿技术应用，构建特色鲜明的数字经济生态的方向高度契合。
+
+长沙天心经开区党工委委员、管委会副主任周雷表示，天心数谷大学生创业孵化基地拥有2500平方米面积、100余个工位、7万平方米人才公寓配套，加上AIGC应用场景，诚邀大学生入园入驻，园区将以最大诚意、最优服务、最好政策，助力青年才俊实现梦想。
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 02:51 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 02:53 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-30 02:26 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 02:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 02:38 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 02:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 02:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 02:31 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 02:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 02:39 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 02:52 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 02:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 02:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 02:53 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 02:58 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 02:32 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 02:30 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 02:38 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 02:54 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 02:43 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 02:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-30 02:36 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 02:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 02:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 02:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 02:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/791222635.shtml)
-- 2026-06-30 02:39 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/0420023445.shtml)
-- 2026-06-30 02:24 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/53570.shtml)
-- 2026-06-30 02:52 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/778741993.shtml)
-- 2026-06-30 02:24 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/0379111271.shtml)
-- 2026-06-30 02:46 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/689743184736.shtml)
-- 2026-06-30 02:43 - [爱很美味](http://www.blog.minike.top/Article/details/549782.shtml)
-- 2026-06-30 02:29 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/7821944.shtml)
-- 2026-06-30 02:41 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/72930289612.shtml)
-- 2026-06-30 02:37 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/576417884326.shtml)
-- 2026-06-30 02:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/44074878922.shtml)
-- 2026-06-30 02:26 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/240133191881.shtml)
-- 2026-06-30 02:41 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/539463325.shtml)
-- 2026-06-30 02:38 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/61311879.shtml)
-- 2026-06-30 02:35 - [美股](http://www.blog.kurohicncr.top/Article/details/132506925.shtml)
+- 2026-06-30 02:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/76258537619.shtml)
+- 2026-06-30 02:37 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/60788.shtml)
+- 2026-06-30 02:30 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/20945876.shtml)
+- 2026-06-30 02:41 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/9962739096.shtml)
+- 2026-06-30 02:47 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/746275.shtml)
+- 2026-06-30 02:58 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/38723659232.shtml)
+- 2026-06-30 02:43 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/095636024.shtml)
+- 2026-06-30 02:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/83378807.shtml)
+- 2026-06-30 02:36 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/97512383470.shtml)
+- 2026-06-30 02:35 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/81348.shtml)
+- 2026-06-30 02:35 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/463763518.shtml)
+- 2026-06-30 02:36 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/732910.shtml)
+- 2026-06-30 02:38 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/6700840.shtml)
+- 2026-06-30 02:45 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/923766430448.shtml)
+- 2026-06-30 02:33 - [绘画区你赢了](http://www.share.minike.top/Article/details/45367.shtml)

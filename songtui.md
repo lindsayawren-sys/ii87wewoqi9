@@ -1,59 +1,60 @@
-# OpenAI在AI公司IPO竞赛中领先：率先登陆公开市场非常重要
+# 皇氏集团从“减亏”到巨亏，祸起一家合营企业
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-有关OpenAI最快将于本周五秘密提交IPO申请的报道，改变了预测市场交易者对哪家私营AI巨头将率先登陆公开市场的看法。 在Kalshi平台上，交易者如今认为OpenAI会比Anthropic先上市，并给出了83%的率先上市概率。 韦德布什证券公司全球科技研究主管丹·艾夫斯表示：“鉴于当前的AI军备竞赛，率先进入公开市场非常重要。这能确立估值，让你成为第一个在路演中接触投资者的
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 近日，皇氏集团（维权）（002329.SZ）发布的一则业绩预告修正公告，再次将原本改善的业绩“打回原形”。 今年1月，皇氏集团发布公告称，预计2025年度归母净利润亏损1.9亿元至2.8亿元，虽然仍在亏损，但较2024年同期6.81亿元的巨亏
 
 ## 正文
 
-有关OpenAI最快将于本周五秘密提交IPO申请的报道，改变了预测市场交易者对哪家私营AI巨头将率先登陆公开市场的看法。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在Kalshi平台上，交易者如今认为OpenAI会比Anthropic先上市，并给出了83%的率先上市概率。
+来源：证券之星 近日，皇氏集团（维权）（002329.SZ）发布的一则业绩预告修正公告，再次将原本改善的业绩“打回原形”。
 
-韦德布什证券公司全球科技研究主管丹·艾夫斯表示：“鉴于当前的AI军备竞赛，率先进入公开市场非常重要。
+今年1月，皇氏集团发布公告称，预计2025年度归母净利润亏损1.9亿元至2.8亿元，虽然仍在亏损，但较2024年同期6.81亿元的巨亏已有大幅收窄。
 
-这能确立估值，让你成为第一个在路演中接触投资者的公司，这是一种优势。
+然而，短短两个月后，皇氏集团直接将亏损额修正至4.2亿元至4.9亿元，修正幅度超过75%。
 
-” 在媒体首次报道IPO时间表之前，交易者认为OpenAI抢先其最大私营对手上市的概率仅略高于32%。
+证券之星注意到，受限于年度审计工作尚未全面开展，皇氏集团对泰安数智城市运营有限公司（以下简称“数智运营”）的长期股权投资减值测算并不准确完整。
 
-在Polymarket上，认为Anthropic会比OpenAI先上市的概率从69%骤降至20%。
+随着独立评估机构介入，数智运营的可收回金额远低于此前估算，这笔计补充提直接吞噬了公司数亿元利润。
 
-尽管OpenAI的ChatGPT在2022年11月开启了AI牛市，但该公司在投资者眼中已失去部分光彩。
+数智运营是一家怎样的公司，能让皇氏集团在业绩预告发布后两个月内被迫“紧急加亏”？
 
-市场对公司支出、营收及增长目标不及预期的报道、以及领导层变动等问题，都影响了投资者的看法。
+而这家昔日“水牛奶第一股”的经营，又将驶向什么方向？
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 02:47 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 02:45 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 02:51 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 02:43 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 02:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 02:27 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 02:32 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 02:50 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 02:38 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 02:32 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 02:42 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 02:53 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 02:36 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 02:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 02:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 02:51 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 02:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 02:44 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 02:39 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 02:44 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 02:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 02:30 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 02:58 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 02:58 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 02:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 02:56 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/346650200382.shtml)
-- 2026-06-30 02:39 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/7400770.shtml)
-- 2026-06-30 02:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/7857821.shtml)
-- 2026-06-30 02:49 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/75510869.shtml)
-- 2026-06-30 02:35 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/83115384558.shtml)
-- 2026-06-30 02:38 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/76868576.shtml)
-- 2026-06-30 02:30 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/0897540352.shtml)
-- 2026-06-30 02:39 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/79396.shtml)
-- 2026-06-30 02:25 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/600576.shtml)
-- 2026-06-30 02:51 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/17641404441.shtml)
-- 2026-06-30 02:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/49551.shtml)
-- 2026-06-30 02:39 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/06130717.shtml)
-- 2026-06-30 02:51 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/05004.shtml)
-- 2026-06-30 02:27 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/9133662845.shtml)
-- 2026-06-30 02:42 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/602868.shtml)
+- 2026-06-30 02:34 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/701352475.shtml)
+- 2026-06-30 02:50 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/3791512.shtml)
+- 2026-06-30 02:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/6929594488.shtml)
+- 2026-06-30 02:41 - [月亮](http://www.share.kurohicncr.top/Article/details/7481931947.shtml)
+- 2026-06-30 02:37 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/38790065953.shtml)
+- 2026-06-30 02:50 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/86368953276.shtml)
+- 2026-06-30 02:31 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/064349777.shtml)
+- 2026-06-30 02:54 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/966065.shtml)
+- 2026-06-30 02:47 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/8592439.shtml)
+- 2026-06-30 02:56 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/57745387825.shtml)
+- 2026-06-30 02:37 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/14350865.shtml)
+- 2026-06-30 02:41 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/03186885545.shtml)
+- 2026-06-30 02:32 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/33629818.shtml)
+- 2026-06-30 02:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/06860.shtml)
+- 2026-06-30 02:37 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/53986.shtml)

@@ -1,61 +1,42 @@
-# 沃尔玛全年指引不及预期，股价盘前下跌2%
+# 视频|Token出海或迎风口？盲目跟风等于送学费 MiniMax出海真相：C端收入不到Open AI的0.5%
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-当地时间5月20日，沃尔玛公布2026年第一季度业绩，营收超预期但全年盈利指引令投资者失望，股价周四盘前下跌约2.7%。 财报显示，沃尔玛第一季度营收达1777.5亿美元，同比增长7.3%，高于市场预期的1748亿美元；调整后每股收益为0.66美元，与市场预期持平。全球电商销售额大增26%，全球广告业务增长37%，成为亮点。 然而，令市场担忧的是全年业绩指引。公司重申2027财
+来源：张玉讲AIToB增长进化 责任编辑：郝欣煜
 
 ## 正文
 
-当地时间5月20日，沃尔玛公布2026年第一季度业绩，营收超预期但全年盈利指引令投资者失望，股价周四盘前下跌约2.7%。
-
-财报显示，沃尔玛第一季度营收达1777.5亿美元，同比增长7.3%，高于市场预期的1748亿美元；调整后每股收益为0.66美元，与市场预期持平。
-
-全球电商销售额大增26%，全球广告业务增长37%，成为亮点。
-
-然而，令市场担忧的是全年业绩指引。
-
-公司重申2027财年调整后每股收益预期为2.75至2.85美元，该区间中值2.80美元低于分析师普遍预期的2.92美元。
-
-第二季度指引方面，沃尔玛预计调整后每股收益为0.72至0.74美元，中值0.73美元同样低于市场预期的0.75美元。
-
-沃尔玛首席执行官约翰·弗纳表示，业绩体现了公司在各业务板块的持续深耕，包括更优质的购物体验、更丰富的品类及更快速的配送服务。
-
-但受配送和履约环节燃料成本上升影响，当季营业利润增长被拖累250个基点。
+来源：张玉讲AIToB增长进化 责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 02:36 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 02:42 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 02:45 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 02:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 02:24 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 02:45 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 02:50 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 02:37 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 02:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 02:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 02:46 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 02:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 02:25 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 02:52 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 02:47 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 02:54 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 02:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 02:32 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 02:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 02:31 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 02:42 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 02:55 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 02:46 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 02:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:40 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/12094.shtml)
-- 2026-06-30 02:43 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/041866550422.shtml)
-- 2026-06-30 02:53 - [我和我的家乡](https://www.blog.minike.top/Article/details/2208612.shtml)
-- 2026-06-30 02:38 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/588972087.shtml)
-- 2026-06-30 02:31 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/61863.shtml)
-- 2026-06-30 02:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/849724917133.shtml)
-- 2026-06-30 02:31 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/3923523.shtml)
-- 2026-06-30 02:49 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/2925539.shtml)
-- 2026-06-30 02:51 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/0051676292.shtml)
-- 2026-06-30 02:27 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/216542438.shtml)
-- 2026-06-30 02:46 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/999037930.shtml)
-- 2026-06-30 02:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/4180944.shtml)
-- 2026-06-30 02:49 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/01811757736.shtml)
-- 2026-06-30 02:42 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/69800320875.shtml)
-- 2026-06-30 02:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/6171445366.shtml)
+- 2026-06-30 02:42 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/061514.shtml)
+- 2026-06-30 02:42 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/60363526.shtml)
+- 2026-06-30 02:43 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/80716886105.shtml)
+- 2026-06-30 02:50 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/076589245.shtml)
+- 2026-06-30 02:38 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/036467.shtml)
+- 2026-06-30 02:50 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/63160708733.shtml)
+- 2026-06-30 02:37 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/598359.shtml)
+- 2026-06-30 02:55 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/00756.shtml)
+- 2026-06-30 02:56 - [极限挑战第一季](https://www.blog.minike.top/Article/details/155262395.shtml)
+- 2026-06-30 02:41 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/731537843.shtml)
+- 2026-06-30 02:33 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/5402867.shtml)
+- 2026-06-30 02:49 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/651929.shtml)
+- 2026-06-30 02:34 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/88499001.shtml)
+- 2026-06-30 02:39 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/87034.shtml)
+- 2026-06-30 02:50 - [恋与深空 日服](https://www.blog.minike.top/Article/details/96126.shtml)

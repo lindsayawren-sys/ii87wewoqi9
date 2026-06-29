@@ -1,56 +1,54 @@
-# RedCloud全年营收4850万美元，重申2026年1.2亿美元营收指引
+# 冲突背景下 印度拟推出规模最高达 269 亿美元的信贷担保计划
 
-> 更新时间：2026-06-30 02:54:02 UTC+8
+> 更新时间：2026-06-30 03:00:02 UTC+8
 
 ## 摘要
 
-RedCloud Holdings plc于5月19日提交了截至2025年12月31日的20-F年度报告，披露经审计全年营收为4850万美元。公司同时重申2026年全年营收指引为1.2亿美元，较上年增长超过一倍。 尼日利亚市场增长68%，平台交易额达32亿美元 财报显示，2025年RedAI平台总交易额达32亿美元，同比增长31%。尼日利亚市场表现尤为亮眼，营收同比增长68%，
+据印度《经济时报》援引未具名知情人士报道，印度正在拟定一项规模最高达 2.5 万亿卢比（269 亿美元）的全新信贷担保计划，以保护本国工业免受中东冲突带来的冲击。 该拟议计划旨在为面临原材料及物流成本上涨压力的企业缓解融资难题。 计划将于两周内公布。 方案大概率参照新冠疫情期间推出的紧急信贷额度担保计划制定。责任编辑：王永生
 
 ## 正文
 
-RedCloud Holdings plc于5月19日提交了截至2025年12月31日的20-F年度报告，披露经审计全年营收为4850万美元。
+据印度《经济时报》援引未具名知情人士报道，印度正在拟定一项规模最高达 2.5 万亿卢比（269 亿美元）的全新信贷担保计划，以保护本国工业免受中东冲突带来的冲击。
 
-公司同时重申2026年全年营收指引为1.2亿美元，较上年增长超过一倍。
+该拟议计划旨在为面临原材料及物流成本上涨压力的企业缓解融资难题。
 
-尼日利亚市场增长68%，平台交易额达32亿美元 财报显示，2025年RedAI平台总交易额达32亿美元，同比增长31%。
+计划将于两周内公布。
 
-尼日利亚市场表现尤为亮眼，营收同比增长68%，活跃经销商数量达到981家。
+方案大概率参照新冠疫情期间推出的紧急信贷额度担保计划制定。
 
-自2023年1月至2025年12月，RedAI平台累计交易额达69亿美元，持续为训练RedAI RAID引擎的专有数据集提供支持。
-
-RedCloud创始人兼首席执行官Justin Floyd表示：“尼日利亚业务正以68%的速度复合增长，单位经济效益不断改善，我们的合资模式正在三个走廊扩张，RAID已进入部署阶段。
-
-” 合资与授权模式加速扩张，AI智能体下半年推出 2025年以来，RedCloud在轻资产扩张模式上取得多项进展：2026年3月与土耳其一家经销商签署合资协议，价值最高达5000万美元；4月签署沙特阿拉伯五年期授权协议，价值最高达3000万美元；5月宣布拟与ACA Capital在南非成立合资公司，覆盖当地14万家传统贸易网点。
-
-公司重申的1.2亿美元2026年营收指引，反映了核心市场的持续增长、计划于下半年推出的三个RedAI专家智能体，以及合资与授权模式的收入贡献。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 02:29 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 02:43 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 02:25 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 02:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 02:40 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 02:38 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 02:35 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 02:52 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 02:26 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 02:42 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 02:42 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 02:53 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 02:36 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 02:52 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 02:33 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 02:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 02:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 02:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 02:45 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 02:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 02:33 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 02:55 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 02:52 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 02:32 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/54978153.shtml)
-- 2026-06-30 02:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/828494.shtml)
-- 2026-06-30 02:52 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/73618705755.shtml)
-- 2026-06-30 02:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/3092275279.shtml)
-- 2026-06-30 02:36 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/24789527.shtml)
-- 2026-06-30 02:50 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/031851040773.shtml)
-- 2026-06-30 02:28 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/72255411.shtml)
-- 2026-06-30 02:42 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/4644318738.shtml)
-- 2026-06-30 02:45 - [日本进球](http://www.share.kurohicncr.top/Article/details/1555296462.shtml)
-- 2026-06-30 02:37 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/79427684178.shtml)
-- 2026-06-30 02:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/72432930889.shtml)
-- 2026-06-30 02:29 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/972419.shtml)
-- 2026-06-30 02:29 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/2340880367.shtml)
-- 2026-06-30 02:29 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/4132167441.shtml)
-- 2026-06-30 02:41 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/2465228.shtml)
+- 2026-06-30 02:34 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/2650619710.shtml)
+- 2026-06-30 02:44 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/963690229838.shtml)
+- 2026-06-30 02:31 - [极限挑战第一季](http://www.share.minike.top/Article/details/125573487.shtml)
+- 2026-06-30 02:42 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/86505.shtml)
+- 2026-06-30 02:47 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/59419.shtml)
+- 2026-06-30 02:32 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/321983.shtml)
+- 2026-06-30 02:34 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/16179132.shtml)
+- 2026-06-30 02:34 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/74784232486.shtml)
+- 2026-06-30 02:33 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/90326.shtml)
+- 2026-06-30 02:57 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/584793.shtml)
+- 2026-06-30 02:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/6727533.shtml)
+- 2026-06-30 02:34 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/04959531.shtml)
+- 2026-06-30 02:57 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/62856.shtml)
+- 2026-06-30 02:56 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/1637189.shtml)
+- 2026-06-30 02:34 - [美人鱼](https://www.share.minike.top/Article/details/35435530255.shtml)
