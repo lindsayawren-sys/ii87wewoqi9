@@ -1,56 +1,57 @@
-# 丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫
+# 在珠峰之巅举起国旗后，这位新疆少年还想“集齐”七大洲最高峰
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新社阿什哈巴德4月16日电 4月16日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德会见土库曼斯坦总统谢尔达尔·别尔德穆哈梅多夫。 丁薛祥首先转达了习近平主席的亲切问候和良好祝愿，表示去年习近平主席同总统先生两度会晤，为双边关系发展擘画了新蓝图。中土关系根植于两千多年的友好交往史，相互支持是两国全面战略伙伴关系的核心要义。中方始终支持土方维护国家独立、主权和领土完整，始
+中新网乌鲁木齐6月26日电 (张家伟)6月4日早上7点，艾力库提·地里夏提站在了珠穆朗玛峰之巅。 他喘着粗气拨通父亲的视频电话。父亲的第一句话是：“国旗展示完了吗？”艾力库提调整镜头：“马上展示。”随后，一面五星红旗在珠穆朗玛峰顶展开。 曾因登山被“扒”掉一层皮 出生于2008年的艾力库提是乌鲁木齐市第二十三中学学生，其父亲是新疆登山运动服务中心户外救援队队长，从事登山行业30
 
 ## 正文
 
-中新社阿什哈巴德4月16日电 4月16日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德会见土库曼斯坦总统谢尔达尔·别尔德穆哈梅多夫。
+中新网乌鲁木齐6月26日电 (张家伟)6月4日早上7点，艾力库提·地里夏提站在了珠穆朗玛峰之巅。
 
-丁薛祥首先转达了习近平主席的亲切问候和良好祝愿，表示去年习近平主席同总统先生两度会晤，为双边关系发展擘画了新蓝图。
+他喘着粗气拨通父亲的视频电话。
 
-中土关系根植于两千多年的友好交往史，相互支持是两国全面战略伙伴关系的核心要义。
+父亲的第一句话是：“国旗展示完了吗？
 
-中方始终支持土方维护国家独立、主权和领土完整，始终支持土方奉行永久中立政策，始终做土方值得信赖的合作伙伴，也希望土方在涉及中方核心利益和重大关切问题上继续予以坚定支持。
+”艾力库提调整镜头：“马上展示。
 
-丁薛祥指出，中国全国两会审查批准了“十五五”规划纲要，对未来五年经济社会发展作出部署安排，给包括土库曼斯坦在内的世界各国带来更多机遇。
+”随后，一面五星红旗在珠穆朗玛峰顶展开。
 
-中方愿本着互利共赢原则，同土方不断拓展合作空间，共谋发展繁荣。
+曾因登山被“扒”掉一层皮 出生于2008年的艾力库提是乌鲁木齐市第二十三中学学生，其父亲是新疆登山运动服务中心户外救援队队长，从事登山行业30多年。
 
-双方要深化天然气合作，打造互联互通、经贸投资、科技创新等领域务实合作新亮点，切实造福两国人民。
+他说：“6岁起，父亲就带我走进户外，在山里散步、透气。
 
-别尔德穆哈梅多夫请丁薛祥转达对习近平主席的诚挚问候，表示土方高度重视土中全面战略伙伴关系，由衷钦佩中国发展成就，愿同中方积极推进落实双方共识，坚持把天然气合作作为优先方向，加强基础设施建设、高科技、农业、人文、安全等各领域务实合作，推动土中关系迈上新台阶。
+” 10岁那年，他攀登了人生中第一座雪山，那是新疆博格达峰下的一座未登峰，海拔5000多米。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:24 - [酒价内参4月17日价格发布，古井贡古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:24 - [新晋退休人士最后悔的事：没多存点钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:36 - [IEA警示历史性石油冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:41 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:43 - [A股盘前速递：黄金涨回4800美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:17 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:28 - [澳大利亚一炼油厂发生大火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:26 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:27 - [话剧《四世同堂》首次登陆澳大利亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:36 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:29 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:29 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:22 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:20 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:41 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:28 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:34 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:20 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:46 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:40 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](http://www.share.minike.top/Article/details/82935556608.shtml)
-- 2026-06-29 11:44 - [新疆新设草湖市](http://www.share.minike.top/Article/details/1475018300.shtml)
-- 2026-06-29 11:38 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](http://www.blog.kurohicncr.top/Article/details/007937.shtml)
-- 2026-06-29 11:44 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](http://www.blog.minike.top/Article/details/57218756.shtml)
-- 2026-06-29 11:17 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](http://www.blog.minike.top/Article/details/5140266.shtml)
-- 2026-06-29 11:20 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](http://www.blog.kurohicncr.top/Article/details/50436555.shtml)
-- 2026-06-29 11:29 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](http://www.blog.kurohicncr.top/Article/details/8938865131.shtml)
-- 2026-06-29 11:18 - [海军航空大学某大队：更新知识体系 厚植打赢底气](http://www.share.kurohicncr.top/Article/details/78931.shtml)
-- 2026-06-29 11:22 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](http://www.blog.kurohicncr.top/Article/details/7095262.shtml)
-- 2026-06-29 11:45 - [Uber将收购Delivery Hero额外4.5%的股份](http://www.blog.kurohicncr.top/Article/details/19954495217.shtml)
-- 2026-06-29 11:33 - [中国驻日本大使馆提醒在日中国公民注意人身安全](http://www.blog.minike.top/Article/details/939197673.shtml)
-- 2026-06-29 11:20 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](http://www.share.kurohicncr.top/Article/details/1589571715.shtml)
-- 2026-06-29 11:26 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:16 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](http://www.blog.minike.top/Article/details/08155.shtml)
-- 2026-06-29 11:20 - [报告称中国在建核电机组装机容量连续19年保持全球第一](http://www.blog.minike.top/Article/details/82575243166.shtml)
+- 2026-06-29 11:23 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:42 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:35 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:47 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:44 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:19 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:30 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:26 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:24 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:38 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:26 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:38 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)

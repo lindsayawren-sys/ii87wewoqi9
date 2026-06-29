@@ -1,56 +1,57 @@
-# 中国驻日大使馆接连遭到恐怖威胁
+# 中新健康｜产前筛查是万能的吗？专家：需科学认识其局限性
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-今天(4月16日)下午，中国驻日本大使馆举行新闻发布会，临时代办施泳向媒体介绍了近段时间以来驻日使馆接连遭受到恐怖威胁的情况。 施泳表示，3月5日，自称由日本前警察和前自卫队队员组成的组织向使馆寄出恐吓信，威胁称将对中国驻日使领馆发动袭击，使馆收到恐吓信后报警，但日本警方未给予重视，未采取有力措施，至今没有查明事实真相。在19天后，就发生了现役自卫队官员村田晃大持刀翻墙闯入中国
+发布时间：2026年06月26日 20:08 来源：中国新闻网 中新网北京6月26日电(张静)6月26日，国家卫生健康委举行“促进生育健康”新闻发布会。中国医学科学院北京协和医院主任医师蒋宇林介绍在现有医学技术条件下，产前筛查尚无法检出所有胎儿缺陷，核心原因有两点。一是技术本身存在局限：超声检查分辨率有限，仅能发现较明显的结构畸形，微小的结构异常难以明确识别，同时还会受孕妈腹部
 
 ## 正文
 
-今天(4月16日)下午，中国驻日本大使馆举行新闻发布会，临时代办施泳向媒体介绍了近段时间以来驻日使馆接连遭受到恐怖威胁的情况。
+发布时间：2026年06月26日 20:08 来源：中国新闻网 中新网北京6月26日电(张静)6月26日，国家卫生健康委举行“促进生育健康”新闻发布会。
 
-施泳表示，3月5日，自称由日本前警察和前自卫队队员组成的组织向使馆寄出恐吓信，威胁称将对中国驻日使领馆发动袭击，使馆收到恐吓信后报警，但日本警方未给予重视，未采取有力措施，至今没有查明事实真相。
+中国医学科学院北京协和医院主任医师蒋宇林介绍在现有医学技术条件下，产前筛查尚无法检出所有胎儿缺陷，核心原因有两点。
 
-在19天后，就发生了现役自卫队官员村田晃大持刀翻墙闯入中国使馆的严重事件，中方紧急向日本外务省、警方提出严正交涉。
+一是技术本身存在局限：超声检查分辨率有限，仅能发现较明显的结构畸形，微小的结构异常难以明确识别，同时还会受孕妈腹部脂肪厚度、羊水量、胎儿体位等因素干扰，影响检查结果。
 
-闯馆事件仅一周后，3月31日，又一名自称应急预备自卫官的人通过网络向使馆发出恐怖威胁，称其在中国使馆内安装了远距离遥控炸弹，使馆立即向警方报警，日本警方当天对使馆展开了近两个小时的排弹作业。
+二是出生缺陷种类繁多，常规筛查仅覆盖常见的严重缺陷，一些罕见的畸形或者遗传代谢疾病，还不在常规筛查的范围内。
 
-中国驻日本大使馆表示，上述事件严重违反国际法，严重侵犯中国主权和尊严，威胁中方外交人员的安全和外交机构的馆舍安全，性质影响极恶劣。
+此外，胎儿发育是动态过程，因此孕妈既要重视产前筛查，也要科学认知其局限性，遵医嘱完成全程规范孕期保健，最大程度保障胎儿健康。
 
-（来源：CCTV国际时讯）
+(张静） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:19 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:20 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:20 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:21 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:39 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:23 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:21 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:22 - [市场监管总局：将深入开展CCC认证守底线专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:20 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:20 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:40 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:25 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:42 - [中东局势变化对我国外贸有何影响？国家统计局回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:40 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:30 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:45 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:46 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:24 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:39 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:47 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:28 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:19 - [T1 3-0 TLAW数据雷达图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:31 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:19 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:23 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:18 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:21 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [中国HH-200航空商用无人运输系统首架机首飞成功](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.share.minike.top/Article/details/60737.shtml)
-- 2026-06-29 11:33 - [一季度增城西站中欧班列开行量同比增长24%](http://www.blog.minike.top/Article/details/1359206.shtml)
-- 2026-06-29 11:32 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.share.minike.top/Article/details/128191703.shtml)
-- 2026-06-29 11:41 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.share.kurohicncr.top/Article/details/3316566.shtml)
-- 2026-06-29 11:28 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.blog.kurohicncr.top/Article/details/643288.shtml)
-- 2026-06-29 11:34 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](http://www.blog.kurohicncr.top/Article/details/670156238.shtml)
-- 2026-06-29 11:27 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.blog.kurohicncr.top/Article/details/699324676.shtml)
-- 2026-06-29 11:39 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](http://www.share.kurohicncr.top/Article/details/06123232013.shtml)
-- 2026-06-29 11:21 - [韩国第一季度接待外国游客476万人次，创历史新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:16 - [采购商谈消博会：这里是一座“全球好物中转站”](http://www.share.kurohicncr.top/Article/details/5797112.shtml)
-- 2026-06-29 11:34 - [渤海银行：首席信息官谢凯任职资格获批](http://www.share.kurohicncr.top/Article/details/43900.shtml)
-- 2026-06-29 11:16 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](http://www.share.minike.top/Article/details/776126.shtml)
+- 2026-06-29 11:39 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:29 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:28 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:39 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:20 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:25 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:30 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:29 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:44 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:33 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:30 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:42 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:34 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)

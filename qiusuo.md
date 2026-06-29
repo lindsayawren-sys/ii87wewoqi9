@@ -1,61 +1,57 @@
-# 世界最大清洁能源走廊一季度补水超203亿立方米
+# 安徽面向全球招募“宝藏小城合伙人”
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网宜昌4月16日电 三峡集团15日晚通报，今年一季度，世界最大清洁能源走廊运行情况良好，为保障长江供水安全、航运安全、能源安全、生态安全筑牢了坚固屏障。 补水调度方面，三峡集团结合来水情况、电力负荷需求及下游用水需求，开展动态优化调度。截至今年一季度末，梯级水库本轮枯水期累计向下游补水超203亿立方米，相当于约163个武汉东湖的水量。 航运安全方面，三峡船闸一季度安全运行2
+中新社合肥6月26日电 (记者 张强)6月26日，在第三批“皖美宝藏小城”推介活动现场，安徽发布“宝藏小城合伙人”招募计划，邀请全球内容创作者、产业运营者、文化传播者系统挖掘和推广当地小城文旅资源。 今年1月和4月，安徽先后推出两批共21个“皖美宝藏小城”。这些小城以差异化IP为突破口，积极探索县域文旅高质量发展新路径。 当日，蚌埠市固镇县、马鞍山市花山区、黄山市祁门县等13个
 
 ## 正文
 
-中新网宜昌4月16日电 三峡集团15日晚通报，今年一季度，世界最大清洁能源走廊运行情况良好，为保障长江供水安全、航运安全、能源安全、生态安全筑牢了坚固屏障。
+中新社合肥6月26日电 (记者 张强)6月26日，在第三批“皖美宝藏小城”推介活动现场，安徽发布“宝藏小城合伙人”招募计划，邀请全球内容创作者、产业运营者、文化传播者系统挖掘和推广当地小城文旅资源。
 
-补水调度方面，三峡集团结合来水情况、电力负荷需求及下游用水需求，开展动态优化调度。
+今年1月和4月，安徽先后推出两批共21个“皖美宝藏小城”。
 
-截至今年一季度末，梯级水库本轮枯水期累计向下游补水超203亿立方米，相当于约163个武汉东湖的水量。
+这些小城以差异化IP为突破口，积极探索县域文旅高质量发展新路径。
 
-航运安全方面，三峡船闸一季度安全运行2259闸次，过闸货运量3547万吨。
+当日，蚌埠市固镇县、马鞍山市花山区、黄山市祁门县等13个第三批“皖美宝藏小城”集中亮相。
 
-三峡升船机累计安全运行869厢次，通过旅客超10万人次，过船875艘次，过机货运量43万吨。
+各小城以“IP微剧+特色文艺”的形式，展现独特魅力。
 
-电力保供方面，世界最大清洁能源走廊一季度发电量超618亿千瓦时，同比增加7.19%。
+英国人文旅行博主丹尼尔(Daniel)已在中国生活十余年，他认为中国人习以为常的事物常被忽略，而外国人凭借“旁观者清”的视角，更容易捕捉到日常中的美好细节，比如一条街巷、一座老宅。
 
-生态试验方面，乌东德、白鹤滩水电站一季度累计开展了3次针对产粘沉性卵鱼类生态调度试验，通过调节出库流量和水温，为长江鱼类自然繁殖创造有利的水力学条件。
+丹尼尔说，探访“宝藏小城”的关键不在于打卡景点，而在于沉浸式感受当地的气息、味道、节奏与独特性格。
 
-世界最大清洁能源走廊由三峡集团在长江干流建设运营的乌东德、白鹤滩、溪洛渡、向家坝、三峡和葛洲坝六座大型水电站构成，总装机容量达7169.5万千瓦，跨越1800公里，每年可提供绿色电能约3000亿千瓦时，相当于节约标准煤约9045万吨，减排二氧化碳约2.48亿吨。
+“安徽是值得深度探索的自然文化宝地。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [长三角港口从“互连”迈向“深融” “连申快航”年运量突破15.2万标箱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:22 - [凌晨，见证历史！全线大涨！美联储，重磅发布！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:40 - [圣贝拉集团：受托人根据股份奖励计划购买合共9.2万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:24 - [麦迪科技：4月13日召开业绩说明会，投资者参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:43 - [开局之年看中国·开放自贸港：三亚芒果闯世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:43 - [Hims & Hers股价周四上涨：监管突破助推](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:41 - [（经济观察）万商云集广交会 折射中国外贸新气象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:45 - [五一假期首日火车票今日开售 超全抢票攻略来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:19 - [距下次会议仅剩两周，欧洲央行仍未就利率走向给市场明确信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:24 - [实达集团营收缩水超2亿，退市警报拉响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:27 - [一季度“零发行”后银行二永债4月抢闸，会否冲击债市利差？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:32 - [戈壁湿地奏响春日序曲 万鸟翩跹染绿丝路古道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:45 - [美国和伊朗或考虑延长停火 霍尔木兹海峡局势仍高度紧张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:33 - [铝业股午前集体走高 中国铝业涨超5%俄铝涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:29 - [中国经济开门红，靠的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:40 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:34 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:36 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:22 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:34 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:20 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:24 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:19 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:22 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:19 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](http://www.share.minike.top/Article/details/86079188.shtml)
-- 2026-06-29 11:34 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](http://www.share.minike.top/Article/details/043882110.shtml)
-- 2026-06-29 11:22 - [伊朗称在与美国会谈期间讨论了解冻资产问题](http://www.blog.kurohicncr.top/Article/details/06077399771.shtml)
-- 2026-06-29 11:22 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](http://www.share.minike.top/Article/details/00255082304.shtml)
-- 2026-06-29 11:31 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](http://www.share.minike.top/Article/details/1048554904.shtml)
-- 2026-06-29 11:28 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](http://www.blog.minike.top/Article/details/31871947.shtml)
-- 2026-06-29 11:16 - [美国将封锁范围扩大至受制裁船只](http://www.blog.kurohicncr.top/Article/details/001926.shtml)
-- 2026-06-29 11:16 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](http://www.blog.minike.top/Article/details/690991.shtml)
-- 2026-06-29 11:39 - [黎巴嫩总统同美国国务卿通话](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](http://www.blog.minike.top/Article/details/597780362045.shtml)
-- 2026-06-29 11:44 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](http://www.blog.kurohicncr.top/Article/details/3616759602.shtml)
-- 2026-06-29 11:44 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](http://www.blog.minike.top/Article/details/586760.shtml)
+- 2026-06-29 11:44 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:28 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:40 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:21 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:45 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:18 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:31 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:30 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:41 - [男子吃半根变苦黄瓜致肝衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:41 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:42 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:27 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:21 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)

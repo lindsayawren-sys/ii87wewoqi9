@@ -1,60 +1,47 @@
-# 特朗普称对意大利总理梅洛尼感到震惊：她变了
+# 伊朗高官：特朗普不遵守谈判和停火原则
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网4月16日电 据卡塔尔半岛电视台报道，当地时间14日，美国总统特朗普在接受采访时对意大利总理梅洛尼表达了不满，指责其不愿意加入美国对伊朗的战争。 报道称，特朗普在接受意大利媒体采访时说：“我对她感到震惊，我原以为她很有勇气，但我错了。” “她令人无法接受，因为她不介意伊朗拥有核武器……”特朗普说道。 特朗普还批评欧洲不愿意为霍尔木兹海峡而战，“他们的能源正是从那而来”。特
+中新网6月27日电 伊朗伊斯兰议会国家安全委员会主席易卜拉欣·阿齐兹27日在社交媒体发文表示，美国在与伊朗谈判期间再次袭击伊朗，美国总统特朗普既不遵守谈判原则，也不遵守停火原则。 阿齐兹指出，美国违反停火协议的行为“鲁莽”，伊方“将一如既往地令其退缩与后悔”，“推卸责任的把戏已不再奏效”。 此前，据伊朗塔斯尼姆通讯社当天报道，美国违反与伊朗的停火协议和谅解备忘录，袭击锡里克地区
 
 ## 正文
 
-中新网4月16日电 据卡塔尔半岛电视台报道，当地时间14日，美国总统特朗普在接受采访时对意大利总理梅洛尼表达了不满，指责其不愿意加入美国对伊朗的战争。
+中新网6月27日电 伊朗伊斯兰议会国家安全委员会主席易卜拉欣·阿齐兹27日在社交媒体发文表示，美国在与伊朗谈判期间再次袭击伊朗，美国总统特朗普既不遵守谈判原则，也不遵守停火原则。
 
-报道称，特朗普在接受意大利媒体采访时说：“我对她感到震惊，我原以为她很有勇气，但我错了。
+阿齐兹指出，美国违反停火协议的行为“鲁莽”，伊方“将一如既往地令其退缩与后悔”，“推卸责任的把戏已不再奏效”。
 
-” “她令人无法接受，因为她不介意伊朗拥有核武器……”特朗普说道。
-
-特朗普还批评欧洲不愿意为霍尔木兹海峡而战，“他们的能源正是从那而来”。
-
-特朗普还称，梅洛尼“不想从北约方面帮助我们，她和我原先想的不一样”。
-
-他表示，“梅洛尼已经不是以前的梅洛尼了。
-
-意大利也不是以前的意大利了。
-
-移民正在摧毁意大利和整个欧洲。
+此前，据伊朗塔斯尼姆通讯社当天报道，美国违反与伊朗的停火协议和谅解备忘录，袭击锡里克地区。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [A股盘前速递：黄金涨回4800美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:21 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:37 - [澳大利亚一炼油厂发生大火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:35 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:33 - [话剧《四世同堂》首次登陆澳大利亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:26 - [中国HH-200航空商用无人运输系统首架机首飞成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:26 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:36 - [一季度增城西站中欧班列开行量同比增长24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:32 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:45 - [美财长贝森特承诺支持日本推进投资审查机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:43 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:38 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:31 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:46 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:39 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:28 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:24 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:23 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:34 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:30 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:46 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:33 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:33 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:29 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](http://www.share.minike.top/Article/details/471318067.shtml)
-- 2026-06-29 11:16 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](http://www.share.kurohicncr.top/Article/details/3510806.shtml)
-- 2026-06-29 11:32 - [海军航空大学某大队：更新知识体系 厚植打赢底气](http://www.share.minike.top/Article/details/4393938750.shtml)
-- 2026-06-29 11:38 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](http://www.share.minike.top/Article/details/51958090652.shtml)
-- 2026-06-29 11:45 - [Uber将收购Delivery Hero额外4.5%的股份](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [中国驻日本大使馆提醒在日中国公民注意人身安全](http://www.blog.minike.top/Article/details/35440.shtml)
-- 2026-06-29 11:46 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](http://www.blog.minike.top/Article/details/16559448999.shtml)
-- 2026-06-29 11:31 - [世界气象组织秘书长调研全民早期预警重庆实践](http://www.share.kurohicncr.top/Article/details/390634261.shtml)
-- 2026-06-29 11:26 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](http://www.blog.minike.top/Article/details/52995.shtml)
-- 2026-06-29 11:25 - [报告称中国在建核电机组装机容量连续19年保持全球第一](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [东艳：一季度外贸数据反映多个“增强”](http://www.share.minike.top/Article/details/057748717.shtml)
-- 2026-06-29 11:32 - [又见大“肉签”！301666，中一签最高赚近10万元](http://www.blog.minike.top/Article/details/684523.shtml)
-- 2026-06-29 11:37 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](http://www.blog.kurohicncr.top/Article/details/4793115175.shtml)
-- 2026-06-29 11:21 - [中越签署一系列合作文件](http://www.share.kurohicncr.top/Article/details/773499178.shtml)
-- 2026-06-29 11:33 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:38 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:48 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:33 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:42 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:36 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:36 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:20 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:33 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:26 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:25 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:29 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:34 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:47 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)

@@ -1,57 +1,56 @@
-# IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎
+# 上海浦东首发三项气候韧性产品
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-专题：聚焦2026年IMF和世行春季年会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在全球经济面临地缘政治冲击与不确定性上升的背景下，亚洲依然被视为支撑全球增长的关键力量。在2026年国际货币基金组织（IMF）春季会议期间，IMF亚太部发布最新区域展望并指出，尽管增长动能有所放缓，亚洲仍然是全球经济增长的主要引擎。 亚太部主任克里希纳·斯里尼瓦桑（
+中新网上海6月25日电 (高志苗 李姝徵)“融绿赋能 韧性筑基”浦东新区气候投融资推介会暨“碳·气象”产品首发会25日举行。本次大会集中发布的三项气候韧性创新成果，涵盖保险创新、气候风险管理与韧性挂钩贷款等领域，分别从风险对冲、风险管理和价值激励三个维度，构建起覆盖企业全生命周期的气候金融服务链条。 三项成果着力打通金融资本与绿色产业的通道，让资金精准流向气候韧性项目，让资源高
 
 ## 正文
 
-专题：聚焦2026年IMF和世行春季年会 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网上海6月25日电 (高志苗 李姝徵)“融绿赋能 韧性筑基”浦东新区气候投融资推介会暨“碳·气象”产品首发会25日举行。
 
-在全球经济面临地缘政治冲击与不确定性上升的背景下，亚洲依然被视为支撑全球增长的关键力量。
+本次大会集中发布的三项气候韧性创新成果，涵盖保险创新、气候风险管理与韧性挂钩贷款等领域，分别从风险对冲、风险管理和价值激励三个维度，构建起覆盖企业全生命周期的气候金融服务链条。
 
-在2026年国际货币基金组织（IMF）春季会议期间，IMF亚太部发布最新区域展望并指出，尽管增长动能有所放缓，亚洲仍然是全球经济增长的主要引擎。
+三项成果着力打通金融资本与绿色产业的通道，让资金精准流向气候韧性项目，让资源高效衔接，让投资经得起气候风险检验。
 
-亚太部主任克里希纳·斯里尼瓦桑（Krishna Srinivasan）在发布会上表示，得益于美国关税低于预期、科技产业景气带动出口以及金融环境宽松，2026年初亚洲各经济体开局稳健。
+据介绍，这是浦东新区在气候投融资领域的持续深耕，也是以金融创新赋能超大城市韧性治理的又一次“浦东突破”。
 
-这些因素在一定程度上抵消了中东冲突带来的能源冲击。
+“光伏项目挂钩高温指数碳资产损失保障保险”—针对光伏项目因极端高温导致发电效率下降、碳资产收益缩水的痛点，将高温指数与碳资产损失挂钩，实现“高温触发、自动赔付”，让气候风险“有价可保、有险可防”。
 
-但他指出，亚洲经济能源密集度高且严重依赖中东燃料，这使得该地区持续面临冲突外溢风险。
+该产品实现了上海市碳资产气象风险市场化对冲工具“从无到有”的突破，可覆盖上海碳普惠已公示的17批近千个分布式光伏项目，未来有望拓展至全国范围，为全国超51%的可再生能源提供气候风险保障。
 
-从整体数据来看，亚洲仍在为全球增长提供最主要贡献。
+“天枢”金融机构气候物理风险管理服务—在全国率先实现气象数据、征信数据与金融信贷的体系化融合，将高精度气候风险评估嵌入银行贷前、贷中、贷后全流程，让过去“看不见、说不清”的气候风险变得可量化、可追踪、可管控。
 
-IMF预计，区域经济增速将从2025年的5%放缓至2026年的4.4%，并在2027年进一步降至4.2%。
+未来将面向银行、保险、资管等金融机构提供服务。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [IEA警示历史性石油冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:27 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:27 - [A股盘前速递：黄金涨回4800美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:38 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:41 - [澳大利亚一炼油厂发生大火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:22 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:44 - [话剧《四世同堂》首次登陆澳大利亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:38 - [中国HH-200航空商用无人运输系统首架机首飞成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:18 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:17 - [一季度增城西站中欧班列开行量同比增长24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:43 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:37 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:18 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:44 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:19 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:43 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:36 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:25 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:22 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:27 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](http://www.share.kurohicncr.top/Article/details/652491424.shtml)
-- 2026-06-29 11:20 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](http://www.share.minike.top/Article/details/0438419.shtml)
-- 2026-06-29 11:42 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](http://www.blog.minike.top/Article/details/7473286804.shtml)
-- 2026-06-29 11:29 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [海军航空大学某大队：更新知识体系 厚植打赢底气](http://www.share.minike.top/Article/details/55747618935.shtml)
-- 2026-06-29 11:19 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](http://www.share.kurohicncr.top/Article/details/40434857.shtml)
-- 2026-06-29 11:26 - [Uber将收购Delivery Hero额外4.5%的股份](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [中国驻日本大使馆提醒在日中国公民注意人身安全](http://www.share.kurohicncr.top/Article/details/6558271756.shtml)
-- 2026-06-29 11:46 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](http://www.blog.kurohicncr.top/Article/details/248980974.shtml)
-- 2026-06-29 11:18 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](http://www.blog.minike.top/Article/details/05181246747.shtml)
-- 2026-06-29 11:18 - [报告称中国在建核电机组装机容量连续19年保持全球第一](http://www.blog.minike.top/Article/details/70487978549.shtml)
-- 2026-06-29 11:25 - [东艳：一季度外贸数据反映多个“增强”](http://www.share.minike.top/Article/details/1262114.shtml)
-- 2026-06-29 11:22 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](http://www.blog.kurohicncr.top/Article/details/961759.shtml)
+- 2026-06-29 11:18 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:26 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:44 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:43 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:28 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:44 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:35 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:25 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:41 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:39 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:25 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:23 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:28 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)

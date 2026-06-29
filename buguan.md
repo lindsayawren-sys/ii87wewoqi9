@@ -1,60 +1,56 @@
-# 超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期
+# 年产值超30亿元的AMB陶瓷基板项目在广州白云动工
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-今日（4月16日）有色金属板块表现活跃，全天获主力资金净流入超154亿元，板块吸金额高居31个申万一级行业第三位，同标的指数规模最大、流动性最佳*的有色ETF华宝（159876）震荡上扬，场内价格劲涨2.84%，收于日内高点。 成份股方面，厦门钨业、恒邦股份涨停，盛新锂能、国城矿业涨超7%，天山铝业、中矿资源等个股跟涨。 数据统计区间：2026.3.24-2026.4.16。中
+中新网广州6月25日电 (记者 王坚)东韩半导体广州基地25日在广州民营科技园未来产业创新核心区工地正式动工建设。项目预计总投资超百亿元，一期主要生产AMB陶瓷基板，投资约23亿元，达产后年产值将超30亿元。项目建成后，将推动当地加速构建“设计+制造+封测”完整产业生态。 项目方韩国STI株式会社成立于1997年，是国际知名的碳化硅半导体设备和陶瓷基板制造企业，在AMB陶瓷基板
 
 ## 正文
 
-今日（4月16日）有色金属板块表现活跃，全天获主力资金净流入超154亿元，板块吸金额高居31个申万一级行业第三位，同标的指数规模最大、流动性最佳*的有色ETF华宝（159876）震荡上扬，场内价格劲涨2.84%，收于日内高点。
+中新网广州6月25日电 (记者 王坚)东韩半导体广州基地25日在广州民营科技园未来产业创新核心区工地正式动工建设。
 
-成份股方面，厦门钨业、恒邦股份涨停，盛新锂能、国城矿业涨超7%，天山铝业、中矿资源等个股跟涨。
+项目预计总投资超百亿元，一期主要生产AMB陶瓷基板，投资约23亿元，达产后年产值将超30亿元。
 
-数据统计区间：2026.3.24-2026.4.16。
+项目建成后，将推动当地加速构建“设计+制造+封测”完整产业生态。
 
-中证有色金属指数近5个完整年度的涨跌幅为：2021年，35.89%；2022年，-19.22%；2023年，-10.43%；2024年，2.96%；2025年，91.67%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
+项目方韩国STI株式会社成立于1997年，是国际知名的碳化硅半导体设备和陶瓷基板制造企业，在AMB陶瓷基板领域处于国际领先水平，长期作为三星电子、SK海力士等全球半导体巨头的重要供应链企业。
 
-拉长时间来看，有色ETF华宝（159876）标的指数，自本轮低点3月24日以来，累计拉升18.17%，或已走出震荡上行台阶。
+AMB陶瓷基板是新能源汽车、智能电网、5G通信、航空航天等战略性产业不可或缺的基础元器件材料，市场前景广阔。
 
-有色金属近期为何表现强势？
+项目方表示，项目选址在广州白云区的广州民营科技园，主要看中该科技园的产业生态成熟、配套体系完善，地块周边集聚了一批高端制造和电子信息类企业，便于技术交流与供应链协作，实现就近配套与降本增效。
 
-细分方向来看： 1、黄金方面，美国总统特朗普称伊朗战争“非常接近结束”，暗示本周可能达成协议。
+白云区投资促进局相关负责人表示，将协同相关单位全程做好项目施工建设跟踪保障，推动项目早日竣工投产。
 
-现货黄金站上4800美元/盎司，自3月24日以来累计上涨近10%。
+同时，以东韩半导体、芯原微电子两大龙头企业为牵引，持续开展产业链精准招商，集聚海内外优质上下游配套企业，以一批高质量产业项目为区域经济高质量发展积蓄动能。
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:26 - [长光辰芯首挂上市 早盘高开81.80%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:37 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:45 - [中国向伊朗提供紧急人道主义援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:33 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:21 - [浙江启用防汛防台机器狗“AI防汛勇士”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:21 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:44 - [安徽淮北：云海罩城 宛如美丽画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:31 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:16 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:35 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:42 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:27 - [连连数字于4月15日斥资99.71万港元回购16.25万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:29 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:32 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:41 - [T1 3-0 TLAW数据雷达图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:33 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:45 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:37 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:21 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:32 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:42 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](http://www.blog.kurohicncr.top/Article/details/80612555.shtml)
-- 2026-06-29 11:34 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [酒价内参4月17日价格发布，青花郎下跌2元](http://www.share.kurohicncr.top/Article/details/7351804.shtml)
-- 2026-06-29 11:38 - [外交部提醒赴美国中国公民注意入境安全风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [Stena DrillMAX将在希腊近海钻探首口深水井](http://www.share.minike.top/Article/details/19272770741.shtml)
-- 2026-06-29 11:41 - [在沙地种下一片“云朵玫瑰”](http://www.share.kurohicncr.top/Article/details/434985089.shtml)
-- 2026-06-29 11:25 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](http://www.blog.kurohicncr.top/Article/details/99238.shtml)
-- 2026-06-29 11:22 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](http://www.blog.kurohicncr.top/Article/details/0276084970.shtml)
-- 2026-06-29 11:41 - [美又一核动力航母失火 8名船员受伤](http://www.blog.kurohicncr.top/Article/details/906489761896.shtml)
-- 2026-06-29 11:45 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](http://www.blog.minike.top/Article/details/22396008.shtml)
-- 2026-06-29 11:44 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [全球智能鸿沟如何破解？这份报告给出答案！](http://www.share.minike.top/Article/details/1067870.shtml)
-- 2026-06-29 11:33 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](http://www.blog.kurohicncr.top/Article/details/594382806786.shtml)
-- 2026-06-29 11:16 - [新疆新设草湖市](http://www.blog.kurohicncr.top/Article/details/3092221893.shtml)
+- 2026-06-29 11:47 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:34 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:30 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:35 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:25 - [温州学子高考数学满分 分享学习经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:22 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:35 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:35 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:34 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:47 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:29 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:34 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:20 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:19 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)

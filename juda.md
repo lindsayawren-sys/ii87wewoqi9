@@ -1,57 +1,58 @@
-# 以咖为桥 沪澳咖啡主理人话青年融合新可能
+# 360集团COO叶健：AI不再只是工具，超级组织需要三大数字化基座
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网上海4月15日电(范宇斌 王月华 郑柯盈)近日，由黄浦港澳联会与金咖联盟主办的“沪澳咖韵·主理人对话”活动在上海市黄浦区举行。在澳门青年联合会、澳门青年发展服务中心组织下，13位澳门咖啡主理人与上海本土主理人相聚一堂、倾心交流。 在城市肌理中读懂“咖啡之城” 伴随春日微风与满城咖啡香，澳门咖啡主理人在上海开启一段沉浸式的City walk(都市漫步)。 从新天地出发，澳门
+新浪科技讯 6月26日晚间消息，近日，在ISC.AI 2026峰会上，三六零科技集团有限公司（下称“360”）首席运营官叶健指出，当AI从辅助工具进化为推动业务流程的“数字员工”，企业的效率模型正被根本性改写。 叶健谈到：“我们的目标是超级个体、超级组织、超级安全。”在他看来，企业即便拥有若干超级个体，若彼此无法高效协同，整体效率依然无法释放。“超级组织”正是要打通这种壁垒，实
 
 ## 正文
 
-中新网上海4月15日电(范宇斌 王月华 郑柯盈)近日，由黄浦港澳联会与金咖联盟主办的“沪澳咖韵·主理人对话”活动在上海市黄浦区举行。
+新浪科技讯 6月26日晚间消息，近日，在ISC.AI 2026峰会上，三六零科技集团有限公司（下称“360”）首席运营官叶健指出，当AI从辅助工具进化为推动业务流程的“数字员工”，企业的效率模型正被根本性改写。
 
-在澳门青年联合会、澳门青年发展服务中心组织下，13位澳门咖啡主理人与上海本土主理人相聚一堂、倾心交流。
+叶健谈到：“我们的目标是超级个体、超级组织、超级安全。
 
-在城市肌理中读懂“咖啡之城” 伴随春日微风与满城咖啡香，澳门咖啡主理人在上海开启一段沉浸式的City walk(都市漫步)。
+”在他看来，企业即便拥有若干超级个体，若彼此无法高效协同，整体效率依然无法释放。
 
-从新天地出发，澳门咖啡主理人漫步思南公馆、INS新乐园、Lady淮海、文化广场、南昌路、茂名南路，在百年建筑与潮流小店相融交织中，细细体会“高、慢、静、雅”的街区气质，近距离感受上海的咖啡文化。
+“超级组织”正是要打通这种壁垒，实现组织效率的十倍数甚至百倍数增长。
 
-一路所见，老弄堂的烟火气、独立小店的设计感与社区咖啡的温度彼此交融。
+他举例，Anthropic以数千人规模实现近千亿年化收入，人均产值数千万，这在传统组织难以想象。
 
-从空间设计到产品表达，从运营模式到品牌理念，澳门咖啡主理人在观察与交流中不断对照两地差异，逐渐理解海派咖啡“兼容并蓄”的底色。
+背后的逻辑是组织范式的转移：过去是“AI+”，人把AI当工具；而在超级组织中，AI变成了“员工”，形成以智能体为中心的组织架构——人类负责管理、协调和兜底，生产流程由智能体推进。
 
-在轻松自然的行走与交流中，沪澳两地青年彼此的距离悄然拉近。
+“以智能体为中心，并且智能体推动业务流程的，才是真正的超级组织。
 
-澳门青年联合会秘书长戴嘉萍说：“走进黄浦，感受到上海作为‘咖啡之城’，名不虚传。
+” 向超级组织演进，底层基础设施面临重建。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [浙江启用防汛防台机器狗“AI防汛勇士”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:41 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:38 - [安徽淮北：云海罩城 宛如美丽画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:27 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:21 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:30 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:20 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:18 - [连连数字于4月15日斥资99.71万港元回购16.25万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:33 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:30 - [酒价内参4月17日价格发布，古井贡古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:30 - [新晋退休人士最后悔的事：没多存点钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:42 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:25 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:21 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:20 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:22 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:25 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:25 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:37 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:38 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:43 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [在沙地种下一片“云朵玫瑰”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](http://www.blog.minike.top/Article/details/67109900067.shtml)
-- 2026-06-29 11:38 - [美又一核动力航母失火 8名船员受伤](http://www.share.minike.top/Article/details/23908911175.shtml)
-- 2026-06-29 11:22 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](http://www.share.kurohicncr.top/Article/details/9513307027.shtml)
-- 2026-06-29 11:41 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](http://www.blog.kurohicncr.top/Article/details/11177.shtml)
-- 2026-06-29 11:42 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](http://www.blog.kurohicncr.top/Article/details/248742799.shtml)
-- 2026-06-29 11:37 - [全球智能鸿沟如何破解？这份报告给出答案！](http://www.blog.minike.top/Article/details/36375364.shtml)
-- 2026-06-29 11:19 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](http://www.blog.kurohicncr.top/Article/details/511227.shtml)
-- 2026-06-29 11:30 - [新疆新设草湖市](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](http://www.blog.minike.top/Article/details/21234309431.shtml)
-- 2026-06-29 11:34 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](http://www.share.kurohicncr.top/Article/details/41432110800.shtml)
-- 2026-06-29 11:31 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](http://www.blog.kurohicncr.top/Article/details/203040562.shtml)
-- 2026-06-29 11:39 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](http://www.blog.kurohicncr.top/Article/details/244409920.shtml)
+- 2026-06-29 11:22 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:19 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:46 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:18 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:45 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:22 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:27 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:28 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:31 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:29 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:37 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:42 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:36 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)

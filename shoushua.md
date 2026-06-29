@@ -1,61 +1,61 @@
-# 海军航空大学某大队：更新知识体系 厚植打赢底气
+# ATFX:金价失守4000美元大关 今晚美国PCE物价再定方向
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-海军航空大学某大队着力增强教育培训质效—— 更新知识体系 厚植打赢底气 -刘佳蔚 姚冠辰 近日，海军航空大学某大队组织晋升教育培训学员，走进青岛马克思主义中国化书苑，在现地教学中接受思想淬炼和精神洗礼。这是该大队坚持“为战育人”根本导向，提升初级指挥教育培训质效的一个缩影。“强军兴军，要在得人，院校教育是培养人才的重要途径。”该大队领导介绍，晋升教育培训学员普遍具备丰富的基层任
+专题：ATFX外汇专栏投稿 6月25日，ATFX：受美元走强和利率上升预期的影响，昨日金价自去年11月以来首次跌破每盎司4000美元大关，白银价格周三下跌近7%，跌破每盎司60美元，创下去年12月以来的新低。今日亚市时段，贵金属在大跌后相对企稳，继续关注今晚美国PCE物价指数以及GDP修正值的公布。 ATFX图▲ 本周全球科技股一度遭到大幅抛售也影响着黄金，表面上看，科技股与黄
 
 ## 正文
 
-海军航空大学某大队着力增强教育培训质效—— 更新知识体系 厚植打赢底气 -刘佳蔚 姚冠辰 近日，海军航空大学某大队组织晋升教育培训学员，走进青岛马克思主义中国化书苑，在现地教学中接受思想淬炼和精神洗礼。
+专题：ATFX外汇专栏投稿 6月25日，ATFX：受美元走强和利率上升预期的影响，昨日金价自去年11月以来首次跌破每盎司4000美元大关，白银价格周三下跌近7%，跌破每盎司60美元，创下去年12月以来的新低。
 
-这是该大队坚持“为战育人”根本导向，提升初级指挥教育培训质效的一个缩影。
+今日亚市时段，贵金属在大跌后相对企稳，继续关注今晚美国PCE物价指数以及GDP修正值的公布。
 
-“强军兴军，要在得人，院校教育是培养人才的重要途径。
+ATFX图▲ 本周全球科技股一度遭到大幅抛售也影响着黄金，表面上看，科技股与黄金分属风险资产与避险资产，定价逻辑迥异。
 
-”该大队领导介绍，晋升教育培训学员普遍具备丰富的基层任职经历和较强的工作实践能力，他们的自身特点对教学内容和方法手段提出了更高要求。
+但在大规模跨市场抛售中，两者通过流动性挤压”形成传导。
 
-帮助晋升教育培训学员在有限培训周期内实现能力升级，关键在于帮助他们拓展战略视野、提升思维层次、厚植打赢底气。
+美国科技股的大幅回调源于市场对AI驱动涨势已过度扩张的担忧。
 
-为此，该大队针对晋升教育培训学员特点，研究推出一系列“实战化、沉浸式、前瞻性”教学改革措施—— 该大队着眼未来战争联合作战、体系对抗的特点，不断提升作战指挥教学的“含战量”。
+当科技股持仓遭遇亏损，投资者需要筹集现金来满足追加保证金要求或填补投资组合亏损。
 
-他们组织学员在模拟飞行训练中心开展“舰载机跨域支援”想定作业，结合装备性能、气象条件、电磁环境等要素，推演空中打击与防御行动流程，努力实现“从课堂到战场”的无缝衔接。
+此时，黄金虽然被视为避险资产，却因其高流动性和易于变现的特性，成为最先被出售的资产之一。
 
-他们打破传统课堂边界，常态组织现地教学、实地观摩等活动。
+与此同时，美元指数连续走高，周三再创逾一年新高。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [报告称中国在建核电机组装机容量连续19年保持全球第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:35 - [东艳：一季度外贸数据反映多个“增强”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:22 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:29 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:20 - [中越签署一系列合作文件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:42 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:19 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:18 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:24 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:17 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:38 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:20 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:43 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:37 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:20 - [Stellantis与微软合作部署逾百款AI工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:31 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:40 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:21 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:46 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:41 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:43 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:30 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:27 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:18 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:47 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:37 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:42 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:44 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:45 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:18 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [中东突发！刚刚，直线拉升！](http://www.share.kurohicncr.top/Article/details/629545140.shtml)
-- 2026-06-29 11:21 - [湖北：以正确政绩观引领“支点建设”新征程](http://www.share.kurohicncr.top/Article/details/7514449328.shtml)
-- 2026-06-29 11:20 - [全球经济的严峻考验](http://www.blog.kurohicncr.top/Article/details/81286251641.shtml)
-- 2026-06-29 11:28 - [Glamox将为Sea1 Offshore的海上能源支持船提供照明](http://www.blog.kurohicncr.top/Article/details/0378300947.shtml)
-- 2026-06-29 11:18 - [在“商量声”中生长：浙江杭州小古城村民主协商发“新枝”](http://www.blog.minike.top/Article/details/537643438243.shtml)
-- 2026-06-29 11:27 - [伊朗最高领导人推动将黎巴嫩纳入美伊和谈](http://www.blog.kurohicncr.top/Article/details/825608810.shtml)
-- 2026-06-29 11:41 - [珠江委积极开展珠江流域水预算管理工作指引研究](http://www.blog.kurohicncr.top/Article/details/9636799065.shtml)
-- 2026-06-29 11:19 - [京东养车赛道日全民见证国货轮胎硬核实力 玲珑大师2代京东独家预售](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [港股硬科技再走强 同类规模最大港股通信息技术ETF(159131)冲高逾2% 机构看好港股二季度尤其是4-5月反弹机会](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [韩国、巴西两国部长商讨能源供应与中东风险](http://www.blog.minike.top/Article/details/64636241.shtml)
-- 2026-06-29 11:29 - [中信建投期货：4月16日工业品早报](http://www.share.minike.top/Article/details/2720197266.shtml)
-- 2026-06-29 11:32 - [华凯易佰1.13亿收购深圳米品盛及香港纽瑞格：压力之下的精品化豪赌](http://www.blog.kurohicncr.top/Article/details/46449.shtml)
-- 2026-06-29 11:21 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.share.minike.top/Article/details/20065991791.shtml)
-- 2026-06-29 11:44 - [重要法案通过！流失在法国的中国国宝，何时能回家？](http://www.blog.kurohicncr.top/Article/details/8933295.shtml)
-- 2026-06-29 11:27 - [胜宏科技公布发售价厘定为每股H股209.88港元](http://www.blog.kurohicncr.top/Article/details/15983.shtml)
+- 2026-06-29 11:43 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:41 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:20 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:46 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:40 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:25 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:40 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:22 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:39 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:45 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:18 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:24 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:41 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)

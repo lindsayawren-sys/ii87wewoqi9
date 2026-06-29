@@ -1,56 +1,61 @@
-# 六年分红过百亿，三七互娱2025年归母净利润增长8.5%
+# 首发全新麒麟芯！华为Mate 90提档9月：旗舰混战一触即发
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-2026年4月16日，三七互娱（维权）发布2025年年度报告。报告显示，2025年公司实现营业收入159.66亿元；归属于上市公司股东的净利润29亿元，同比增长8.5%。 同时，三七互娱2025年度拟向全体股东每10股派送现金股利4.0元（含税），预计本次现金分红总额约8.8亿元。而此前三个季度，三七互娱已派发现金股利13.86亿元。2025年，三七互娱累计现金分红总额将高达2
+今年九月的手机市场，可能要挤爆了。华为的旗舰节奏，正在悄然改变。按照惯例，Mate系列总在年末亮相，但今年情况有变。来自数码博主的爆料指向同一个时间点：九月。华为不仅可能推出Mate 90系列，还可能同时发布全新的三折叠屏手机，而Mate X8折叠屏则会稍晚一些。更早的爆料中，博主提到了一个关键原因：“τ定律”解除了芯片的提升压力。这意味着华为可以更从容地安排产品节奏。Mate
 
 ## 正文
 
-2026年4月16日，三七互娱（维权）发布2025年年度报告。
+今年九月的手机市场，可能要挤爆了。
 
-报告显示，2025年公司实现营业收入159.66亿元；归属于上市公司股东的净利润29亿元，同比增长8.5%。
+华为的旗舰节奏，正在悄然改变。
 
-同时，三七互娱2025年度拟向全体股东每10股派送现金股利4.0元（含税），预计本次现金分红总额约8.8亿元。
+按照惯例，Mate系列总在年末亮相，但今年情况有变。
 
-而此前三个季度，三七互娱已派发现金股利13.86亿元。
+来自数码博主的爆料指向同一个时间点：九月。
 
-2025年，三七互娱累计现金分红总额将高达22.66亿元。
+华为不仅可能推出Mate 90系列，还可能同时发布全新的三折叠屏手机，而Mate X8折叠屏则会稍晚一些。
 
-公司还发布了董事会审议通过《关于2026年中期分红规划的议案》的公告，有望2026年延续季度分红规划。
+更早的爆料中，博主提到了一个关键原因：“τ定律”解除了芯片的提升压力。
 
-稳健的盈利能力以及高度重视股东回报的态度，持续夯实了三七互娱作为A股头部游戏企业的长期投资价值。
+这意味着华为可以更从容地安排产品节奏。
 
-多元化产品长线运营，超二十款新品储备 2025年，三七互娱稳步推进“精品化、多元化、全球化”发展战略，一方面持续深化对小游戏及轻量化产品赛道的战略布局，不断丰富产品类型和玩法创新；另一方面重点聚焦SLG、MMORPG、模拟经营等品类的研发与全球化发行，有序推进海外休闲类产品的探索。
+Mate 90系列预计在九月末登场，价格方面，可能会有一定幅度的上涨。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [在沙地种下一片“云朵玫瑰”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:28 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:40 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:40 - [美又一核动力航母失火 8名船员受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:45 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:27 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:23 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:21 - [全球智能鸿沟如何破解？这份报告给出答案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:29 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:40 - [新疆新设草湖市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:43 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:34 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:31 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:27 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:36 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:28 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:27 - [鬼畜区全明星拼接遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:34 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:32 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:25 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:47 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:24 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:47 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:47 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:47 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [光大期货：4月16日金融日报](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](http://www.blog.kurohicncr.top/Article/details/37991845.shtml)
-- 2026-06-29 11:24 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](http://www.share.minike.top/Article/details/80269402.shtml)
-- 2026-06-29 11:39 - [近3万股东出走中际旭创](http://www.blog.kurohicncr.top/Article/details/097403.shtml)
-- 2026-06-29 11:16 - [韩国称其运载原油船只安全驶离红海](http://www.blog.kurohicncr.top/Article/details/43292184.shtml)
-- 2026-06-29 11:33 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](http://www.blog.minike.top/Article/details/76743107.shtml)
-- 2026-06-29 11:26 - [上海外贸进出口总值实现“季、月双创纪录”开局](http://www.share.kurohicncr.top/Article/details/55631349.shtml)
-- 2026-06-29 11:41 - [中国国防部：敦促日方同军国主义彻底切割](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [中国财长出席2026年G20财长和央行行长第一次会议](http://www.share.kurohicncr.top/Article/details/454067.shtml)
-- 2026-06-29 11:25 - [翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](http://www.share.minike.top/Article/details/957459.shtml)
-- 2026-06-29 11:30 - [液态金属在太空有何应用前景？中国科研团队深度解析全景前瞻](http://www.share.kurohicncr.top/Article/details/6268250670.shtml)
-- 2026-06-29 11:46 - [国家医保局：全国近四成统筹地区已完成上年度清算](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [贝森特：可以理解美联储暂缓降息](http://www.share.kurohicncr.top/Article/details/881582.shtml)
-- 2026-06-29 11:35 - [洪水猛兽还是有效工具？专家学者聚焦AI视域下的青少年科幻写作](http://www.blog.kurohicncr.top/Article/details/38030491.shtml)
+- 2026-06-29 11:37 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:19 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:35 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:21 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:21 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:33 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:33 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:39 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:35 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:38 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:36 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:25 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:44 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:36 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:47 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)

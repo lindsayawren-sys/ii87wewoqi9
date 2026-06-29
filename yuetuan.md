@@ -1,61 +1,57 @@
-# 3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨
+# 傲农生物多项违规引发索赔，受损投资者维权通道现已开启
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-4月16日，国家统计局发布2026年3月份70个大中城市商品住宅销售价格变动情况。数据显示，3月份，一线城市商品住宅销售价格环比上涨，二三线城市环比降幅收窄或相同。新建商品住宅和二手住宅销售价格环比上涨城市个数均比上月增加。13城二手房价格环比上涨，一线城市实现普涨从二手房市场看，当前楼市呈现二手房复苏力度较强、核心一线城市率先领涨的特征。国家统计局数据显示，3月份，一线城市二
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月22日晚，傲农生物（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。公司在披露《立案通知书》的同日披露了2025年年度财报，财报显示，公司全年实现营业收入84.75亿元，同比下降3.29%，这已是连续第三年出现营收下滑。全年归母净利
 
 ## 正文
 
-4月16日，国家统计局发布2026年3月份70个大中城市商品住宅销售价格变动情况。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月22日晚，傲农生物（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。
 
-数据显示，3月份，一线城市商品住宅销售价格环比上涨，二三线城市环比降幅收窄或相同。
+公司在披露《立案通知书》的同日披露了2025年年度财报，财报显示，公司全年实现营业收入84.75亿元，同比下降3.29%，这已是连续第三年出现营收下滑。
 
-新建商品住宅和二手住宅销售价格环比上涨城市个数均比上月增加。
+全年归母净利润为7762.16万元，同比大幅下滑86.60%，扣非归母净利润仍处于亏损状态，达-4.74亿元。
 
-13城二手房价格环比上涨，一线城市实现普涨从二手房市场看，当前楼市呈现二手房复苏力度较强、核心一线城市率先领涨的特征。
+然而此次立案并非该公司首次触碰监管红线。
 
-国家统计局数据显示，3月份，一线城市二手住宅销售价格环比由上月下降0.1%转为上涨0.4%，北京、上海、广州、深圳四城实现普涨，分别上涨0.6%、0.4%、0.2%和0.4%。
+2024年3月，上交所已对公司及控股股东、实际控制人出具监管警示；同年9月，福建证监局再发警示函，明确指出公司存在未及时披露诉讼仲裁、到期债务违约、对外担保及控股股东股权质押等多项违规行为。
 
-二三线城市二手房价格仍处调整区间，但降幅全面收窄。
+回溯审计与内控记录可见，公司的合规问题早有端倪。
 
-其中，二线城市二手住宅销售价格环比下降0.2%，降幅收窄0.2个百分点；三线城市环比下降0.4%，降幅收窄0.1个百分点。
+2023年度，会计师事务所对公司财务报告出具带强调事项段的无保留意见，核心指向公司2021-2023年连续亏损、期末净资产为负的持续经营风险——这也是公司当年被实施退市风险警示的关键原因。
 
-城市层面，3月份70个大中城市中，二手住宅销售价格环比上涨的城市有13个，较上月增加11个，即从此前只有北京和上海上涨扩大到13个城市名单。
+2025年4月，公司披露2024年度内部控制评价报告，称不存在财务报告内部控制重大缺陷，但内控有效性与实际经营表现存在明显脱节。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:42 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:17 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:21 - [云南印发实施意见全面推进共有精神家园建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:19 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:43 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:18 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:23 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:41 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:40 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:20 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:22 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:22 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:32 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:28 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:39 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:45 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:27 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:26 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:20 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:32 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:41 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:32 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:47 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:27 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:23 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [中东局势变化对我国外贸有何影响？国家统计局回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](http://www.blog.kurohicncr.top/Article/details/05814462.shtml)
-- 2026-06-29 11:44 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](http://www.share.minike.top/Article/details/208451364272.shtml)
-- 2026-06-29 11:32 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](http://www.share.minike.top/Article/details/83844.shtml)
-- 2026-06-29 11:16 - [长光辰芯首挂上市 早盘高开81.80%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](http://www.blog.minike.top/Article/details/362863015652.shtml)
-- 2026-06-29 11:35 - [中国向伊朗提供紧急人道主义援助](http://www.blog.kurohicncr.top/Article/details/336404.shtml)
-- 2026-06-29 11:37 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](http://www.blog.kurohicncr.top/Article/details/65256689.shtml)
-- 2026-06-29 11:25 - [浙江启用防汛防台机器狗“AI防汛勇士”](http://www.share.minike.top/Article/details/778213885.shtml)
-- 2026-06-29 11:31 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](http://www.blog.minike.top/Article/details/538406.shtml)
-- 2026-06-29 11:41 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.blog.minike.top/Article/details/744812263.shtml)
-- 2026-06-29 11:22 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](http://www.share.kurohicncr.top/Article/details/46975.shtml)
-- 2026-06-29 11:23 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](http://www.blog.kurohicncr.top/Article/details/189172013.shtml)
+- 2026-06-29 11:30 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:32 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:23 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:30 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:42 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:35 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:33 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:46 - [温州学子高考数学满分 分享学习经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:28 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:36 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:47 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:22 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:36 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:31 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:29 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)

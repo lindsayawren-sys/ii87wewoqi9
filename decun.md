@@ -1,61 +1,53 @@
-# 开局之年看中国·开放自贸港：三亚芒果闯世界
+# 世界杯伊朗队小组赛不败 韩国队出线仅剩理论可能
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网三亚4月17日电 题：开局之年看中国·开放自贸港：三亚芒果闯世界 中新网记者 张茜翼 4月的三亚，芒果园里红彤彤的贵妃芒挂满枝头，迎来一年中最繁忙的丰收季。 不久前，一批585公斤的“树上熟”贵妃芒从三亚出发，远渡重洋抵达加拿大温哥华，为2026年三亚芒果出口拿下“开门红”。与此同时，新加坡、菲律宾的三亚芒果海外商标注册已完成，助推三亚芒果加快走向世界。 这些跨越山海的三
+中新网6月27日电 北京时间27日进行的6场世界杯小组赛已全部结束，3个小组完赛。G组比利时、埃及出线，新西兰出局，伊朗待定；H组西班牙、佛得角携手晋级，乌拉圭、沙特被淘汰；I组法国、挪威、塞内加尔出线，伊拉克出局。 在各小组第三名的排位中，伊朗队暂居第6，领先于排名第8的韩国队。待小组赛全部收官后，在该榜单上位列前8的队伍可以晋级32强，这意味着伊朗队出线希望相对较大，而韩国
 
 ## 正文
 
-中新网三亚4月17日电 题：开局之年看中国·开放自贸港：三亚芒果闯世界 中新网记者 张茜翼 4月的三亚，芒果园里红彤彤的贵妃芒挂满枝头，迎来一年中最繁忙的丰收季。
+中新网6月27日电 北京时间27日进行的6场世界杯小组赛已全部结束，3个小组完赛。
 
-不久前，一批585公斤的“树上熟”贵妃芒从三亚出发，远渡重洋抵达加拿大温哥华，为2026年三亚芒果出口拿下“开门红”。
+G组比利时、埃及出线，新西兰出局，伊朗待定；H组西班牙、佛得角携手晋级，乌拉圭、沙特被淘汰；I组法国、挪威、塞内加尔出线，伊拉克出局。
 
-与此同时，新加坡、菲律宾的三亚芒果海外商标注册已完成，助推三亚芒果加快走向世界。
+在各小组第三名的排位中，伊朗队暂居第6，领先于排名第8的韩国队。
 
-这些跨越山海的三亚芒果，大多带着同一个名字——“福返”。
-
-而“福返”背后，是一个家族两代人、四十余年与芒果相依相守的故事。
-
-父辈的“芒果梦” 1984年，福建人彭福返举家迁到三亚崖州区。
-
-初来乍到，他一度迷茫；直到有一天，尝到一个来自百年古树的芒果，那沁人心脾的甜瞬间让他找到了扎根的方向。
-
-从此，他潜心研究芒果育种与种植技术，从改良小青皮芒果到反复试验新品种，成了当地果农口中“质量有保障”的“彭叔”。
+待小组赛全部收官后，在该榜单上位列前8的队伍可以晋级32强，这意味着伊朗队出线希望相对较大，而韩国队已命悬一线。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [戈壁湿地奏响春日序曲 万鸟翩跹染绿丝路古道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:20 - [美国和伊朗或考虑延长停火 霍尔木兹海峡局势仍高度紧张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:45 - [铝业股午前集体走高 中国铝业涨超5%俄铝涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:22 - [中国经济开门红，靠的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:23 - [同济大学回应“一教师论文数据存疑”：已成立调查组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:16 - [南京将打造国际航空货运枢纽 开辟及加密近远洋干线航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:26 - [七牛智能午后涨超4% AI相关收入占比进一步增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:40 - [全周期、全渠道、全领域——多部门详解药价新规](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:31 - [中国电动三轮车爆火美国 电动三轮车在美国价格翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:35 - [国家统计局：一季度GDP同比增长5.0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:24 - [小摩：中金公司首季业绩料胜预期 重申行业首选股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:25 - [沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:39 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:23 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:32 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:29 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:24 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:26 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:18 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:46 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:40 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:30 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:28 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:35 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:19 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:32 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:44 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:41 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](http://www.blog.minike.top/Article/details/53712306.shtml)
-- 2026-06-29 11:33 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](http://www.blog.kurohicncr.top/Article/details/590006111635.shtml)
-- 2026-06-29 11:27 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](http://www.share.kurohicncr.top/Article/details/800526950063.shtml)
-- 2026-06-29 11:26 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](http://www.share.minike.top/Article/details/2631136.shtml)
-- 2026-06-29 11:31 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](http://www.share.minike.top/Article/details/3335692.shtml)
-- 2026-06-29 11:25 - [北京“两区”建设加速推进 高水平开放释放发展新动能](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [济宁太白湖新区：花海伴赛事 产业促民生](http://www.blog.kurohicncr.top/Article/details/8937552.shtml)
-- 2026-06-29 11:42 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [余金生被执行死刑！系杀害网红“罗大美”主犯](http://www.share.minike.top/Article/details/3088521562.shtml)
-- 2026-06-29 11:43 - [一季度郑州机场国际货运量同比增长21.8%](http://www.share.kurohicncr.top/Article/details/4460040104.shtml)
-- 2026-06-29 11:43 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](http://www.share.kurohicncr.top/Article/details/2273415.shtml)
-- 2026-06-29 11:38 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](http://www.share.minike.top/Article/details/626458.shtml)
-- 2026-06-29 11:41 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.blog.minike.top/Article/details/3194938252.shtml)
-- 2026-06-29 11:21 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](http://www.share.kurohicncr.top/Article/details/39971.shtml)
+- 2026-06-29 11:37 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:18 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:21 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:38 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:38 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:34 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:23 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:32 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:25 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:33 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:37 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:25 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:27 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:47 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)

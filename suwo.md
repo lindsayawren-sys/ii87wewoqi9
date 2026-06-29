@@ -1,56 +1,57 @@
-# 智云股份（300097）投资者索赔再获法院立案，前期已有胜诉
+# *ST益通索赔新进展 部分股民提交起诉
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-2026年4月15日，上海久诚律师事务所股票索赔律师许峰代理的智云股份（维权）（300097）虚假陈述引发的投资者索赔案再向大连市中级人民法院提交一次立案，4月16日，该案即获得法院正式立案。 许峰律师提示，智云股份投资者索赔案目前已有投资者胜诉判决，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。许峰律师代理的智云股份投资者索赔案前期也已获得法院
+近日，投资者诉北京诚益通控制技术集团股份有限公司（简称：诚益通、*ST益通（维权），代码：300430）证券虚假陈述责任纠纷案取得新进展。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，诚益通涉嫌证券虚假陈述，部分股民已提交起诉材料。（厉健律师专栏） 案情回溯，2026年4 月30日，诚益通披露了《关于公司股票交易被实施退市风险警示叠加
 
 ## 正文
 
-2026年4月15日，上海久诚律师事务所股票索赔律师许峰代理的智云股份（维权）（300097）虚假陈述引发的投资者索赔案再向大连市中级人民法院提交一次立案，4月16日，该案即获得法院正式立案。
+近日，投资者诉北京诚益通控制技术集团股份有限公司（简称：诚益通、*ST益通（维权），代码：300430）证券虚假陈述责任纠纷案取得新进展。
 
-许峰律师提示，智云股份投资者索赔案目前已有投资者胜诉判决，律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，诚益通涉嫌证券虚假陈述，部分股民已提交起诉材料。
 
-许峰律师代理的智云股份投资者索赔案前期也已获得法院立案，目前正在等待法院的下一步安排。
+（厉健律师专栏） 案情回溯，2026年4 月30日，诚益通披露了《关于公司股票交易被实施退市风险警示叠加其他风险警示暨停 牌的公告》。
 
-2025年3月17日，智云股份公告收到证监会《行政处罚决定书》，经查，当事人存在如下违法事实： 2020年，智云股份收购深圳市九天中创自动化设备有限公司（以下简称九天中创）81.3181%股权，九天中创成为智云股份控股子公司并纳入合并报表范围。
+2026年5月8日，诚益通发布《关于股票交易严重异常波动的公告》。
 
-2022年，九天中创虚假确认与江西米赞科技有限公司（以下简称江西米赞）的大连智云自动化装备股份有限公司销售收入5，973.45万元、利润2，411.23万元，分别占智云股份同期披露营业收入、利润总额绝对值的13.27%、7.09%。
+公告显示：因信永中和会计师事务所（特殊普通合伙） 出具了无法表示意见的审计报告以及否定意见的内部控制审计报告，触及《深圳 证券交易所创业板股票上市规则》第10.3.1条、第9.4条的规定，公司股票自2026 年5月6日开市起被实行“退市风险警示”、“其他风险警示”，股票简称由“诚益通”变更为“*ST益通”，证券代码仍为“300430”，敬请广大投资者注意投资风险。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，根据前期投资者胜诉判决，在2023年4月28日到2024年4月13日之间买入智云股份股票，并且在2024年4月13日后卖出或继续持有股票的投资者，目前还可发起索赔。
+公司股票交易价格连续三个交易日（2026年5月6日、2026年5月7日、2026年5月8日）收盘价格跌幅偏离值累计超过50%以上，根据深圳证券交易所有关规定，属于股票交易严重异常波动。
 
-（本文由许峰律师供稿，不代表新浪财经立场。
+根据最高人民法院虚假陈述司法解释，上市公司等因证券虚假陈述行为导致投资者权益受损，投资者可以依法起诉索赔，索赔范围包括投资差额损失、佣金和印花税损失。
 
-许峰律师，上海久诚律师事务所主任，2008年起律师执业，执业服务范围涉及虚假陈述、内幕交易、操纵市场等证券欺诈领域索赔代理。
+“我们正在分批代理股民起诉。
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [采购商谈消博会：这里是一座“全球好物中转站”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:35 - [渤海银行：首席信息官谢凯任职资格获批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:23 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:32 - [国际能源署署长：欧洲仅剩够用6周航空燃油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:16 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:29 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:24 - [酒价内参4月17日价格发布，青花郎下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:34 - [外交部提醒赴美国中国公民注意入境安全风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:22 - [Stena DrillMAX将在希腊近海钻探首口深水井](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:24 - [在沙地种下一片“云朵玫瑰”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:24 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:33 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:43 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:18 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:47 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:44 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:40 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:45 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:23 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](http://www.share.kurohicncr.top/Article/details/0826535952.shtml)
-- 2026-06-29 11:18 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](http://www.share.kurohicncr.top/Article/details/56473.shtml)
-- 2026-06-29 11:36 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](http://www.share.kurohicncr.top/Article/details/21325710092.shtml)
-- 2026-06-29 11:34 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](http://www.blog.minike.top/Article/details/8224858526.shtml)
-- 2026-06-29 11:25 - [浙江舟山嵊泗：“东海鲜”下船上岸](http://www.share.kurohicncr.top/Article/details/60128.shtml)
-- 2026-06-29 11:18 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [Stellantis与微软合作部署逾百款AI工具](http://www.share.minike.top/Article/details/6626978.shtml)
-- 2026-06-29 11:22 - [日本财务大臣：与美国财长密切讨论了外汇问题](http://www.blog.minike.top/Article/details/936574.shtml)
-- 2026-06-29 11:20 - [多份联储报告显示美国物价飙升](http://www.blog.minike.top/Article/details/25795585054.shtml)
-- 2026-06-29 11:27 - [光大期货：4月16日金融日报](http://www.blog.kurohicncr.top/Article/details/27463.shtml)
-- 2026-06-29 11:33 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](http://www.share.kurohicncr.top/Article/details/9171356.shtml)
-- 2026-06-29 11:21 - [近3万股东出走中际旭创](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [韩国称其运载原油船只安全驶离红海](http://www.blog.kurohicncr.top/Article/details/943768.shtml)
-- 2026-06-29 11:29 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](http://www.blog.minike.top/Article/details/5215005.shtml)
+- 2026-06-29 11:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:46 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:23 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:42 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:38 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:38 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:47 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:26 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:32 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:19 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:28 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:25 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)

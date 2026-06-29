@@ -1,50 +1,58 @@
-# 国家统计局：一季度GDP同比增长5.0%
+# 中国国防部：日本若重走军国主义邪路最终只能以失败告终
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月16日 10:33 来源：三里河 4月16日，国家统计局发布一季度中国经济数据。初步核算，一季度国内生产总值334193亿元，按不变价格计算，同比增长5.0%，比上年四季度加快0.5个百分点。(记者 陈庆洋 吴家驹 李金磊） 责任编辑：【李金磊】
+中新社北京6月25日电 (记者 李纯)中国国防部新闻发言人张晓刚在25日举行的例行记者会上指出，日本若重走军国主义邪路，最终只能以失败告终，遭到彻底的正义审判和历史清算。 有记者提及，据报道，在今年3月中方反驳日方炒作中国国防支出一事后，日本防卫大臣近期再次公开质疑中国国防费透明度，同时声称“日本将以透明的方式投资于无人机和人工智能等新型作战手段，以适应不断变化的冲突性质”。
 
 ## 正文
 
-发布时间：2026年04月16日 10:33 来源：三里河 4月16日，国家统计局发布一季度中国经济数据。
+中新社北京6月25日电 (记者 李纯)中国国防部新闻发言人张晓刚在25日举行的例行记者会上指出，日本若重走军国主义邪路，最终只能以失败告终，遭到彻底的正义审判和历史清算。
 
-初步核算，一季度国内生产总值334193亿元，按不变价格计算，同比增长5.0%，比上年四季度加快0.5个百分点。
+有记者提及，据报道，在今年3月中方反驳日方炒作中国国防支出一事后，日本防卫大臣近期再次公开质疑中国国防费透明度，同时声称“日本将以透明的方式投资于无人机和人工智能等新型作战手段，以适应不断变化的冲突性质”。
 
-(记者 陈庆洋 吴家驹 李金磊） 责任编辑：【李金磊】
+张晓刚表示，中国的国防费公开透明，每年都依法公开国防支出预算总额及其规模、结构、用途等信息，积极参加联合国军费透明制度，2008年以来每年都向联合国提交上一财政年度军事开支报告。
+
+中国国防支出一贯坚持合理、适度、克制，占GDP的比重长期低于1.5%。
+
+反观日本，作为二战战败国，防卫预算连续14年快速增长，防卫支出占GDP比重飙升至2%，甚至还要进一步提升至3.5%，人均防卫支出是中国的三倍多。
+
+“清者自清，浊者自浊。
+
+”张晓刚指出，日方用“阴谋论”抹黑中国国防开支，妄想转移视线、误导舆论，掩饰其“再军事化”野心和举动。
+
+真正应该向世界讲清楚的是日本：“新型军国主义”成势为患，意欲何为？
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [珠江流域部分中小河流近期可能出现超警洪水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:39 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:38 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:40 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:31 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:20 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:22 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:39 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:35 - [4月16日人民币对美元中间价报6.8616 下调34个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:19 - [厦门钨业：子公司金龙稀土进入创新层](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:25 - [镜观·回响丨在交流中深化中越青年情谊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:42 - [中金：维持波司登跑赢行业评级 目标价5.65港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:43 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:33 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:35 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:28 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:18 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:41 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:45 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:45 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:24 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:40 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:24 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:31 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:22 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:30 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](http://www.blog.kurohicncr.top/Article/details/89752200.shtml)
-- 2026-06-29 11:30 - [河南南阳：警车亮灯守护三轮平安归途](http://www.share.minike.top/Article/details/788527871.shtml)
-- 2026-06-29 11:24 - [云南印发实施意见全面推进共有精神家园建设](http://www.share.kurohicncr.top/Article/details/287419839.shtml)
-- 2026-06-29 11:26 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.blog.minike.top/Article/details/40563303.shtml)
-- 2026-06-29 11:30 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](http://www.blog.kurohicncr.top/Article/details/07646503.shtml)
-- 2026-06-29 11:44 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](http://www.blog.minike.top/Article/details/33273558718.shtml)
-- 2026-06-29 11:35 - [陆军某旅着力培养过硬兵棋骨干队伍](http://www.blog.minike.top/Article/details/269524.shtml)
-- 2026-06-29 11:39 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](http://www.blog.kurohicncr.top/Article/details/02049825.shtml)
+- 2026-06-29 11:20 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:28 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:21 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:23 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:40 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:43 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:37 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:36 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:23 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:20 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:19 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:41 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:32 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:34 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)

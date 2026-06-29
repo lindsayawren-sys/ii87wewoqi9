@@ -1,50 +1,45 @@
-# 欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金
+# 辽宁省沈抚改革创新示范区党工委委员范静国被查
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-欧盟扩大事务专员科斯（Marta Kos）周四表示，在乌克兰议会上周完成必要改革后，欧盟预计将向乌克兰拨付25亿至27亿欧元资金。科斯在华盛顿与乌克兰财长马尔琴科（Sergii Marchenko）共同出席活动时表示，在匈牙利大选导致总理欧尔班下台后，欧盟肯定会向乌克兰提供900亿欧元贷款。马尔琴科表示，一旦欧盟贷款到位，乌克兰2026年的520亿美元资金缺口将可补足，但他补充
+中新网6月26日电 据辽宁省纪委监委消息：辽宁省沈抚改革创新示范区党工委委员、管委会副主任范静国涉嫌严重违纪违法，目前正接受辽宁省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-欧盟扩大事务专员科斯（Marta Kos）周四表示，在乌克兰议会上周完成必要改革后，欧盟预计将向乌克兰拨付25亿至27亿欧元资金。
-
-科斯在华盛顿与乌克兰财长马尔琴科（Sergii Marchenko）共同出席活动时表示，在匈牙利大选导致总理欧尔班下台后，欧盟肯定会向乌克兰提供900亿欧元贷款。
-
-马尔琴科表示，一旦欧盟贷款到位，乌克兰2026年的520亿美元资金缺口将可补足，但他补充说，乌克兰政府仍在就如何填补2027年预计出现的缺口进行讨论。
-
-马尔琴科表示，欧盟已协助乌克兰满足近三分之二的融资需求，但尚不清楚其他主要国家是否愿意提供援助。
-
-责任编辑：王永生
+中新网6月26日电 据辽宁省纪委监委消息：辽宁省沈抚改革创新示范区党工委委员、管委会副主任范静国涉嫌严重违纪违法，目前正接受辽宁省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:25 - [美又一核动力航母失火 8名船员受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:28 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:34 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:39 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:23 - [全球智能鸿沟如何破解？这份报告给出答案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:43 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:16 - [新疆新设草湖市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:34 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:38 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:39 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:26 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:39 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:43 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:20 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:35 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:18 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:27 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:39 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:20 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [近3万股东出走中际旭创](http://www.blog.kurohicncr.top/Article/details/618508.shtml)
-- 2026-06-29 11:33 - [韩国称其运载原油船只安全驶离红海](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](http://www.blog.minike.top/Article/details/6682593.shtml)
-- 2026-06-29 11:19 - [上海外贸进出口总值实现“季、月双创纪录”开局](http://www.blog.minike.top/Article/details/16639715.shtml)
-- 2026-06-29 11:20 - [中国国防部：敦促日方同军国主义彻底切割](http://www.blog.minike.top/Article/details/854684318.shtml)
-- 2026-06-29 11:29 - [中国财长出席2026年G20财长和央行行长第一次会议](http://www.blog.kurohicncr.top/Article/details/803382018.shtml)
-- 2026-06-29 11:16 - [翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股](http://www.blog.minike.top/Article/details/84232.shtml)
-- 2026-06-29 11:36 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](http://www.share.minike.top/Article/details/91601565.shtml)
-- 2026-06-29 11:24 - [液态金属在太空有何应用前景？中国科研团队深度解析全景前瞻](http://www.blog.minike.top/Article/details/16595.shtml)
-- 2026-06-29 11:24 - [国家医保局：全国近四成统筹地区已完成上年度清算](http://www.share.kurohicncr.top/Article/details/720328349529.shtml)
-- 2026-06-29 11:42 - [贝森特：可以理解美联储暂缓降息](http://www.blog.kurohicncr.top/Article/details/1721387.shtml)
-- 2026-06-29 11:16 - [洪水猛兽还是有效工具？专家学者聚焦AI视域下的青少年科幻写作](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [老外体验无人驾驶：“万万没想到，比司机开还稳”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [挖机销量增近三成，工程机械“金三”来了](http://www.share.kurohicncr.top/Article/details/685009494.shtml)
+- 2026-06-29 11:24 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:34 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:30 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:21 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:22 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:21 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:29 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:25 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:28 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:38 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:21 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:42 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:29 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)

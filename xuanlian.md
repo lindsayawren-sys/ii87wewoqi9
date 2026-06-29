@@ -1,58 +1,45 @@
-# 创新硬件在广交会受青睐 AI硬件产品成采购“新宠”
+# 现实版破冰行动！广东海警两年来缴获各类毒品超9吨
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-创新硬件在广交会受青睐 “AI服务+制造”让企业更好斩获全球订单 “这款AI眼镜能翻译122种语言和口音，真是太棒了，我一定会介绍给我的朋友们。”在广交会服务机器人展区，来自阿根廷的采购商Edilio在体验后备感惊喜；而另一位来自巴西的采购商戴上AI翻译耳机后，立即用母语与工作人员交流起生意细节。 本届广交会首次增设智能穿戴、显示技术、消费级无人机、集成房屋及庭院设施等9个专区
+发布时间：2026年06月26日 16:10 来源：中国新闻网 两年来，广东海警通过打团伙、断链条、摧网络、深挖扩线、循线追踪共侦办毒品案件6起，缴获各类毒品逾9吨、抓获嫌疑人90余名，摧毁了多个海上毒品走私犯罪团伙和海上毒品运输通道。(来源：广东海警局 作者：邓榕烜、许政、周培跃） 责任编辑：【魏聪聪】
 
 ## 正文
 
-创新硬件在广交会受青睐 “AI服务+制造”让企业更好斩获全球订单 “这款AI眼镜能翻译122种语言和口音，真是太棒了，我一定会介绍给我的朋友们。
+发布时间：2026年06月26日 16:10 来源：中国新闻网 两年来，广东海警通过打团伙、断链条、摧网络、深挖扩线、循线追踪共侦办毒品案件6起，缴获各类毒品逾9吨、抓获嫌疑人90余名，摧毁了多个海上毒品走私犯罪团伙和海上毒品运输通道。
 
-”在广交会服务机器人展区，来自阿根廷的采购商Edilio在体验后备感惊喜；而另一位来自巴西的采购商戴上AI翻译耳机后，立即用母语与工作人员交流起生意细节。
-
-本届广交会首次增设智能穿戴、显示技术、消费级无人机、集成房屋及庭院设施等9个专区，人工智能(AI)技术与中国制造业融合，正在让采购商们在广交会这一中国外贸平台变得更顺畅，让展商们更好地将有限的展期转化为更高概率的订单机会，也以服务型制造推动国内制造业转型升级。
-
-AI硬件产品成采购“新宠” 今年，智能服务机器人、AI眼镜、AI耳机等AI“黑科技”成为本届广交会焦点之一，备受众多海内外客商青睐。
-
-在科大讯飞广交会展区，最直观的感受除了产品多，还有人气旺：有人刚摘下耳机，旁边的人已经上前试戴；有人拿起翻译机刚开口，周围便有人凑近围看。
-
-在这里，翻译不再是静态展示，而是被直接放进真实商贸沟通的一个个真实具体场景里。
-
-一款抢手的AI眼镜，整机重量仅为40克，相比当前市面上主流的同类智能眼镜，重量降低约20%，是目前全球最轻的双目单色显示智能眼镜，能够满足日常长时间佩戴穿搭的需求，当采购商戴上时，“翻译官”仿佛就在眼前。
-
-“随着语言壁垒不断被打破，AI也正成为连接中国企业与全球市场的重要桥梁。
+(来源：广东海警局 作者：邓榕烜、许政、周培跃） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:44 - [海南这个园区有点东西：学生一校入学 可共享多校课程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:29 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:29 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:44 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:35 - [多重利好叠加提振预期 消费板块能否苦尽甘来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:39 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:28 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:38 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:22 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:22 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:34 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:20 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:27 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:45 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:30 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:34 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:34 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:31 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:23 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:31 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:36 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](http://www.blog.kurohicncr.top/Article/details/5853814.shtml)
-- 2026-06-29 11:38 - [A股盘前速递：黄金涨回4800美元](http://www.blog.kurohicncr.top/Article/details/428005348957.shtml)
-- 2026-06-29 11:42 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.share.kurohicncr.top/Article/details/91288951.shtml)
-- 2026-06-29 11:26 - [澳大利亚一炼油厂发生大火](http://www.share.kurohicncr.top/Article/details/14738.shtml)
-- 2026-06-29 11:30 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](http://www.share.minike.top/Article/details/69339.shtml)
-- 2026-06-29 11:37 - [话剧《四世同堂》首次登陆澳大利亚](http://www.blog.minike.top/Article/details/83689462657.shtml)
-- 2026-06-29 11:22 - [中国HH-200航空商用无人运输系统首架机首飞成功](http://www.blog.kurohicncr.top/Article/details/90992023.shtml)
-- 2026-06-29 11:40 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.share.kurohicncr.top/Article/details/33240.shtml)
-- 2026-06-29 11:27 - [一季度增城西站中欧班列开行量同比增长24%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.blog.kurohicncr.top/Article/details/92268882701.shtml)
-- 2026-06-29 11:33 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.share.kurohicncr.top/Article/details/846378288.shtml)
-- 2026-06-29 11:21 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](http://www.blog.minike.top/Article/details/3694775.shtml)
-- 2026-06-29 11:21 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.blog.kurohicncr.top/Article/details/550894319.shtml)
-- 2026-06-29 11:20 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](http://www.share.minike.top/Article/details/847776674824.shtml)
+- 2026-06-29 11:40 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:41 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:26 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:46 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:47 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:18 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:20 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:26 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:32 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:31 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:33 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:41 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)

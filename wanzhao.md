@@ -1,60 +1,61 @@
-# 酒价内参4月17日价格发布，古井贡古20下跌6元
+# 算力出海提速，有企业高端光模块出口暴增100倍
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月17日整体继续回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9852元，较昨日下跌15元，连续第三天创下近一个月新低。市场整体价格延续低位运行，终端交投表现平稳偏弱。 今日白酒市场11大单品三涨八跌，输家优势明显，终端价格延续弱势整理格局。上涨方面，习酒君品涨幅居前，上涨9元/瓶，创下
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！财联社 据央视财经，今年前5个月，我国机电产品出口额7.58万亿元，占我国出口总值的比重达到63.6%。自2025年3月起，连续15个月刷新同期月度最高值。 记者在浙江嘉兴的一家工厂看到，这里有近1000台织布机正在织布，它是人工智能服务器中的电子布。电子布，是电子信息产业当中的关键材料。随着算力需求爆发，
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月17日整体继续回落。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9852元，较昨日下跌15元，连续第三天创下近一个月新低。
+财联社 据央视财经，今年前5个月，我国机电产品出口额7.58万亿元，占我国出口总值的比重达到63.6%。
 
-市场整体价格延续低位运行，终端交投表现平稳偏弱。
+自2025年3月起，连续15个月刷新同期月度最高值。
 
-今日白酒市场11大单品三涨八跌，输家优势明显，终端价格延续弱势整理格局。
+记者在浙江嘉兴的一家工厂看到，这里有近1000台织布机正在织布，它是人工智能服务器中的电子布。
 
-上涨方面，习酒君品涨幅居前，上涨9元/瓶，创下近一个月最高；青花汾20上涨3元/瓶；水晶剑南春小幅上涨1元/瓶。
+电子布，是电子信息产业当中的关键材料。
 
-下跌方面，洋河梦之蓝M6+跌幅居前，下跌8元/瓶，平一个月来最低纪录；古井贡古20下跌6元/瓶；精品茅台下跌4元/瓶；国窖1573下跌3元/瓶；飞天茅台、五粮液1618及青花郎均下跌2元/瓶；五粮液普五八代小幅回落1元/瓶。
+随着算力需求爆发，电子布需求也随之增加。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+企业车间里，产线24小时满产运行。
 
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+今年以来，和算力有关的相关产品加速出海。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:32 - [话剧《四世同堂》首次登陆澳大利亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:16 - [中国HH-200航空商用无人运输系统首架机首飞成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:27 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:31 - [一季度增城西站中欧班列开行量同比增长24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:34 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:33 - [美财长贝森特承诺支持日本推进投资审查机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:39 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:35 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:36 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:38 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:27 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:20 - [韩国第一季度接待外国游客476万人次，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:32 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:25 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:20 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:41 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:18 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:42 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:41 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:43 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:45 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:24 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:33 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:36 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:20 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:25 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:27 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](http://www.share.minike.top/Article/details/68553.shtml)
-- 2026-06-29 11:44 - [Uber将收购Delivery Hero额外4.5%的股份](http://www.blog.minike.top/Article/details/53949146.shtml)
-- 2026-06-29 11:35 - [中国驻日本大使馆提醒在日中国公民注意人身安全](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](http://www.blog.minike.top/Article/details/6991473.shtml)
-- 2026-06-29 11:27 - [世界气象组织秘书长调研全民早期预警重庆实践](http://www.share.minike.top/Article/details/7305894.shtml)
-- 2026-06-29 11:20 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](http://www.blog.minike.top/Article/details/053059407.shtml)
-- 2026-06-29 11:16 - [报告称中国在建核电机组装机容量连续19年保持全球第一](http://www.share.kurohicncr.top/Article/details/50505510930.shtml)
-- 2026-06-29 11:24 - [东艳：一季度外贸数据反映多个“增强”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [又见大“肉签”！301666，中一签最高赚近10万元](http://www.blog.minike.top/Article/details/595136581.shtml)
-- 2026-06-29 11:45 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](http://www.blog.minike.top/Article/details/91635513519.shtml)
-- 2026-06-29 11:31 - [中越签署一系列合作文件](http://www.share.kurohicncr.top/Article/details/8522335484.shtml)
-- 2026-06-29 11:43 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](http://www.share.minike.top/Article/details/3803012992.shtml)
-- 2026-06-29 11:27 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](http://www.blog.kurohicncr.top/Article/details/436567880.shtml)
-- 2026-06-29 11:34 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](http://www.blog.minike.top/Article/details/673259718183.shtml)
-- 2026-06-29 11:40 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](http://www.blog.minike.top/Article/details/8608455398.shtml)
+- 2026-06-29 11:27 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:43 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:22 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:37 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:38 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:41 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:45 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:21 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:43 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:26 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)

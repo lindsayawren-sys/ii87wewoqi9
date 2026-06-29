@@ -1,60 +1,57 @@
-# 台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”
+# 比特币今年走势艰难，交易员押注行情还将进一步恶化
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网海口4月16日电 (记者 符宇群)“这样的展会不只是逛展，更像是在看未来的消费趋势。”来自台湾嘉义大学的庄煜丞专程从台湾赶来参观第六届中国国际消费品博览会(简称“消博会”)，直言很多品牌不仅展示产品本身，更让消费者在体验中产生情感共鸣，这正是当下消费市场最动人的地方。第六届消博会正在海南举办，吸引60多个国家和地区的超过3400个品牌参展。带着好奇，来自台北、高雄、台中、
+周四，比特币期货价格一路下探至 58995 美元，创下 2024 年 10 月以来的最低价位，较去年历史高点累计回撤幅度约 52%。今年以来，比特币始终在 60000 美元关口反复拉锯：今年 2 月该价位曾获得支撑，6 月前两周再度试探这一关口，短暂反弹至 67000 美元上方后便再度走弱。 期权交易市场认为，本次价格跌破关键支撑仅仅只是下跌行情的开端。 芝加哥期权交易所实时数
 
 ## 正文
 
-中新网海口4月16日电 (记者 符宇群)“这样的展会不只是逛展，更像是在看未来的消费趋势。
+周四，比特币期货价格一路下探至 58995 美元，创下 2024 年 10 月以来的最低价位，较去年历史高点累计回撤幅度约 52%。
 
-”来自台湾嘉义大学的庄煜丞专程从台湾赶来参观第六届中国国际消费品博览会(简称“消博会”)，直言很多品牌不仅展示产品本身，更让消费者在体验中产生情感共鸣，这正是当下消费市场最动人的地方。
+今年以来，比特币始终在 60000 美元关口反复拉锯：今年 2 月该价位曾获得支撑，6 月前两周再度试探这一关口，短暂反弹至 67000 美元上方后便再度走弱。
 
-第六届消博会正在海南举办，吸引60多个国家和地区的超过3400个品牌参展。
+期权交易市场认为，本次价格跌破关键支撑仅仅只是下跌行情的开端。
 
-带着好奇，来自台北、高雄、台中、宜兰及新北等地的台青踏上海南岛，开启消博会“初体验”。
+芝加哥期权交易所实时数据显示，周四贝莱德 iShares 比特币信托 ETF（IBIT）期权成交量接近 110 万张，几乎是过去 30 日日均成交量的两倍，其中看跌期权成交量远超看涨期权。
 
-在科技消费展区，AI眼镜、智能穿戴设备、AI机器人等前沿产品集中亮相，让台青直观感受到未来生活的模样。
+交易平台 ThinkOrSwim 统计数据显示，交易者买入 27.5 万张看跌期权，看涨期权买入量不足 12.9 万张。
 
-“既能看到全球各国的品牌和创新技术，还能亲自体验、直接购买，互动性特别强。
+行情数据机构 SpotGamma 统计，IBIT 期权总权利金成交额达 1.87 亿美元，其中看跌期权权利金规模 1.44 亿美元。
 
-”来自台湾东吴大学的杨子仪用“世界百货公司”来形容逛展感受，“智能穿戴设备能实时监测健康数据，AI展区的产品既有个性化又有陪伴感，科技正在悄悄融入日常消费的每一个场景。
+在成交量最高的 20 份期权合约中，有 19 份均为看跌合约。
 
-” “现在的消费，早已从‘买产品’走向‘买体验、买生活方式’。
+市场交易最活跃的是本周五到期、行权价 32.5 美元的看跌期权，比特币需要再下跌 4.5%，这份期权才能实现行权收益。
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [厦门钨业：子公司金龙稀土进入创新层](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:17 - [镜观·回响丨在交流中深化中越青年情谊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:31 - [中金：维持波司登跑赢行业评级 目标价5.65港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:24 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:19 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:45 - [伊朗称在与美国会谈期间讨论了解冻资产问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:45 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:18 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:44 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:32 - [美国将封锁范围扩大至受制裁船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:34 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:41 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:36 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:32 - [黎巴嫩总统同美国国务卿通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:26 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:25 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:42 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:45 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:32 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:26 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:31 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:18 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:44 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:21 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:37 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](http://www.blog.kurohicncr.top/Article/details/01250644.shtml)
-- 2026-06-29 11:33 - [国家统计局：一季度全国居民人均可支配收入12782元](http://www.share.minike.top/Article/details/4711373280.shtml)
-- 2026-06-29 11:29 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](http://www.blog.kurohicncr.top/Article/details/39649862034.shtml)
-- 2026-06-29 11:17 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](http://www.blog.kurohicncr.top/Article/details/709639864135.shtml)
-- 2026-06-29 11:37 - [陆军某旅着力培养过硬兵棋骨干队伍](http://www.share.kurohicncr.top/Article/details/939968489743.shtml)
-- 2026-06-29 11:17 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](http://www.blog.minike.top/Article/details/44150466947.shtml)
-- 2026-06-29 11:32 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](http://www.blog.kurohicncr.top/Article/details/26913873.shtml)
-- 2026-06-29 11:40 - [上美股份将于6月23日派发末期股息每股0.75元](http://www.share.kurohicncr.top/Article/details/205597.shtml)
-- 2026-06-29 11:43 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](http://www.blog.kurohicncr.top/Article/details/23716.shtml)
-- 2026-06-29 11:21 - [中国驻日大使馆接连遭到恐怖威胁](http://www.share.minike.top/Article/details/587175446.shtml)
-- 2026-06-29 11:29 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](http://www.blog.minike.top/Article/details/62202366227.shtml)
-- 2026-06-29 11:16 - [海南这个园区有点东西：学生一校入学 可共享多校课程](http://www.share.minike.top/Article/details/476494273400.shtml)
-- 2026-06-29 11:28 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](http://www.share.minike.top/Article/details/238666.shtml)
-- 2026-06-29 11:19 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](http://www.share.minike.top/Article/details/9030792611.shtml)
-- 2026-06-29 11:45 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](http://www.blog.kurohicncr.top/Article/details/4949933899.shtml)
+- 2026-06-29 11:34 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:28 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:18 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:40 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:20 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:25 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:38 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:25 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:37 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:35 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:42 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:21 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:21 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:45 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:24 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)

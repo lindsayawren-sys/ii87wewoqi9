@@ -1,51 +1,56 @@
-# 云南印发实施意见全面推进共有精神家园建设
+# 北大红楼新展开幕 百件文物述荣光
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-本报讯 近日，中共云南省委统一战线工作领导小组印发《关于全面推进中华民族共有精神家园建设的实施意见》(以下简称《实施意见》)。 《实施意见》以习近平新时代中国特色社会主义思想为指导，深入学习贯彻习近平文化思想、习近平总书记关于加强和改进民族工作的重要思想以及考察云南重要讲话精神，立足云南实际，对推进中华民族共有精神家园建设作出系统安排部署。 《实施意见》聚焦习近平总书记关于“不
+中新网北京6月25日电 (记者 陈杭 刘超)25日，2026年“觉醒年代”研学行启动仪式暨“荣光之路——中国共产党的创建文物史料展”开幕式在北大红楼举行。青年学子接续传承红色血脉，京沪浙三地革命文物跨越千里相聚，共同赓续弘扬伟大建党精神。 当天，“荣光之路——中国共产党的创建文物史料展”正式开幕。适逢中国共产党成立105周年、中国共产党早期北京革命活动纪念馆开放五周年，来自北京
 
 ## 正文
 
-本报讯 近日，中共云南省委统一战线工作领导小组印发《关于全面推进中华民族共有精神家园建设的实施意见》(以下简称《实施意见》)。
+中新网北京6月25日电 (记者 陈杭 刘超)25日，2026年“觉醒年代”研学行启动仪式暨“荣光之路——中国共产党的创建文物史料展”开幕式在北大红楼举行。
 
-《实施意见》以习近平新时代中国特色社会主义思想为指导，深入学习贯彻习近平文化思想、习近平总书记关于加强和改进民族工作的重要思想以及考察云南重要讲话精神，立足云南实际，对推进中华民族共有精神家园建设作出系统安排部署。
+青年学子接续传承红色血脉，京沪浙三地革命文物跨越千里相聚，共同赓续弘扬伟大建党精神。
 
-《实施意见》聚焦习近平总书记关于“不断深化民族团结进步示范区建设”的指示要求，明确提出“着力在构筑中华民族共有精神家园、推进中华民族共同体建设上作出云南示范”，从巩固各民族团结奋斗的共同思想政治基础、大力传承弘扬中华文化、加大研究阐释和宣传引导、坚持党的全面领导4个方面制定15项具体任务，并就学习宣传民族团结进步促进法提出工作措施。
+当天，“荣光之路——中国共产党的创建文物史料展”正式开幕。
 
-《实施意见》要求，充分发挥民族工作委员制、民族工作协调机制和各级党委统一战线工作领导小组的优势和作用，将推动中华民族共有精神家园建设列入地方党委重要议事日程，定期研究部署，确保各项任务落地见效，为铸牢中华民族共同体意识奠定坚实的思想和文化基础。
+适逢中国共产党成立105周年、中国共产党早期北京革命活动纪念馆开放五周年，来自北京、上海、浙江嘉兴三地的革命文物跨越千里相聚于此，用105件/套珍贵文物史料串联起“北京孕育、上海制造、南湖启航”的建党完整历程。
+
+本次展览由中国共产党早期北京革命活动纪念馆、北京新文化运动纪念馆、中共一大纪念馆、南湖革命纪念馆联合主办，是四家与党的创建密切相关的核心红色场馆首次跨区域协同办展。
+
+同时，也是中国共产党早期北京革命活动纪念馆开馆五年来文物征集研究成果的首次集中呈现。
+
+开幕式上，四馆共同签订《中国共产党创建史的研究和宣传教育合作协议》，未来将在文物保护、学术研究、社教活动等方面深化联动，让分散在各地的红色资源形成传播合力。
+
+本次展览由“‘德先生’和‘赛先生’”“五四呐喊”“星火初燃”“开天辟地”组成，全方位展现中国共产党开启红色序章、成就建党伟业、确立初心使命的光辉历程。
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:25 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:45 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:41 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:24 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:18 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:31 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:30 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:45 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:30 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:19 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:41 - [海南这个园区有点东西：学生一校入学 可共享多校课程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:16 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:30 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:47 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:43 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:31 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:29 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:25 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:37 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:45 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.blog.kurohicncr.top/Article/details/79125381.shtml)
-- 2026-06-29 11:46 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.blog.minike.top/Article/details/471313907305.shtml)
-- 2026-06-29 11:45 - [受伊朗战争持续影响，欧洲股市料将低开](http://www.blog.minike.top/Article/details/7446359.shtml)
-- 2026-06-29 11:17 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](http://www.share.kurohicncr.top/Article/details/34517232824.shtml)
-- 2026-06-29 11:21 - [连连数字于4月15日斥资99.71万港元回购16.25万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [中东能源危机推动美国原油出口大增，接近历史最高水平](http://www.blog.minike.top/Article/details/1485144.shtml)
-- 2026-06-29 11:45 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.share.kurohicncr.top/Article/details/631570615643.shtml)
-- 2026-06-29 11:39 - [新晋退休人士最后悔的事：没多存点钱](http://www.blog.kurohicncr.top/Article/details/646039254942.shtml)
-- 2026-06-29 11:25 - [IEA警示历史性石油冲击](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](http://www.share.minike.top/Article/details/12342096323.shtml)
-- 2026-06-29 11:37 - [A股盘前速递：黄金涨回4800美元](http://www.share.kurohicncr.top/Article/details/33338791873.shtml)
-- 2026-06-29 11:19 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.blog.kurohicncr.top/Article/details/0556741065.shtml)
-- 2026-06-29 11:26 - [澳大利亚一炼油厂发生大火](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](http://www.blog.minike.top/Article/details/814828187.shtml)
+- 2026-06-29 11:21 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:30 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:46 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:38 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:30 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:42 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:38 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:39 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:40 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:44 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:29 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:27 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:30 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:32 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)

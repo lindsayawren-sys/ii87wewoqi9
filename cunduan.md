@@ -1,57 +1,56 @@
-# 可可价格暴跌，全球最大巧克力制造商发布盈利预警
+# 横琴人寿启动2026年7·8全国保险公众宣传日系列活动
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-瑞士巧克力制造商百乐嘉利宝周四大幅下调了其营业利润预期，理由是可可价格下跌、行业产能过剩以及与伊朗战争相关的潜在供应中断。 这家全球最大的巧克力制造商表示，目前预计其2025至2026财年的息税前利润将出现“15%”左右的百分比下降。 这一展望较仅三个月前大幅下调，当时这家总部位于苏黎世的公司表示正准备恢复增长。 1月底被任命为百乐嘉利宝首席执行官的海因·舒马赫周四表示，该公司
+专题：2026年7.8全国保险公众宣传日——中国保险行业协会×新浪财经 第14届“7·8全国保险公众宣传日”如约而至。在国家金融监督管理总局指导、中国保险行业协会统筹部署下，横琴人寿正式启动2026年7·8全国保险公众宣传日系列活动，本次活动以奋进“十五五” 保险让前行更有底气为主题，通过线上线下联动的方式，开展形式丰富的主题宣传与惠民服务行动，全力传递保险为民的金融温度。 自
 
 ## 正文
 
-瑞士巧克力制造商百乐嘉利宝周四大幅下调了其营业利润预期，理由是可可价格下跌、行业产能过剩以及与伊朗战争相关的潜在供应中断。
+专题：2026年7.8全国保险公众宣传日——中国保险行业协会×新浪财经 第14届“7·8全国保险公众宣传日”如约而至。
 
-这家全球最大的巧克力制造商表示，目前预计其2025至2026财年的息税前利润将出现“15%”左右的百分比下降。
+在国家金融监督管理总局指导、中国保险行业协会统筹部署下，横琴人寿正式启动2026年7·8全国保险公众宣传日系列活动，本次活动以奋进“十五五” 保险让前行更有底气为主题，通过线上线下联动的方式，开展形式丰富的主题宣传与惠民服务行动，全力传递保险为民的金融温度。
 
-这一展望较仅三个月前大幅下调，当时这家总部位于苏黎世的公司表示正准备恢复增长。
+自6月起至年末，横琴人寿将聚焦五大核心宣传方向，围绕风险减量与抗灾救援、科技保险赋能科创、养老保障提质增效、农业保险护航乡村振兴、普惠保险服务新市民群体开展全方位宣传，展现保险行业助力国家战略落地、赋能社会治理、守护民生福祉的重要价值。
 
-1月底被任命为百乐嘉利宝首席执行官的海因·舒马赫周四表示，该公司拥有“无与伦比的市场地位”和根本性的增长机会，同时也警告称行业正经历一个“动荡时期”的 disruption（颠覆）。
+线下多维惠民举措，践行保险为民初心 横琴人寿将结合七一建党重要节点，联动各地分支机构开展“不忘初心·保险同行”主题快闪活动。
 
-舒马赫在一份声明中表示：“在本财年的上半年，可可豆价格下跌，这对未来巧克力市场的势头来说是令人鼓舞的，并支撑了强劲的自由现金流生成。
+活动将走进红色教育基地、城市地标、社区广场等场景，通过红歌歌咏、主题朗诵、情景表演等群众喜闻乐见的文艺形式，广泛动员公司员工、党员及社会群众参与其中传递保险服务民生的使命担当。
 
-” 他补充道：“然而，市场下跌的独特速度，加上竞争激烈的产能过剩市场、销量下降和供应中断，影响了我们的息税前利润表现，并调整了我们今年的盈利前景，因为我们优先考虑恢复销量并引领市场重回增长。
+公司将持续深化“保险五进入”惠民行动，深入校园、乡村、社区、机关、企业开展下沉式便民服务。
 
-” 百乐嘉利宝股价周四一度下跌17%。
+通过升级保险温暖驿站、便民服务点，完善适老化、无障碍配套设施，全面提升线下服务质效。
 
-伦敦时间下午2：30（美国东部时间上午9：30）后不久，该股最新交易价格下跌约15.8%。
+同时常态化开展金融消保、反诈防骗知识宣讲及金融风险提示，结合盛夏汛期灾害多发特点，联动属地相关单位开展防洪防汛科普、安全风险排查、应急演练等工作，扎实落地风险减量基层服务。
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:24 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:35 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:41 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:16 - [市场监管总局：将深入开展CCC认证守底线专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:32 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:34 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:45 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:29 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:22 - [中东局势变化对我国外贸有何影响？国家统计局回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:34 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:25 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:33 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:25 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:28 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:37 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:31 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:47 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:26 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:21 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.share.minike.top/Article/details/1550797.shtml)
-- 2026-06-29 11:25 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.blog.minike.top/Article/details/12759.shtml)
-- 2026-06-29 11:34 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](http://www.share.kurohicncr.top/Article/details/475868482497.shtml)
-- 2026-06-29 11:21 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.share.minike.top/Article/details/9440547.shtml)
-- 2026-06-29 11:41 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](http://www.share.minike.top/Article/details/988791255.shtml)
-- 2026-06-29 11:20 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](http://www.share.minike.top/Article/details/29671.shtml)
-- 2026-06-29 11:26 - [韩国第一季度接待外国游客476万人次，创历史新高](http://www.blog.minike.top/Article/details/1643872591.shtml)
-- 2026-06-29 11:37 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](http://www.share.kurohicncr.top/Article/details/596559.shtml)
-- 2026-06-29 11:36 - [采购商谈消博会：这里是一座“全球好物中转站”](http://www.share.kurohicncr.top/Article/details/3578595.shtml)
-- 2026-06-29 11:35 - [渤海银行：首席信息官谢凯任职资格获批](http://www.blog.minike.top/Article/details/63263796433.shtml)
-- 2026-06-29 11:17 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](http://www.share.minike.top/Article/details/4476522195.shtml)
-- 2026-06-29 11:28 - [国际能源署署长：欧洲仅剩够用6周航空燃油](http://www.share.kurohicncr.top/Article/details/99377697.shtml)
-- 2026-06-29 11:31 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](http://www.blog.kurohicncr.top/Article/details/34141436.shtml)
-- 2026-06-29 11:24 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [酒价内参4月17日价格发布，青花郎下跌2元](http://www.blog.minike.top/Article/details/41367983359.shtml)
+- 2026-06-29 11:27 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:34 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:19 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:34 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:29 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:47 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:43 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:21 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:20 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:31 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:22 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:43 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:32 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:24 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)

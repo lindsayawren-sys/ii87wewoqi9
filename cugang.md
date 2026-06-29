@@ -1,57 +1,61 @@
-# 北京“两区”建设加速推进 高水平开放释放发展新动能
+# 《给阿嬷的情书》文化顾问、演员线上交流：影片在马来西亚热度超预期
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网北京4月16日电 (记者 吕少威)记者今天从北京市商务局获悉，今年以来，北京市高标准推进国家服务业扩大开放综合示范区和中国(北京)自由贸易试验区(简称“两区”)建设，在制度创新、开放平台优势释放及招商引资等多领域取得积极进展，为首都高质量发展注入强劲动力。制度创新持续显效。北京发布数据跨境流动便利化综合配套改革3.0版方案，数据跨境便利化改革从“合规”“便利”迈入“全面应
+中新网吉隆坡6月28日电 (刘育英 张心怡)6月27日，马来西亚中华大会堂总会(华总)及旗下马来西亚华人博物馆，在华总大厦举办《给阿嬷的情书》电影主题分享会，中国驻马来西亚大使欧阳玉靖出席活动。影片文化顾问与演员线上分享，坦言当地观众的热烈反响超出预期。 《给阿嬷的情书》近期登陆马来西亚后掀起“阿嬷情书热”，上映8天票房突破820万林吉特(约1360万元人民币)，市场反响亮眼。
 
 ## 正文
 
-中新网北京4月16日电 (记者 吕少威)记者今天从北京市商务局获悉，今年以来，北京市高标准推进国家服务业扩大开放综合示范区和中国(北京)自由贸易试验区(简称“两区”)建设，在制度创新、开放平台优势释放及招商引资等多领域取得积极进展，为首都高质量发展注入强劲动力。
+中新网吉隆坡6月28日电 (刘育英 张心怡)6月27日，马来西亚中华大会堂总会(华总)及旗下马来西亚华人博物馆，在华总大厦举办《给阿嬷的情书》电影主题分享会，中国驻马来西亚大使欧阳玉靖出席活动。
 
-制度创新持续显效。
+影片文化顾问与演员线上分享，坦言当地观众的热烈反响超出预期。
 
-北京发布数据跨境流动便利化综合配套改革3.0版方案，数据跨境便利化改革从“合规”“便利”迈入“全面应用”的新阶段。
+《给阿嬷的情书》近期登陆马来西亚后掀起“阿嬷情书热”，上映8天票房突破820万林吉特(约1360万元人民币)，市场反响亮眼。
 
-落地天然牛黄进口试点政策，有效拓宽获取牛黄渠道，推动解决困扰多年的优质中成药原料紧缺难题；接续落地境外投资者利润再投资税收抵免政策，助力企业有效节省资金成本；发布2026年首批生物医药研发用物品进口“白名单”，持续释放惠企效能；增值电信、生物技术等领域扩大开放提速加力，从首批、首家的“零星试水”，到目前参与企业已达80余家。
+华总总会长林家全表示，这部以侨批为背景的影片，与马来西亚颇有渊源。
 
-开放平台优势释放。
+据导演兼编剧蓝鸿春透露，三年前筹备影片期间，剧组专程前往槟城大山脚开展实地采访与田野调查，从中获取大量创作灵感。
 
-北京自贸试验区深化联动，联合津冀两地自贸试验区共同发布全产业链协同发展机会清单，为企业搭建精准对接平台。
+另外，片中主角谢南枝居住的老厝，原型正是马来西亚华社领袖陈国平在中国的祖居。
 
-综合保税区提质提速，以天竺综保区为枢纽，罕见病药品保障网络有效拓展至津冀；大兴机场综保区进口药品通关抽样响应再提速；中关村综保区二期项目主体结构全面封顶；北京亦庄综保租赁有限公司入驻北京亦庄综保区，推动“保税+租赁”产业生态加速成型。
+本次分享会邀请影片潮汕文化顾问、华南师范大学教师陈椰，演员钟少贤、陈钦勤等人线上参与。
 
-特色园区焕发新彩，北京丽泽金融商务区入驻企业总量突破1600家；怀柔科学城4个大科学装置向全球开放；中关村生命科学园人类遗传资源服务点正式运行。
+几人坦言，完全没有料到影片在马来西亚反响如此热烈。
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:34 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:23 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:34 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:38 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:23 - [云南印发实施意见全面推进共有精神家园建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:30 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:25 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:42 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:44 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:29 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:26 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:35 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:39 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:33 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:23 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:43 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:21 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:32 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:25 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:46 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:21 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:18 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:43 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:18 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:18 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](http://www.blog.kurohicncr.top/Article/details/7801888871.shtml)
-- 2026-06-29 11:20 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](http://www.blog.kurohicncr.top/Article/details/47902355014.shtml)
-- 2026-06-29 11:23 - [中东局势变化对我国外贸有何影响？国家统计局回应](http://www.share.minike.top/Article/details/444811.shtml)
-- 2026-06-29 11:31 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](http://www.share.kurohicncr.top/Article/details/59055802218.shtml)
-- 2026-06-29 11:16 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](http://www.blog.minike.top/Article/details/2120785.shtml)
-- 2026-06-29 11:38 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](http://www.blog.minike.top/Article/details/0679735.shtml)
-- 2026-06-29 11:24 - [长光辰芯首挂上市 早盘高开81.80%](http://www.share.minike.top/Article/details/1138372.shtml)
-- 2026-06-29 11:45 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](http://www.blog.kurohicncr.top/Article/details/96633195.shtml)
-- 2026-06-29 11:33 - [中国向伊朗提供紧急人道主义援助](http://www.share.minike.top/Article/details/293503840.shtml)
-- 2026-06-29 11:35 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [浙江启用防汛防台机器狗“AI防汛勇士”](http://www.blog.minike.top/Article/details/982874183.shtml)
-- 2026-06-29 11:38 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.blog.minike.top/Article/details/85269049.shtml)
-- 2026-06-29 11:27 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.blog.minike.top/Article/details/420637.shtml)
+- 2026-06-29 11:33 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:40 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:18 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:34 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:25 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:26 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:31 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:41 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:43 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:18 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:44 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:24 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:29 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:44 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:34 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)

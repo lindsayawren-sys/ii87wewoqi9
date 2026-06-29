@@ -1,54 +1,56 @@
-# 特朗普称将对购买伊朗石油的国家实施制裁，外交部回应
+# 牧原股份午前涨逾6% 拟斥资3亿至5亿港元回购H股
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-人民财讯4月16日电，4月16日，外交部发言人郭嘉昆主持例行记者会。 路透社记者提问，美国总统特朗普昨天表示，他相信中国将不会停止购买伊朗的石油。他还称，将对购买伊朗石油的国家实施制裁。请问中方对此有何评论？ 郭嘉昆表示，中方一贯反对没有国际法依据、未经联合国安理会授权的非法单边制裁。责任编辑：宋雅芳
+牧原股份（02714）早盘一度涨超6%，截至发稿，股价上涨5.87%，现报29.60港元，成交额1.57亿港元。 牧原股份昨晚公告，公司部分董事及高级管理人员计划自2026年6月26日起6个月内拟通过集中竞价、大宗交易等方式增持公司股份，增持金额合计不低于4亿元、不超过5亿元。本次参与增持计划包括董事长曹治年，总裁兼首席财务官高曈，董事秦牧原，董事、副总裁杨瑞华，董事苏党林等1
 
 ## 正文
 
-人民财讯4月16日电，4月16日，外交部发言人郭嘉昆主持例行记者会。
+牧原股份（02714）早盘一度涨超6%，截至发稿，股价上涨5.87%，现报29.60港元，成交额1.57亿港元。
 
-路透社记者提问，美国总统特朗普昨天表示，他相信中国将不会停止购买伊朗的石油。
+牧原股份昨晚公告，公司部分董事及高级管理人员计划自2026年6月26日起6个月内拟通过集中竞价、大宗交易等方式增持公司股份，增持金额合计不低于4亿元、不超过5亿元。
 
-他还称，将对购买伊朗石油的国家实施制裁。
+本次参与增持计划包括董事长曹治年，总裁兼首席财务官高曈，董事秦牧原，董事、副总裁杨瑞华，董事苏党林等12位高管及核心管理人员，增持计划不设定价格区间。
 
-请问中方对此有何评论？
+与此同时，公司董事会审议通过H股回购方案，拟回购总金额不低于3亿港元且不超过5亿港元的H股股份，资金来源为自有资金或自筹资金。
 
-郭嘉昆表示，中方一贯反对没有国际法依据、未经联合国安理会授权的非法单边制裁。
+根据H股回购方案，回购的H股股份将作为库存股持有。
 
-责任编辑：宋雅芳
+牧原股份表示，本次回购综合考虑了公司业务发展前景、经营情况、财务状况、未来盈利能力以及近期H股市场表现，旨在进一步维护股东权益，增强投资者信心。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:33 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:27 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:18 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:35 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:37 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:17 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:27 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:42 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:30 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:18 - [海南这个园区有点东西：学生一校入学 可共享多校课程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:19 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:47 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:22 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:46 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:38 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:39 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:34 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:42 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:30 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:34 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:47 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](http://www.share.minike.top/Article/details/3811516852.shtml)
-- 2026-06-29 11:23 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.share.kurohicncr.top/Article/details/9372666609.shtml)
-- 2026-06-29 11:18 - [受伊朗战争持续影响，欧洲股市料将低开](http://www.blog.minike.top/Article/details/31909921666.shtml)
-- 2026-06-29 11:26 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](http://www.share.minike.top/Article/details/7693090.shtml)
-- 2026-06-29 11:21 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.share.kurohicncr.top/Article/details/552725638.shtml)
-- 2026-06-29 11:32 - [中东能源危机推动美国原油出口大增，接近历史最高水平](http://www.share.minike.top/Article/details/5620663199.shtml)
-- 2026-06-29 11:19 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.blog.kurohicncr.top/Article/details/3396218261.shtml)
-- 2026-06-29 11:16 - [新晋退休人士最后悔的事：没多存点钱](http://www.blog.minike.top/Article/details/1506367.shtml)
-- 2026-06-29 11:36 - [IEA警示历史性石油冲击](http://www.blog.kurohicncr.top/Article/details/3826230691.shtml)
-- 2026-06-29 11:25 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](http://www.share.kurohicncr.top/Article/details/33448.shtml)
-- 2026-06-29 11:34 - [A股盘前速递：黄金涨回4800美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.blog.kurohicncr.top/Article/details/2135434.shtml)
-- 2026-06-29 11:31 - [澳大利亚一炼油厂发生大火](http://www.share.kurohicncr.top/Article/details/391737677557.shtml)
-- 2026-06-29 11:35 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](http://www.blog.minike.top/Article/details/759218.shtml)
-- 2026-06-29 11:18 - [话剧《四世同堂》首次登陆澳大利亚](http://www.share.minike.top/Article/details/67413834.shtml)
+- 2026-06-29 11:43 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:27 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:26 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:27 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:37 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:31 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:30 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:20 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:33 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:39 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:41 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:21 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:23 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:39 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)

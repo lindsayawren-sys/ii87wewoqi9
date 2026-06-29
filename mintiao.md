@@ -1,44 +1,61 @@
-# 鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股
+# 摩根大通任命道格・佩特诺与特洛伊・罗尔博出任联席总裁
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-鹰瞳科技-B（02251）发布公告，于2026年4月15日斥资41.61万港元回购3.5万股。责任编辑：卢昱君
+核心要点 摩根大通于周四宣布提拔两位核心高管出任新设联席总裁，这是首席执行官杰米・戴蒙推进多年继任者计划的最新一步；与此同时，戴蒙最受关注的潜在继任人选之一正式宣布卸任退休。 根据监管申报文件，自 2024 年初起联合执掌该行商业银行与投资银行部门的道格・佩特诺、特洛伊・罗尔博即刻就任摩根大通联席总裁。 本次人事调整具体安排：佩特诺将单独出任商业银行与投资银行部门首席执行官；罗
 
 ## 正文
 
-鹰瞳科技-B（02251）发布公告，于2026年4月15日斥资41.61万港元回购3.5万股。
+核心要点 摩根大通于周四宣布提拔两位核心高管出任新设联席总裁，这是首席执行官杰米・戴蒙推进多年继任者计划的最新一步；与此同时，戴蒙最受关注的潜在继任人选之一正式宣布卸任退休。
 
-责任编辑：卢昱君
+根据监管申报文件，自 2024 年初起联合执掌该行商业银行与投资银行部门的道格・佩特诺、特洛伊・罗尔博即刻就任摩根大通联席总裁。
+
+本次人事调整具体安排：佩特诺将单独出任商业银行与投资银行部门首席执行官；罗尔博接任消费者及社区银行部门首席执行官，接替玛丽安娜・莱克的职务。
+
+戴蒙在声明中表示：“董事会决定提拔道格与特洛伊担任联席总裁，执掌集团两大核心业务板块，这充分体现了董事会对二人卓越的领导能力、经营业绩、行业人脉、从业阅历，以及坚守职业操守的高度认可。
+
+” 莱克在摩根大通任职长达 25 年，2013 年出任首席财务官后便一直位列戴蒙继任者候选名单，本次她决定从公司退休。
+
+此次人事变动重塑了 70 岁戴蒙麾下的高管梯队。
+
+戴蒙多次公开表示，董事会内部多名高管都具备接任首席执行官的资质。
+
+通过安排佩特诺与罗尔博分别执掌集团两大核心业务板块，并升任联席总裁，摩根大通让两位高管在关键阶段积累更全面的集团管理经验。
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:21 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:39 - [Stellantis与微软合作部署逾百款AI工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:43 - [日本财务大臣：与美国财长密切讨论了外汇问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:34 - [多份联储报告显示美国物价飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:42 - [光大期货：4月16日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:30 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:26 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:41 - [近3万股东出走中际旭创](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:42 - [韩国称其运载原油船只安全驶离红海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:26 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:32 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:45 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:47 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:30 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:19 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:47 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:27 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:18 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:28 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:41 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:43 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:45 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.blog.minike.top/Article/details/590307318441.shtml)
-- 2026-06-29 11:42 - [重要法案通过！流失在法国的中国国宝，何时能回家？](http://www.share.kurohicncr.top/Article/details/42693164230.shtml)
-- 2026-06-29 11:35 - [胜宏科技公布发售价厘定为每股H股209.88港元](http://www.blog.kurohicncr.top/Article/details/3630971.shtml)
-- 2026-06-29 11:34 - [IMF宣布恢复与委内瑞拉中断六年多的关系](http://www.share.minike.top/Article/details/62149.shtml)
-- 2026-06-29 11:19 - [145件作品摘获2025年河南省工业设计大赛奖项](http://www.blog.minike.top/Article/details/0159683.shtml)
-- 2026-06-29 11:38 - [以终身追责制推动政府投资决策回归初心](http://www.share.minike.top/Article/details/5318707277.shtml)
-- 2026-06-29 11:35 - [04月16日尿素1882.50元/吨 60天上涨4.87%](http://www.share.minike.top/Article/details/2467924707.shtml)
-- 2026-06-29 11:35 - [OpenAI推出药物研发AI模型 挑战谷歌](http://www.blog.kurohicncr.top/Article/details/38533152232.shtml)
-- 2026-06-29 11:16 - [300076，业绩突发变脸，将被“*ST”](http://www.blog.kurohicncr.top/Article/details/8516564452.shtml)
-- 2026-06-29 11:19 - [美的集团获小摩增持约159.47万股 每股均价约85.90港元](http://www.share.minike.top/Article/details/688619553.shtml)
-- 2026-06-29 11:38 - [英特尔推出低成本AI芯片，以扩大AI技术的普及](http://www.blog.minike.top/Article/details/76356.shtml)
-- 2026-06-29 11:29 - [返乡夫妻一年卖出近30万双麻鞋](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [首飞成功！中国自主研发“无人飞行卡车”来了](http://www.share.minike.top/Article/details/3196510.shtml)
-- 2026-06-29 11:25 - [中国核能行业协会：预计到2040年我国核电装机规模将达2亿千瓦](http://www.share.minike.top/Article/details/94234.shtml)
-- 2026-06-29 11:36 - [标普500指数闪现罕见的动能信号](http://www.blog.kurohicncr.top/Article/details/38902.shtml)
+- 2026-06-29 11:41 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:21 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:42 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:39 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:37 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:39 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:26 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:23 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:39 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:41 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:44 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:36 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)

@@ -1,50 +1,60 @@
-# 国家统计局：一季度全国居民人均可支配收入12782元
+# 中国海警去年以来缴获各类毒品11.6吨 侦破多起特大海上毒品案
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网4月16日电(记者 吴家驹 谢艺观)4月16日，国家统计局发布一季度中国经济数据。一季度，全国居民人均可支配收入12782元，同比名义增长4.9%，扣除价格因素实际增长4.0%。全国居民人均可支配收入中位数10433元，同比名义增长5.0%。
+中新社北京6月26日电 (记者 阮煜琳)中国海警局26日消息，去年以来，中国海警局侦破多起特大海上毒品案件，缴获各类毒品11.6吨。 其中，联合公安机关破获的“2.24”专案现场缴获甲基苯丙胺4.973吨，有效净化海上治安环境。 近年来，中国海警局全力推动涉海毒品问题综合治理，形成打击防控并重、海域陆地并治的良好禁毒态势。优化重点海域、重点航线、重点方向的力量部署，加强态势感知
 
 ## 正文
 
-中新网4月16日电(记者 吴家驹 谢艺观)4月16日，国家统计局发布一季度中国经济数据。
+中新社北京6月26日电 (记者 阮煜琳)中国海警局26日消息，去年以来，中国海警局侦破多起特大海上毒品案件，缴获各类毒品11.6吨。
 
-一季度，全国居民人均可支配收入12782元，同比名义增长4.9%，扣除价格因素实际增长4.0%。
+其中，联合公安机关破获的“2.24”专案现场缴获甲基苯丙胺4.973吨，有效净化海上治安环境。
 
-全国居民人均可支配收入中位数10433元，同比名义增长5.0%。
+近年来，中国海警局全力推动涉海毒品问题综合治理，形成打击防控并重、海域陆地并治的良好禁毒态势。
+
+优化重点海域、重点航线、重点方向的力量部署，加强态势感知能力建设，全力封堵海上贩毒通道，提升禁毒综合管控质效。
+
+同时，突出以打促防，按照“破大案、摧团伙、堵源头”的打击策略，瞄准幕后组织、团伙主犯、深挖扩线、重拳出击，连续侦破一系列特大走私毒品案；密切与公安、海关、海事、渔业等部门协作配合，推进案件线索、情报信息互通共享，凝聚禁毒工作合力，全力守护海上平安。
+
+今年4月26日，中国海警局南海分局组织直属第三局、第四局舰艇编队，在东沙群岛以南海域成功缉获一起特大海上走私毒品案，查扣涉案渔船1艘、大麻毒品43包，涉案毒品总重量735千克，现场抓获犯罪嫌疑人5名，一举斩断一条跨境毒品走私链条。
+
+中国海警局称，下一步将按照国家禁毒委统一部署，持续强化常态化巡查与精准打击力度，织密筑牢海上禁毒防线。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:35 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:23 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:19 - [海南这个园区有点东西：学生一校入学 可共享多校课程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:28 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:36 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:40 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:19 - [多重利好叠加提振预期 消费板块能否苦尽甘来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:39 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:30 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:41 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:40 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:17 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:17 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:34 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:30 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:28 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:34 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:47 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:33 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:23 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:36 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:25 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:28 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:32 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:29 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:44 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [新晋退休人士最后悔的事：没多存点钱](http://www.share.kurohicncr.top/Article/details/26125.shtml)
-- 2026-06-29 11:22 - [IEA警示历史性石油冲击](http://www.share.minike.top/Article/details/1884922344.shtml)
-- 2026-06-29 11:39 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](http://www.share.kurohicncr.top/Article/details/631831.shtml)
-- 2026-06-29 11:26 - [A股盘前速递：黄金涨回4800美元](http://www.blog.kurohicncr.top/Article/details/84789007764.shtml)
-- 2026-06-29 11:18 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.share.minike.top/Article/details/59201589281.shtml)
-- 2026-06-29 11:38 - [澳大利亚一炼油厂发生大火](http://www.share.minike.top/Article/details/86204402.shtml)
-- 2026-06-29 11:28 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](http://www.share.minike.top/Article/details/0862660260.shtml)
-- 2026-06-29 11:33 - [话剧《四世同堂》首次登陆澳大利亚](http://www.blog.kurohicncr.top/Article/details/47675192326.shtml)
-- 2026-06-29 11:19 - [中国HH-200航空商用无人运输系统首架机首飞成功](http://www.share.kurohicncr.top/Article/details/258980442949.shtml)
-- 2026-06-29 11:24 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.blog.kurohicncr.top/Article/details/83981.shtml)
-- 2026-06-29 11:45 - [一季度增城西站中欧班列开行量同比增长24%](http://www.blog.minike.top/Article/details/9526362520.shtml)
-- 2026-06-29 11:33 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.share.kurohicncr.top/Article/details/21995270.shtml)
-- 2026-06-29 11:26 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.blog.minike.top/Article/details/84771014.shtml)
-- 2026-06-29 11:23 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.share.kurohicncr.top/Article/details/36491692866.shtml)
-- 2026-06-29 11:39 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](http://www.share.minike.top/Article/details/692126854098.shtml)
+- 2026-06-29 11:34 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:38 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:31 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:31 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:47 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:41 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:47 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:22 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:32 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:37 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:28 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:47 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:47 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:25 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:18 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)

@@ -1,52 +1,59 @@
-# 东艳：一季度外贸数据反映多个“增强”
+# 五大行AIC持久战：穿越硬科技周期
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月16日 18:22 来源：中国新闻网 国家统计局4月16日公布的中国一季度经济“成绩单”显示，货物进出口总额118380亿元，同比增长15.0%。中国社会科学院国家全球战略智库全球经济部主任东艳在中新社国是直通车“2026年一季度经济形势分析会”上表示，数据背后不仅是贸易自身的创新发展和外需的增强，也反映了一季度宏观经济动能的增强。既反映中国产业国际竞
+21世纪经济报道记者张欣 林汉垚 冯紫彤 硬科技怎么投？我们对话五家大行旗下AIC，复盘这场贯穿存储芯片周期的耐心资本持久战。 时间拉回到2023年下半年，全球DRAM（内存芯片）价格跌穿成本线，当多数市场化机构面对尚未盈利、负债率高企的长江存储与长鑫科技选择观望时，五大行AIC（记者注：中邮投资因成立较晚彼时还未参与）集体驰援，累计投入数十亿元。 AIC为何逆势入局？ “从一
 
 ## 正文
 
-发布时间：2026年04月16日 18:22 来源：中国新闻网 国家统计局4月16日公布的中国一季度经济“成绩单”显示，货物进出口总额118380亿元，同比增长15.0%。
+21世纪经济报道记者张欣 林汉垚 冯紫彤 硬科技怎么投？
 
-中国社会科学院国家全球战略智库全球经济部主任东艳在中新社国是直通车“2026年一季度经济形势分析会”上表示，数据背后不仅是贸易自身的创新发展和外需的增强，也反映了一季度宏观经济动能的增强。
+我们对话五家大行旗下AIC，复盘这场贯穿存储芯片周期的耐心资本持久战。
 
-既反映中国产业国际竞争力的持续增强，也从消费等领域反映了国内市场吸引力的增强以及要素汇集能力的增强。
+时间拉回到2023年下半年，全球DRAM（内存芯片）价格跌穿成本线，当多数市场化机构面对尚未盈利、负债率高企的长江存储与长鑫科技选择观望时，五大行AIC（记者注：中邮投资因成立较晚彼时还未参与）集体驰援，累计投入数十亿元。
 
-(段修健 曹旭帆 制作 侯诗蕊） 责任编辑：【罗攀】
+AIC为何逆势入局？
+
+“从一般商业逻辑看，可能会被认为是‘逆势’之举。
+
+但从根本上看，这恰恰是AIC立足债转股主责主业、服务实体经济、国家高水平科技自立自强、统筹功能性和商业性等的必然选择和顺势而为。
+
+支持具有良好发展前景但遇到暂时困难的优质企业是AIC的使命。
+
+”工银投资相关人士的复盘，道出了国有大行AIC服务科技创新的底层逻辑。
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:34 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:35 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:44 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:26 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:39 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:30 - [Stellantis与微软合作部署逾百款AI工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:34 - [日本财务大臣：与美国财长密切讨论了外汇问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:19 - [多份联储报告显示美国物价飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:16 - [光大期货：4月16日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:43 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:28 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:32 - [近3万股东出走中际旭创](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:41 - [韩国称其运载原油船只安全驶离红海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:28 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:42 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:18 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:24 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:34 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:38 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:30 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:45 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:24 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:19 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:21 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:38 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:19 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [港股硬科技再走强 同类规模最大港股通信息技术ETF(159131)冲高逾2% 机构看好港股二季度尤其是4-5月反弹机会](http://www.share.minike.top/Article/details/16024.shtml)
-- 2026-06-29 11:22 - [韩国、巴西两国部长商讨能源供应与中东风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [中信建投期货：4月16日工业品早报](http://www.share.minike.top/Article/details/362456096820.shtml)
-- 2026-06-29 11:21 - [华凯易佰1.13亿收购深圳米品盛及香港纽瑞格：压力之下的精品化豪赌](http://www.share.minike.top/Article/details/35477558.shtml)
-- 2026-06-29 11:39 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.blog.minike.top/Article/details/13929.shtml)
-- 2026-06-29 11:27 - [重要法案通过！流失在法国的中国国宝，何时能回家？](http://www.blog.kurohicncr.top/Article/details/2503974495.shtml)
-- 2026-06-29 11:42 - [胜宏科技公布发售价厘定为每股H股209.88港元](http://www.blog.kurohicncr.top/Article/details/551016495.shtml)
-- 2026-06-29 11:36 - [IMF宣布恢复与委内瑞拉中断六年多的关系](http://www.share.minike.top/Article/details/5318899.shtml)
-- 2026-06-29 11:20 - [145件作品摘获2025年河南省工业设计大赛奖项](http://www.blog.kurohicncr.top/Article/details/84271450460.shtml)
-- 2026-06-29 11:44 - [以终身追责制推动政府投资决策回归初心](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [04月16日尿素1882.50元/吨 60天上涨4.87%](http://www.blog.minike.top/Article/details/6927260.shtml)
-- 2026-06-29 11:34 - [OpenAI推出药物研发AI模型 挑战谷歌](http://www.share.minike.top/Article/details/187061.shtml)
-- 2026-06-29 11:31 - [300076，业绩突发变脸，将被“*ST”](http://www.share.minike.top/Article/details/01704035.shtml)
-- 2026-06-29 11:21 - [美的集团获小摩增持约159.47万股 每股均价约85.90港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [英特尔推出低成本AI芯片，以扩大AI技术的普及](http://www.blog.kurohicncr.top/Article/details/595782.shtml)
+- 2026-06-29 11:36 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:25 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:37 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:25 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:40 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:36 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:47 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:19 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:46 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:43 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:41 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:24 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)

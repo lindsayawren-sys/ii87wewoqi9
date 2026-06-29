@@ -1,59 +1,57 @@
-# 长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势
+# 这4种癌症早期筛查真的有用 一文读懂何时查、如何查
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-上海期货价格走势：今日铸造铝合金主力月2606合约高开探底后窄幅走弱；截止当日15：00收盘，铸造铝主力合约报24040元，跌15元，跌幅0.06%，全天成交量7184手减少5407手；持仓量18494手增加420手。 据长江有色金属网数据统计，4月17日长江现货数据显示，铝合金ADC12报价24500-24700元/吨，均价报24600元/吨，持平；铸造铝合金锭（A356.2
+癌症筛查是针对无症状“健康人群”采取的一种防癌措施，也就是在身体没有异常不适的时候，主动做相关检查，目的是发现早期癌症和癌前病变，实现早发现、早诊断、早治疗。早期筛查虽至关重要，但也不能盲目筛查。哪些人群应该筛查？如何进行筛查？ 肺癌筛查 肺癌是发病率和死亡率最高的恶性肿瘤，国内外研究证据表明，针对高危人群的筛查可早期发现肺癌，实现早诊早治，改善预后，降低死亡率。 哪些人群该进
 
 ## 正文
 
-上海期货价格走势：今日铸造铝合金主力月2606合约高开探底后窄幅走弱；截止当日15：00收盘，铸造铝主力合约报24040元，跌15元，跌幅0.06%，全天成交量7184手减少5407手；持仓量18494手增加420手。
+癌症筛查是针对无症状“健康人群”采取的一种防癌措施，也就是在身体没有异常不适的时候，主动做相关检查，目的是发现早期癌症和癌前病变，实现早发现、早诊断、早治疗。
 
-据长江有色金属网数据统计，4月17日长江现货数据显示，铝合金ADC12报价24500-24700元/吨，均价报24600元/吨，持平；铸造铝合金锭（A356.2）报价25500-25900元/吨，均价报25700元/吨，持平；铸造铝合金锭（A380）报价26500-26700元/吨，均价报26600元/吨，持平；铸造铝合金锭（ZL102）报价25400-25600元/吨，均价报25500元/吨，持平；铸造铝合金锭（ZLD104）报价25400-25600元/吨，均价报25500元/吨，持平； ccmn铸造铝合金市场分析： 宏观层面，市场情绪呈现复杂交织态势。
+早期筛查虽至关重要，但也不能盲目筛查。
 
-美伊和谈及以黎短期停火10天协议提振市场风险偏好回升，但美元反弹及国内股指涨跌互现给市场带来不确定性。
+哪些人群应该筛查？
 
-在此背景下，铸造铝期货并未追随沪铝走强，而是维持高位窄幅整理。
+如何进行筛查？
 
-基本面来看，成本端支撑与需求端疲软形成鲜明对比。
+肺癌筛查 肺癌是发病率和死亡率最高的恶性肿瘤，国内外研究证据表明，针对高危人群的筛查可早期发现肺癌，实现早诊早治，改善预后，降低死亡率。
 
-废铝供应紧张、价格坚挺，持续挤压铸造铝企业利润，抑制生产积极性，为价格提供底部支撑。
+哪些人群该进行筛查？
 
-然，传统消费旺季表现不及预期，下游因价格高企而采购谨慎，多维持低库存按需采购，整体供需格局偏弱。
+肺癌的高危人群是指年龄大于50岁，且具有以下任一危险因素的人： 吸烟包年数≥20包年，包括曾经吸烟≥20包年，但戒烟不足15年。
 
-现货市场，今日交投呈现温和态势。
+(注：吸烟包年数=每天吸烟的包数(每包20支)×吸烟年数) 与吸烟人群共同生活或同室工作≥20年。
 
 ## 相关推荐
 
-- 2026-06-29 11:33 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:46 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:24 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:44 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:24 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:17 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:30 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:17 - [云南印发实施意见全面推进共有精神家园建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:41 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:18 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:46 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:33 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:33 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:37 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:27 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:41 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:35 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:22 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:33 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:38 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:34 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:33 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:45 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](http://www.blog.minike.top/Article/details/98078819615.shtml)
-- 2026-06-29 11:40 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](http://www.share.minike.top/Article/details/81084004.shtml)
-- 2026-06-29 11:42 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](http://www.blog.minike.top/Article/details/3530547669.shtml)
-- 2026-06-29 11:38 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](http://www.blog.minike.top/Article/details/942831.shtml)
-- 2026-06-29 11:31 - [中东局势变化对我国外贸有何影响？国家统计局回应](http://www.share.kurohicncr.top/Article/details/3693471638.shtml)
-- 2026-06-29 11:17 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](http://www.blog.kurohicncr.top/Article/details/795685317776.shtml)
-- 2026-06-29 11:29 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](http://www.blog.kurohicncr.top/Article/details/41353785022.shtml)
-- 2026-06-29 11:30 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](http://www.share.kurohicncr.top/Article/details/9169760.shtml)
-- 2026-06-29 11:30 - [长光辰芯首挂上市 早盘高开81.80%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](http://www.blog.minike.top/Article/details/89163615857.shtml)
-- 2026-06-29 11:35 - [中国向伊朗提供紧急人道主义援助](http://www.share.kurohicncr.top/Article/details/124106892353.shtml)
-- 2026-06-29 11:38 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [浙江启用防汛防台机器狗“AI防汛勇士”](http://www.blog.minike.top/Article/details/28535366425.shtml)
-- 2026-06-29 11:34 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](http://www.share.minike.top/Article/details/5371766.shtml)
-- 2026-06-29 11:28 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.blog.kurohicncr.top/Article/details/961551.shtml)
+- 2026-06-29 11:35 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:47 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:35 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:20 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:35 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:36 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:20 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:46 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:19 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:26 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:38 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:45 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:36 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)

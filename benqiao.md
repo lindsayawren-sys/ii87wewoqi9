@@ -1,59 +1,58 @@
-# 国家发改委：将制定2026—2030年扩大内需战略实施方案
+# 《网络销售重点工业产品清单（2026年版）》发布
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网4月17日电 4月17日，国新办举行“开局起步‘十五五’”系列主题新闻发布会，介绍“十五五”时期推动经济社会高质量发展有关情况，并答记者问。 针对“下一步宏观政策将如何发力，确保‘十五五’开好局起好步？”的提问，国家发展改革委副主任王昌林介绍，要全面贯彻落实党中央、国务院决策部署，突出抓好以下五个方面的工作： 一是打好宏观政策“组合拳”，提前储备一批综合性政策措施，根据形
+记者今天了解到，市场监管总局发布《网络销售重点工业产品清单(2026年版)》(以下简称《清单》)，作为《网络销售重点工业产品质量安全监督管理规定》的核心配套文件，《清单》将于12月1日与《管理规定》同步实施，明确网络销售重点工业产品范围，为电子商务经营者提供清晰的合规指引。《清单》优先将量大面广、消费者广泛使用的工业产品纳入管理范围，重点聚焦物理结构、化学材质、电气性能等方面可
 
 ## 正文
 
-中新网4月17日电 4月17日，国新办举行“开局起步‘十五五’”系列主题新闻发布会，介绍“十五五”时期推动经济社会高质量发展有关情况，并答记者问。
+记者今天了解到，市场监管总局发布《网络销售重点工业产品清单(2026年版)》(以下简称《清单》)，作为《网络销售重点工业产品质量安全监督管理规定》的核心配套文件，《清单》将于12月1日与《管理规定》同步实施，明确网络销售重点工业产品范围，为电子商务经营者提供清晰的合规指引。
 
-针对“下一步宏观政策将如何发力，确保‘十五五’开好局起好步？
+《清单》优先将量大面广、消费者广泛使用的工业产品纳入管理范围，重点聚焦物理结构、化学材质、电气性能等方面可能存在质量安全风险的工业产品。
 
-”的提问，国家发展改革委副主任王昌林介绍，要全面贯彻落实党中央、国务院决策部署，突出抓好以下五个方面的工作： 一是打好宏观政策“组合拳”，提前储备一批综合性政策措施，根据形势需要及时出台。
+《清单》共有99种产品，产品分类主要依据《工业产品生产许可证管理目录》《强制性产品认证目录》，结合产品功能属性与适用对象进行系统归类。
 
-二是要着力扩大国内有效需求。
+其中： 实施工业产品生产许可证管理的产品9类20个品种； 实施强制性产品认证管理的产品13类57个品种； 不实施工业产品生产许可、强制性产品认证管理，但涉及人身健康和生命财产安全且实施强制性标准的产品9类22个品种。
 
-制定2026—2030年扩大内需战略实施方案，推动符合条件的重大工程项目尽早开工建设。
+《清单》将实行“有进有出”的动态管理，结合网络销售产品特点、风险及质量安全状况，适时对《清单》进行调整更新，以公告形式发布，确保纳入管理要求的产品与监管形势相适应。
 
-继续推动“两重”建设，更好发挥政府投资的带动放大作用，激发民间投资活力。
+自2026年12月1日起，针对列入《清单》的重点工业产品，电子商务经营者应当严格履行《管理规定》的各项义务，市场监管部门将加大网络销售领域监管执法力度，切实提升网售工业产品质量安全水平，保障人民群众生命财产安全。
 
-稳步实施消费品以旧换新，加快清理消费领域不合理限制性措施。
-
-三是要加强科技创新，加快新兴产业发展，深入实施“人工智能+”行动，打造智能经济新形态；深入贯彻落实全国服务业大会精神，推进服务业扩能提质。
+(总台央视记者 李晶晶)
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [新华时评·首季经济观察丨稳健开局展现中国经济韧性底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:46 - [迪拜启用全球首个综合空中出租车起降场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:25 - [长三角港口从“互连”迈向“深融” “连申快航”年运量突破15.2万标箱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:26 - [凌晨，见证历史！全线大涨！美联储，重磅发布！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:22 - [圣贝拉集团：受托人根据股份奖励计划购买合共9.2万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:42 - [麦迪科技：4月13日召开业绩说明会，投资者参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:37 - [开局之年看中国·开放自贸港：三亚芒果闯世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:30 - [Hims & Hers股价周四上涨：监管突破助推](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:33 - [（经济观察）万商云集广交会 折射中国外贸新气象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:30 - [五一假期首日火车票今日开售 超全抢票攻略来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:18 - [距下次会议仅剩两周，欧洲央行仍未就利率走向给市场明确信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:22 - [实达集团营收缩水超2亿，退市警报拉响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:28 - [一季度“零发行”后银行二永债4月抢闸，会否冲击债市利差？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:19 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:24 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:40 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:28 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:40 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:22 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:33 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:23 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:26 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:27 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:28 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [镜观·回响丨在交流中深化中越青年情谊](http://www.share.minike.top/Article/details/8883438.shtml)
-- 2026-06-29 11:34 - [中金：维持波司登跑赢行业评级 目标价5.65港元](http://www.blog.kurohicncr.top/Article/details/36659.shtml)
-- 2026-06-29 11:32 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [伊朗称在与美国会谈期间讨论了解冻资产问题](http://www.share.kurohicncr.top/Article/details/03391529224.shtml)
-- 2026-06-29 11:22 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](http://www.share.kurohicncr.top/Article/details/828774773650.shtml)
-- 2026-06-29 11:18 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](http://www.blog.kurohicncr.top/Article/details/945621077258.shtml)
-- 2026-06-29 11:35 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:16 - [美国将封锁范围扩大至受制裁船只](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](http://www.share.kurohicncr.top/Article/details/16693.shtml)
-- 2026-06-29 11:30 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](http://www.share.kurohicncr.top/Article/details/81082595107.shtml)
-- 2026-06-29 11:41 - [黎巴嫩总统同美国国务卿通话](http://www.blog.minike.top/Article/details/6018061.shtml)
-- 2026-06-29 11:21 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](http://www.blog.minike.top/Article/details/12097.shtml)
-- 2026-06-29 11:45 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:30 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:32 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:32 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:45 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:25 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:36 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:40 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:44 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:33 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:33 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:29 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:20 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)

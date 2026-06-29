@@ -1,56 +1,56 @@
-# 昆明长水国际机场东二跑道投用 缓解高峰运行压力
+# 韩媒：韩国股市或已陷入“波动陷阱”
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网昆明4月16日电 (马初霞 马聪)16日6时40分，随着东方航空新加坡—昆明MU9648航班平稳降落在昆明长水国际机场(以下简称昆明机场)东二跑道，标志着该机场东二跑道及附属滑行道、东货运机坪正式投入运行。至此，昆明机场飞行区运行体系完成全面升级，枢纽保障能力和运行效率迈上新台阶。 昆明机场是中国面向南亚、东南亚的重要枢纽机场。此次投用的东二跑道为新建4F级跑道，长400
+中新网首尔6月26日电 (记者 金旭)近来，韩国股市连续出现单日4%至5%以上的大幅涨跌。有观点指出，韩国股市或已陷入“波动陷阱”。 当地时间26日，韩国综合股价指数(KOSPI)盘中一度大跌超8%，触发市场熔断机制。这是韩国股市今年第5次触发熔断机制。 韩国证券交易所当天发布公告说，触发熔断机制后，市场暂停交易20分钟。受此影响，韩国有价证券市场所有股票交易暂时中止，相关期货
 
 ## 正文
 
-中新网昆明4月16日电 (马初霞 马聪)16日6时40分，随着东方航空新加坡—昆明MU9648航班平稳降落在昆明长水国际机场(以下简称昆明机场)东二跑道，标志着该机场东二跑道及附属滑行道、东货运机坪正式投入运行。
+中新网首尔6月26日电 (记者 金旭)近来，韩国股市连续出现单日4%至5%以上的大幅涨跌。
 
-至此，昆明机场飞行区运行体系完成全面升级，枢纽保障能力和运行效率迈上新台阶。
+有观点指出，韩国股市或已陷入“波动陷阱”。
 
-昆明机场是中国面向南亚、东南亚的重要枢纽机场。
+当地时间26日，韩国综合股价指数(KOSPI)盘中一度大跌超8%，触发市场熔断机制。
 
-此次投用的东二跑道为新建4F级跑道，长4000米、宽45米，同步建设平行滑行道、联络道及快速脱离滑行道，并配套助航灯光、导航设备、消防救援通道等系统工程。
+这是韩国股市今年第5次触发熔断机制。
 
-东货运机坪新建远机位16个，机位类型覆盖C、D、E、F多种机型，并具备灵活转换能力，可有效提升货运保障效率和机位周转能力，为航空物流发展提供有力支撑。
+韩国证券交易所当天发布公告说，触发熔断机制后，市场暂停交易20分钟。
 
-在运行模式方面，东二跑道启用后，将根据空管批复实施独立运行或相关平行运行模式，与既有跑道形成协同分工、错峰运行的格局，进一步提升航班起降效率，有效缓解高峰时段运行压力。
+受此影响，韩国有价证券市场所有股票交易暂时中止，相关期货和期权市场交易也同步暂停。
 
-随着东二跑道投用，昆明机场同步对飞行区运行结构进行优化调整，即关闭东一跑道及部分滑行道，分三个阶段加快推进新增联络道建设工程，全面重构地面滑行组织和机位运行体系。
+熔断机制启动时，KOSPI报8199.81点，较前一交易日下跌8.18%。
 
-东一跑道将于2027年内重新投入使用，届时将形成多跑道并行的高效运行格局，进一步提升运行效率。
+26日早些时候，韩国KOSPI200指数期货剧烈波动，跌幅超过5%，韩国证券交易所一度启动了“临时停牌”机制，暂停程序化卖出交易。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [美又一核动力航母失火 8名船员受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:36 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:26 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:41 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:27 - [全球智能鸿沟如何破解？这份报告给出答案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:18 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:22 - [新疆新设草湖市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:46 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:34 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:17 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:23 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:18 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:26 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:23 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:47 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:27 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:42 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:27 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:21 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [近3万股东出走中际旭创](http://www.share.kurohicncr.top/Article/details/618755678096.shtml)
-- 2026-06-29 11:16 - [韩国称其运载原油船只安全驶离红海](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [上海外贸进出口总值实现“季、月双创纪录”开局](http://www.share.kurohicncr.top/Article/details/2436491847.shtml)
-- 2026-06-29 11:43 - [中国国防部：敦促日方同军国主义彻底切割](http://www.share.kurohicncr.top/Article/details/19951413259.shtml)
-- 2026-06-29 11:33 - [中国财长出席2026年G20财长和央行行长第一次会议](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股](http://www.share.minike.top/Article/details/5537531986.shtml)
-- 2026-06-29 11:29 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](http://www.blog.minike.top/Article/details/6187748272.shtml)
-- 2026-06-29 11:20 - [液态金属在太空有何应用前景？中国科研团队深度解析全景前瞻](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [国家医保局：全国近四成统筹地区已完成上年度清算](http://www.share.kurohicncr.top/Article/details/914582.shtml)
-- 2026-06-29 11:27 - [贝森特：可以理解美联储暂缓降息](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [洪水猛兽还是有效工具？专家学者聚焦AI视域下的青少年科幻写作](http://www.blog.kurohicncr.top/Article/details/804804.shtml)
-- 2026-06-29 11:28 - [老外体验无人驾驶：“万万没想到，比司机开还稳”](http://www.share.minike.top/Article/details/6516273807.shtml)
-- 2026-06-29 11:44 - [挖机销量增近三成，工程机械“金三”来了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [开局之年看中国·开放自贸港：“艇”进三亚](http://www.blog.minike.top/Article/details/35155819.shtml)
+- 2026-06-29 11:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:23 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:25 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:35 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:23 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:32 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:23 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:18 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:24 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:18 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:31 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:33 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:24 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:24 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)

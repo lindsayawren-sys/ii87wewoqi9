@@ -1,60 +1,56 @@
-# 高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先
+# MBA薪酬不断下滑，学位需求亦随之降温
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网重庆4月17日电 2026“中国体育彩票”重庆女子公开赛16日展开首轮较量。16岁的中国选手彭严萱首轮发挥出色，打出63杆，低于标准杆9杆，超越了中国选手许赢去年在该项赛事第二轮打出的66杆，创造新的赛事纪录，领先目前位于第二位的泰国选手西瑞3杆。 当天比赛第一洞，彭严萱即推入20英尺长推抓到小鸟。在二号洞失误吞柏忌之后，彭严萱连续抓到5只小鸟，随后在九号洞拿下10英尺小
+在这个毕业季，许多新晋MBA毕业生发现，职位空缺变少了，起薪也降了。一份新报告显示，今年工商管理硕士（MBA）学位持有者的起薪中位数预计将从2025年的12.5万美元降至12万美元。该数据来自管理专业研究生入学委员会（Graduate Management Admission Council）对600多名企业招聘人员进行的一项调查；该委员会是一个由228所商学院组成的非营利协会
 
 ## 正文
 
-中新网重庆4月17日电 2026“中国体育彩票”重庆女子公开赛16日展开首轮较量。
+在这个毕业季，许多新晋MBA毕业生发现，职位空缺变少了，起薪也降了。
 
-16岁的中国选手彭严萱首轮发挥出色，打出63杆，低于标准杆9杆，超越了中国选手许赢去年在该项赛事第二轮打出的66杆，创造新的赛事纪录，领先目前位于第二位的泰国选手西瑞3杆。
+一份新报告显示，今年工商管理硕士（MBA）学位持有者的起薪中位数预计将从2025年的12.5万美元降至12万美元。
 
-当天比赛第一洞，彭严萱即推入20英尺长推抓到小鸟。
+该数据来自管理专业研究生入学委员会（Graduate Management Admission Council）对600多名企业招聘人员进行的一项调查；该委员会是一个由228所商学院组成的非营利协会。
 
-在二号洞失误吞柏忌之后，彭严萱连续抓到5只小鸟，随后在九号洞拿下10英尺小鸟推，转场交出30杆，创造了赛事九洞最低杆。
+招聘人员还预测，其他商科硕士学位持有者的年薪将下滑约10%，从9.25万美元降至8.25万美元。
 
-12号洞到16号洞，她在5个洞中又抓到4只小鸟。
+新晋MBA毕业生的就业前景也充满了不确定性。
 
-最终彭严萱在首轮打出63杆，低于标准杆9杆，创造了新的赛事纪录。
+去年毕业季过后，即使是一些顶尖的MBA毕业生在离校数月后也难以找到工作。
 
-“这一轮确实发挥得非常不错。
+今年，超过三分之一的受访雇主表示，他们计划招聘比去年更多的MBA毕业生。
 
-”彭严萱说，比赛中虽然也留下了一些小小遗憾，但将是继续进步的动力。
+而在2025年，受访雇主中最终实际招聘MBA人数超过前一年的比例只有13%。
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:36 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:40 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:17 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:18 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:26 - [韩国第一季度接待外国游客476万人次，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:46 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:41 - [采购商谈消博会：这里是一座“全球好物中转站”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:38 - [渤海银行：首席信息官谢凯任职资格获批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:19 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:16 - [国际能源署署长：欧洲仅剩够用6周航空燃油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:32 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:18 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:30 - [酒价内参4月17日价格发布，青花郎下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:30 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:23 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:44 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:27 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:32 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:46 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:36 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:32 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:23 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [东艳：一季度外贸数据反映多个“增强”](http://www.blog.kurohicncr.top/Article/details/94217281546.shtml)
-- 2026-06-29 11:43 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](http://www.blog.kurohicncr.top/Article/details/242603743.shtml)
-- 2026-06-29 11:32 - [中越签署一系列合作文件](http://www.share.kurohicncr.top/Article/details/066779874.shtml)
-- 2026-06-29 11:39 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](http://www.blog.kurohicncr.top/Article/details/20176.shtml)
-- 2026-06-29 11:16 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](http://www.blog.kurohicncr.top/Article/details/197395.shtml)
-- 2026-06-29 11:18 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](http://www.blog.minike.top/Article/details/022090.shtml)
-- 2026-06-29 11:31 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](http://www.share.minike.top/Article/details/455075331.shtml)
-- 2026-06-29 11:26 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](http://www.share.minike.top/Article/details/5627356.shtml)
-- 2026-06-29 11:18 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](http://www.share.kurohicncr.top/Article/details/12444305627.shtml)
-- 2026-06-29 11:43 - [浙江舟山嵊泗：“东海鲜”下船上岸](http://www.share.minike.top/Article/details/263484916.shtml)
-- 2026-06-29 11:35 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [Stellantis与微软合作部署逾百款AI工具](http://www.blog.minike.top/Article/details/2896360.shtml)
-- 2026-06-29 11:41 - [日本财务大臣：与美国财长密切讨论了外汇问题](http://www.share.kurohicncr.top/Article/details/031798.shtml)
+- 2026-06-29 11:35 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:28 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:41 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:41 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:32 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:44 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:45 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:37 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:24 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:25 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:43 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:30 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:42 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:28 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)

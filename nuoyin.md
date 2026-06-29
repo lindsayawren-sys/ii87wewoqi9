@@ -1,47 +1,59 @@
-# 近镜头｜习近平总书记寄望中越青年做好“接棒人”
+# 从清洁能源到智慧农牧 中国西部新技术应用场景加速落地
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月16日 23:15 来源：新华社 责任编辑：【李太源】
+中新网北京6月26日电(宋宇晟 李萍) “内蒙古不只是蓝天白云大草原，也有先进的装备制造和在清洁能源领域的超前布局。”在第四届链博会期间举办的“链接内蒙古”推介会上，鄂尔多斯市国盛利华制氢设备有限公司总经理孙维真这样介绍道。国盛利华展示的不只是一项技术，而是一套场景化的产品矩阵——面向氢基能源化工领域的大型工业设备，面向城市高安全性要求的制储一体化制氢系统，可服务低空经济、汽车
 
 ## 正文
 
-发布时间：2026年04月16日 23:15 来源：新华社 责任编辑：【李太源】
+中新网北京6月26日电(宋宇晟 李萍) “内蒙古不只是蓝天白云大草原，也有先进的装备制造和在清洁能源领域的超前布局。
+
+”在第四届链博会期间举办的“链接内蒙古”推介会上，鄂尔多斯市国盛利华制氢设备有限公司总经理孙维真这样介绍道。
+
+国盛利华展示的不只是一项技术，而是一套场景化的产品矩阵——面向氢基能源化工领域的大型工业设备，面向城市高安全性要求的制储一体化制氢系统，可服务低空经济、汽车、共享单车等多个领域。
+
+公司希望通过链博会找到更多海内外上下游合作伙伴，“共同推动氢能产业发展，助力全球能源脱碳。
+
+” 本届链博会上，内蒙古的“风光氢储”全产业链首次集中亮相——从风力发电、光伏制造到氢能装备、储能系统，一条完整的清洁能源产业链正在草原上生长。
+
+清洁能源之外，诸多新技术正加速落地。
+
+九天数字科技有限公司聚焦低空经济，产品架构覆盖从装备到平台再到应用的三个层面。
+
+该公司副总经理陈夺峰介绍，其中涵盖自主研发的长续航无人机及智能终端，无人机控制平台、算法训练平台和数字孪生底座，以及公路巡检、警务巡检、环保巡检等成熟应用场景解决方案。
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:37 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:26 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:17 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:24 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:26 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:33 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:42 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:23 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:44 - [海南这个园区有点东西：学生一校入学 可共享多校课程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:30 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:29 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:27 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:44 - [多重利好叠加提振预期 消费板块能否苦尽甘来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:26 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:38 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:31 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:28 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:20 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:20 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:34 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:30 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:45 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:25 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:45 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:19 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:38 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.share.minike.top/Article/details/38754.shtml)
-- 2026-06-29 11:17 - [受伊朗战争持续影响，欧洲股市料将低开](http://www.blog.kurohicncr.top/Article/details/479451343.shtml)
-- 2026-06-29 11:20 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](http://www.blog.kurohicncr.top/Article/details/926687745.shtml)
-- 2026-06-29 11:17 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.blog.kurohicncr.top/Article/details/537000356.shtml)
-- 2026-06-29 11:33 - [中东能源危机推动美国原油出口大增，接近历史最高水平](http://www.share.minike.top/Article/details/29449598.shtml)
-- 2026-06-29 11:24 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.share.minike.top/Article/details/963689124075.shtml)
-- 2026-06-29 11:24 - [新晋退休人士最后悔的事：没多存点钱](http://www.share.minike.top/Article/details/33407.shtml)
-- 2026-06-29 11:18 - [IEA警示历史性石油冲击](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [A股盘前速递：黄金涨回4800美元](http://www.share.kurohicncr.top/Article/details/6974413.shtml)
-- 2026-06-29 11:18 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.share.kurohicncr.top/Article/details/640753.shtml)
-- 2026-06-29 11:23 - [澳大利亚一炼油厂发生大火](http://www.share.minike.top/Article/details/0288780.shtml)
-- 2026-06-29 11:19 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](http://www.blog.kurohicncr.top/Article/details/4879725.shtml)
-- 2026-06-29 11:39 - [话剧《四世同堂》首次登陆澳大利亚](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [中国HH-200航空商用无人运输系统首架机首飞成功](http://www.blog.kurohicncr.top/Article/details/0244891.shtml)
+- 2026-06-29 11:35 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:46 - [温州学子高考数学满分 分享学习经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:20 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:37 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:39 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:40 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:21 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:31 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:18 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:43 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:35 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:46 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:37 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:35 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)

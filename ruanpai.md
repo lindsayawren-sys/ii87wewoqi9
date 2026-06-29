@@ -1,56 +1,49 @@
-# 莆台高校青年湄洲岛影像创作营在福建莆田启动
+# 万邦医药：拟收购赛德盛75.52%股权
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网福建莆田4月17日电 (叶秋云)“妈祖故里·青春视界”——莆台高校青年湄洲岛影像创作营启动仪式17日上午在福建莆田湄洲岛举行。两岸高校青年以影像为媒，共探妈祖文化传承。 本次创作营为期三天，两岸青年学子将围绕“祖在湄洲”“回娘家·三月祈福”等主题，深入湄洲妈祖祖庙建筑群、天妃故里遗址公园等地，实地拍摄三月祈福进香场景、非遗打铁花表演、两岸民俗融合表演等题材。 据湄洲妈祖祖
+万邦医药(301520.SZ)公告称，公司拟以现金方式收购安徽赛德盛医药科技有限公司（简称“赛德盛”）的75.52%股权，最终确定整体转让价格为3.02亿元。本次交易完成后赛德盛将成为公司控股子公司，纳入公司合并报表范围。通过本次收购，公司将进一步完善在创新药板块的业务布局。 （文章来源：财联社）
 
 ## 正文
 
-中新网福建莆田4月17日电 (叶秋云)“妈祖故里·青春视界”——莆台高校青年湄洲岛影像创作营启动仪式17日上午在福建莆田湄洲岛举行。
+万邦医药(301520.SZ)公告称，公司拟以现金方式收购安徽赛德盛医药科技有限公司（简称“赛德盛”）的75.52%股权，最终确定整体转让价格为3.02亿元。
 
-两岸高校青年以影像为媒，共探妈祖文化传承。
+本次交易完成后赛德盛将成为公司控股子公司，纳入公司合并报表范围。
 
-本次创作营为期三天，两岸青年学子将围绕“祖在湄洲”“回娘家·三月祈福”等主题，深入湄洲妈祖祖庙建筑群、天妃故里遗址公园等地，实地拍摄三月祈福进香场景、非遗打铁花表演、两岸民俗融合表演等题材。
+通过本次收购，公司将进一步完善在创新药板块的业务布局。
 
-据湄洲妈祖祖庙董事会介绍，活动旨在进一步深化妈祖文化的当代传播与创新传承，搭建两岸高校青年交流互动、实践创作的平台。
-
-活动吸引了台湾世新大学、台湾辅仁大学、厦门大学等两岸十余所高校的师生代表参与。
-
-台湾学生代表吴佳孺表示，此次影像创作营，不仅是专业层面的技艺切磋，更是跨越海峡的文化对话与情感联结。
-
-她期待在活动中结识更多志同道合的伙伴，通过交流合作建立真挚情谊，让这段湄洲之行成为跨越海峡、值得永久珍藏的青春记忆。
-
-湄洲妈祖祖庙董事会董事长林金赞指出，两岸青年相聚湄洲岛，以镜头为笔、以青春为眼，开启这场光影创作之旅，这既是妈祖信俗活态传承的创新举措，更是两岸青年交心交融、携手同行的重要契机。
+（文章来源：财联社）
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:45 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:26 - [多重利好叠加提振预期 消费板块能否苦尽甘来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:30 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:31 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:30 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:18 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:26 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:22 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:40 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:41 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:43 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:35 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:42 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:37 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:28 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:31 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:36 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:43 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:21 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [澳大利亚一炼油厂发生大火](http://www.share.kurohicncr.top/Article/details/29102.shtml)
-- 2026-06-29 11:26 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](http://www.share.kurohicncr.top/Article/details/6930981.shtml)
-- 2026-06-29 11:20 - [话剧《四世同堂》首次登陆澳大利亚](http://www.blog.minike.top/Article/details/687455872463.shtml)
-- 2026-06-29 11:30 - [中国HH-200航空商用无人运输系统首架机首飞成功](http://www.blog.kurohicncr.top/Article/details/7354123950.shtml)
-- 2026-06-29 11:38 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.share.minike.top/Article/details/83646.shtml)
-- 2026-06-29 11:34 - [一季度增城西站中欧班列开行量同比增长24%](http://www.share.minike.top/Article/details/094017352085.shtml)
-- 2026-06-29 11:34 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.share.kurohicncr.top/Article/details/382166172259.shtml)
-- 2026-06-29 11:24 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.blog.minike.top/Article/details/1243999.shtml)
-- 2026-06-29 11:40 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.blog.kurohicncr.top/Article/details/261866734554.shtml)
-- 2026-06-29 11:30 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.share.kurohicncr.top/Article/details/110622239.shtml)
-- 2026-06-29 11:36 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](http://www.share.kurohicncr.top/Article/details/278657869477.shtml)
-- 2026-06-29 11:28 - [韩国第一季度接待外国游客476万人次，创历史新高](http://www.share.kurohicncr.top/Article/details/230077509.shtml)
-- 2026-06-29 11:43 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](http://www.blog.minike.top/Article/details/22021545532.shtml)
+- 2026-06-29 11:44 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:46 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:28 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:30 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:34 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:47 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:46 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:23 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:39 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:36 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:35 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:29 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:19 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:32 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)

@@ -1,49 +1,60 @@
-# 中国HH-200航空商用无人运输系统首架机首飞成功
+# 6月26日外盘头条：霍尔木兹海峡再现安全风险 苹果上调多个产品类别价格 纽约联储行长称利率处于良好位置
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月16日 08:09 来源：中国新闻网 4月15日，由中国航空工业集团自主研制的HH-200航空商用无人运输系统首架机，在航空工业民机试飞中心渭南运营基地平稳降落，圆满完成首飞。飞机各系统工作正常、飞行姿态平稳、整体状态良好，顺利完成预定飞行科目，标志着中国在大型商用无人运输装备领域取得新进展。 (梅镱泷 杨英琦 陕西渭南报道） 责任编辑：【苏亦瑜】
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、霍尔木兹海峡再现安全风险 一艘货船遇袭 数艘油轮折返 2、美国通胀升至三年高点 消费者支出增长加快 3、苹果罕见上调Mac、iPad等多个产品类别价格 股价创逾一年最大跌幅 4、报道：OpenAI 倾向推迟至明年上市 5、纽约联储行长称利率处于良好位置 预计通胀到2028年达标 6、欧洲国防股再度下挫，投资者究竟在担忧什么 霍
 
 ## 正文
 
-发布时间：2026年04月16日 08:09 来源：中国新闻网 4月15日，由中国航空工业集团自主研制的HH-200航空商用无人运输系统首架机，在航空工业民机试飞中心渭南运营基地平稳降落，圆满完成首飞。
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、霍尔木兹海峡再现安全风险 一艘货船遇袭 数艘油轮折返 2、美国通胀升至三年高点 消费者支出增长加快 3、苹果罕见上调Mac、iPad等多个产品类别价格 股价创逾一年最大跌幅 4、报道：OpenAI 倾向推迟至明年上市 5、纽约联储行长称利率处于良好位置 预计通胀到2028年达标 6、欧洲国防股再度下挫，投资者究竟在担忧什么 霍尔木兹海峡再现安全风险 一艘货船遇袭 数艘油轮折返 一艘船只在霍尔木兹海峡遭不明发射物击中，而就在此前不久，数艘货船在试图穿越这条关键航道时折返，最新事态发展可能破坏海峡迅速重开的局面。
 
-飞机各系统工作正常、飞行姿态平稳、整体状态良好，顺利完成预定飞行科目，标志着中国在大型商用无人运输装备领域取得新进展。
+英国海上贸易行动办公室（UKMTO）表示，这艘身份不明的货船在向阿曼东南部航行时侧面遭袭，驾驶台受损。
 
-(梅镱泷 杨英琦 陕西渭南报道） 责任编辑：【苏亦瑜】
+负责协调商船与军方沟通的UKMTO建议船只“谨慎航行”。
+
+油价在事故发生后走高，布伦特升至每桶75美元上方的盘中高点，此前媒体报道称，伊朗伊斯兰革命卫队周四在霍尔木兹海峡袭击了一艘悬挂新加坡国旗的货船。
+
+美国通胀升至三年高点 消费者支出增长加快 美国5月消费者支出增长加快，尽管通胀升至三年多来最高水平，显示美国消费者正挺过伊朗战争带来的冲击。
+
+美国经济分析局周四公布的数据显示，美国5月个人消费支出（PCE）价格指数同比上升4.1%，创2023年4月以来最大升幅。
+
+剔除食物和能源价格后，核心PCE价格指数同比上升3.4%。
+
+经通胀调整后的消费者支出较前月增长0.3%。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:25 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:26 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:38 - [韩国第一季度接待外国游客476万人次，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:18 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:37 - [采购商谈消博会：这里是一座“全球好物中转站”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:18 - [渤海银行：首席信息官谢凯任职资格获批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:44 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:45 - [国际能源署署长：欧洲仅剩够用6周航空燃油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:27 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:33 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:34 - [酒价内参4月17日价格发布，青花郎下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:43 - [外交部提醒赴美国中国公民注意入境安全风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:24 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:42 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:36 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:28 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:43 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:42 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:26 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:25 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:26 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:34 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:18 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:37 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:22 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:37 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](http://www.share.minike.top/Article/details/29523207.shtml)
-- 2026-06-29 11:31 - [中越签署一系列合作文件](http://www.blog.kurohicncr.top/Article/details/259203648058.shtml)
-- 2026-06-29 11:37 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](http://www.blog.minike.top/Article/details/83856974.shtml)
-- 2026-06-29 11:19 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](http://www.share.kurohicncr.top/Article/details/803319.shtml)
-- 2026-06-29 11:29 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](http://www.share.minike.top/Article/details/017078118.shtml)
-- 2026-06-29 11:17 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](http://www.share.minike.top/Article/details/62628146690.shtml)
-- 2026-06-29 11:20 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](http://www.blog.minike.top/Article/details/62741.shtml)
-- 2026-06-29 11:22 - [浙江舟山嵊泗：“东海鲜”下船上岸](http://www.blog.minike.top/Article/details/1386300837.shtml)
-- 2026-06-29 11:18 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](http://www.blog.minike.top/Article/details/11331144.shtml)
-- 2026-06-29 11:38 - [Stellantis与微软合作部署逾百款AI工具](http://www.blog.kurohicncr.top/Article/details/903214762.shtml)
-- 2026-06-29 11:44 - [日本财务大臣：与美国财长密切讨论了外汇问题](http://www.share.minike.top/Article/details/244145604939.shtml)
-- 2026-06-29 11:18 - [多份联储报告显示美国物价飙升](http://www.blog.minike.top/Article/details/1953753656.shtml)
-- 2026-06-29 11:44 - [光大期货：4月16日金融日报](http://www.blog.minike.top/Article/details/1988678.shtml)
+- 2026-06-29 11:28 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:39 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:21 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:23 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:45 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:42 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:41 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:42 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:25 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:18 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:41 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:45 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:31 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:29 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)

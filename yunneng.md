@@ -1,59 +1,59 @@
-# 东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流
+# 华创证券股票质押案一审胜诉背后：业务开展是否充分尽调？风控是否到位？有无明股实债？
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新社上海4月16日电 题：塞万提斯学院助力西班牙与中国文化交流 ——专访上海塞万提斯学院院长伊莎贝尔·塞尔韦拉 中新社记者 樊中华 王笈 西班牙首相桑切斯于4月11日至15日对中国进行正式访问，这也是其四年内第四次访华。2024年，桑切斯在访华期间亲赴上海，参加上海西班牙文化中心—塞万提斯学院(下称“上海塞万提斯学院”)揭幕仪式。这所西班牙官方机构，以著名西班牙作家塞万提斯命
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：图灵 6月23日，华创云信发布诉讼进展公告，披露全资子公司华创证券诉ST百灵（维权）实际控制人姜伟股票质押借款违约一案，已收到贵阳市云岩区人民法院一审判决书。 法院判令姜伟偿还融资本金3.61亿元并支付利息、违约金及律师费，同时确认华创证券对姜伟质押的1.10亿股贵州百灵
 
 ## 正文
 
-中新社上海4月16日电 题：塞万提斯学院助力西班牙与中国文化交流 ——专访上海塞万提斯学院院长伊莎贝尔·塞尔韦拉 中新社记者 樊中华 王笈 西班牙首相桑切斯于4月11日至15日对中国进行正式访问，这也是其四年内第四次访华。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-2024年，桑切斯在访华期间亲赴上海，参加上海西班牙文化中心—塞万提斯学院(下称“上海塞万提斯学院”)揭幕仪式。
+出品：新浪财经上市公司研究院 作者：图灵 6月23日，华创云信发布诉讼进展公告，披露全资子公司华创证券诉ST百灵（维权）实际控制人姜伟股票质押借款违约一案，已收到贵阳市云岩区人民法院一审判决书。
 
-这所西班牙官方机构，以著名西班牙作家塞万提斯命名，以西班牙语教学和文化传播为使命。
+法院判令姜伟偿还融资本金3.61亿元并支付利息、违约金及律师费，同时确认华创证券对姜伟质押的1.10亿股贵州百灵股票及孳息、抵押房产（第二顺位抵押）、合伙企业财产份额及派生权益等享有优先受偿权。
 
-上海塞万提斯学院怎样助力中西两国文化交流互鉴？
+华创云信表示，一审判决有利于华创证券尽快收回融资本息及违约金等，预计本次诉讼对公司正常经营不会产生重大影响。
 
-中西民众对彼此语言学习的热情，会为两国多领域互信合作带来怎样的积极影响？
+但阶段性胜诉背后，华创证券在2019年、2020年开展纾困、股票质押业务时，是否充分尽调？
 
-中新社“东西问”专访上海塞万提斯学院院长伊莎贝尔·塞尔韦拉(Isabel Cervera)，对此进行解读。
+风控是否到位？
 
-现将访谈实录摘要如下： 中新社记者：您如何看待桑切斯首相四次访华为两国文化交流和互信合作带来的积极影响？
+公开资料显示，在华创证券两期资管计划入股ST百灵时，姜伟的股票质押比例已经很高，并且姜伟对外投资有“短债长投”的迹象；在姜伟的股票质押频繁暴雷之际，华创证券逆势为姜伟提供融资。
 
-伊莎贝尔·塞尔韦拉：我们对桑切斯首相访华感到非常高兴。
+ST百灵在华创资管计划入股后四年财务造假，华创证券是否对类似风险有过评估？
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:40 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:43 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:16 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:19 - [Stellantis与微软合作部署逾百款AI工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:41 - [日本财务大臣：与美国财长密切讨论了外汇问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:20 - [多份联储报告显示美国物价飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:27 - [光大期货：4月16日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:44 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:32 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:28 - [近3万股东出走中际旭创](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:27 - [韩国称其运载原油船只安全驶离红海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:37 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:47 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:41 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:40 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:39 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:25 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:24 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:36 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:24 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:24 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:30 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:20 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:34 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [中信建投期货：4月16日工业品早报](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [华凯易佰1.13亿收购深圳米品盛及香港纽瑞格：压力之下的精品化豪赌](http://www.share.minike.top/Article/details/7547222.shtml)
-- 2026-06-29 11:36 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.blog.kurohicncr.top/Article/details/90834604.shtml)
-- 2026-06-29 11:17 - [重要法案通过！流失在法国的中国国宝，何时能回家？](http://www.blog.minike.top/Article/details/0277742.shtml)
-- 2026-06-29 11:30 - [胜宏科技公布发售价厘定为每股H股209.88港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [IMF宣布恢复与委内瑞拉中断六年多的关系](http://www.share.kurohicncr.top/Article/details/12528204.shtml)
-- 2026-06-29 11:39 - [145件作品摘获2025年河南省工业设计大赛奖项](http://www.share.kurohicncr.top/Article/details/0232231232.shtml)
-- 2026-06-29 11:41 - [以终身追责制推动政府投资决策回归初心](http://www.share.kurohicncr.top/Article/details/98382384.shtml)
-- 2026-06-29 11:24 - [04月16日尿素1882.50元/吨 60天上涨4.87%](http://www.blog.kurohicncr.top/Article/details/986463876.shtml)
-- 2026-06-29 11:36 - [OpenAI推出药物研发AI模型 挑战谷歌](http://www.blog.minike.top/Article/details/95247.shtml)
-- 2026-06-29 11:24 - [300076，业绩突发变脸，将被“*ST”](http://www.blog.minike.top/Article/details/30234174.shtml)
-- 2026-06-29 11:36 - [美的集团获小摩增持约159.47万股 每股均价约85.90港元](http://www.blog.minike.top/Article/details/740058.shtml)
-- 2026-06-29 11:31 - [英特尔推出低成本AI芯片，以扩大AI技术的普及](http://www.share.minike.top/Article/details/892901404.shtml)
-- 2026-06-29 11:42 - [返乡夫妻一年卖出近30万双麻鞋](http://www.blog.minike.top/Article/details/3436252.shtml)
-- 2026-06-29 11:19 - [首飞成功！中国自主研发“无人飞行卡车”来了](http://www.share.kurohicncr.top/Article/details/78409442.shtml)
+- 2026-06-29 11:26 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:31 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:27 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:47 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:32 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:27 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:40 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:31 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:26 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:28 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:23 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:25 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:24 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)

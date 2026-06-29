@@ -1,60 +1,56 @@
-# 沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发
+# 之江生物三连亏：集采“砍价”击穿价盘，25亿资金沉睡难救业绩颓势
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-014月16日A股三大指数全线收涨，创业板指突破3600点创11年新高，超4200只个股上涨。02宁德时代股价创新高，市值突破2万亿元，2026年一季度营收同比增长52.45%。03亚太股市主要股指全线上涨，日经225指数收涨2.38%，韩国综合指数涨2.21%。04算力产业链表现亮眼，宏景科技20CM涨停，国家统计局称人工智能商业化应用取得阶段性突破。05万联证券称锂电行业迈
+连续三年营收下滑、净利润为负——之江生物正陷入一场集采降价与战略失焦的双重困局。尽管2025年亏损额从1.27亿元收窄至3429.76万元，但这份年报背后暴露出的问题远非“减亏”二字所能掩盖：核心产品销量增、收入减，价盘系统性崩塌；账面货币资金超25亿元，募投项目却进展迟缓；进入2026年一季度，营收同比暴跌近九成，颓势未见底。 01集采“屠刀”砍向价盘，销量增长难抵收入雪崩
 
 ## 正文
 
-014月16日A股三大指数全线收涨，创业板指突破3600点创11年新高，超4200只个股上涨。
+连续三年营收下滑、净利润为负——之江生物正陷入一场集采降价与战略失焦的双重困局。
 
-02宁德时代股价创新高，市值突破2万亿元，2026年一季度营收同比增长52.45%。
+尽管2025年亏损额从1.27亿元收窄至3429.76万元，但这份年报背后暴露出的问题远非“减亏”二字所能掩盖：核心产品销量增、收入减，价盘系统性崩塌；账面货币资金超25亿元，募投项目却进展迟缓；进入2026年一季度，营收同比暴跌近九成，颓势未见底。
 
-03亚太股市主要股指全线上涨，日经225指数收涨2.38%，韩国综合指数涨2.21%。
+01集采“屠刀”砍向价盘，销量增长难抵收入雪崩 之江生物的业务困局，最直观地体现在“量增价崩”的背离上。
 
-04算力产业链表现亮眼，宏景科技20CM涨停，国家统计局称人工智能商业化应用取得阶段性突破。
+2025年，公司核酸检测试剂盒销量达1011.33万人份，同比微增2.34%，但该业务收入却下滑近三成至1.04亿元。
 
-05万联证券称锂电行业迈入增长新周期，建议关注产业链复苏与固态电池技术突破两大主线。
+平均单价从14.89元/人份骤降至10.22元/人份，跌幅达31.39%。
 
-以上内容由传播大模型和DeepSeek生成，仅供参考4月16日，A股又是振奋人心的一天：三大指数全线收涨，创业板指表现尤为亮眼，盘中突破3600点整数关口，刷新自2015年6月以来的近11年新高，全市场超4200只个股上涨，赚钱效应显著。
+这并非市场需求的自然萎缩，而是集采落地的直接后果。
 
-其中，宁德时代大象起舞，股价续创新高，市值突破2万亿元。
+2023年由安徽省牵头的25省HPV核酸检测试剂集采，在2025年进入全面执行期。
 
-与此同时，今天亚太股市主要股指全线上涨，日经225指数收涨2.38%，再创新高，抹平美伊以战事以来的跌幅。
+之江生物虽成功中选，却付出了惨烈的价格代价——HPV系列试剂平均单价从32.65元/人份暴跌至18.55元/人份，降幅高达43.21%，直接拖累该产品线收入下滑35.54%。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:17 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:33 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:32 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:27 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:30 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:43 - [4月16日人民币对美元中间价报6.8616 下调34个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:18 - [厦门钨业：子公司金龙稀土进入创新层](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:29 - [镜观·回响丨在交流中深化中越青年情谊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:35 - [中金：维持波司登跑赢行业评级 目标价5.65港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:23 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:21 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:46 - [伊朗称在与美国会谈期间讨论了解冻资产问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:20 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:28 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:28 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:30 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:41 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:33 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:29 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:42 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [云南印发实施意见全面推进共有精神家园建设](http://www.blog.minike.top/Article/details/4342940.shtml)
-- 2026-06-29 11:39 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.share.minike.top/Article/details/6103450.shtml)
-- 2026-06-29 11:45 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.blog.kurohicncr.top/Article/details/9262298757.shtml)
-- 2026-06-29 11:43 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](http://www.blog.kurohicncr.top/Article/details/369863.shtml)
-- 2026-06-29 11:35 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](http://www.blog.minike.top/Article/details/1504023215.shtml)
-- 2026-06-29 11:22 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](http://www.blog.kurohicncr.top/Article/details/14993698.shtml)
-- 2026-06-29 11:26 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](http://www.share.kurohicncr.top/Article/details/76642.shtml)
-- 2026-06-29 11:36 - [国家统计局：一季度全国居民人均可支配收入12782元](http://www.blog.kurohicncr.top/Article/details/403908.shtml)
-- 2026-06-29 11:26 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](http://www.blog.minike.top/Article/details/522443722.shtml)
-- 2026-06-29 11:39 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](http://www.blog.kurohicncr.top/Article/details/696655094350.shtml)
-- 2026-06-29 11:18 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](http://www.share.kurohicncr.top/Article/details/803876035403.shtml)
-- 2026-06-29 11:40 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](http://www.share.kurohicncr.top/Article/details/2373576924.shtml)
-- 2026-06-29 11:19 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:30 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:45 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:27 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:36 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:32 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:30 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:23 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:18 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:35 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:29 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:44 - [当地回应多辆“百吨王”强行冲卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:34 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:37 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:23 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)

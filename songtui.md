@@ -1,53 +1,60 @@
-# 第二届西藏微短剧大赛正式启动征稿
+# “修昔底德陷阱”提出者：重温美中友好合作史有助于建立信任
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月16日 16:22 来源：中国新闻网 4月15日，在四川成都举办的第十三届中国网络视听大会上，“新时代新西藏新篇章”第二届西藏微短剧大赛正式启动。本届大赛紧扣铸牢中华民族共同体意识，围绕“时代之光”“团结之歌”“人文之美”三大方向征稿，鼓励运用4K、AI技术创作。大赛升级扶持奖励与传播渠道，致力推动西藏故事走向海内外。据悉，去年首届大赛佳作频出，《去桃
+中新社北京6月27日电 (记者 刘洋)“文物里的中美民间友好交往故事”专题展27日在中国华侨历史博物馆展出。美国哈佛大学肯尼迪政府学院创始院长格雷厄姆·艾利森观展后表示，展览呈现了两国人民跨越世纪的友好交往历史，也提醒世人，美中友好往来、合作共处的历史源远流长，双方不应被分歧隔阂所局限。 “文物里的中美民间友好交往故事”专题展共分为五个篇章，系统梳理了自美国建国以来两国人民友好
 
 ## 正文
 
-发布时间：2026年04月16日 16:22 来源：中国新闻网 4月15日，在四川成都举办的第十三届中国网络视听大会上，“新时代新西藏新篇章”第二届西藏微短剧大赛正式启动。
+中新社北京6月27日电 (记者 刘洋)“文物里的中美民间友好交往故事”专题展27日在中国华侨历史博物馆展出。
 
-本届大赛紧扣铸牢中华民族共同体意识，围绕“时代之光”“团结之歌”“人文之美”三大方向征稿，鼓励运用4K、AI技术创作。
+美国哈佛大学肯尼迪政府学院创始院长格雷厄姆·艾利森观展后表示，展览呈现了两国人民跨越世纪的友好交往历史，也提醒世人，美中友好往来、合作共处的历史源远流长，双方不应被分歧隔阂所局限。
 
-大赛升级扶持奖励与传播渠道，致力推动西藏故事走向海内外。
+“文物里的中美民间友好交往故事”专题展共分为五个篇章，系统梳理了自美国建国以来两国人民友好交往的脉络。
 
-据悉，去年首届大赛佳作频出，《去桃花盛开的地方》全网播放量超3亿并译介海外。
+淘金工具、铁路道钉、抗战徽章、名人用具等展品，不仅记录了华侨华人在异乡的奋斗历程，也折射出中美两国在社会发展、反法西斯战争和全球化进程中的相互支持。
 
-现诚邀全国创作者走进西藏，共谱精品。
+格雷厄姆·艾利森曾提出“修昔底德陷阱”，比喻崛起大国与守成大国之间存在冲突风险，但他也强调，这一风险并非不可规避。
 
-(视频来源 西藏自治区广播电视局） 责任编辑：【罗攀】
+此次观展，艾利森看到大国间合作的韧性。
+
+从19世纪华工参与美国西部铁路建设，到二战期间美中并肩抗击法西斯，再到近几十年经贸与教育领域的深度交融，美中两国的友好往来虽经历风雨但依旧生生不息。
+
+艾利森受访时表示，本次展览重现了美中在二战期间并肩作战的珍贵史实，这证明合作共赢才是大国相处的要义。
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [伊朗称在与美国会谈期间讨论了解冻资产问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:35 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:37 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:42 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:24 - [美国将封锁范围扩大至受制裁船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:31 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:44 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:43 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:20 - [黎巴嫩总统同美国国务卿通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:20 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:44 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:24 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:32 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:22 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:29 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:32 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:42 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:29 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:45 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:30 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:44 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:19 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:39 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](http://www.blog.minike.top/Article/details/44402613966.shtml)
-- 2026-06-29 11:20 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](http://www.blog.kurohicncr.top/Article/details/289511612445.shtml)
-- 2026-06-29 11:26 - [上美股份将于6月23日派发末期股息每股0.75元](http://www.share.kurohicncr.top/Article/details/42116177582.shtml)
-- 2026-06-29 11:45 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](http://www.blog.kurohicncr.top/Article/details/2548089.shtml)
-- 2026-06-29 11:35 - [中国驻日大使馆接连遭到恐怖威胁](http://www.blog.minike.top/Article/details/509770123063.shtml)
-- 2026-06-29 11:38 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](http://www.share.minike.top/Article/details/38494.shtml)
-- 2026-06-29 11:28 - [海南这个园区有点东西：学生一校入学 可共享多校课程](http://www.share.kurohicncr.top/Article/details/061301.shtml)
-- 2026-06-29 11:30 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](http://www.blog.minike.top/Article/details/765850.shtml)
-- 2026-06-29 11:39 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](http://www.blog.minike.top/Article/details/90880.shtml)
-- 2026-06-29 11:25 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](http://www.blog.minike.top/Article/details/61456.shtml)
-- 2026-06-29 11:45 - [多重利好叠加提振预期 消费板块能否苦尽甘来](http://www.blog.minike.top/Article/details/23702726439.shtml)
-- 2026-06-29 11:17 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](http://www.share.kurohicncr.top/Article/details/2284422.shtml)
-- 2026-06-29 11:33 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [中国国家中医药管理局原局长于文明被公诉](http://www.share.kurohicncr.top/Article/details/01787291756.shtml)
-- 2026-06-29 11:41 - [德意志银行预计美联储2026年将维持利率不变](http://www.share.minike.top/Article/details/20835740257.shtml)
+- 2026-06-29 11:46 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:43 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:45 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:44 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:31 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:19 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:30 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:19 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:32 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:40 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:36 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:35 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:33 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:20 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)

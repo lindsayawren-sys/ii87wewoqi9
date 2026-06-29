@@ -1,56 +1,52 @@
-# 广东江门：警企联动 为柑园低空作业系上“安全缰绳”
+# 化妆品原料新规发布 推动国货美妆出海
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网江门4月16日电 (郭军 王忠豪)时下，在广东侨乡江门新会，14.3万亩陈皮柑园正值挂花飘香的黄金时节。在这片孕育出超260亿元全产业链产值的“中国陈皮之乡”，农用无人机往来穿梭，为柑树精准喷洒、高效植保，绘就了一幅现代农业的繁忙图景。 然而，当科技的速度邂逅钢铁动脉的威严，一道新的“安全课题”随之浮现。每当无人机在铁路沿线的柑林上空呼啸而过，铁路民警的心随之悬紧：头顶是
+中新网6月26日电 据国家药监局网站消息，国家药监局近日发布《化妆品新原料注册备案及资料管理规定》(以下简称新《规定》)，自2026年7月15日起施行。《国家药监局关于发布〈化妆品新原料注册备案资料管理规定〉的公告》(2021年第31号)同时废止。国家药监局网站发布的《化妆品新原料注册备案及资料管理规定相关政策解读》指出，新《规定》调整新原料分类，简化资料提交要求。将原来“较高
 
 ## 正文
 
-中新网江门4月16日电 (郭军 王忠豪)时下，在广东侨乡江门新会，14.3万亩陈皮柑园正值挂花飘香的黄金时节。
+中新网6月26日电 据国家药监局网站消息，国家药监局近日发布《化妆品新原料注册备案及资料管理规定》(以下简称新《规定》)，自2026年7月15日起施行。
 
-在这片孕育出超260亿元全产业链产值的“中国陈皮之乡”，农用无人机往来穿梭，为柑树精准喷洒、高效植保，绘就了一幅现代农业的繁忙图景。
+《国家药监局关于发布〈化妆品新原料注册备案资料管理规定〉的公告》(2021年第31号)同时废止。
 
-然而，当科技的速度邂逅钢铁动脉的威严，一道新的“安全课题”随之浮现。
+国家药监局网站发布的《化妆品新原料注册备案及资料管理规定相关政策解读》指出，新《规定》调整新原料分类，简化资料提交要求。
 
-每当无人机在铁路沿线的柑林上空呼啸而过，铁路民警的心随之悬紧：头顶是2.75万伏的高压接触网，脚下是飞驰的高铁钢铁巨龙，一旦无人机失控或误入禁飞区，轻则引发列车紧急制动，重则车毁人亡。
+将原来“较高风险”功效范围——防腐、防晒、着色、染发、祛斑美白、防脱发、祛痘、抗皱(物理性抗皱除外)、去屑、除臭功能等，减少为防腐、防晒、着色、染发、祛斑美白，简化资料要求，并与《化妆品监督管理条例》规定需要注册的功效范围一致。
 
-面对上千户种柑人手中的“喷药施肥神器”，单靠事后巡查处罚难以从根本上遏制，广州铁路公安处江门北站派出所民警意识到：唯有将安全理念植入每一次无人机的“起飞前”，方能从源头上筑牢铁路安全防线。
+新《规定》鼓励动物替代测试方法等新技术、新方法应用，企业可直接采用国际权威机构收录的替代方法进行试验，有利于减少国际贸易技术壁垒，推动国货美妆出海。
 
-为此，江门北站派出所主动将宣防工作的阵地前移，专程走访位于新会区双水镇的江门市星光农业科技服务有限公司——江门、中山、珠海大疆农用无人机授权经销商，积极探索警企协作共治。
-
-当得知该企业每月开展2场农业无人驾驶航空器培训考核，依托企业精准触达无人机操作手的渠道优势，民警主张将“铁路安全飞行课”纳入了无人机驾驶证培训考核中的必修环节。
-
-2025年7月起，20余场次别开生面的“铁路安全警示课”在警企携手下拉开帷幕。
+此外，在有充足的科学依据的前提下，企业采用新策略、新方法开展新原料安全评估的，可申请与技术审评机构开展沟通交流。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:18 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:43 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:41 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:36 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:42 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:18 - [云南印发实施意见全面推进共有精神家园建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:16 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:33 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:44 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:22 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:21 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:37 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:33 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:36 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:39 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:24 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:28 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:38 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](http://www.blog.kurohicncr.top/Article/details/065626.shtml)
-- 2026-06-29 11:27 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](http://www.blog.kurohicncr.top/Article/details/113211.shtml)
-- 2026-06-29 11:33 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](http://www.share.minike.top/Article/details/6693640094.shtml)
-- 2026-06-29 11:17 - [中东局势变化对我国外贸有何影响？国家统计局回应](http://www.share.minike.top/Article/details/022823.shtml)
-- 2026-06-29 11:36 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](http://www.blog.kurohicncr.top/Article/details/6363599.shtml)
-- 2026-06-29 11:39 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](http://www.blog.kurohicncr.top/Article/details/36701.shtml)
-- 2026-06-29 11:23 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](http://www.blog.kurohicncr.top/Article/details/803611028428.shtml)
-- 2026-06-29 11:45 - [长光辰芯首挂上市 早盘高开81.80%](http://www.share.kurohicncr.top/Article/details/874673450.shtml)
-- 2026-06-29 11:40 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [中国向伊朗提供紧急人道主义援助](http://www.share.minike.top/Article/details/2245556900.shtml)
-- 2026-06-29 11:21 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](http://www.share.kurohicncr.top/Article/details/45525382957.shtml)
-- 2026-06-29 11:44 - [浙江启用防汛防台机器狗“AI防汛勇士”](http://www.blog.kurohicncr.top/Article/details/8627671451.shtml)
-- 2026-06-29 11:34 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.blog.kurohicncr.top/Article/details/656433.shtml)
-- 2026-06-29 11:39 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](http://www.blog.minike.top/Article/details/95081.shtml)
+- 2026-06-29 11:31 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:30 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:44 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:24 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:28 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:45 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:31 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:21 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:21 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:34 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:32 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:47 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:37 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:21 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)

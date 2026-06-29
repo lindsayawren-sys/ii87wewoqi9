@@ -1,56 +1,57 @@
-# 中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%
+# 天津发布首部港产城融合发展规划 明确五大重点任务
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-分领域看，基础设施投资同比增长8.9%，制造业投资增长4.1%，房地产开发投资下降11.2%。高技术产业投资同比增长7.4%，其中计算机及办公设备制造业，航空、航天器及设备制造业，信息服务业投资分别增长28.3%、19.0%、20.9%。3月份，固定资产投资（不含农户）环比增长0.52%。一季度固定资产投资平稳增长，基础设施投资增长较快。4月16日，国家统计局公布的数据显示，1
+中新网天津6月26日电 (记者 周亚强)天津市政府新闻办26日举行发布会，解读新近获批的《天津市港产城融合发展“十五五”规划》(下称《规划》)。这是天津首部港产城融合发展规划。 “区别于常规的港口规划，这次《规划》不仅谋划港口建设发展，更突出港口牵引、产业支撑和城市保障作用，系统性、综合性、创新性强。”天津市交通运输委主任王志楠介绍，编制期间共41家市级部门、相关区、众多企业及
 
 ## 正文
 
-分领域看，基础设施投资同比增长8.9%，制造业投资增长4.1%，房地产开发投资下降11.2%。
+中新网天津6月26日电 (记者 周亚强)天津市政府新闻办26日举行发布会，解读新近获批的《天津市港产城融合发展“十五五”规划》(下称《规划》)。
 
-高技术产业投资同比增长7.4%，其中计算机及办公设备制造业，航空、航天器及设备制造业，信息服务业投资分别增长28.3%、19.0%、20.9%。
+这是天津首部港产城融合发展规划。
 
-3月份，固定资产投资（不含农户）环比增长0.52%。
+“区别于常规的港口规划，这次《规划》不仅谋划港口建设发展，更突出港口牵引、产业支撑和城市保障作用，系统性、综合性、创新性强。
 
-一季度固定资产投资平稳增长，基础设施投资增长较快。
+”天津市交通运输委主任王志楠介绍，编制期间共41家市级部门、相关区、众多企业及行业专家深度参与，并广泛征集了社会公众意见。
 
-4月16日，国家统计局公布的数据显示，1—3月份，全国固定资产投资（不含农户）102708亿元，同比增长1.7%。
+王志楠介绍，《规划》明确以港口带物流、以物流带经贸、以经贸带产业、以产业带城市为主线，谋划了五方面重点任务：打造双循环陆海联通枢纽、提升适港产业发展水平、强化临港产业服务能力、促进城市航运要素转型集聚、建设活力创新港口城市。
 
-其中，民间固定资产投资同比下降2.2%。
+围绕未来发展，《规划》设定了一系列量化指标。
 
-从环比看，3月份固定资产投资（不含农户）增长0.52%。
+预计到2030年，港口集装箱、货物吞吐量分别达2900万标准箱和6.5亿吨；中欧(亚)班列年开行量达1000列；进出口贸易额本地结算率达50%；五大临港产业总产值达6000亿元；跨境电商进出口交易额达1000亿元；邮轮旅客吞吐量超35万人次，东疆港产城融合发展示范区年均旅游收入达5亿元。
 
-分领域看，基础设施投资同比增长8.9%，制造业投资增长4.1%，房地产开发投资下降11.2%。
+据介绍，2025年天津港集装箱吞吐量2403万标准箱、货物吞吐量5.95亿吨，分别位居全球第八、第九；天津在新华·波罗的海国际航运中心发展指数排名升至全球第18位。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:33 - [北京“两区”建设加速推进 高水平开放释放发展新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:16 - [济宁太白湖新区：花海伴赛事 产业促民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:17 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:25 - [余金生被执行死刑！系杀害网红“罗大美”主犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:42 - [一季度郑州机场国际货运量同比增长21.8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:37 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:46 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:41 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:16 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:41 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:36 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:34 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:40 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:22 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:25 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:22 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:46 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:28 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:29 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:37 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [德意志银行预计美联储2026年将维持利率不变](http://www.blog.minike.top/Article/details/39287138653.shtml)
-- 2026-06-29 11:30 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](http://www.share.kurohicncr.top/Article/details/892472332312.shtml)
-- 2026-06-29 11:16 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](http://www.share.kurohicncr.top/Article/details/497443168741.shtml)
-- 2026-06-29 11:34 - [惠伦晶体立案审查通过，符合要求还可加入](http://www.blog.kurohicncr.top/Article/details/25514578455.shtml)
-- 2026-06-29 11:41 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](http://www.share.kurohicncr.top/Article/details/608106.shtml)
-- 2026-06-29 11:17 - [市场监管总局：将深入开展CCC认证守底线专项行动](http://www.blog.kurohicncr.top/Article/details/7625847640.shtml)
-- 2026-06-29 11:43 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](http://www.share.kurohicncr.top/Article/details/3884068.shtml)
-- 2026-06-29 11:37 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](http://www.blog.minike.top/Article/details/6884624.shtml)
-- 2026-06-29 11:22 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](http://www.share.kurohicncr.top/Article/details/227598.shtml)
-- 2026-06-29 11:26 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](http://www.share.kurohicncr.top/Article/details/4592528.shtml)
-- 2026-06-29 11:40 - [中东局势变化对我国外贸有何影响？国家统计局回应](http://www.blog.kurohicncr.top/Article/details/5740981952.shtml)
-- 2026-06-29 11:46 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](http://www.blog.kurohicncr.top/Article/details/4665295625.shtml)
-- 2026-06-29 11:18 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](http://www.blog.minike.top/Article/details/818942503.shtml)
-- 2026-06-29 11:18 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](http://www.share.kurohicncr.top/Article/details/4218557.shtml)
-- 2026-06-29 11:26 - [长光辰芯首挂上市 早盘高开81.80%](http://www.blog.minike.top/Article/details/39053251.shtml)
+- 2026-06-29 11:20 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:18 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:37 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:40 - [当地回应多辆“百吨王”强行冲卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:39 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:43 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:46 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:22 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:25 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:23 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:21 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:29 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:26 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)

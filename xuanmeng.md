@@ -1,60 +1,57 @@
-# 在沙地种下一片“云朵玫瑰”
+# 特朗普誓言对向美企征收数字服务税的国家征100%关税
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-“有的已经长出好几片叶子，有的才刚冒芽。不来看一眼，心里总不踏实。”进入四月，民盟中央派驻河北省广宗县南寺郭村的驻村第一书记李响常常一早就钻进玫瑰园里，细看云朵玫瑰的长势。 云朵玫瑰是民盟中央引入南寺郭村的特色农业项目，这不仅是一种新作物，更是让沙质土壤不再闲置的“答案”。 村里沙质土壤和壤土相间分布，很多地块不好利用。要破解发展瓶颈，需要找到与土壤特性相匹配的产业。为此，民盟
+美国总统特朗普威胁称，将对任何向美国科技企业征收数字服务税的国家所有输美商品征100%关税。 特朗普周五在社交媒体发文称：“许多欧洲国家一直在讨论即将对美国企业实施数字服务税。请将本声明视为正式通知，任何征收此类税项的国家，其输往美国的所有商品将被征收100%关税。” 特朗普表示，这项关税措施将“立即”生效，并取代美国此前与相关国家达成的任何现有贸易协议。 特朗普发表上述言论的
 
 ## 正文
 
-“有的已经长出好几片叶子，有的才刚冒芽。
+美国总统特朗普威胁称，将对任何向美国科技企业征收数字服务税的国家所有输美商品征100%关税。
 
-不来看一眼，心里总不踏实。
+特朗普周五在社交媒体发文称：“许多欧洲国家一直在讨论即将对美国企业实施数字服务税。
 
-”进入四月，民盟中央派驻河北省广宗县南寺郭村的驻村第一书记李响常常一早就钻进玫瑰园里，细看云朵玫瑰的长势。
+请将本声明视为正式通知，任何征收此类税项的国家，其输往美国的所有商品将被征收100%关税。
 
-云朵玫瑰是民盟中央引入南寺郭村的特色农业项目，这不仅是一种新作物，更是让沙质土壤不再闲置的“答案”。
+” 特朗普表示，这项关税措施将“立即”生效，并取代美国此前与相关国家达成的任何现有贸易协议。
 
-村里沙质土壤和壤土相间分布，很多地块不好利用。
+特朗普发表上述言论的前一天，欧盟正式批准了与美国达成的贸易协议，将欧盟大多数输美商品的关税税率上限设定为15%。
 
-要破解发展瓶颈，需要找到与土壤特性相匹配的产业。
+推荐阅读：欧盟在特朗普设定的最后期限前最终批准与美国的贸易协议 特朗普长期以来一直认为，这类税收将影响Alphabet和Meta Platforms等美国大型科技企业。
 
-为此，民盟中央社会服务部多次带队赴广宗开展实地考察调研，了解当地农业产业发展现状、土地资源条件、基础设施配套。
+此前，美国已多次威胁对征收数字服务税的贸易伙伴采取报复措施，其中包括欧盟。
 
-最终，种植云朵玫瑰成了可行的选择。
+今年，美国还呼吁重启经合组织有关数字经济税收规则的讨论。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [全球智能鸿沟如何破解？这份报告给出答案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:32 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:23 - [新疆新设草湖市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:25 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:30 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:24 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:31 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:27 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:37 - [海军航空大学某大队：更新知识体系 厚植打赢底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:18 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:32 - [Uber将收购Delivery Hero额外4.5%的股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:21 - [中国驻日本大使馆提醒在日中国公民注意人身安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:45 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:32 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:27 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:18 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:38 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:46 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:32 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:18 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:41 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:21 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:35 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:32 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [中国国防部：敦促日方同军国主义彻底切割](http://www.blog.kurohicncr.top/Article/details/93071931.shtml)
-- 2026-06-29 11:45 - [中国财长出席2026年G20财长和央行行长第一次会议](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股](http://www.share.minike.top/Article/details/219036.shtml)
-- 2026-06-29 11:33 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [液态金属在太空有何应用前景？中国科研团队深度解析全景前瞻](http://www.blog.minike.top/Article/details/604805.shtml)
-- 2026-06-29 11:36 - [国家医保局：全国近四成统筹地区已完成上年度清算](http://www.share.minike.top/Article/details/001903808688.shtml)
-- 2026-06-29 11:38 - [贝森特：可以理解美联储暂缓降息](http://www.share.kurohicncr.top/Article/details/91811.shtml)
-- 2026-06-29 11:36 - [洪水猛兽还是有效工具？专家学者聚焦AI视域下的青少年科幻写作](http://www.share.kurohicncr.top/Article/details/461043464.shtml)
-- 2026-06-29 11:19 - [老外体验无人驾驶：“万万没想到，比司机开还稳”](http://www.blog.minike.top/Article/details/19963208649.shtml)
-- 2026-06-29 11:33 - [挖机销量增近三成，工程机械“金三”来了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [开局之年看中国·开放自贸港：“艇”进三亚](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [首次原子尺度证实 中国科学家发现金属/载体三维体相参与催化新机制](http://www.share.kurohicncr.top/Article/details/51210787.shtml)
-- 2026-06-29 11:32 - [财信宏观丨供给韧性较强，需求修复待提速—2026年1-3月经济数据点评](http://www.share.kurohicncr.top/Article/details/545653667383.shtml)
-- 2026-06-29 11:23 - [酒价内参4月16日价格发布：水晶剑南春小幅上涨1元/瓶](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [ATFX:特朗普威胁解除鲍威尔职务 美指跌破98点](http://www.blog.minike.top/Article/details/282956156.shtml)
+- 2026-06-29 11:35 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:22 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:47 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:18 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:37 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:45 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:23 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:47 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:20 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:40 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:44 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:28 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:28 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)

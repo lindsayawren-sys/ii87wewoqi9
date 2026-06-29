@@ -1,56 +1,54 @@
-# 一季度“零发行”后银行二永债4月抢闸，会否冲击债市利差？
+# 华南首个国际船员换班中心服务国际船员超1.3万人次
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-财联社4月16日讯（记者 梁柯志）4月以来，银行体系二永债发行迅速开闸并提速。 招商银行4月15日公告，300亿元永续债发行完毕，前5年票面利率2.05%。 上周，工商银行和中信银行相继发布公告称，分别完成发行500亿元二级资本债和400亿元永续债，加上拟发行的民生银行、中国银行分别200亿和300亿的二级资本债、工商银行200亿元永续债，近期发行规模已经1800亿。 华西证券
+中新社广州6月25日电 (王华 吴汶忠)6月25日是世界海员日，位于广州南沙龙穴岛的华南首个国际船员换班中心正式启用满一周年，累计服务国际船员超1.3万人次，船员换班通关时间由原先的两三个小时压缩至10分钟左右，为航运企业显著降低滞港成本。据南沙边检站相关负责人介绍，该换班中心创新联合查验机制，建成“通关—休憩—消费”一站式服务链条，破解了以往国际船员换班环节多、耗时长、配套分
 
 ## 正文
 
-财联社4月16日讯（记者 梁柯志）4月以来，银行体系二永债发行迅速开闸并提速。
+中新社广州6月25日电 (王华 吴汶忠)6月25日是世界海员日，位于广州南沙龙穴岛的华南首个国际船员换班中心正式启用满一周年，累计服务国际船员超1.3万人次，船员换班通关时间由原先的两三个小时压缩至10分钟左右，为航运企业显著降低滞港成本。
 
-招商银行4月15日公告，300亿元永续债发行完毕，前5年票面利率2.05%。
+据南沙边检站相关负责人介绍，该换班中心创新联合查验机制，建成“通关—休憩—消费”一站式服务链条，破解了以往国际船员换班环节多、耗时长、配套分散的痛点。
 
-上周，工商银行和中信银行相继发布公告称，分别完成发行500亿元二级资本债和400亿元永续债，加上拟发行的民生银行、中国银行分别200亿和300亿的二级资本债、工商银行200亿元永续债，近期发行规模已经1800亿。
+目前该中心业务已辐射全球40多个国家和地区，覆盖中远海运、马士基、地中海航运等国内外头部航运企业。
 
-华西证券预测2026年二永债发行规模在1.71万亿–1.82万亿元之间。
+数据显示，一年来该中心累计服务中国籍船员8200余人次、外籍船员4800余人次；其中2200余人次外籍船员登陆广州观光旅游，同比大幅增长75%。
 
-考虑第一季度发行量为零，此前有市场观点认为，二永债集中供给和发行可能会直接冲击今年债市利差水平。
+据悉，南沙边检站还配套推出8项便利化举措，将服务延伸至船员换班全流程，实现换班船员“即到即办、即办即走”，同时联合驻地推动海员餐厅、船员俱乐部、离境退税商店等配套设施落地。
 
-财联社记者注意到，近期多家机构认为，从历史经验看二永债供给放量对利差的直接影响较小。
-
-但由于其具备较强的交易属性，债市情绪偏弱叠加供给放量时，二永债收益率和品种利差走阔的可能性较大。
-
-二永债获批额度大增 公开资料显示，4月上旬，工商银行、中信银行和招商银行发布二永债等相关债券额度的批复，三家银行今年额度分别是8000亿、1600亿和730亿，较往年明显增长，其中工商银行额度较2024年增长2倍。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [七牛智能午后涨超4% AI相关收入占比进一步增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:19 - [全周期、全渠道、全领域——多部门详解药价新规](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:45 - [中国电动三轮车爆火美国 电动三轮车在美国价格翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:23 - [国家统计局：一季度GDP同比增长5.0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:45 - [小摩：中金公司首季业绩料胜预期 重申行业首选股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:18 - [沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:38 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:40 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:18 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:42 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:45 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:34 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:36 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:42 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:36 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:24 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:41 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:37 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [北京“两区”建设加速推进 高水平开放释放发展新动能](http://www.share.minike.top/Article/details/61738691.shtml)
-- 2026-06-29 11:40 - [济宁太白湖新区：花海伴赛事 产业促民生](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [余金生被执行死刑！系杀害网红“罗大美”主犯](http://www.blog.minike.top/Article/details/895589.shtml)
-- 2026-06-29 11:44 - [一季度郑州机场国际货运量同比增长21.8%](http://www.share.kurohicncr.top/Article/details/786410.shtml)
-- 2026-06-29 11:22 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](http://www.blog.kurohicncr.top/Article/details/5621730.shtml)
-- 2026-06-29 11:35 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](http://www.share.kurohicncr.top/Article/details/4260991558.shtml)
-- 2026-06-29 11:39 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.share.minike.top/Article/details/45550.shtml)
-- 2026-06-29 11:22 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](http://www.share.minike.top/Article/details/1668609.shtml)
-- 2026-06-29 11:45 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [云南印发实施意见全面推进共有精神家园建设](http://www.share.kurohicncr.top/Article/details/875100203.shtml)
-- 2026-06-29 11:35 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.share.kurohicncr.top/Article/details/00723868.shtml)
-- 2026-06-29 11:25 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.share.kurohicncr.top/Article/details/56229932392.shtml)
+- 2026-06-29 11:41 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:31 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:34 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:18 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:45 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:20 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:40 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:37 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:21 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:30 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:37 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:41 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)

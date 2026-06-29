@@ -1,54 +1,53 @@
-# 迪拜启用全球首个综合空中出租车起降场
+# 总书记讲述的党史故事｜“半条被子”映照初心
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：新华社 记者：温新年 赵丹亮 阿联酋迪拜16日宣布启用全球首个综合空中出租车垂直起降场，标志着阿联酋在发展先进、可持续城市交通体系方面迈出重要一步。该起降场位于迪拜国际机场附近，占地约3100平方米，为一座四层建筑，设有两处电动垂直起降飞行器专用起降平台，并配套停车设施，是在迪拜王储谢赫哈姆丹·阿勒马
+2016年10月，纪念红军长征胜利80周年大会上，习近平总书记饱含深情地讲述了“半条被子”的故事。2020年9月，总书记在湖南考察时，专程来到汝城县沙洲村，参观“半条被子的温暖”专题陈列馆。 习近平总书记指出：“同人民风雨同舟、血脉相通、生死与共，是中国共产党和红军取得长征胜利的根本保证，也是我们战胜一切困难和风险的根本保证。” 统筹：刘佩、王健 编导：罗林岚 作者：丁春雨、李
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+2016年10月，纪念红军长征胜利80周年大会上，习近平总书记饱含深情地讲述了“半条被子”的故事。
 
-来源：新华社 记者：温新年 赵丹亮 阿联酋迪拜16日宣布启用全球首个综合空中出租车垂直起降场，标志着阿联酋在发展先进、可持续城市交通体系方面迈出重要一步。
+2020年9月，总书记在湖南考察时，专程来到汝城县沙洲村，参观“半条被子的温暖”专题陈列馆。
 
-该起降场位于迪拜国际机场附近，占地约3100平方米，为一座四层建筑，设有两处电动垂直起降飞行器专用起降平台，并配套停车设施，是在迪拜王储谢赫哈姆丹·阿勒马克图姆支持下推进的。
+习近平总书记指出：“同人民风雨同舟、血脉相通、生死与共，是中国共产党和红军取得长征胜利的根本保证，也是我们战胜一切困难和风险的根本保证。
 
-项目预计年接待能力约17万人次，空中出租车商业运营计划于2026年底启动。
-
-根据规划，到2026年底将建成包括迪拜国际机场、市中心、棕榈岛和迪拜码头在内的四个起降场。
-
-责任编辑：于健 SF069
+” 统筹：刘佩、王健 编导：罗林岚 作者：丁春雨、李凯 配音：王帅龙 新华社音视频部制作
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [（经济观察）万商云集广交会 折射中国外贸新气象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:27 - [五一假期首日火车票今日开售 超全抢票攻略来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:16 - [距下次会议仅剩两周，欧洲央行仍未就利率走向给市场明确信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:36 - [实达集团营收缩水超2亿，退市警报拉响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:43 - [一季度“零发行”后银行二永债4月抢闸，会否冲击债市利差？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:20 - [戈壁湿地奏响春日序曲 万鸟翩跹染绿丝路古道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:17 - [美国和伊朗或考虑延长停火 霍尔木兹海峡局势仍高度紧张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:34 - [铝业股午前集体走高 中国铝业涨超5%俄铝涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:32 - [中国经济开门红，靠的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:38 - [同济大学回应“一教师论文数据存疑”：已成立调查组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:42 - [南京将打造国际航空货运枢纽 开辟及加密近远洋干线航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:18 - [七牛智能午后涨超4% AI相关收入占比进一步增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:21 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:46 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:24 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:21 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:26 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:27 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:37 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:21 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:40 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:32 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:39 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:46 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:45 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [美国将封锁范围扩大至受制裁船只](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](http://www.share.minike.top/Article/details/444739165027.shtml)
-- 2026-06-29 11:33 - [涉“幽灵外卖”，抖音被罚5689万](http://www.blog.minike.top/Article/details/91347.shtml)
-- 2026-06-29 11:40 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](http://www.share.minike.top/Article/details/4530096201.shtml)
-- 2026-06-29 11:32 - [黎巴嫩总统同美国国务卿通话](http://www.blog.minike.top/Article/details/7494294381.shtml)
-- 2026-06-29 11:17 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](http://www.share.kurohicncr.top/Article/details/30765828220.shtml)
-- 2026-06-29 11:40 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](http://www.share.minike.top/Article/details/728432660.shtml)
-- 2026-06-29 11:33 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](http://www.blog.kurohicncr.top/Article/details/08837674566.shtml)
-- 2026-06-29 11:43 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](http://www.blog.minike.top/Article/details/63939984047.shtml)
-- 2026-06-29 11:32 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](http://www.blog.minike.top/Article/details/879835472529.shtml)
-- 2026-06-29 11:22 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](http://www.share.minike.top/Article/details/395602330940.shtml)
-- 2026-06-29 11:38 - [北京“两区”建设加速推进 高水平开放释放发展新动能](http://www.share.kurohicncr.top/Article/details/449583056964.shtml)
-- 2026-06-29 11:22 - [济宁太白湖新区：花海伴赛事 产业促民生](http://www.blog.minike.top/Article/details/768697481.shtml)
-- 2026-06-29 11:31 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](http://www.share.minike.top/Article/details/2923096355.shtml)
-- 2026-06-29 11:27 - [余金生被执行死刑！系杀害网红“罗大美”主犯](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:43 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:41 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:30 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:19 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:30 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:35 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:18 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:23 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:47 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:45 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:44 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:27 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)

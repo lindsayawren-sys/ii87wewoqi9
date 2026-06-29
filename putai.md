@@ -1,47 +1,60 @@
-# 厦门钨业：子公司金龙稀土进入创新层
+# 新疆兵团牧场：北斗当“牧倌” “坐家放牧”成现实
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-4月16日，厦门钨业（600549）发布公告，控股子公司福建省金龙稀土股份有限公司（874673）为全国中小企业股份转让系统挂牌企业，于2026年4月17日起进入创新层。
+中新网乌鲁木齐6月26日电 (齐琳洁 朱小丽 杜仪)在新疆生产建设兵团第六师北塔山牧场，居民如今坐在家里，依托“智能牧倌”——北斗卫星导航系统，就能把戈壁滩上的骆驼等牲畜管得明明白白。 该系统带有定位项圈、揣着电子芯片，成为居民抢手的“新伙计”，让“坐家放牧”变成现实。 6月的北塔山牧场草木翠绿，正是一年一度的黄金放牧期。居民哈力木·达吾列提拜待在凉爽舒适的家中，指尖轻触“智慧
 
 ## 正文
 
-4月16日，厦门钨业（600549）发布公告，控股子公司福建省金龙稀土股份有限公司（874673）为全国中小企业股份转让系统挂牌企业，于2026年4月17日起进入创新层。
+中新网乌鲁木齐6月26日电 (齐琳洁 朱小丽 杜仪)在新疆生产建设兵团第六师北塔山牧场，居民如今坐在家里，依托“智能牧倌”——北斗卫星导航系统，就能把戈壁滩上的骆驼等牲畜管得明明白白。
+
+该系统带有定位项圈、揣着电子芯片，成为居民抢手的“新伙计”，让“坐家放牧”变成现实。
+
+6月的北塔山牧场草木翠绿，正是一年一度的黄金放牧期。
+
+居民哈力木·达吾列提拜待在凉爽舒适的家中，指尖轻触“智慧牧场”APP，戈壁上的骆驼实时位置、行动轨迹、健康状态一目了然。
+
+“以前找骆驼，两三天可能都找不见。
+
+冬天也冻得很，有时跑出去100公里还是找不着。
+
+”哈力木·达吾列提拜说。
+
+北塔山牧场地处边境，地域辽阔、环境恶劣。
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:20 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:40 - [美国将封锁范围扩大至受制裁船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:26 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:36 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:29 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:25 - [黎巴嫩总统同美国国务卿通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:45 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:32 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:32 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:43 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:39 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:27 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:33 - [北京“两区”建设加速推进 高水平开放释放发展新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:41 - [济宁太白湖新区：花海伴赛事 产业促民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:43 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:47 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:36 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:41 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:40 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:47 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:39 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:41 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:22 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:24 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:23 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:32 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [上美股份将于6月23日派发末期股息每股0.75元](http://www.share.minike.top/Article/details/323275165796.shtml)
-- 2026-06-29 11:21 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](http://www.blog.kurohicncr.top/Article/details/02925439505.shtml)
-- 2026-06-29 11:44 - [中国驻日大使馆接连遭到恐怖威胁](http://www.blog.kurohicncr.top/Article/details/00728100876.shtml)
-- 2026-06-29 11:33 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [海南这个园区有点东西：学生一校入学 可共享多校课程](http://www.share.kurohicncr.top/Article/details/481312.shtml)
-- 2026-06-29 11:31 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](http://www.blog.kurohicncr.top/Article/details/2551189325.shtml)
-- 2026-06-29 11:40 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](http://www.blog.minike.top/Article/details/41761604350.shtml)
-- 2026-06-29 11:42 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](http://www.blog.kurohicncr.top/Article/details/6711988260.shtml)
-- 2026-06-29 11:32 - [多重利好叠加提振预期 消费板块能否苦尽甘来](http://www.share.kurohicncr.top/Article/details/45852501664.shtml)
-- 2026-06-29 11:32 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](http://www.blog.minike.top/Article/details/98800973846.shtml)
-- 2026-06-29 11:26 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](http://www.share.minike.top/Article/details/662957269329.shtml)
-- 2026-06-29 11:34 - [中国国家中医药管理局原局长于文明被公诉](http://www.blog.minike.top/Article/details/094328.shtml)
-- 2026-06-29 11:44 - [德意志银行预计美联储2026年将维持利率不变](http://www.share.kurohicncr.top/Article/details/16177.shtml)
-- 2026-06-29 11:22 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](http://www.share.kurohicncr.top/Article/details/4842347.shtml)
-- 2026-06-29 11:30 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](http://www.blog.kurohicncr.top/Article/details/8716112470.shtml)
+- 2026-06-29 11:42 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:43 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:29 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:20 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:29 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:31 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:42 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:39 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:21 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:42 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:41 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:19 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:18 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:44 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:32 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)

@@ -1,55 +1,55 @@
-# 美又一核动力航母失火 8名船员受伤
+# 美国允许受信任的伙伴使用Anthropic的Mythos 5人工智能模型
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-综合美国全国广播公司及福克斯新闻网16日消息，当地时间14日，美国海军“艾森豪威尔”号航空母舰在美国弗吉尼亚州朴次茅斯的诺福克海军造船厂进行维护时发生火灾，导致多名船员受伤。 据美国全国广播公司报道，这起火灾导致8名船员受伤。美军方称，火灾已被舰上及船厂人员迅速控制并扑灭，8名船员经治疗后已恢复正常执勤。 “艾森豪威尔”号属于美国海军“尼米兹”级核动力航母，排水量约10万吨。该
+美国商务部在信函中表示，美国放宽了对“可信赖的伙伴”使用Anthropic PBC的高端Mythos 5人工智能模型的限制。 此举缓和了Anthropic与美国政府之间的争端。此前，美国政府援引安全担忧，突然禁止Anthropic向外国公民开放Fable 5和Mythos 5。这封日期为周五的信函并未提及对Fable 5模型使用限制的任何调整。 美国商务部发言人Benno Ka
 
 ## 正文
 
-综合美国全国广播公司及福克斯新闻网16日消息，当地时间14日，美国海军“艾森豪威尔”号航空母舰在美国弗吉尼亚州朴次茅斯的诺福克海军造船厂进行维护时发生火灾，导致多名船员受伤。
+美国商务部在信函中表示，美国放宽了对“可信赖的伙伴”使用Anthropic PBC的高端Mythos 5人工智能模型的限制。
 
-据美国全国广播公司报道，这起火灾导致8名船员受伤。
+此举缓和了Anthropic与美国政府之间的争端。
 
-美军方称，火灾已被舰上及船厂人员迅速控制并扑灭，8名船员经治疗后已恢复正常执勤。
+此前，美国政府援引安全担忧，突然禁止Anthropic向外国公民开放Fable 5和Mythos 5。
 
-“艾森豪威尔”号属于美国海军“尼米兹”级核动力航母，排水量约10万吨。
+这封日期为周五的信函并未提及对Fable 5模型使用限制的任何调整。
 
-该航母在2025年1月进入造船厂进行维护，计划包括对航母推进系统、船员居住性、作战系统及航空支援能力的全面改进。
+美国商务部发言人Benno Kass表示：“在短短两周内，我们辛勤工作，以确保美国在维护国家安全的同时，继续保持在全球人工智能领域的领导地位。
 
-在“艾森豪威尔”号此次失火之前，美国另一艘航母“福特”号在3月12日发生火灾，舰上的洗衣房起火。
-
-火势在数小时后得到控制，但仍造成约200名官兵因吸入浓烟受伤接受治疗。
+” 推荐阅读：Anthropic据悉正接近与美国政府达成协议 AI模型限制有望解除责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:32 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:26 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:24 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:24 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:32 - [海军航空大学某大队：更新知识体系 厚植打赢底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:20 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:26 - [Uber将收购Delivery Hero额外4.5%的股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:17 - [中国驻日本大使馆提醒在日中国公民注意人身安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:34 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:23 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:22 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:33 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:39 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:32 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:42 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:29 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:23 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:40 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:45 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:21 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:22 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [液态金属在太空有何应用前景？中国科研团队深度解析全景前瞻](http://www.share.minike.top/Article/details/0136335.shtml)
-- 2026-06-29 11:33 - [国家医保局：全国近四成统筹地区已完成上年度清算](http://www.blog.kurohicncr.top/Article/details/91031006999.shtml)
-- 2026-06-29 11:44 - [贝森特：可以理解美联储暂缓降息](http://www.share.kurohicncr.top/Article/details/6333979998.shtml)
-- 2026-06-29 11:40 - [洪水猛兽还是有效工具？专家学者聚焦AI视域下的青少年科幻写作](http://www.blog.minike.top/Article/details/652366.shtml)
-- 2026-06-29 11:38 - [老外体验无人驾驶：“万万没想到，比司机开还稳”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [挖机销量增近三成，工程机械“金三”来了](http://www.blog.kurohicncr.top/Article/details/100762956114.shtml)
-- 2026-06-29 11:30 - [开局之年看中国·开放自贸港：“艇”进三亚](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [首次原子尺度证实 中国科学家发现金属/载体三维体相参与催化新机制](http://www.share.minike.top/Article/details/450324.shtml)
-- 2026-06-29 11:42 - [财信宏观丨供给韧性较强，需求修复待提速—2026年1-3月经济数据点评](http://www.share.kurohicncr.top/Article/details/69894443.shtml)
-- 2026-06-29 11:34 - [酒价内参4月16日价格发布：水晶剑南春小幅上涨1元/瓶](http://www.blog.kurohicncr.top/Article/details/2722128605.shtml)
-- 2026-06-29 11:33 - [ATFX:特朗普威胁解除鲍威尔职务 美指跌破98点](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [中东突发！刚刚，直线拉升！](http://www.blog.kurohicncr.top/Article/details/63212485136.shtml)
-- 2026-06-29 11:16 - [湖北：以正确政绩观引领“支点建设”新征程](http://www.blog.minike.top/Article/details/282295.shtml)
-- 2026-06-29 11:22 - [全球经济的严峻考验](http://www.share.kurohicncr.top/Article/details/664110707573.shtml)
+- 2026-06-29 11:31 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:42 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:26 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:35 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:37 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:22 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:47 - [T1 3-0 TLAW数据雷达图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:26 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:46 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:44 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:28 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:35 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:32 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:22 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)

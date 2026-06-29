@@ -1,60 +1,61 @@
-# 国办印发深化投资审批制度改革意见 严格政府投资项目管理实行决策终身负责制
+# 玖瀛资产、腾创投资，被查处
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-据新华社电 为进一步优化投资审批权限配置、提升投资服务便利度、强化投资项目全过程监管，着力扩大有效投资，国务院办公厅日前印发《关于深化投资审批制度改革的意见》（以下简称《意见》），对相关工作作出部署。 在严格政府投资项目管理方面，《意见》提出，按照权责一致、监督有效并与事权相匹配的原则，优化政府投资项目审批权限；严禁违规通过国有企业等以企业投资项目核准或备案形式规避政府投资项目
+证监会网站6月26日消息，近日，中国证监会对深圳前海玖瀛资产管理有限公司（以下简称玖瀛资产）、深圳市前海腾创投资有限公司（以下简称腾创投资）及相关责任人员违法违规行为作出行政处罚。 经查，玖瀛资产、腾创投资及相关责任人员利用私募基金向玖瀛资产及关联主体输送利益，报送虚假信息，严重侵害投资者合法权益，严重违反私募基金法律法规。深圳证监局对玖瀛资产、腾创投资罚没5800余万元，对3
 
 ## 正文
 
-据新华社电 为进一步优化投资审批权限配置、提升投资服务便利度、强化投资项目全过程监管，着力扩大有效投资，国务院办公厅日前印发《关于深化投资审批制度改革的意见》（以下简称《意见》），对相关工作作出部署。
+证监会网站6月26日消息，近日，中国证监会对深圳前海玖瀛资产管理有限公司（以下简称玖瀛资产）、深圳市前海腾创投资有限公司（以下简称腾创投资）及相关责任人员违法违规行为作出行政处罚。
 
-在严格政府投资项目管理方面，《意见》提出，按照权责一致、监督有效并与事权相匹配的原则，优化政府投资项目审批权限；严禁违规通过国有企业等以企业投资项目核准或备案形式规避政府投资项目审批；完善项目建设标准和投资概算核定标准体系，严格项目概算约束；实行政府投资项目决策终身负责制。
+经查，玖瀛资产、腾创投资及相关责任人员利用私募基金向玖瀛资产及关联主体输送利益，报送虚假信息，严重侵害投资者合法权益，严重违反私募基金法律法规。
 
-在规范企业投资项目管理方面，《意见》提出，动态修订政府核准的投资项目目录；各省级政府要根据项目性质、市县承接能力等，合理确定本地区企业投资项目核准权限；推进项目备案信息和备案证明标准化，加强备案信息完整性、产业政策符合性核查；强化企业投资管理政策和产业政策、要素资金管理政策的协同联动。
+深圳证监局对玖瀛资产、腾创投资罚没5800余万元，对3名责任人员罚款100余万元，对玖瀛资产、腾创投资实际控制人采取5年证券市场禁入措施及5年证券市场禁止交易措施。
 
-在提升投资审批效率和促进项目落地方面，《意见》提出，深入推进“固定资产投资项目审批一件事”；进一步精简投资项目报建审批事项，对同一部门并联审批的报建事项实行合并办理；规范项目招标投标管理，严厉打击规避招标、围标串标、弄虚作假等违法违规行为；加强项目建设实施管理，完善投资项目建设实施信息填报等制度。
+中国证券投资基金业协会将按程序注销相关私募机构管理人登记。
 
-在加强项目监管和健全评价体系方面，《意见》提出，压实项目全过程监管责任，投资主管部门履行综合监管责任，行业主管部门履行行业监管责任，地方政府有关部门履行属地监管责任；建立与高质量发展要求相适应的投资项目决策综合评价和绩效评价制度，有效支撑投资决策和项目管理。
+对于相关违法行为可能涉及的犯罪问题线索，证券监管部门将坚持应移尽移的工作原则，依法依规移送公安机关。
 
-《意见》强调，要加强投资审批制度改革与项目投融资机制改革、重点领域价费改革等的协同配合，更好发挥叠加效应。
+6月3日，国务院办公厅印发了《国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见》，明确要求严厉打击违规募集、侵占挪用、自融自用、利益输送等违法违规行为。
 
-各地区、各有关部门要按照职责分工抓好本意见贯彻落实，国务院投资主管部门要加强统筹协调指导，共同推动改革措施落地见效。
+中国证监会将坚决贯彻落实文件要求，明底线、立红线，清除“害群之马”，持续加大重点领域违法违规行为的查处和打击力度，提高违法违规成本，净化行业环境，切实保护投资者合法权益，促进行业规范健康发展。
 
-（文章来源：证券时报）责任编辑：石秀珍 SF183
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [网易云音乐于4月15日耗资约1499.57万港元回购11.995万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:23 - [专家解读法国通过文物归还法案 为中国文物回流提供契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:35 - [云南瑞丽边检站为骨折缅甸旅客开通“紧急通道”入境就医](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:45 - [新华时评·首季经济观察丨稳健开局展现中国经济韧性底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:33 - [迪拜启用全球首个综合空中出租车起降场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:38 - [长三角港口从“互连”迈向“深融” “连申快航”年运量突破15.2万标箱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:36 - [凌晨，见证历史！全线大涨！美联储，重磅发布！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:16 - [圣贝拉集团：受托人根据股份奖励计划购买合共9.2万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:22 - [麦迪科技：4月13日召开业绩说明会，投资者参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:35 - [开局之年看中国·开放自贸港：三亚芒果闯世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:37 - [Hims & Hers股价周四上涨：监管突破助推](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:20 - [（经济观察）万商云集广交会 折射中国外贸新气象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:37 - [五一假期首日火车票今日开售 超全抢票攻略来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:18 - [距下次会议仅剩两周，欧洲央行仍未就利率走向给市场明确信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:25 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:44 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:19 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:30 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:47 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:25 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:27 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:34 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:24 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:20 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:38 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:29 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:19 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:37 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [4月16日人民币对美元中间价报6.8616 下调34个基点](http://www.blog.minike.top/Article/details/4644249.shtml)
-- 2026-06-29 11:17 - [厦门钨业：子公司金龙稀土进入创新层](http://www.share.minike.top/Article/details/81917397.shtml)
-- 2026-06-29 11:46 - [镜观·回响丨在交流中深化中越青年情谊](http://www.share.minike.top/Article/details/47517.shtml)
-- 2026-06-29 11:37 - [中金：维持波司登跑赢行业评级 目标价5.65港元](http://www.share.kurohicncr.top/Article/details/4206337.shtml)
-- 2026-06-29 11:29 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](http://www.share.kurohicncr.top/Article/details/747676056669.shtml)
-- 2026-06-29 11:28 - [伊朗称在与美国会谈期间讨论了解冻资产问题](http://www.blog.minike.top/Article/details/57814498.shtml)
-- 2026-06-29 11:18 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](http://www.blog.kurohicncr.top/Article/details/21762136.shtml)
-- 2026-06-29 11:32 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](http://www.blog.minike.top/Article/details/94474264528.shtml)
-- 2026-06-29 11:27 - [美国将封锁范围扩大至受制裁船只](http://www.blog.minike.top/Article/details/02937.shtml)
-- 2026-06-29 11:16 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](http://www.blog.minike.top/Article/details/05803446455.shtml)
-- 2026-06-29 11:27 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](http://www.blog.minike.top/Article/details/86133.shtml)
+- 2026-06-29 11:31 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:47 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:37 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:28 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:43 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:31 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:38 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:24 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:29 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:24 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:32 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:25 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:35 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)

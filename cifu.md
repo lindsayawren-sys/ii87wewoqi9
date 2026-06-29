@@ -1,58 +1,48 @@
-# 市场监管总局：将深入开展CCC认证守底线专项行动
+# 国家能源局：未来西部地区不仅要向外送电、送煤、送气，还要向外送产品、送Token（词元）
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网北京4月16日电(记者 谢艺观)“下一步，我们将深入开展CCC认证守底线专项行动，全链条、全方位加强CCC认证监管，推动CCC认证市场秩序更加规范，CCC认证产品质量安全水平持续提升，为广大人民群众营造安全放心的消费环境。”4月16日，市场监管总局召开严格强制性产品认证监管专题新闻发布会，市场监管总局认证监管司司长周智高如是表示。 据他介绍，一是切实加强全链条监管。优化C
+人民财讯6月26日电，6月26日，国务院新闻办公室举行“开局起步‘十五五’”系列主题新闻发布会，介绍“十五五”时期加快新型能源体系建设有关规划情况。国家能源局新闻发言人、副局长万劲松表示，“十五五”时期将切实保障东中部地区用能需求，同时还将推动东中部重点用能地区挖掘潜力，加强本地非化石能源的就近开发利用，合理布局新增支撑电源，推动电从远方来，也从身边来。此外，还将有序引导高载能
 
 ## 正文
 
-中新网北京4月16日电(记者 谢艺观)“下一步，我们将深入开展CCC认证守底线专项行动，全链条、全方位加强CCC认证监管，推动CCC认证市场秩序更加规范，CCC认证产品质量安全水平持续提升，为广大人民群众营造安全放心的消费环境。
+人民财讯6月26日电，6月26日，国务院新闻办公室举行“开局起步‘十五五’”系列主题新闻发布会，介绍“十五五”时期加快新型能源体系建设有关规划情况。
 
-”4月16日，市场监管总局召开严格强制性产品认证监管专题新闻发布会，市场监管总局认证监管司司长周智高如是表示。
+国家能源局新闻发言人、副局长万劲松表示，“十五五”时期将切实保障东中部地区用能需求，同时还将推动东中部重点用能地区挖掘潜力，加强本地非化石能源的就近开发利用，合理布局新增支撑电源，推动电从远方来，也从身边来。
 
-据他介绍，一是切实加强全链条监管。
+此外，还将有序引导高载能产业有序向西部转移，推动先进制造业、算力、氢能等产业布局与清洁能源基地协同，促进用能产业空间布局优化，未来西部地区不仅要向外送电、送煤、送气，还要向外送产品、送Token（词元）。
 
-优化CCC认证机构和实验室指定程序，严把准入条件。
-
-组织开展机构技术能力核查，着力构建优胜劣汰、能进能出的动态调整机制，确保指定实施机构能力持续符合要求。
-
-加强“双随机、一公开”检查和认证有效性抽查，及时发现和查处认证违法违规行为。
-
-对CCC获证产品质量安全事故开展“一案双查”，既查生产销售企业也查指定实施机构，对虚假认证等违法违规行为“零容忍”，公开曝光典型案件，形成有力震慑。
-
-二是压紧压实认证主体责任。
+责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:28 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:45 - [长光辰芯首挂上市 早盘高开81.80%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:36 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:37 - [中国向伊朗提供紧急人道主义援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:44 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:38 - [浙江启用防汛防台机器狗“AI防汛勇士”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:22 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:36 - [安徽淮北：云海罩城 宛如美丽画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:28 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:33 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:36 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:31 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:40 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:22 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:40 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:47 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:27 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:29 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:23 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:44 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [国际能源署署长：欧洲仅剩够用6周航空燃油](http://www.blog.minike.top/Article/details/289236.shtml)
-- 2026-06-29 11:26 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](http://www.blog.kurohicncr.top/Article/details/67288.shtml)
-- 2026-06-29 11:23 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](http://www.share.kurohicncr.top/Article/details/09683.shtml)
-- 2026-06-29 11:34 - [酒价内参4月17日价格发布，青花郎下跌2元](http://www.share.kurohicncr.top/Article/details/65855089.shtml)
-- 2026-06-29 11:38 - [外交部提醒赴美国中国公民注意入境安全风险](http://www.blog.kurohicncr.top/Article/details/57143.shtml)
-- 2026-06-29 11:45 - [Stena DrillMAX将在希腊近海钻探首口深水井](http://www.share.kurohicncr.top/Article/details/9703498.shtml)
-- 2026-06-29 11:35 - [在沙地种下一片“云朵玫瑰”](http://www.share.kurohicncr.top/Article/details/01026762.shtml)
-- 2026-06-29 11:20 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](http://www.blog.minike.top/Article/details/3490739289.shtml)
-- 2026-06-29 11:35 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](http://www.share.minike.top/Article/details/50340520383.shtml)
-- 2026-06-29 11:40 - [美又一核动力航母失火 8名船员受伤](http://www.share.kurohicncr.top/Article/details/350891092.shtml)
-- 2026-06-29 11:25 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](http://www.blog.minike.top/Article/details/3743055.shtml)
-- 2026-06-29 11:35 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](http://www.share.kurohicncr.top/Article/details/82458663717.shtml)
-- 2026-06-29 11:19 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](http://www.blog.minike.top/Article/details/878347812046.shtml)
-- 2026-06-29 11:25 - [全球智能鸿沟如何破解？这份报告给出答案！](http://www.blog.kurohicncr.top/Article/details/56292.shtml)
-- 2026-06-29 11:33 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](http://www.blog.kurohicncr.top/Article/details/654602.shtml)
+- 2026-06-29 11:31 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:22 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:19 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:39 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:47 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:43 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:41 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:36 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:37 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:34 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:27 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:42 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:47 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)

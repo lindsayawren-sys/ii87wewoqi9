@@ -1,59 +1,54 @@
-# 多重利好叠加提振预期 消费板块能否苦尽甘来
+# 国家税务总局推出集团企业“税收贡献账单”
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！《服务消费提质惠民行动2026年工作方案》出台、今年第二批625亿元“国补”资金下达、第六届中国国际消费品博览会吸引全球关注……近期一系列提振消费预期的政策和行业事件密集涌现。不过从资本市场表现看，商贸零售、美容护理、家用电器等消费类板块在31个申万一级行业中表现相对疲软，相关板块估值持续下行。 在业内人士
+中新网北京6月26日电 (记者 赵建华)目前，税务部门初步选取了央企上市公司及民营企业等500多家重点集团，6月中旬试点开展了向集团总部推送整个集团上年度“税收贡献账单”的工作。 国家税务总局纳税服务司有关负责人26日介绍，此次推出的“税收贡献账单”，是国家税务总局依托税收大数据，按统一标准口径自动归集重点集团企业年度纳税情况后生成的“纳税账”，包括企业年度纳税总额、增值税和企
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京6月26日电 (记者 赵建华)目前，税务部门初步选取了央企上市公司及民营企业等500多家重点集团，6月中旬试点开展了向集团总部推送整个集团上年度“税收贡献账单”的工作。
 
-《服务消费提质惠民行动2026年工作方案》出台、今年第二批625亿元“国补”资金下达、第六届中国国际消费品博览会吸引全球关注……近期一系列提振消费预期的政策和行业事件密集涌现。
+国家税务总局纳税服务司有关负责人26日介绍，此次推出的“税收贡献账单”，是国家税务总局依托税收大数据，按统一标准口径自动归集重点集团企业年度纳税情况后生成的“纳税账”，包括企业年度纳税总额、增值税和企业所得税等主要税种缴纳情况、同比增减幅度等信息，由税务部门统一推送至重点集团企业总部，为企业规范发布涉税数据提供依据。
 
-不过从资本市场表现看，商贸零售、美容护理、家用电器等消费类板块在31个申万一级行业中表现相对疲软，相关板块估值持续下行。
+“有了税务部门统一标准的‘税收贡献账单’，企业可以结合经营实际，对外披露有关数据，充分展示企业依法纳税的责任担当和为国家社会作出的贡献，进一步树立依法依规纳税的诚信纳税形象，让诚信纳税成为企业参与市场竞争的‘金字招牌’。
 
-在业内人士看来，利好因素持续叠加有望提振消费预期，并为投资者布局消费板块的结构性机遇提供积极指引。
+”中央财经大学财政税务学院院长樊勇说，企业还可以把规范可信的纳税数据提供给第三方，将合规经营沉淀的纳税信用，转化为提升企业融资授信、参与市场竞争的发展势能。
 
-相较传统实物消费，包括免税、育儿消费、潮玩在内的服务消费、新消费等赛道更值得关注。
+樊勇介绍，“税收贡献账单”中的各项数据是税务机关按统一标准归集的，企业可以将其作为经营管理质效评估、涉税风险防控、财务决策优化的重要支撑，通过涉税数据复盘经营状况、排查涉税风险、优化资源配置，推动企业合规经营、稳健发展。
 
-此外，在商贸零售板块中，聚焦主业、注重效率的线下零售企业有望持续获得估值重估。
-
-利好因素持续积累 Wind数据显示，4月15日，A股三大股指走势分化，31个申万一级行业中，近期表现活跃的电子、电力设备等板块回调，家用电器、食品饮料等消费类板块上涨；概念板块中，创新药、宠物经济等涨幅居前，博瑞医药（维权）、双鹭药业、中宠股份等拉升封板。
-
-但从今年以来的整体表现看，A股消费板块表现依旧疲弱，商贸零售板块以近14%的跌幅在31个申万一级行业中排名垫底，美容护理、家用电器、食品饮料、社会服务等板块今年以来均录得负收益。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:28 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:25 - [市场监管总局：将深入开展CCC认证守底线专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:34 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:46 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:32 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:23 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:28 - [中东局势变化对我国外贸有何影响？国家统计局回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:40 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:41 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:19 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:40 - [长光辰芯首挂上市 早盘高开81.80%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:36 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:18 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:30 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:42 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:33 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:46 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:20 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:25 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:41 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:36 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:45 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:23 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:40 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](http://www.blog.kurohicncr.top/Article/details/3358685.shtml)
-- 2026-06-29 11:23 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.blog.minike.top/Article/details/18746051587.shtml)
-- 2026-06-29 11:36 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](http://www.share.kurohicncr.top/Article/details/7141417471.shtml)
-- 2026-06-29 11:40 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](http://www.share.minike.top/Article/details/42439.shtml)
-- 2026-06-29 11:31 - [韩国第一季度接待外国游客476万人次，创历史新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](http://www.blog.kurohicncr.top/Article/details/0977665028.shtml)
-- 2026-06-29 11:28 - [采购商谈消博会：这里是一座“全球好物中转站”](http://www.share.kurohicncr.top/Article/details/26305002996.shtml)
-- 2026-06-29 11:25 - [渤海银行：首席信息官谢凯任职资格获批](http://www.share.minike.top/Article/details/89846539062.shtml)
-- 2026-06-29 11:45 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](http://www.blog.minike.top/Article/details/95676.shtml)
-- 2026-06-29 11:31 - [国际能源署署长：欧洲仅剩够用6周航空燃油](http://www.blog.kurohicncr.top/Article/details/774871741.shtml)
-- 2026-06-29 11:23 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](http://www.share.minike.top/Article/details/4580435.shtml)
-- 2026-06-29 11:43 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [酒价内参4月17日价格发布，青花郎下跌2元](http://www.blog.minike.top/Article/details/0523794749.shtml)
-- 2026-06-29 11:21 - [外交部提醒赴美国中国公民注意入境安全风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [Stena DrillMAX将在希腊近海钻探首口深水井](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:23 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:35 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:33 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:43 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:35 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:42 - [男子吃半根变苦黄瓜致肝衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:24 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:30 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:36 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:45 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:20 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:22 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)

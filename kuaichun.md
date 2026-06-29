@@ -1,57 +1,59 @@
-# 七牛智能午后涨超4% AI相关收入占比进一步增长
+# 东西问丨郭大顺：红山文化人体雕塑为何如此蓬勃？
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-七牛智能（02567）盘中涨超5%，截至发稿，股价上涨4.35%，现报0.48港元，成交额98.95港元。 七牛智能年度财报显示，公司全年实现营收17.68亿元，同比增长23.1%。其中，AI相关收入达4.37亿元，对总收入的贡献由上半年的22.2%进一步提升至24.7%；经调整EBITDA首次转正，为上市以来首次实现盈利。 报告期内，七牛智能通过Token API平台确立中立
+中新社沈阳6月27日电 题：红山文化人体雕塑为何如此蓬勃？ ——专访辽宁省文物考古研究院名誉院长郭大顺 作者 孟令卓 宫旭 20世纪80年代，红山文化集中出土了有规模且多元的人体雕塑群，这在中国新石器时代考古发掘中极为罕见。为什么红山文化会存在人体雕塑？这些人体雕像对认识中国古代祖先崇拜的演变会有哪些重要影响？近日，辽宁省文物考古研究院名誉院长郭大顺接受中新社“东西问”独家专访
 
 ## 正文
 
-七牛智能（02567）盘中涨超5%，截至发稿，股价上涨4.35%，现报0.48港元，成交额98.95港元。
+中新社沈阳6月27日电 题：红山文化人体雕塑为何如此蓬勃？
 
-七牛智能年度财报显示，公司全年实现营收17.68亿元，同比增长23.1%。
+——专访辽宁省文物考古研究院名誉院长郭大顺 作者 孟令卓 宫旭 20世纪80年代，红山文化集中出土了有规模且多元的人体雕塑群，这在中国新石器时代考古发掘中极为罕见。
 
-其中，AI相关收入达4.37亿元，对总收入的贡献由上半年的22.2%进一步提升至24.7%；经调整EBITDA首次转正，为上市以来首次实现盈利。
+为什么红山文化会存在人体雕塑？
 
-报告期内，七牛智能通过Token API平台确立中立、独立的模型服务商角色，以统一管治层和动态算法实现风险管控与成本效能的最优平衡，成功将业务逻辑与基础算法竞争解耦。
+这些人体雕像对认识中国古代祖先崇拜的演变会有哪些重要影响？
 
-这一布局使公司能够凭借平台调度与管理能力构建长期溢价，无差别捕获行业Token消耗增长红利，形成稳固的底层护城河。
+近日，辽宁省文物考古研究院名誉院长郭大顺接受中新社“东西问”独家专访，予以阐释。
 
-责任编辑：卢昱君
+现将访谈实录摘要如下： 中新社记者：五千多年前的红山文化出土了哪些人体雕塑？
+
+其反映出红山文化艺术怎样的发展状况？
+
+郭大顺：红山文化人体雕塑最早见于1963年西水泉遗址出土的陶塑小型人像。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:31 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:36 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:18 - [珠江流域部分中小河流近期可能出现超警洪水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:33 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:44 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:21 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:40 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:44 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:39 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:32 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:40 - [4月16日人民币对美元中间价报6.8616 下调34个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:17 - [厦门钨业：子公司金龙稀土进入创新层](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:41 - [镜观·回响丨在交流中深化中越青年情谊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:21 - [中金：维持波司登跑赢行业评级 目标价5.65港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:22 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:46 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:42 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:44 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:19 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:19 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:43 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:24 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:46 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:46 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:19 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:28 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:18 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](http://www.blog.kurohicncr.top/Article/details/919872210315.shtml)
-- 2026-06-29 11:28 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](http://www.share.minike.top/Article/details/80412341477.shtml)
-- 2026-06-29 11:39 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](http://www.blog.minike.top/Article/details/46930.shtml)
-- 2026-06-29 11:39 - [河南南阳：警车亮灯守护三轮平安归途](http://www.blog.kurohicncr.top/Article/details/0987973.shtml)
-- 2026-06-29 11:23 - [云南印发实施意见全面推进共有精神家园建设](http://www.blog.kurohicncr.top/Article/details/6008312381.shtml)
-- 2026-06-29 11:27 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.share.minike.top/Article/details/7274512285.shtml)
-- 2026-06-29 11:36 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.share.kurohicncr.top/Article/details/172844.shtml)
-- 2026-06-29 11:27 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](http://www.share.kurohicncr.top/Article/details/32164641257.shtml)
-- 2026-06-29 11:29 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](http://www.blog.minike.top/Article/details/274131629329.shtml)
-- 2026-06-29 11:38 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](http://www.share.kurohicncr.top/Article/details/42432863942.shtml)
-- 2026-06-29 11:31 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](http://www.share.kurohicncr.top/Article/details/491590946.shtml)
-- 2026-06-29 11:42 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](http://www.blog.kurohicncr.top/Article/details/50572649.shtml)
-- 2026-06-29 11:27 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](http://www.share.minike.top/Article/details/560737.shtml)
+- 2026-06-29 11:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:41 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:29 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:24 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:22 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:32 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:27 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:31 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:33 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:26 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:22 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:24 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:43 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)

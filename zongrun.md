@@ -1,59 +1,57 @@
-# 全周期、全渠道、全领域——多部门详解药价新规
+# “海智赋能 科创未来”国际人才看扬州活动举行 三大服务平台集中授牌
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-新华社北京4月15日电 题：全周期、全渠道、全领域——多部门详解药价新规 新华社记者徐鹏航、彭韵佳 药品价格怎么定，关乎医药产业发展，更关乎老百姓看病买药。 近日，国务院办公厅印发《关于健全药品价格形成机制的若干意见》，为药品价格提供“指南针”。国新办4月15日举行国务院政策例行吹风会，对药品价格形成机制进行深入解读。全周期药品价格分类施策—— “全周期就是根据药品上市后的不同
+中新网扬州6月26日电 (徐珊珊 席超凡)6月26日上午，“海智赋能 科创未来”国际人才看扬州活动暨国际人才创业与服务展在海创园国际人才服务中心举行。扬州市委常委、统战部部长丁四海出席活动，并与与会嘉宾共同推杆启动。来自扬州各高校的留学生代表、海归人才齐聚一堂，共话创新创业。 本次活动由扬州市委统战部、扬州市人社局、共青团扬州市委指导，邗江区委统战部、扬州大学海外教育学院、扬州
 
 ## 正文
 
-新华社北京4月15日电 题：全周期、全渠道、全领域——多部门详解药价新规 新华社记者徐鹏航、彭韵佳 药品价格怎么定，关乎医药产业发展，更关乎老百姓看病买药。
+中新网扬州6月26日电 (徐珊珊 席超凡)6月26日上午，“海智赋能 科创未来”国际人才看扬州活动暨国际人才创业与服务展在海创园国际人才服务中心举行。
 
-近日，国务院办公厅印发《关于健全药品价格形成机制的若干意见》，为药品价格提供“指南针”。
+扬州市委常委、统战部部长丁四海出席活动，并与与会嘉宾共同推杆启动。
 
-国新办4月15日举行国务院政策例行吹风会，对药品价格形成机制进行深入解读。
+来自扬州各高校的留学生代表、海归人才齐聚一堂，共话创新创业。
 
-全周期药品价格分类施策—— “全周期就是根据药品上市后的不同环节，完善药品的价格政策。
+本次活动由扬州市委统战部、扬州市人社局、共青团扬州市委指导，邗江区委统战部、扬州大学海外教育学院、扬州市海归人才创业园联合主办，旨在汇聚全球智力资源，赋能扬州高质量发展，搭建国际人才交流合作平台。
 
-”国家医保局副局长施子海说。
+扬州自古便是开放包容的通商口岸、人文荟萃的文化名城，当前正聚力建设产业科创名城，加快构建“613”产业体系，重点发展高端装备、新能源、新材料、新一代信息技术等6大主导产业集群，攻坚突破集成电路、储能、生物医药、人工智能等13条新兴产业链，迫切需要海内外英才的智慧与力量。
 
-意见对全周期药品价格分类施策，给高水平创新药留足空间，鼓励企业持续做好研发创新；同时，给其他药品划定了自主定价的规则，引导企业公平合理定价。
+近年来，扬州深入实施人才强市战略，迭代升级“人才政策4.0”，构建起“1+3+N”政策体系。
 
-具体来说，对于新上市的药品引入药品首发价格机制，区分高水平创新药、改良新药、通用名药等情形，予以政策支持和引导；对纳入医保目录的药品发挥医保支付标准对药品价格的引导作用；对供应多元、上市多年、纳入集采的药品，针对不同种类药品特点优化集采规则，健全药品集采价格形成机制；对常规的挂网药品，完善药品挂网价格管理和动态调整制度。
+具体举措包括：深化“绿扬金凤”人才计划，顶尖人才创业项目最高可获1亿元综合资助，创新创业团队最高可获1000万元资助；全市已建成5.35万套人才公寓，提供“2周免费住、3年补贴住”以及“五免两通道”等贴心服务，通过“扬州人才码”一码通享；同时设立科创、成长等天使类基金，推广“扬创贷”“积分贷”等金融产品，为海归企业提供全周期资本支撑。
 
-国家医保局医药价格和招标采购司司长王小宁介绍，医保药品目录谈判8年来累计纳入199种创新药。
+“留学人员拥有开阔的国际视野和渊博的知识储备，是推动扬州高质量发展的生力军，希望大家以本次活动为契机，把先进理念、核心技术和优质项目带到扬州。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:22 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:41 - [珠江流域部分中小河流近期可能出现超警洪水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:30 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:44 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:25 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:37 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:37 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:25 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:44 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:31 - [4月16日人民币对美元中间价报6.8616 下调34个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:34 - [厦门钨业：子公司金龙稀土进入创新层](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:32 - [镜观·回响丨在交流中深化中越青年情谊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:39 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:32 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:25 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:26 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:36 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:47 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:32 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:48 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:37 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:40 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](http://www.share.minike.top/Article/details/79602206868.shtml)
-- 2026-06-29 11:18 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](http://www.share.minike.top/Article/details/4911692962.shtml)
-- 2026-06-29 11:22 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](http://www.share.kurohicncr.top/Article/details/67237.shtml)
-- 2026-06-29 11:40 - [河南南阳：警车亮灯守护三轮平安归途](http://www.share.kurohicncr.top/Article/details/672963.shtml)
-- 2026-06-29 11:33 - [云南印发实施意见全面推进共有精神家园建设](http://www.share.kurohicncr.top/Article/details/2474849242.shtml)
-- 2026-06-29 11:44 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.share.kurohicncr.top/Article/details/577594651833.shtml)
-- 2026-06-29 11:23 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.blog.kurohicncr.top/Article/details/82267186.shtml)
-- 2026-06-29 11:42 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](http://www.blog.kurohicncr.top/Article/details/5998523.shtml)
-- 2026-06-29 11:40 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](http://www.share.kurohicncr.top/Article/details/791964392663.shtml)
-- 2026-06-29 11:21 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](http://www.share.kurohicncr.top/Article/details/137798984547.shtml)
-- 2026-06-29 11:17 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](http://www.share.minike.top/Article/details/95727.shtml)
-- 2026-06-29 11:33 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](http://www.blog.kurohicncr.top/Article/details/4041116697.shtml)
-- 2026-06-29 11:16 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](http://www.blog.kurohicncr.top/Article/details/12502.shtml)
-- 2026-06-29 11:22 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](http://www.share.minike.top/Article/details/9710516.shtml)
+- 2026-06-29 11:37 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:25 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:38 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:40 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:31 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:23 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:24 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:45 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:24 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:37 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:44 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:39 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:38 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:45 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)

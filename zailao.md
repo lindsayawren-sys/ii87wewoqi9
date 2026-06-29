@@ -1,56 +1,56 @@
-# 中国电动三轮车爆火美国 电动三轮车在美国价格翻倍
+# 首届广西北部湾船员技能竞赛聚力培育航运人才
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：央视财经 据成都海关统计，今年前两个月，四川出口电动摩托车超9000万元，同比增长超2倍。其中，在中国十分常见的电动三轮摩托，在海外社交平台引发关注。在四川遂宁安居区经济开发区，新一批销往美国的电动三轮车正在装运。今年，企业对美出口预计将达1000台。四川某摩托车有限责任公司外贸部经理陶俊：“当时有一
+中新网防城港6月26日电 (李梓媛)首届广西北部湾船员职业技能竞赛近日在防城港举行，来自北海、防城港、钦州3市的航运企业、航海院校的6支代表队，42名船员代表参加。 本次活动由防城港海事局牵头，联合防城港市总工会、防城国际海员俱乐部、防城出入境边防检查站主办，防城港市船员行业党委协同组织，旨在落实广西海事“136”发展战略、落地链接东盟对外开放定位，夯实西部陆海新通道航运人才根
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网防城港6月26日电 (李梓媛)首届广西北部湾船员职业技能竞赛近日在防城港举行，来自北海、防城港、钦州3市的航运企业、航海院校的6支代表队，42名船员代表参加。
 
-来源：央视财经 据成都海关统计，今年前两个月，四川出口电动摩托车超9000万元，同比增长超2倍。
+本次活动由防城港海事局牵头，联合防城港市总工会、防城国际海员俱乐部、防城出入境边防检查站主办，防城港市船员行业党委协同组织，旨在落实广西海事“136”发展战略、落地链接东盟对外开放定位，夯实西部陆海新通道航运人才根基。
 
-其中，在中国十分常见的电动三轮摩托，在海外社交平台引发关注。
+据了解，赛事以“技聚北部湾·匠筑航海梦”为主题，紧贴船舶海上实操与应急处置实景，设置团体实操、个人技能两大板块，涵盖撇缆操作、机舱故障排除、海上救生、消防应急处置等实操科目，全面检验船员专业履职能力。
 
-在四川遂宁安居区经济开发区，新一批销往美国的电动三轮车正在装运。
+作为北部湾首场面向东盟开放的区域性船员技能竞赛，本次赛事创新开设外籍船员观摩交流专场，并邀请越南航运行业代表及东盟国家外籍船员代表现场观赛，切磋技能。
 
-今年，企业对美出口预计将达1000台。
+越南西贡游艇与码头有限公司首席执行官杜平阳表示，赛事以技能比武为桥梁，搭建起中外海员友好互通平台，是广西海事链接东盟、做实涉外航运服务的务实实践。
 
-四川某摩托车有限责任公司外贸部经理陶俊：“当时有一个国外博主，他在我们这边买了一辆电动三轮车。
+期待后续搭建更多双向交流平台，实现中外船员互学共进。
 
-他拿到美国去之后拍了一条视频，不知道为什么就火了。
+“本次技能竞赛专业性、实战性很强，既比拼实操本领，也搭建了和东盟船员交流学习的平台，真切感受到社会各界对海员群体的关怀。
 
-我们联系这个博主，给他发了几台车让他做测试，后面联系到我们的国外客户越来越多。
+”参赛船员代表吴沛原说。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:36 - [珠江流域部分中小河流近期可能出现超警洪水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:40 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:42 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:42 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:42 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:44 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:37 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:35 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:27 - [4月16日人民币对美元中间价报6.8616 下调34个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:20 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:34 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:33 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:18 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:25 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:33 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:35 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:45 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](http://www.blog.minike.top/Article/details/69299820.shtml)
-- 2026-06-29 11:33 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](http://www.blog.kurohicncr.top/Article/details/147526.shtml)
-- 2026-06-29 11:22 - [河南南阳：警车亮灯守护三轮平安归途](http://www.blog.minike.top/Article/details/778300914621.shtml)
-- 2026-06-29 11:26 - [云南印发实施意见全面推进共有精神家园建设](http://www.blog.minike.top/Article/details/45566647102.shtml)
-- 2026-06-29 11:43 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.blog.kurohicncr.top/Article/details/62027765.shtml)
-- 2026-06-29 11:26 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.blog.minike.top/Article/details/20922132115.shtml)
-- 2026-06-29 11:22 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](http://www.blog.kurohicncr.top/Article/details/320876958663.shtml)
-- 2026-06-29 11:35 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](http://www.blog.kurohicncr.top/Article/details/62135919233.shtml)
-- 2026-06-29 11:34 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](http://www.share.minike.top/Article/details/404351.shtml)
-- 2026-06-29 11:31 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](http://www.share.minike.top/Article/details/00689895057.shtml)
-- 2026-06-29 11:42 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](http://www.blog.minike.top/Article/details/518481092326.shtml)
-- 2026-06-29 11:22 - [国家统计局：一季度全国居民人均可支配收入12782元](http://www.share.minike.top/Article/details/938454726.shtml)
-- 2026-06-29 11:19 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](http://www.blog.kurohicncr.top/Article/details/94613624331.shtml)
-- 2026-06-29 11:26 - [陆军某旅着力培养过硬兵棋骨干队伍](http://www.blog.kurohicncr.top/Article/details/944587950.shtml)
+- 2026-06-29 11:33 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:28 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:35 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:35 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:28 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:36 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:45 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:43 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:37 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:30 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:40 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:32 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:40 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:21 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)

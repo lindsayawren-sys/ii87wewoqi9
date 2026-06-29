@@ -1,56 +1,56 @@
-# 4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益
+# 丙烯小幅反弹，关注点有哪些？
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-周四美股成交额第1名英伟达收跌0.26%，成交263.93亿美元。在此之前，该股已经连续11个交易日上涨，是自2023年以来最长的连涨纪录。 英伟达一直受益于对AI硬件的持续需求。在上个月的GTC大会上，英伟达首席执行官黄仁勋表示，截至2027年，该公司的GPU订单总额超过1万亿美元，其中包括Blackwell及下一代Vera Rubin芯片。 英伟达还否认了有关其寻求收购一家
+作者：任宁/F3015203、Z0013355/ 一德期货分析师 要点速览版 原油走势 成本端是否进一步下探，或出现企稳信号，决定丙烯下方空间。 需求启动 下游实质性补库意愿的恢复，是价格能否企稳反弹的核心变量。 库存拐点 库存从持续累积转为趋势性去化，是供需边际改善的确认标志。 丙烯在持续下跌后迎来短期反弹，盘面空头减仓。具体分析如下：6月之前，前期高库存的丙烯价格始终坚挺，
 
 ## 正文
 
-周四美股成交额第1名英伟达收跌0.26%，成交263.93亿美元。
+作者：任宁/F3015203、Z0013355/ 一德期货分析师 要点速览版 原油走势 成本端是否进一步下探，或出现企稳信号，决定丙烯下方空间。
 
-在此之前，该股已经连续11个交易日上涨，是自2023年以来最长的连涨纪录。
+需求启动 下游实质性补库意愿的恢复，是价格能否企稳反弹的核心变量。
 
-英伟达一直受益于对AI硬件的持续需求。
+库存拐点 库存从持续累积转为趋势性去化，是供需边际改善的确认标志。
 
-在上个月的GTC大会上，英伟达首席执行官黄仁勋表示，截至2027年，该公司的GPU订单总额超过1万亿美元，其中包括Blackwell及下一代Vera Rubin芯片。
+丙烯在持续下跌后迎来短期反弹，盘面空头减仓。
 
-英伟达还否认了有关其寻求收购一家大型PC制造商的报道。
+具体分析如下：6月之前，前期高库存的丙烯价格始终坚挺，一是现货市场流通尚可，二是美伊冲突尚未完全解决，霍尔木兹海峡通行问题一波三折，市场虽然认为未来供应大概率是增加的，但仍存犹豫。
 
-该公司表示，未与任何计算机制造商进行收购谈判，此前相关猜测曾短暂推高戴尔和惠普的股价。
+伴随地缘冲突解决，海峡通航明朗，过往船只数量增加，原油及丙烷价格快速回落，化工品跟随成本端开启下跌行情。
 
-另外，英伟达发布了一套针对量子计算的新开源模型。
+供应方面 国内PDH工厂开工率从最低50%左右持续提升至70%以上，预计6月丙烯产量环比增加10-15万吨，供应增加的预期逐步兑现。
 
-英伟达的数据中心收入同比增长75%，目前占其总销售额的88%，这凸显出AI需求仍是英伟达的主要驱动力。
+需求方面 下游产品价格利润微薄甚至亏损，多数开工率也是下滑的，整体需求偏弱。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [中国驻日本大使馆提醒在日中国公民注意人身安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:26 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:35 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:22 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:46 - [报告称中国在建核电机组装机容量连续19年保持全球第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:18 - [东艳：一季度外贸数据反映多个“增强”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:24 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:43 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:36 - [中越签署一系列合作文件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:41 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:44 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:41 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:24 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:33 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:47 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:32 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:39 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:39 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:18 - [首次原子尺度证实 中国科学家发现金属/载体三维体相参与催化新机制](http://www.blog.kurohicncr.top/Article/details/850167.shtml)
-- 2026-06-29 11:23 - [财信宏观丨供给韧性较强，需求修复待提速—2026年1-3月经济数据点评](http://www.blog.kurohicncr.top/Article/details/22201.shtml)
-- 2026-06-29 11:38 - [酒价内参4月16日价格发布：水晶剑南春小幅上涨1元/瓶](http://www.share.kurohicncr.top/Article/details/954176707.shtml)
-- 2026-06-29 11:30 - [ATFX:特朗普威胁解除鲍威尔职务 美指跌破98点](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [中东突发！刚刚，直线拉升！](http://www.share.minike.top/Article/details/57272180.shtml)
-- 2026-06-29 11:31 - [湖北：以正确政绩观引领“支点建设”新征程](http://www.blog.kurohicncr.top/Article/details/078635017551.shtml)
-- 2026-06-29 11:34 - [全球经济的严峻考验](http://www.blog.minike.top/Article/details/023052.shtml)
-- 2026-06-29 11:34 - [Glamox将为Sea1 Offshore的海上能源支持船提供照明](http://www.blog.minike.top/Article/details/71942094737.shtml)
-- 2026-06-29 11:16 - [在“商量声”中生长：浙江杭州小古城村民主协商发“新枝”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [伊朗最高领导人推动将黎巴嫩纳入美伊和谈](http://www.blog.minike.top/Article/details/160640.shtml)
-- 2026-06-29 11:38 - [珠江委积极开展珠江流域水预算管理工作指引研究](http://www.blog.minike.top/Article/details/120365952.shtml)
-- 2026-06-29 11:31 - [京东养车赛道日全民见证国货轮胎硬核实力 玲珑大师2代京东独家预售](http://www.share.minike.top/Article/details/705554514942.shtml)
-- 2026-06-29 11:19 - [港股硬科技再走强 同类规模最大港股通信息技术ETF(159131)冲高逾2% 机构看好港股二季度尤其是4-5月反弹机会](http://www.blog.kurohicncr.top/Article/details/93273.shtml)
-- 2026-06-29 11:25 - [韩国、巴西两国部长商讨能源供应与中东风险](http://www.share.kurohicncr.top/Article/details/221321485651.shtml)
-- 2026-06-29 11:21 - [中信建投期货：4月16日工业品早报](http://www.blog.kurohicncr.top/Article/details/409054282047.shtml)
+- 2026-06-29 11:28 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:31 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:31 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:23 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:21 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:25 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:19 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:41 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:33 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:32 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:28 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:20 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:21 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:21 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)

@@ -1,59 +1,56 @@
-# 南京将打造国际航空货运枢纽 开辟及加密近远洋干线航线
+# vivo黄韬、韩伯啸：告别看剧专用，X Fold6凭何成为主力机？
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新社南京4月16日电 (记者 朱晓颖)第十届中国国际物流发展大会暨2026南京物流高质量发展大会16日在江苏南京举行。其间公布，南京将加快禄口国际机场三期建设，打造国际航空货运枢纽；强化南京面向亚洲、欧洲、北美地区货运航线的通达性；开辟及加密近远洋干线航线等。目前，南京禄口国际机场开通国际全货机航线12条，其中洲际航线6条；南京港远洋航线实现月均2班至3班直航欧美、南美等地，
+“过去的折叠屏，交互方式其实和手机没有太大的区别，屏幕展开之后信息面积变大，但是信息密度没有提升，导致大家内屏使用率很低。” 在 vivo X Fold6 的发布会后，面对一众媒体，vivo 副总裁黄韬毫不避讳地指出了折叠屏手机长久以来的痛点。 确实，智能手机发展到今天，折叠屏早就过了炫技的阶段，轻薄、铰链这些基础问题大家都在慢慢解决。但很多人买回去当新鲜劲儿一过，平时还是当成
 
 ## 正文
 
-中新社南京4月16日电 (记者 朱晓颖)第十届中国国际物流发展大会暨2026南京物流高质量发展大会16日在江苏南京举行。
+“过去的折叠屏，交互方式其实和手机没有太大的区别，屏幕展开之后信息面积变大，但是信息密度没有提升，导致大家内屏使用率很低。
 
-其间公布，南京将加快禄口国际机场三期建设，打造国际航空货运枢纽；强化南京面向亚洲、欧洲、北美地区货运航线的通达性；开辟及加密近远洋干线航线等。
+” 在 vivo X Fold6 的发布会后，面对一众媒体，vivo 副总裁黄韬毫不避讳地指出了折叠屏手机长久以来的痛点。
 
-目前，南京禄口国际机场开通国际全货机航线12条，其中洲际航线6条；南京港远洋航线实现月均2班至3班直航欧美、南美等地，近洋航线周班次达13班；中欧(亚)班列常态化运行8条线路，覆盖15个国家和地区的70余座城市，多式联运体系日益完善。
+确实，智能手机发展到今天，折叠屏早就过了炫技的阶段，轻薄、铰链这些基础问题大家都在慢慢解决。
 
-江苏省港口集团有限公司副总经理顾国华在受访时表示，南京港是南京都市圈最大的出海口、长江12.5米深水航道终点、江海联运主枢纽。
+但很多人买回去当新鲜劲儿一过，平时还是当成一个厚点的直板机用。
 
-2025年，南京港集装箱吞吐量突破400万标箱大关，铜精矿中转量居中国第一，化肥出口量居长江流域港口榜首。
+用很多人的话说，折叠屏现在最大的作用，可能就是“看视频的时候展开一下”。
 
-今年，集团将重点加密南京至东南亚等近洋航线，探索开辟至非洲等远洋直达航线，持续提升南京港国际通达能力。
+不过，这次新发布的 X Fold6，vivo 似乎铁了心要改变这个局面。
 
-(完)
+从交互逻辑的重构到旗舰影像的平移，vivo 试图传递一个明确的信号：折叠屏不再是备用机，它可以，也应该成为你的“唯一主力机”。
+
+从“变大的屏幕”到“随身携带的 AI 载体” “我们内部也讨论过，内屏使用率这么低，我们有没有必要投入资源持续去做？
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:41 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:27 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:27 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:22 - [珠江流域部分中小河流近期可能出现超警洪水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:37 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:37 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:37 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:26 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:40 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:35 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:32 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:44 - [4月16日人民币对美元中间价报6.8616 下调34个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:28 - [厦门钨业：子公司金龙稀土进入创新层](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:38 - [镜观·回响丨在交流中深化中越青年情谊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:31 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:19 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:29 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:19 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:45 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:29 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:30 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:44 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:23 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:40 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](http://www.blog.minike.top/Article/details/36970145323.shtml)
-- 2026-06-29 11:35 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.blog.kurohicncr.top/Article/details/98616.shtml)
-- 2026-06-29 11:31 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](http://www.blog.minike.top/Article/details/31092586.shtml)
-- 2026-06-29 11:35 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](http://www.blog.minike.top/Article/details/129302315.shtml)
-- 2026-06-29 11:28 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](http://www.blog.kurohicncr.top/Article/details/205651980726.shtml)
-- 2026-06-29 11:43 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [云南印发实施意见全面推进共有精神家园建设](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.share.kurohicncr.top/Article/details/04024058801.shtml)
-- 2026-06-29 11:43 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](http://www.blog.kurohicncr.top/Article/details/50747898.shtml)
-- 2026-06-29 11:45 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](http://www.blog.minike.top/Article/details/61298305.shtml)
-- 2026-06-29 11:20 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](http://www.share.kurohicncr.top/Article/details/044050964119.shtml)
-- 2026-06-29 11:42 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](http://www.share.minike.top/Article/details/74511118905.shtml)
-- 2026-06-29 11:21 - [国家统计局：一季度全国居民人均可支配收入12782元](http://www.share.minike.top/Article/details/3429209836.shtml)
+- 2026-06-29 11:21 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:37 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:26 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:20 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:40 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:29 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:19 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:19 - [当地回应多辆“百吨王”强行冲卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:30 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:30 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:35 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:24 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:36 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:44 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)

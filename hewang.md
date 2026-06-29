@@ -1,60 +1,60 @@
-# 国际能源署署长：欧洲可能仅剩六周航空燃油储备
+# 中国修改注册会计师法 以法治方式规范财务秩序
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新社巴黎4月16日电（记者李洋）国际能源署署长比罗尔当地时间16日在巴黎接受媒体采访时表示，欧洲可能仅剩六周航空燃油储备。 比罗尔警告，如果石油供应继续受到伊朗局势影响，部分航班很快将面临取消。他指出，如果未来数周霍尔木兹海峡不能开放，对全球能源供应的负面影响将会加剧。 比罗尔说，如果霍尔木兹海峡5月底才开放，很多国家将面临巨大经济挑战，其中包括高通胀、增长放缓等压力，在某些
+中新社北京6月26日电 (记者 曾玥 谢雁冰)十四届全国人大常委会第二十三次会议26日表决通过关于修改注册会计师法的决定，自2027年1月1日起施行。 现行注册会计师法于1993年制定，2014年作了一次修正。全国人大常委会法工委刑法室负责人当日在答记者问时介绍，本次修法根据注册会计师行业发展遇到的新情况新问题，以法治方式规范财务秩序，加强监管力度，明确法律责任，充分发挥注册会
 
 ## 正文
 
-中新社巴黎4月16日电（记者李洋）国际能源署署长比罗尔当地时间16日在巴黎接受媒体采访时表示，欧洲可能仅剩六周航空燃油储备。
+中新社北京6月26日电 (记者 曾玥 谢雁冰)十四届全国人大常委会第二十三次会议26日表决通过关于修改注册会计师法的决定，自2027年1月1日起施行。
 
-比罗尔警告，如果石油供应继续受到伊朗局势影响，部分航班很快将面临取消。
+现行注册会计师法于1993年制定，2014年作了一次修正。
 
-他指出，如果未来数周霍尔木兹海峡不能开放，对全球能源供应的负面影响将会加剧。
+全国人大常委会法工委刑法室负责人当日在答记者问时介绍，本次修法根据注册会计师行业发展遇到的新情况新问题，以法治方式规范财务秩序，加强监管力度，明确法律责任，充分发挥注册会计师作为财会监督专业力量在遏制财务和审计造假方面的作用。
 
-比罗尔说，如果霍尔木兹海峡5月底才开放，很多国家将面临巨大经济挑战，其中包括高通胀、增长放缓等压力，在某些情况下一些国家甚至面临经济衰退。
+此次修法进一步规范执业行为，增加注册会计师执业的禁止性规定。
 
-他呼吁石油运输能够在霍尔木兹海峡畅通无阻。
+明确注册会计师不得出具虚假报告；将未保持应有的职业怀疑，且未履行必要的审计程序或者未获取充分适当的审计证据，发表不恰当的审计意见或者出具报告的行为增加规定为禁止行为；明确不得冒用他人名义执业；不得采用强迫、欺诈、贿赂等不正当方式招揽业务；明确有限责任会计师事务所不得从事的业务范围。
 
-比罗尔透露，目前有大批油轮和满载液化天然气的运输船正在波斯湾等待，如果这些船只能够通过霍尔木兹海峡运往世界市场，将有助于暂时性缓解能源危机。
+同时，进一步明确被审计单位等应当对提供的会计资料、文件的真实性、完整性负责，不得向注册会计师提供虚假的会计资料、文件。
 
-他认为，即使美国与伊朗能够达成和平协议，战争对能源设施的破坏也意味着能源生产可能需要数月时间才能恢复到战前的水平。
+在完善监管措施方面，此次修法严格执业准入，例如增设“监督管理”一章，明确省级以上财政部门负责监督检查会计师事务所和注册会计师执业情况，并规定监督检查可以采取监管谈话、出具警示函、责令限期整改等监管措施。
 
-国际机场理事会欧洲分会上周已向欧盟委员会致信称，如果霍尔木兹海峡的能源运输不能尽快恢复，欧洲的航空燃油短缺可能会在5月开始。
+此次修法加大责任追究力度。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:22 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:28 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:22 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:42 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:29 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:43 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:26 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:24 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:21 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:36 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:44 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:32 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:17 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:21 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:18 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:38 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:22 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:27 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:22 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:25 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:33 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:39 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:33 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:21 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:38 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [中国向伊朗提供紧急人道主义援助](http://www.blog.minike.top/Article/details/414238855462.shtml)
-- 2026-06-29 11:43 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [浙江启用防汛防台机器狗“AI防汛勇士”](http://www.blog.kurohicncr.top/Article/details/72950908.shtml)
-- 2026-06-29 11:30 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.share.minike.top/Article/details/8531243.shtml)
-- 2026-06-29 11:18 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](http://www.blog.minike.top/Article/details/56616.shtml)
-- 2026-06-29 11:22 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.blog.kurohicncr.top/Article/details/60942.shtml)
-- 2026-06-29 11:17 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](http://www.blog.kurohicncr.top/Article/details/5853497007.shtml)
-- 2026-06-29 11:38 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.blog.kurohicncr.top/Article/details/437621683.shtml)
-- 2026-06-29 11:44 - [中东能源危机推动美国原油出口大增，接近历史最高水平](http://www.share.kurohicncr.top/Article/details/4556742.shtml)
-- 2026-06-29 11:42 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.blog.minike.top/Article/details/7157816364.shtml)
-- 2026-06-29 11:18 - [新晋退休人士最后悔的事：没多存点钱](http://www.blog.minike.top/Article/details/90118761.shtml)
-- 2026-06-29 11:26 - [IEA警示历史性石油冲击](http://www.share.minike.top/Article/details/519140850873.shtml)
-- 2026-06-29 11:26 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](http://www.share.kurohicncr.top/Article/details/982668314.shtml)
+- 2026-06-29 11:46 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:45 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:35 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:33 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:38 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:44 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:22 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:25 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:43 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:40 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:30 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:38 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:31 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)

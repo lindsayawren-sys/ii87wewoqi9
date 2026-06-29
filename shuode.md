@@ -1,61 +1,60 @@
-# 美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关
+# ETF日报：本周的冲高回落进一步强化了后市的震荡预期，指数层面的震荡调整预计将维持一段时间
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-美国参谋长联席会议主席丹·凯恩表示，已有13艘船只选择掉头而非试探美国海军的封锁行动。该行动旨在防止船只前往或离开伊朗港口。 凯恩介绍了美国总统唐纳德·特朗普本周开始实施的封锁措施。他在一场记者会上表示，到目前为止，美国尚未需要开展任何登船行动。 凯恩称，美国将在“伊朗领海内以及国际水域”执行这项封锁。他还表示，美军领导的太平洋部队也将“积极追踪任何悬挂伊朗国旗的船只，或任何试
+今日A股跳空低开低走后略有反弹，整体较为弱势。截止收盘，上证指数报4027.36点，下跌2.26%，深证成指下跌3.44%，创业板指下跌4.07%。个股层面跌多涨少，不足800家上涨，超4600家下跌。成交方面，沪深两市成交额超3.5万亿，下跌动能仍然偏强。 板块层面，仅半导体设备、养殖等板块较为抗跌，通信、电网、软件等板块跌幅居前。 近期市场主要呈现反弹见顶后快速回落的走势。
 
 ## 正文
 
-美国参谋长联席会议主席丹·凯恩表示，已有13艘船只选择掉头而非试探美国海军的封锁行动。
+今日A股跳空低开低走后略有反弹，整体较为弱势。
 
-该行动旨在防止船只前往或离开伊朗港口。
+截止收盘，上证指数报4027.36点，下跌2.26%，深证成指下跌3.44%，创业板指下跌4.07%。
 
-凯恩介绍了美国总统唐纳德·特朗普本周开始实施的封锁措施。
+个股层面跌多涨少，不足800家上涨，超4600家下跌。
 
-他在一场记者会上表示，到目前为止，美国尚未需要开展任何登船行动。
+成交方面，沪深两市成交额超3.5万亿，下跌动能仍然偏强。
 
-凯恩称，美国将在“伊朗领海内以及国际水域”执行这项封锁。
+板块层面，仅半导体设备、养殖等板块较为抗跌，通信、电网、软件等板块跌幅居前。
 
-他还表示，美军领导的太平洋部队也将“积极追踪任何悬挂伊朗国旗的船只，或任何试图向伊朗提供物资支持的船只”。
+近期市场主要呈现反弹见顶后快速回落的走势。
 
-在同一场简报会上，美国国防部长皮特·海格塞斯表示，美军准备好在特朗普下令时随时恢复作战，并敦促伊朗领导人做出明智选择。
+上周，受美伊局势缓和及外围科技股火爆等利好因素影响，指数快速反弹并回到前期筹码密集区。
 
-“我们宁可不必这么做，但只要总统下令，只要按下按钮，我们就准备出击，”海格塞斯称。
+本周一，沪指短暂下探后强势拉升，单日最大涨幅近百点。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [安徽淮北：云海罩城 宛如美丽画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:17 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:21 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:17 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:29 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:41 - [连连数字于4月15日斥资99.71万港元回购16.25万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:43 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:43 - [酒价内参4月17日价格发布，古井贡古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:18 - [新晋退休人士最后悔的事：没多存点钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:28 - [IEA警示历史性石油冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:43 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:46 - [A股盘前速递：黄金涨回4800美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:23 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:39 - [澳大利亚一炼油厂发生大火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:19 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:20 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:41 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:33 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:44 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:31 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:23 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:24 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:46 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:30 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:44 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:28 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:34 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:41 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [美又一核动力航母失火 8名船员受伤](http://www.share.minike.top/Article/details/6097215355.shtml)
-- 2026-06-29 11:46 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](http://www.blog.kurohicncr.top/Article/details/484289189.shtml)
-- 2026-06-29 11:43 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](http://www.share.kurohicncr.top/Article/details/666974776.shtml)
-- 2026-06-29 11:17 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](http://www.share.minike.top/Article/details/683919.shtml)
-- 2026-06-29 11:33 - [全球智能鸿沟如何破解？这份报告给出答案！](http://www.blog.minike.top/Article/details/274503249.shtml)
-- 2026-06-29 11:30 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](http://www.share.kurohicncr.top/Article/details/0796760.shtml)
-- 2026-06-29 11:41 - [新疆新设草湖市](http://www.share.kurohicncr.top/Article/details/1379700791.shtml)
-- 2026-06-29 11:36 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](http://www.blog.minike.top/Article/details/4575518972.shtml)
-- 2026-06-29 11:41 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](http://www.blog.kurohicncr.top/Article/details/331305770.shtml)
-- 2026-06-29 11:31 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](http://www.blog.kurohicncr.top/Article/details/9497643685.shtml)
-- 2026-06-29 11:26 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](http://www.share.minike.top/Article/details/487369177.shtml)
-- 2026-06-29 11:17 - [海军航空大学某大队：更新知识体系 厚植打赢底气](http://www.share.minike.top/Article/details/845668935.shtml)
-- 2026-06-29 11:29 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](http://www.blog.kurohicncr.top/Article/details/62225.shtml)
+- 2026-06-29 11:37 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:33 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:23 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:37 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:35 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:44 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:25 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:24 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:39 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:32 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:43 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:46 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:24 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:19 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:23 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)

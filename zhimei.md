@@ -1,48 +1,56 @@
-# 河南南阳：警车亮灯守护三轮平安归途
+# 国务院办公厅关于进一步完善大中型水库移民后期扶持政策的通知
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月17日 11:27 来源：中国新闻网 4月15日晚，在河南南阳103省道，警车亮灯为三轮车照路护航。(作者：余志刚） 责任编辑：【魏聪聪】
+国务院办公厅关于进一步完善 大中型水库移民后期扶持政策的通知 国办发〔2026〕20号 各省、自治区、直辖市人民政府，国务院各部委、各直属机构：根据《国务院关于完善大中型水库移民后期扶持政策的意见》(国发〔2006〕17号)，为巩固拓展大中型水库移民后期扶持政策成果，进一步改善水库移民生产生活条件，经国务院同意，现将有关事项通知如下： 一、设置5年过渡期 对已纳入扶持范围的移民
 
 ## 正文
 
-发布时间：2026年04月17日 11:27 来源：中国新闻网 4月15日晚，在河南南阳103省道，警车亮灯为三轮车照路护航。
+国务院办公厅关于进一步完善 大中型水库移民后期扶持政策的通知 国办发〔2026〕20号 各省、自治区、直辖市人民政府，国务院各部委、各直属机构：根据《国务院关于完善大中型水库移民后期扶持政策的意见》(国发〔2006〕17号)，为巩固拓展大中型水库移民后期扶持政策成果，进一步改善水库移民生产生活条件，经国务院同意，现将有关事项通知如下： 一、设置5年过渡期 对已纳入扶持范围的移民，扶持期限在现有基础上延长5年；对2026年6月30日以前开工在建水库的未搬迁移民和2026年7月1日之后新建水库产生的移民，纳入扶持范围的，扶持期限按25年计算。
 
-(作者：余志刚） 责任编辑：【魏聪聪】
+二、扶持对象、标准、方式等保持不变 扶持对象仍为大中型水库农村移民。
+
+扶持标准仍为每人每年600元，能够直接发放给水库移民个人的应尽量发放到个人，也可以实行项目扶持，还可以采取两者结合的方式。
+
+截至2026年6月30日的后期扶持人口，由水利部负责核定。
+
+2026年7月1日之后新建水库产生的需纳入扶持范围的移民，由水利部会同国家发展改革委、国家能源局等有关部门每年核定一次。
+
+三、做好水库移民扶持基金管理 大中型水库移民后期扶持基金、大中型水库库区基金的政策保持稳定，征收标准、征缴程序维持不变。
+
+四、促进水库移民增收 在发放后期扶持资金的同时，继续运用大中型水库移民后期扶持基金、大中型水库库区基金等提升库区和移民安置区发展水平，建立水库移民公平分享产业发展收益机制，不断拓宽水库移民增收渠道，提高移民收入水平。
+
+支持库区和移民安置区立足资源禀赋和产业基础，积极发展特色种植养殖、农产品加工、生态康养、休闲旅游、农村电商等特色产业，壮大新型农村集体经济。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:33 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:23 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:35 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:27 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:34 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:31 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:45 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:20 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:30 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:33 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:36 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:27 - [海南这个园区有点东西：学生一校入学 可共享多校课程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:18 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:35 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:21 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:29 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:20 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:24 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:27 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:34 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:36 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:18 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](http://www.share.minike.top/Article/details/5157406291.shtml)
-- 2026-06-29 11:31 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.share.minike.top/Article/details/69998249273.shtml)
-- 2026-06-29 11:23 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](http://www.share.kurohicncr.top/Article/details/770696427945.shtml)
-- 2026-06-29 11:40 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.share.minike.top/Article/details/448870.shtml)
-- 2026-06-29 11:20 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.blog.kurohicncr.top/Article/details/36748990.shtml)
-- 2026-06-29 11:34 - [中东能源危机推动美国原油出口大增，接近历史最高水平](http://www.blog.kurohicncr.top/Article/details/07417.shtml)
-- 2026-06-29 11:46 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.share.minike.top/Article/details/86787961.shtml)
-- 2026-06-29 11:37 - [新晋退休人士最后悔的事：没多存点钱](http://www.blog.minike.top/Article/details/603438.shtml)
-- 2026-06-29 11:23 - [IEA警示历史性石油冲击](http://www.share.minike.top/Article/details/0183834142.shtml)
-- 2026-06-29 11:44 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](http://www.blog.minike.top/Article/details/723408625.shtml)
-- 2026-06-29 11:30 - [A股盘前速递：黄金涨回4800美元](http://www.blog.kurohicncr.top/Article/details/3415278.shtml)
-- 2026-06-29 11:31 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.share.kurohicncr.top/Article/details/60490.shtml)
-- 2026-06-29 11:28 - [澳大利亚一炼油厂发生大火](http://www.share.minike.top/Article/details/956405.shtml)
+- 2026-06-29 11:26 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:25 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:18 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:31 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:40 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:36 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:23 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:33 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:46 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:25 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:31 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:18 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:45 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:32 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:26 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)

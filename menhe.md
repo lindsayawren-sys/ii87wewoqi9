@@ -1,56 +1,59 @@
-# 中国驻日本大使馆提醒在日中国公民注意人身安全
+# 作家陆天明分享阅读人生 谈阅读的三重境界
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新网4月17日电 据中国驻日本大使馆微信公众号消息，近年来，日本社会治安环境持续恶化。据日本警察厅统计，2021年至2025年，日本涉嫌违反刑法的犯罪案件逐年增加，自56.8万件增加至77.4万件。杀人、抢劫、放火、强奸、拐卖、猥亵等重罪由8821件增长至15086件，增长约71%。近日，日本自卫队现役人员持刀翻墙闯入中国驻日本大使馆，右翼分子公然滋扰观看马拉松比赛的中国公民
+中新网北京6月26日电 (记者 应妮)由国家开放大学、中国出版传媒商报社联合主办的“名家谈阅读”系列活动25日在京举办。国家一级编剧、知名作家陆天明以“阅读和人生”为主题，结合自身人生经历与数十年创作生涯，深度剖析阅读对精神塑造与人生成长的核心价值。 在讲座中，陆天明坦言，当下中国物质生活愈发富足，但社会快速发展的背后，也让不少人陷入功利化、浮躁化的状态，而阅读正是治愈精神荒芜
 
 ## 正文
 
-中新网4月17日电 据中国驻日本大使馆微信公众号消息，近年来，日本社会治安环境持续恶化。
+中新网北京6月26日电 (记者 应妮)由国家开放大学、中国出版传媒商报社联合主办的“名家谈阅读”系列活动25日在京举办。
 
-据日本警察厅统计，2021年至2025年，日本涉嫌违反刑法的犯罪案件逐年增加，自56.8万件增加至77.4万件。
+国家一级编剧、知名作家陆天明以“阅读和人生”为主题，结合自身人生经历与数十年创作生涯，深度剖析阅读对精神塑造与人生成长的核心价值。
 
-杀人、抢劫、放火、强奸、拐卖、猥亵等重罪由8821件增长至15086件，增长约71%。
+在讲座中，陆天明坦言，当下中国物质生活愈发富足，但社会快速发展的背后，也让不少人陷入功利化、浮躁化的状态，而阅读正是治愈精神荒芜、重塑完整人格的有效路径，是普通人突破现实桎梏、向上生长的重要阶梯。
 
-近日，日本自卫队现役人员持刀翻墙闯入中国驻日本大使馆，右翼分子公然滋扰观看马拉松比赛的中国公民，中国留学生在东京街头遭“撞人族”冲撞，香港游客在北海道某餐厅遭殴打。
+基于数十年创作体悟，陆天明总结出人生的三重阅读境界。
 
-有关案件反映出日本国内右翼势力活动日益猖獗，针对中国公民的歧视性案件显著增加，在日中国公民安全风险不断上升。
+第一重是读书本，通过文字汲取知识、涵养精神，搭建与世界对话的通道，摆脱平庸与迷茫；第二重是读生活，他反对死读书、读死书，主张跳出书本桎梏，将文字所学融入现实生活，寻找更高的生活真理；第三重是修悟人生，在读书的基础上沉淀思考、修身悟道，书写属于自己的人生答卷，无论身处什么岗位，都能成为丰盈、通透、有担当的人。
 
-中国驻日本大使馆郑重提醒在日中国公民切实提高安全防范意识，加强自我保护，尽量结伴外出，避免前往治安较差、人流集中的区域。
+同时，陆天明强调，深度阅读必然伴随寂寞，耐得住寂寞、抵得住浮躁，才能感悟书香真谛。
 
-如遇右翼分子、“撞人族”等滋扰挑衅，请优先保证自身安全，保持冷静、避免纠缠，注意保存证据，及时报警并联系驻日使领馆寻求协助。
+他认为，懂得享受阅读，便能挣脱外界干扰，获得思想的自由，实现精神与灵魂的升华。
 
-日本紧急求助电话：110(警察)、118(海上事故、海难)、119(消防、急救) 外交部全球领事保护与服务应急热线(24小时)：+86-10-12308，+86-10-65612308 驻日本大使馆领事保护与协助电话：+81-3-6450-2195 驻大阪总领馆领事保护与协助电话：+81-6-6445-9427 驻福冈总领馆领事保护与协助电话：+81-92-753-6483 驻札幌总领馆领事保护与协助电话：+81-11-513-5335 驻长崎总领馆领事保护与协助电话：+81-95-849-3311 驻名古屋总领馆领事保护与协助电话：+81-52-932-1036 驻新潟总领馆领事保护与协助电话：+81-25-228-8888
+陆天明是国内反腐文学、反腐影视剧创作的开创者，其代表作“反腐四部曲”《苍天在上》《大雪无痕》《省委书记》《高纬度战栗》影响力深远。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:20 - [中越签署一系列合作文件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:35 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:39 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:30 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:22 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:40 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:35 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:43 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:21 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:23 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:19 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:45 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:45 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:37 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:39 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:42 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:19 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:36 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:46 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:21 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [Glamox将为Sea1 Offshore的海上能源支持船提供照明](http://www.share.kurohicncr.top/Article/details/733905.shtml)
-- 2026-06-29 11:31 - [在“商量声”中生长：浙江杭州小古城村民主协商发“新枝”](http://www.share.kurohicncr.top/Article/details/3969950922.shtml)
-- 2026-06-29 11:37 - [伊朗最高领导人推动将黎巴嫩纳入美伊和谈](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [珠江委积极开展珠江流域水预算管理工作指引研究](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [京东养车赛道日全民见证国货轮胎硬核实力 玲珑大师2代京东独家预售](http://www.share.kurohicncr.top/Article/details/9567914.shtml)
-- 2026-06-29 11:30 - [港股硬科技再走强 同类规模最大港股通信息技术ETF(159131)冲高逾2% 机构看好港股二季度尤其是4-5月反弹机会](http://www.blog.minike.top/Article/details/59311853.shtml)
-- 2026-06-29 11:22 - [韩国、巴西两国部长商讨能源供应与中东风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [中信建投期货：4月16日工业品早报](http://www.blog.minike.top/Article/details/64342535489.shtml)
-- 2026-06-29 11:46 - [华凯易佰1.13亿收购深圳米品盛及香港纽瑞格：压力之下的精品化豪赌](http://www.blog.kurohicncr.top/Article/details/4419083.shtml)
-- 2026-06-29 11:27 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.blog.minike.top/Article/details/527606.shtml)
-- 2026-06-29 11:30 - [重要法案通过！流失在法国的中国国宝，何时能回家？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [胜宏科技公布发售价厘定为每股H股209.88港元](http://www.share.minike.top/Article/details/125087243.shtml)
-- 2026-06-29 11:39 - [IMF宣布恢复与委内瑞拉中断六年多的关系](http://www.share.kurohicncr.top/Article/details/51651.shtml)
-- 2026-06-29 11:31 - [145件作品摘获2025年河南省工业设计大赛奖项](http://www.blog.minike.top/Article/details/64302486.shtml)
-- 2026-06-29 11:26 - [以终身追责制推动政府投资决策回归初心](http://www.share.kurohicncr.top/Article/details/71874.shtml)
+- 2026-06-29 11:40 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:27 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:38 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:42 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:41 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:45 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:45 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:46 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:19 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:26 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:40 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:36 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:42 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:46 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)

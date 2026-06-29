@@ -1,59 +1,55 @@
-# 五一假期首日火车票今日开售 超全抢票攻略来了
+# 十四届全国人大常委会举行第六十九次委员长会议 听取有关草案和议案审议情况汇报 赵乐际主持
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-再有不到半个月就是五一假期了 你计划好去哪儿了吗？ 今天(17日)就可以买 5月1日当天的火车票了 △来源：铁路12306 如何快速抢到心仪的车票？ 带孩子出行怎么买优惠票？ 车票还有哪些用处？ 无论你是计划回家、还是出游 这份实用干货建议收藏↓ 假期抢票手慢无？ 快试试官方“捡漏神器” 假期期间 铁路客流高度集中 如果第一时间没抢到票 别慌 及时提交候补购票订单 助你提高购票
+新华社北京6月25日电 十四届全国人大常委会第六十九次委员长会议25日下午在北京人民大会堂举行。赵乐际委员长主持。 会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于商标法修订草案修改意见的汇报、关于修改注册会计师法的决定草案修改意见的汇报、关于授权香港特别行政区对皇岗口岸港方口岸区及相关延伸区实施管辖的决定草案审议结果的报告，审议了相关草案修改稿、决定草案。 会议听取了
 
 ## 正文
 
-再有不到半个月就是五一假期了 你计划好去哪儿了吗？
+新华社北京6月25日电 十四届全国人大常委会第六十九次委员长会议25日下午在北京人民大会堂举行。
 
-今天(17日)就可以买 5月1日当天的火车票了 △来源：铁路12306 如何快速抢到心仪的车票？
+赵乐际委员长主持。
 
-带孩子出行怎么买优惠票？
+会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于商标法修订草案修改意见的汇报、关于修改注册会计师法的决定草案修改意见的汇报、关于授权香港特别行政区对皇岗口岸港方口岸区及相关延伸区实施管辖的决定草案审议结果的报告，审议了相关草案修改稿、决定草案。
 
-车票还有哪些用处？
+会议听取了全国人大财政经济委员会副主任委员、全国人大常委会预算工作委员会主任许宏才作的关于2025年中央决算草案和2025年中央决算报告审查情况的汇报，审议了关于批准2025年中央决算的决议草案代拟稿。
 
-无论你是计划回家、还是出游 这份实用干货建议收藏↓ 假期抢票手慢无？
+会议听取了全国人大常委会秘书长刘奇作的关于个别代表的代表资格的报告和任免案审议情况的汇报等。
 
-快试试官方“捡漏神器” 假期期间 铁路客流高度集中 如果第一时间没抢到票 别慌 及时提交候补购票订单 助你提高购票成功率 铁路12306的候补购票功能可最大限度使用60个“日期+车次”的购票组合，临时新增的旅客列车席位会优先配售给已提交候补订单的旅客，这样就能提高成功率。
+委员长会议决定，将上述草案修改稿等提交常委会会议审议。
 
-每名旅客可以保有6个待兑现的候补订单，每个候补订单最多可以添加19名乘车人，支持选择任意3个乘车日期，总计添加不超过60个车次，不再限制席别数量。
-
-如果旅客选择接受新增列车，还可以进一步提高候补成功率。
+全国人大常委会副委员长李鸿忠、王东明、肖捷、郑建邦、丁仲礼、蔡达峰、何维、武维华、铁凝、彭清华、张庆伟、洛桑江村、雪克来提·扎克尔出席会议。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [中国经济开门红，靠的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:19 - [同济大学回应“一教师论文数据存疑”：已成立调查组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:41 - [南京将打造国际航空货运枢纽 开辟及加密近远洋干线航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:25 - [七牛智能午后涨超4% AI相关收入占比进一步增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:17 - [全周期、全渠道、全领域——多部门详解药价新规](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:17 - [中国电动三轮车爆火美国 电动三轮车在美国价格翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:17 - [国家统计局：一季度GDP同比增长5.0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:28 - [小摩：中金公司首季业绩料胜预期 重申行业首选股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:26 - [沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:19 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:27 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:29 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:26 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:37 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:36 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:27 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:41 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:33 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:27 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:41 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:35 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:29 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:28 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](http://www.share.minike.top/Article/details/531788.shtml)
-- 2026-06-29 11:26 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](http://www.blog.minike.top/Article/details/410161858.shtml)
-- 2026-06-29 11:26 - [北京“两区”建设加速推进 高水平开放释放发展新动能](http://www.blog.minike.top/Article/details/80905.shtml)
-- 2026-06-29 11:16 - [济宁太白湖新区：花海伴赛事 产业促民生](http://www.blog.minike.top/Article/details/38422669.shtml)
-- 2026-06-29 11:45 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [余金生被执行死刑！系杀害网红“罗大美”主犯](http://www.blog.kurohicncr.top/Article/details/9111669140.shtml)
-- 2026-06-29 11:17 - [一季度郑州机场国际货运量同比增长21.8%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](http://www.blog.kurohicncr.top/Article/details/4439025.shtml)
-- 2026-06-29 11:43 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](http://www.share.kurohicncr.top/Article/details/88473792162.shtml)
-- 2026-06-29 11:23 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.blog.minike.top/Article/details/37400.shtml)
-- 2026-06-29 11:40 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](http://www.share.kurohicncr.top/Article/details/6989192.shtml)
-- 2026-06-29 11:25 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](http://www.blog.kurohicncr.top/Article/details/40045662.shtml)
-- 2026-06-29 11:19 - [河南南阳：警车亮灯守护三轮平安归途](http://www.share.kurohicncr.top/Article/details/240210.shtml)
+- 2026-06-29 11:24 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:30 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:18 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:42 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:29 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:22 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:22 - [鬼畜区全明星拼接遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:20 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:21 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:33 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:36 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:19 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:26 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:42 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)

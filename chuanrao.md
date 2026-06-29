@@ -1,57 +1,57 @@
-# 浙江启用防汛防台机器狗“AI防汛勇士”
+# 12国专家齐聚山东济南 共话国际农业科技合作
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新社杭州4月16日电 (郭其钰)浙江省应急管理厅16日发布启用防汛防台机器狗“AI防汛勇士”，破解传统防汛工作中高危区域无法抵达、隐患识别精度不足、应急响应效率滞后等痛点。 “AI防汛勇士”以云深处科技山猫M20轮足机器人为移动平台，创新集成大模型、车载平台，搭载双光谱吊舱、5G模块、边缘算力盒等装备，可替代人力完成隐患巡查、险情侦察、人员搜救等核心防汛任务。 “AI防汛勇士
+中新网济南6月27日电 (记者 孙婷婷)以“AI赋能 绿色引领 共绘农业高质量发展新蓝图”为主题的山东国际农业科技合作与交流大会27日在济南举办。来自中国、俄罗斯、澳大利亚、巴基斯坦、哈萨克斯坦、乌兹别克斯坦等12个国家和地区的农业科研机构与高校的专家学者代表参会，围绕智慧农业、绿色农业、生物育种等议题展开深入交流，共同探讨全球农业可持续发展的新路径与新方案。 山东省人民政府副
 
 ## 正文
 
-中新社杭州4月16日电 (郭其钰)浙江省应急管理厅16日发布启用防汛防台机器狗“AI防汛勇士”，破解传统防汛工作中高危区域无法抵达、隐患识别精度不足、应急响应效率滞后等痛点。
+中新网济南6月27日电 (记者 孙婷婷)以“AI赋能 绿色引领 共绘农业高质量发展新蓝图”为主题的山东国际农业科技合作与交流大会27日在济南举办。
 
-“AI防汛勇士”以云深处科技山猫M20轮足机器人为移动平台，创新集成大模型、车载平台，搭载双光谱吊舱、5G模块、边缘算力盒等装备，可替代人力完成隐患巡查、险情侦察、人员搜救等核心防汛任务。
+来自中国、俄罗斯、澳大利亚、巴基斯坦、哈萨克斯坦、乌兹别克斯坦等12个国家和地区的农业科研机构与高校的专家学者代表参会，围绕智慧农业、绿色农业、生物育种等议题展开深入交流，共同探讨全球农业可持续发展的新路径与新方案。
 
-“AI防汛勇士”当日在杭州市余杭区径山镇水车坞开展地质灾害隐患排查演练，高度模拟了真实汛期中可能会出现的树木倒伏、边坡落石等典型险情。
+山东省人民政府副省长陈平表示，山东持续深化与共建“一带一路”国家的农业科技创新交流合作，目前已携手共建联合实验室、海外农业示范基地、良种繁育中心等平台超80个；累计培训海外农业技术骨干超万人次；向海外输出耐盐碱作物品种、设施栽培模式、智能农机成套解决方案，通过前沿技术合作，助力共建“一带一路”国家的农业转型升级。
 
-“‘AI防汛勇士’深入模拟事故现场，在人工无法安全抵达的危险地带，它可独立完成抵近侦察、全景拍摄、数据采集与动态监测等工作。
+“下一步，山东将围绕农业领域重大共性技术需求与前沿研发方向，共建创新协作平台，联合开展关键技术攻关，推动创新成果落地应用。
 
-”浙江省应急管理厅总工程师胡尧文介绍，机器狗AI预警系统可精准识别各类防汛隐患，并同步将相关数据实时回传至指挥平台，为隐患处置提供科学依据。
+” 受邀参会的乌兹别克斯坦塔什干国立农业大学副校长阿布杜瓦西科夫·阿布杜阿齐兹表示，粮食安全、环境可持续性、气候变化、水资源管理和技术转型等挑战，成为全球面临的共性问题，让国际合作成为必然。
 
-此外，应急救援车还搭载车载通信卫星，可提供5G、自组网等多重通信方式，确保“AI防汛勇士”在信号薄弱的区域，也能完成侦查数据实时回传、后台指令精准下达等任务。
+“我们关注到，人工智能助力中国在农业现代化、技术创新和高等教育发展方面取得了显著成就。
 
-浙江还同步上线“AI+短临预警”应用。
+”阿布杜阿齐兹希望与山东建立长期互利的合作关系，并通过联合研究项目、学术交流、双学位课程、创新伙伴关系、技术转让倡议和教育合作等，为学生、研究人员和双方发展创造新的机会。
 
-该应用针对浙江强对流天气多发、重发、点状爆发等特征，基于80余部雷达和3000多个气象观测站数据，依托AI技术研发分钟级、公里级降雨预报产品，旨在解决短临预警预报精度不够、窗口期短等难题。
+会上，山东省农业科学院种质资源所与乌兹别克斯坦塔什干国立农业大学围绕种质资源等领域达成合作意向，签署合作协议。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [连连数字于4月15日斥资99.71万港元回购16.25万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:17 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:25 - [酒价内参4月17日价格发布，古井贡古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:21 - [新晋退休人士最后悔的事：没多存点钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:34 - [IEA警示历史性石油冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:37 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:32 - [A股盘前速递：黄金涨回4800美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:29 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:20 - [澳大利亚一炼油厂发生大火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:22 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:41 - [话剧《四世同堂》首次登陆澳大利亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:40 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:45 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:27 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:29 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:39 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:44 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:24 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:28 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:39 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [全球智能鸿沟如何破解？这份报告给出答案！](http://www.share.minike.top/Article/details/15437.shtml)
-- 2026-06-29 11:19 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](http://www.share.minike.top/Article/details/015272.shtml)
-- 2026-06-29 11:34 - [新疆新设草湖市](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](http://www.blog.minike.top/Article/details/4423514.shtml)
-- 2026-06-29 11:40 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](http://www.share.kurohicncr.top/Article/details/4919602626.shtml)
-- 2026-06-29 11:43 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](http://www.share.kurohicncr.top/Article/details/658000566177.shtml)
-- 2026-06-29 11:42 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [海军航空大学某大队：更新知识体系 厚植打赢底气](http://www.blog.minike.top/Article/details/485985637622.shtml)
-- 2026-06-29 11:26 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](http://www.share.kurohicncr.top/Article/details/144138413907.shtml)
-- 2026-06-29 11:28 - [Uber将收购Delivery Hero额外4.5%的股份](http://www.blog.minike.top/Article/details/43847.shtml)
-- 2026-06-29 11:23 - [中国驻日本大使馆提醒在日中国公民注意人身安全](http://www.share.minike.top/Article/details/85153.shtml)
-- 2026-06-29 11:40 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](http://www.share.kurohicncr.top/Article/details/3252288052.shtml)
-- 2026-06-29 11:17 - [世界气象组织秘书长调研全民早期预警重庆实践](http://www.blog.minike.top/Article/details/6767326546.shtml)
-- 2026-06-29 11:19 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](http://www.share.kurohicncr.top/Article/details/596595492.shtml)
+- 2026-06-29 11:21 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:32 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:26 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:22 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:37 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:31 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:20 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:33 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:45 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:41 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:40 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:29 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:30 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)

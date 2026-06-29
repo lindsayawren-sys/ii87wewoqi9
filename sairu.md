@@ -1,56 +1,57 @@
-# “初代”机器人登场 香港科学馆展览回顾成立35周年
+# 买新能源车的注意！7月1日起两项新国标将实施
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公司削减航班运力10小时、2400公里！苏林再坐中国高铁，背后深意耐人寻味法国国民议会通过文物返还法案，大量流失文物能否顺利回家？开局良好！一图读懂中国经济一季报亮点杀敌八百，自损八千台湾教师王孟筠：台湾同胞在两岸文化交流中增进民族归属感海丝古港、世遗土楼……人这一辈子，一定要去一趟
+买新能源车的注意！强制性国标有新要求 7月1日起，两项强制性国家标准《电动汽车安全要求》(GB18384—2025)(简称“电动汽车安全新国标”)和《电动汽车用动力蓄电池安全要求》(GB38031—2025)(简称“电池新国标”)将正式实施。两项新国标，到底新在哪？一文看懂—— 电动汽车安全新国标 明确实现“一键断电”的装置为物理断电装置：电动汽车安全新国标首次将“一键断电”装
 
 ## 正文
 
-中东战火冲击全球，中国经济开门红展现韧性一季度中国经济成绩单现五大亮点中东局势推高燃油成本 航空公司削减航班运力10小时、2400公里！
+买新能源车的注意！
 
-苏林再坐中国高铁，背后深意耐人寻味法国国民议会通过文物返还法案，大量流失文物能否顺利回家？
+强制性国标有新要求 7月1日起，两项强制性国家标准《电动汽车安全要求》(GB18384—2025)(简称“电动汽车安全新国标”)和《电动汽车用动力蓄电池安全要求》(GB38031—2025)(简称“电池新国标”)将正式实施。
 
-开局良好！
+两项新国标，到底新在哪？
 
-一图读懂中国经济一季报亮点杀敌八百，自损八千台湾教师王孟筠：台湾同胞在两岸文化交流中增进民族归属感海丝古港、世遗土楼……人这一辈子，一定要去一趟漳州！
+一文看懂—— 电动汽车安全新国标 明确实现“一键断电”的装置为物理断电装置：电动汽车安全新国标首次将“一键断电”装置定义为物理断电装置，彻底取代以往依赖软件控制的断电方式，提升了事故救援的可靠性和时效性。
 
-苏林当选越南国家主席后首次外访，为何选择中国？
+同时，要求车辆在静止非充放电工况下可通过驾驶员一个动作(点触、长按)响应此功能。
 
-日薪近2000元，景区“疯抢”NPC世界越乱，他们越要来中国票数疑云下的“浪姐”，公证员在公证什么？
+新增整车刮底要求： 测试方法采用壁障为150mm实心半球，试验车速为35km/h，重叠量为30mm，壁障中线与REESS中线±150mm内的薄弱点重合。
 
-陈克明、金沙河、白象“手擀”挂面，手擀是商标它凭什么能成人体的“超级维修队”？
+技术要求为车辆在刮底后无泄漏、外壳破裂、起火或爆炸现象，且满足绝缘电阻要求。
 
-外媒关注桑切斯访华：“西班牙将中国视为稳定力量”“五一”假期运输首日火车票今天开售 购票日历请查收广西壮族自治区主席韦韬为妻子买的壮锦包，有何特别之处？
+修订维修断开装置要求： 此外，电动汽车安全新国标修订了维修断开装置要求，车辆需具备高压维修断开装置或低压维修断开装置。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:37 - [安徽淮北：云海罩城 宛如美丽画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:19 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:39 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:20 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:19 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:31 - [连连数字于4月15日斥资99.71万港元回购16.25万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:35 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:16 - [酒价内参4月17日价格发布，古井贡古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:43 - [新晋退休人士最后悔的事：没多存点钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:26 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:45 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:42 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:21 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:43 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:27 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:43 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:27 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:40 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:35 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](http://www.share.kurohicncr.top/Article/details/43842100802.shtml)
-- 2026-06-29 11:27 - [美又一核动力航母失火 8名船员受伤](http://www.share.kurohicncr.top/Article/details/9119786.shtml)
-- 2026-06-29 11:25 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](http://www.share.minike.top/Article/details/06156146.shtml)
-- 2026-06-29 11:29 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](http://www.share.kurohicncr.top/Article/details/1408716193.shtml)
-- 2026-06-29 11:31 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](http://www.blog.minike.top/Article/details/940888.shtml)
-- 2026-06-29 11:32 - [全球智能鸿沟如何破解？这份报告给出答案！](http://www.share.minike.top/Article/details/158638798300.shtml)
-- 2026-06-29 11:35 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](http://www.share.minike.top/Article/details/30342.shtml)
-- 2026-06-29 11:16 - [新疆新设草湖市](http://www.blog.minike.top/Article/details/310181139.shtml)
-- 2026-06-29 11:24 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](http://www.blog.kurohicncr.top/Article/details/4280753096.shtml)
-- 2026-06-29 11:19 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](http://www.share.minike.top/Article/details/801075800446.shtml)
-- 2026-06-29 11:24 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](http://www.share.minike.top/Article/details/19726340326.shtml)
-- 2026-06-29 11:18 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](http://www.blog.minike.top/Article/details/3733220746.shtml)
-- 2026-06-29 11:19 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](http://www.blog.minike.top/Article/details/693556637937.shtml)
-- 2026-06-29 11:30 - [海军航空大学某大队：更新知识体系 厚植打赢底气](http://www.blog.minike.top/Article/details/16505.shtml)
+- 2026-06-29 11:37 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:47 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:25 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:33 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:33 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:40 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:27 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:42 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:42 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:40 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:33 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:38 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:38 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:46 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:47 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)

@@ -1,53 +1,58 @@
-# 澳大利亚一炼油厂发生大火
+# 今年以来广东法院毒品犯罪收案数同比下降14%
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-位于澳大利亚维多利亚州吉朗市的一家炼油厂15日深夜发生火灾。截至16日上午，大火仍在燃烧。尚无人员伤亡报告。 据悉，这是该国现阶段仅剩的两家炼油厂之一。
+中新网广州6月25日电 (方伟彬 曾洁赟)记者25日从广东省高级人民法院获悉，2026年以来，该省法院共审结一审毒品犯罪案件1287件，收案数同比下降14%，重刑率上升5%，涉依托咪酯等新型毒品案件数同比下降39%，毒品犯罪打击治理成效显著，毒情形势持续稳中向好。“6·26”国际禁毒日前夕，广东高院发布一批依法严惩毒品犯罪典型案例，涉及跨国走私毒品、贩卖新型毒品、利用实验室制毒
 
 ## 正文
 
-位于澳大利亚维多利亚州吉朗市的一家炼油厂15日深夜发生火灾。
+中新网广州6月25日电 (方伟彬 曾洁赟)记者25日从广东省高级人民法院获悉，2026年以来，该省法院共审结一审毒品犯罪案件1287件，收案数同比下降14%，重刑率上升5%，涉依托咪酯等新型毒品案件数同比下降39%，毒品犯罪打击治理成效显著，毒情形势持续稳中向好。
 
-截至16日上午，大火仍在燃烧。
+“6·26”国际禁毒日前夕，广东高院发布一批依法严惩毒品犯罪典型案例，涉及跨国走私毒品、贩卖新型毒品、利用实验室制毒、非法贩卖麻精药品、制售掺毒饮品等案件，体现了广东法院充分发挥刑事审判职能，对毒品犯罪全链条打击、零容忍严惩的坚定决心，以及深度参与毒品问题综合治理的司法担当。
 
-尚无人员伤亡报告。
+通报称，在跨国走私可卡因主犯被执行死刑案中，周某受雇走私、运输毒品可卡因，将夹藏毒品的木板从境外运入境内仓储，企图再次走私出境。
 
-据悉，这是该国现阶段仅剩的两家炼油厂之一。
+公安机关在其仓库查获可卡因134453.72克。
+
+法院认定周某系主犯，罪行极其严重，依法判处死刑并已执行。
+
+该案彰显对跨境源头性毒品犯罪的从严惩处立场。
+
+在大宗贩卖新型毒品异丙帕酯案中，梁某、蒋某贩卖新型毒品异丙帕酯超万克，梁某另采用“埋雷”方式贩毒。
+
+二人分别系毒品再犯、累犯，法院依法从重判处梁某死缓、蒋某无期徒刑。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [美财长贝森特承诺支持日本推进投资审查机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:24 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:34 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:32 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:17 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:38 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:31 - [韩国第一季度接待外国游客476万人次，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:40 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:45 - [采购商谈消博会：这里是一座“全球好物中转站”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:24 - [渤海银行：首席信息官谢凯任职资格获批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:19 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:46 - [国际能源署署长：欧洲仅剩够用6周航空燃油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:19 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:39 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:42 - [酒价内参4月17日价格发布，青花郎下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:20 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:18 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:30 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:42 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:18 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:32 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:43 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:31 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:21 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:21 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:46 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [报告称中国在建核电机组装机容量连续19年保持全球第一](http://www.blog.kurohicncr.top/Article/details/9126926695.shtml)
-- 2026-06-29 11:20 - [东艳：一季度外贸数据反映多个“增强”](http://www.share.minike.top/Article/details/84970884626.shtml)
-- 2026-06-29 11:40 - [又见大“肉签”！301666，中一签最高赚近10万元](http://www.share.minike.top/Article/details/6188520108.shtml)
-- 2026-06-29 11:22 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](http://www.blog.kurohicncr.top/Article/details/98545.shtml)
-- 2026-06-29 11:35 - [中越签署一系列合作文件](http://www.share.kurohicncr.top/Article/details/59264110452.shtml)
-- 2026-06-29 11:34 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](http://www.blog.kurohicncr.top/Article/details/453604011907.shtml)
-- 2026-06-29 11:19 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](http://www.blog.minike.top/Article/details/56278.shtml)
-- 2026-06-29 11:35 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](http://www.share.kurohicncr.top/Article/details/539648729071.shtml)
-- 2026-06-29 11:24 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](http://www.share.kurohicncr.top/Article/details/76862083170.shtml)
-- 2026-06-29 11:20 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](http://www.blog.kurohicncr.top/Article/details/397398098051.shtml)
-- 2026-06-29 11:17 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](http://www.share.kurohicncr.top/Article/details/3885138709.shtml)
-- 2026-06-29 11:26 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](http://www.blog.kurohicncr.top/Article/details/8982473299.shtml)
-- 2026-06-29 11:35 - [浙江舟山嵊泗：“东海鲜”下船上岸](http://www.share.minike.top/Article/details/25996279.shtml)
-- 2026-06-29 11:36 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](http://www.share.kurohicncr.top/Article/details/070671095.shtml)
-- 2026-06-29 11:28 - [Stellantis与微软合作部署逾百款AI工具](http://www.blog.kurohicncr.top/Article/details/3552079.shtml)
+- 2026-06-29 11:42 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:22 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:41 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:44 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:19 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:42 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:20 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:28 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:35 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:42 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:44 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:42 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:19 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)

@@ -1,48 +1,49 @@
-# 伊朗称在与美国会谈期间讨论了解冻资产问题
+# 国家外汇局：5月中国外汇市场总计成交23.14万亿元人民币
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-伊朗外交部发言人Esmail Baghaei在新闻发布会上表示，伊朗与美国的会谈期间讨论了解冻伊朗资产的问题。 Baghaei表示，尽管媒体报道称已达成协议，但实际上并未就释放这些资金达成一致。 Baghaei表示，伊朗并不认为释放被冻结资产是一种让步，而是将其视为一项被不公正地剥夺的权利。责任编辑：丁文武
+中新网6月26日电 据国家外汇管理局微信公众号消息，国家外汇管理局统计数据显示，2026年5月，中国外汇市场(不含外币对市场，下同)总计成交23.14万亿元人民币(等值3.38万亿美元)。其中，银行对客户市场成交4.33万亿元人民币(等值0.63万亿美元)，银行间市场成交18.81万亿元人民币(等值2.75万亿美元)；即期市场累计成交8.89万亿元人民币(等值1.30万亿美元)
 
 ## 正文
 
-伊朗外交部发言人Esmail Baghaei在新闻发布会上表示，伊朗与美国的会谈期间讨论了解冻伊朗资产的问题。
+中新网6月26日电 据国家外汇管理局微信公众号消息，国家外汇管理局统计数据显示，2026年5月，中国外汇市场(不含外币对市场，下同)总计成交23.14万亿元人民币(等值3.38万亿美元)。
 
-Baghaei表示，尽管媒体报道称已达成协议，但实际上并未就释放这些资金达成一致。
+其中，银行对客户市场成交4.33万亿元人民币(等值0.63万亿美元)，银行间市场成交18.81万亿元人民币(等值2.75万亿美元)；即期市场累计成交8.89万亿元人民币(等值1.30万亿美元)，衍生品市场累计成交14.26万亿元人民币(等值2.08万亿美元)。
 
-Baghaei表示，伊朗并不认为释放被冻结资产是一种让步，而是将其视为一项被不公正地剥夺的权利。
-
-责任编辑：丁文武
+2026年1-5月，中国外汇市场累计成交124.22万亿元人民币(等值17.97万亿美元)。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:46 - [黎巴嫩总统同美国国务卿通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:16 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:38 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:42 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:36 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:41 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:36 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:39 - [北京“两区”建设加速推进 高水平开放释放发展新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:34 - [济宁太白湖新区：花海伴赛事 产业促民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:36 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:38 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:18 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:21 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:18 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:35 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:33 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:36 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:28 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:37 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:18 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:33 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:19 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](http://www.share.minike.top/Article/details/480735766352.shtml)
-- 2026-06-29 11:26 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](http://www.share.minike.top/Article/details/049396145020.shtml)
-- 2026-06-29 11:42 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](http://www.blog.minike.top/Article/details/865476309124.shtml)
-- 2026-06-29 11:23 - [多重利好叠加提振预期 消费板块能否苦尽甘来](http://www.blog.kurohicncr.top/Article/details/8091150.shtml)
-- 2026-06-29 11:29 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](http://www.share.minike.top/Article/details/302295483193.shtml)
-- 2026-06-29 11:44 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](http://www.blog.minike.top/Article/details/4487030.shtml)
-- 2026-06-29 11:34 - [中国国家中医药管理局原局长于文明被公诉](http://www.share.minike.top/Article/details/062624.shtml)
-- 2026-06-29 11:31 - [德意志银行预计美联储2026年将维持利率不变](http://www.share.kurohicncr.top/Article/details/054607856566.shtml)
-- 2026-06-29 11:44 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [惠伦晶体立案审查通过，符合要求还可加入](http://www.share.kurohicncr.top/Article/details/1258054376.shtml)
-- 2026-06-29 11:34 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](http://www.share.kurohicncr.top/Article/details/8223641.shtml)
-- 2026-06-29 11:27 - [市场监管总局：将深入开展CCC认证守底线专项行动](http://www.share.kurohicncr.top/Article/details/78034079491.shtml)
-- 2026-06-29 11:20 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](http://www.blog.kurohicncr.top/Article/details/03091.shtml)
-- 2026-06-29 11:22 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](http://www.blog.kurohicncr.top/Article/details/0245411.shtml)
+- 2026-06-29 11:29 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:40 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:21 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:20 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:35 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:23 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:33 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:19 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:47 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:45 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:22 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:34 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:18 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:40 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:45 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)

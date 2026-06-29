@@ -1,60 +1,60 @@
-# 中东局势反复叠加油价飙升推高利率预期，黄金高位震荡
+# 定位生态高地中心城市 青海西宁布局“十五五”生态保护新路径
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 黄金价格在周四亚洲早盘明显回落，跌至4800美元附近，结束此前连续两个交易日的上涨走势。尽管中东局势持续紧张，一度推动市场避险需求升温，但随着油价快速走高，市场对通胀的担忧再度升温，进而削弱了黄金的上行动能。 美国与伊朗正考虑将当前停火安排延长约两周，以为达成更长期协议争取时间。这一消息在一定程度上缓解了市场对冲突升级的担忧，但由于霍尔木兹海峡这一关键能源通
+中新网西宁6月27日电 (记者 孙睿)26日，青海省“开局起步‘十五五’”主题系列新闻发布会西宁市专场召开。青海省西宁市副市长韩兴斌详解未来五年，西宁生态环保整体布局。 据悉，“十四五”期间，西宁市生态环境改善成效显著。立足新阶段，西宁明确了“打造生态文明高地上的中心城市”核心定位。 韩兴斌介绍，西宁将统筹推进山水林田湖草沙一体化保护与修复，实施“三北”工程六期及国土绿化行动，
 
 ## 正文
 
-文章来源：汇通财经 黄金价格在周四亚洲早盘明显回落，跌至4800美元附近，结束此前连续两个交易日的上涨走势。
+中新网西宁6月27日电 (记者 孙睿)26日，青海省“开局起步‘十五五’”主题系列新闻发布会西宁市专场召开。
 
-尽管中东局势持续紧张，一度推动市场避险需求升温，但随着油价快速走高，市场对通胀的担忧再度升温，进而削弱了黄金的上行动能。
+青海省西宁市副市长韩兴斌详解未来五年，西宁生态环保整体布局。
 
-美国与伊朗正考虑将当前停火安排延长约两周，以为达成更长期协议争取时间。
+据悉，“十四五”期间，西宁市生态环境改善成效显著。
 
-这一消息在一定程度上缓解了市场对冲突升级的担忧，但由于霍尔木兹海峡这一关键能源通道仍处于受限状态，地缘风险并未完全消退。
+立足新阶段，西宁明确了“打造生态文明高地上的中心城市”核心定位。
 
-该海峡承担全球约20%的海运原油运输，其运行受阻持续推高能源价格，并对全球市场形成广泛影响。
+韩兴斌介绍，西宁将统筹推进山水林田湖草沙一体化保护与修复，实施“三北”工程六期及国土绿化行动，持续提升森林覆盖率与水土保持率。
 
-油价的持续上涨成为当前黄金承压的核心因素之一。
+推动城市优质生态资源与治理成果向乡村延伸，加快城镇污水管网向农村覆盖。
 
-能源价格上行直接推升通胀预期，使市场对主要央行降息的预期明显降温。
+巩固全域原生生活垃圾“零填埋”成果，完善环青海湖地区生活垃圾跨区域协同处理机制。
 
-在利率维持高位甚至可能进一步收紧的背景下，黄金作为不产生利息的资产，其吸引力相对下降，导致部分资金流出黄金市场。
+持续攻坚“西宁蓝”提质行动，推进湟水流域水环境综合治理，实施国家“美丽河湖”保护与建设工程，精心打造南川河“幸福河湖”项目；加快雨污分流改造与排污口精细化管理，不断提升污水污泥处理效能，确保国省控断面水质稳定达标，将湟水河打造成全国流域生态治理标杆；深化“无废城市”建设，推动工业固体废物综合利用率持续跃升，全方位筑牢高原生态安全屏障。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:29 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:33 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:35 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:23 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:37 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:36 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:16 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:25 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:35 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:37 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:38 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:24 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:36 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:22 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:22 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:40 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:44 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:37 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:37 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:39 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:33 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:34 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:43 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:36 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:47 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:29 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:41 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [长光辰芯首挂上市 早盘高开81.80%](http://www.blog.kurohicncr.top/Article/details/6957943.shtml)
-- 2026-06-29 11:24 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](http://www.blog.kurohicncr.top/Article/details/78206805707.shtml)
-- 2026-06-29 11:45 - [中国向伊朗提供紧急人道主义援助](http://www.blog.kurohicncr.top/Article/details/2363501.shtml)
-- 2026-06-29 11:36 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](http://www.blog.kurohicncr.top/Article/details/12451.shtml)
-- 2026-06-29 11:31 - [浙江启用防汛防台机器狗“AI防汛勇士”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](http://www.blog.minike.top/Article/details/68211.shtml)
-- 2026-06-29 11:23 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.share.kurohicncr.top/Article/details/4925048.shtml)
-- 2026-06-29 11:33 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.share.kurohicncr.top/Article/details/391274819131.shtml)
-- 2026-06-29 11:40 - [受伊朗战争持续影响，欧洲股市料将低开](http://www.blog.minike.top/Article/details/76745.shtml)
-- 2026-06-29 11:39 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](http://www.blog.kurohicncr.top/Article/details/536831154.shtml)
-- 2026-06-29 11:34 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.share.minike.top/Article/details/112604267.shtml)
-- 2026-06-29 11:26 - [中东能源危机推动美国原油出口大增，接近历史最高水平](http://www.share.minike.top/Article/details/019613336901.shtml)
-- 2026-06-29 11:19 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.blog.minike.top/Article/details/4477320183.shtml)
-- 2026-06-29 11:19 - [新晋退休人士最后悔的事：没多存点钱](http://www.share.minike.top/Article/details/5963644148.shtml)
+- 2026-06-29 11:32 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:20 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:23 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:23 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:43 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:25 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:32 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:32 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:22 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:37 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:39 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:37 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:24 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)

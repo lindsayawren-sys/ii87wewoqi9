@@ -1,47 +1,50 @@
-# 渤海银行：首席信息官谢凯任职资格获批
+# 国际禁毒日：福州海警进校园进渔港开展禁毒宣传
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-4月16日，渤海银行（09668）发布公告，近日收到国家金融监督管理总局关于谢凯担任公司首席信息官任职资格的批复。根据公告，谢凯自2026年4月13日起正式履职。
+发布时间：2026年06月25日 18:17 来源：中国新闻网 在第39个国际禁毒日来临之际，连日来，福州海警局组织执法员走进辖区学校、渔港开展禁毒宣传。 在福建商学院，海警执法员通过毒品模型展示、真实案例讲解、互动问答等形式，向在校师生介绍了传统毒品和新型毒品的种类、特征及识别方法，重点围绕青少年滥用药物的危害、如何防范毒品侵害等内容进行了讲解，引导同学们树立正确的人生观，自
 
 ## 正文
 
-4月16日，渤海银行（09668）发布公告，近日收到国家金融监督管理总局关于谢凯担任公司首席信息官任职资格的批复。
+发布时间：2026年06月25日 18:17 来源：中国新闻网 在第39个国际禁毒日来临之际，连日来，福州海警局组织执法员走进辖区学校、渔港开展禁毒宣传。
 
-根据公告，谢凯自2026年4月13日起正式履职。
+在福建商学院，海警执法员通过毒品模型展示、真实案例讲解、互动问答等形式，向在校师生介绍了传统毒品和新型毒品的种类、特征及识别方法，重点围绕青少年滥用药物的危害、如何防范毒品侵害等内容进行了讲解，引导同学们树立正确的人生观，自觉远离毒品、抵制毒品。
+
+在连江等地渔港码头，海警执法员结合伏季休渔期渔船集中在港的时机，向渔民群众发放禁毒和休渔宣传手册，讲解禁毒法律法规和伏季休渔政策，提醒渔民群众在生产生活中提高禁毒意识，自觉抵制毒品，同时严格遵守休渔规定，做到守法生产、安全作业。
+
+下一步，福州海警局将持续加大海上巡逻管控力度，严厉打击各类海上违法犯罪活动，切实筑牢海上安全防线，全力维护辖区稳定。
+
+(吴晟炜叶星帅 王昊） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [Stena DrillMAX将在希腊近海钻探首口深水井](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:18 - [在沙地种下一片“云朵玫瑰”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:22 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:40 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:22 - [美又一核动力航母失火 8名船员受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:40 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:29 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:18 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:20 - [全球智能鸿沟如何破解？这份报告给出答案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:36 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:43 - [新疆新设草湖市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:29 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:16 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:43 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:26 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:24 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:25 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:20 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:47 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:43 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:23 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:23 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:24 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [多份联储报告显示美国物价飙升](http://www.share.minike.top/Article/details/7880572567.shtml)
-- 2026-06-29 11:28 - [光大期货：4月16日金融日报](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](http://www.blog.kurohicncr.top/Article/details/212750066.shtml)
-- 2026-06-29 11:45 - [近3万股东出走中际旭创](http://www.share.minike.top/Article/details/7102609309.shtml)
-- 2026-06-29 11:23 - [韩国称其运载原油船只安全驶离红海](http://www.share.kurohicncr.top/Article/details/241979921.shtml)
-- 2026-06-29 11:46 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](http://www.blog.kurohicncr.top/Article/details/3457680769.shtml)
-- 2026-06-29 11:23 - [上海外贸进出口总值实现“季、月双创纪录”开局](http://www.blog.kurohicncr.top/Article/details/245648283.shtml)
-- 2026-06-29 11:37 - [中国国防部：敦促日方同军国主义彻底切割](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [中国财长出席2026年G20财长和央行行长第一次会议](http://www.share.kurohicncr.top/Article/details/18100.shtml)
-- 2026-06-29 11:25 - [翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](http://www.blog.kurohicncr.top/Article/details/410209.shtml)
-- 2026-06-29 11:20 - [液态金属在太空有何应用前景？中国科研团队深度解析全景前瞻](http://www.blog.minike.top/Article/details/47777.shtml)
-- 2026-06-29 11:39 - [国家医保局：全国近四成统筹地区已完成上年度清算](http://www.share.kurohicncr.top/Article/details/49531428.shtml)
-- 2026-06-29 11:33 - [贝森特：可以理解美联储暂缓降息](http://www.blog.kurohicncr.top/Article/details/054413910717.shtml)
+- 2026-06-29 11:31 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:29 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:43 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:23 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:34 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:22 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:26 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:20 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:43 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:30 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:47 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:41 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)

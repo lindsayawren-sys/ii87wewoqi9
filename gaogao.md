@@ -1,47 +1,46 @@
-# 中国中铁于4月16日斥资4999.96万元回购944.41万股A股
+# 吉林高校毕业生“最后一课”：AI时代守住人文之魂
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中国中铁（00390）发布公告，于2026年4月16日该公司斥资人民币4999.96万元回购944.41万股A股，回购价格为每股人民币5.28-5.31元。责任编辑：卢昱君
+发布时间：2026年06月26日 13:42 来源：中国新闻网 近日，吉林外国语大学举行2026届毕业典礼暨学位授予仪式，校长秦和为全体毕业生送上毕业“最后一课”，授课主题为“守本心以驭万变，向新行以致远方”，并围绕“人工智能时代变与不变”展开分享，勉励学生夯实专业根基、勇于创新、锤炼综合能力，成长为懂科技、有思想、有抱负的新时代青年。(记者 吕盛楠 视频来源 吉林外国语大学)
 
 ## 正文
 
-中国中铁（00390）发布公告，于2026年4月16日该公司斥资人民币4999.96万元回购944.41万股A股，回购价格为每股人民币5.28-5.31元。
+发布时间：2026年06月26日 13:42 来源：中国新闻网 近日，吉林外国语大学举行2026届毕业典礼暨学位授予仪式，校长秦和为全体毕业生送上毕业“最后一课”，授课主题为“守本心以驭万变，向新行以致远方”，并围绕“人工智能时代变与不变”展开分享，勉励学生夯实专业根基、勇于创新、锤炼综合能力，成长为懂科技、有思想、有抱负的新时代青年。
 
-责任编辑：卢昱君
+(记者 吕盛楠 视频来源 吉林外国语大学) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:27 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:17 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:23 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:26 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:34 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:26 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:31 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:46 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:41 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:29 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:39 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:43 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:26 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:32 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:45 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:19 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:39 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:25 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:33 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:36 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:40 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [浙江启用防汛防台机器狗“AI防汛勇士”](http://www.blog.minike.top/Article/details/54328269859.shtml)
-- 2026-06-29 11:31 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.share.minike.top/Article/details/703727.shtml)
-- 2026-06-29 11:25 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](http://www.blog.kurohicncr.top/Article/details/3034352599.shtml)
-- 2026-06-29 11:22 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.blog.kurohicncr.top/Article/details/16207.shtml)
-- 2026-06-29 11:33 - [受伊朗战争持续影响，欧洲股市料将低开](http://www.share.minike.top/Article/details/488285866626.shtml)
-- 2026-06-29 11:26 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](http://www.blog.minike.top/Article/details/32769237857.shtml)
-- 2026-06-29 11:27 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.share.kurohicncr.top/Article/details/35281799.shtml)
-- 2026-06-29 11:37 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.blog.kurohicncr.top/Article/details/0134347.shtml)
-- 2026-06-29 11:29 - [新晋退休人士最后悔的事：没多存点钱](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [IEA警示历史性石油冲击](http://www.blog.kurohicncr.top/Article/details/81216.shtml)
-- 2026-06-29 11:26 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [A股盘前速递：黄金涨回4800美元](http://www.share.minike.top/Article/details/2101500153.shtml)
+- 2026-06-29 11:23 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:19 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:22 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:35 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:35 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:48 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:37 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:22 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:35 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:33 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:30 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:33 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:45 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)

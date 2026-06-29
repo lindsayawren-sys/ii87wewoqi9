@@ -1,61 +1,56 @@
-# 实达集团营收缩水超2亿，退市警报拉响
+# 密歇根大学调查：消费者信心回升，通胀预期有所好转
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、营收“断崖式”下修 4月16日，实达集团（维权）发布了一则公告《2025年年度业绩预告更正暨股票可能被实施退市风险警示的提示公告》。 在这份修正公告中，实达集团将原本预计的2025年营业收入从“3.15亿元至3.65亿元”大幅下调至“0.80亿元至1.00亿元”。 这意味着，在临近年报披露的关口，公司的营收预期突然蒸发了超过
+密歇根大学于周四发布的数据显示，6 月末美国消费者信心指数有所回升，但仍处于低位，同时长期通胀预期大幅回落。 该校消费者调查数据显示，消费者信心总指数录得 49.5，略高于道琼斯一致预期的 49.0，较 5 月数值上涨 10.5%。现况指数与未来预期指数两项分项指标同样悉数走高。 五年期长期通胀预期大幅下行，降至 3.3%，较上月回落 0.6 个百分点；受短期价格波动影响较大的
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、营收“断崖式”下修 4月16日，实达集团（维权）发布了一则公告《2025年年度业绩预告更正暨股票可能被实施退市风险警示的提示公告》。
+密歇根大学于周四发布的数据显示，6 月末美国消费者信心指数有所回升，但仍处于低位，同时长期通胀预期大幅回落。
 
-在这份修正公告中，实达集团将原本预计的2025年营业收入从“3.15亿元至3.65亿元”大幅下调至“0.80亿元至1.00亿元”。
+该校消费者调查数据显示，消费者信心总指数录得 49.5，略高于道琼斯一致预期的 49.0，较 5 月数值上涨 10.5%。
 
-这意味着，在临近年报披露的关口，公司的营收预期突然蒸发了超过2.5亿元，缩水幅度接近70%。
+现况指数与未来预期指数两项分项指标同样悉数走高。
 
-这一调整源于公司对部分业务收入确认的“会计处理变更”，由“总额法”改为了“净额法”。
+五年期长期通胀预期大幅下行，降至 3.3%，较上月回落 0.6 个百分点；受短期价格波动影响较大的一年期通胀预期为 4.6%，较 5 月下降 0.2 个百分点。
 
-上市公司的年报以及财报是投资者投资的一个评判标准，如上市公司在年报中出现差错，那么很大可能会对投资者的决策产生误导而造成投资损失。
+调查负责人乔安妮・许表示：“随着消费者对伊朗冲突长期负面影响的担忧逐步缓解，民众对未来五年商业景气度的预期大幅攀升 16%。
 
-二、受损股民可索赔 根据上交所上市规则，上市公司净利润为负值且营业收入低于3亿元，将被实施退市风险警示。
+不过当前消费者信心依旧偏弱，较伊朗冲突爆发前 2026 年 2 月的数值低 13%，同比去年更是回落近 20%。
 
-实达集团明确提示，2025年年报披露后，公司股票将停牌并可能被冠以“*ST”标识。
-
-上海沪紫律师事务所刘鹏律师表示该公司股价将持续承压，对于近10万股东来说，参与索赔是挽回损失的渠道。
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 11:16 - [南京将打造国际航空货运枢纽 开辟及加密近远洋干线航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:22 - [七牛智能午后涨超4% AI相关收入占比进一步增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:41 - [全周期、全渠道、全领域——多部门详解药价新规](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:34 - [中国电动三轮车爆火美国 电动三轮车在美国价格翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:25 - [国家统计局：一季度GDP同比增长5.0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:32 - [小摩：中金公司首季业绩料胜预期 重申行业首选股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:39 - [沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:23 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:33 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:38 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:46 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:22 - [珠江流域部分中小河流近期可能出现超警洪水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:22 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:22 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:32 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:37 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:34 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:21 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:19 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:29 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:36 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:34 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:41 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:31 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:21 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](http://www.blog.minike.top/Article/details/265017.shtml)
-- 2026-06-29 11:24 - [北京“两区”建设加速推进 高水平开放释放发展新动能](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [济宁太白湖新区：花海伴赛事 产业促民生](http://www.blog.kurohicncr.top/Article/details/7559058184.shtml)
-- 2026-06-29 11:22 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](http://www.blog.kurohicncr.top/Article/details/19064.shtml)
-- 2026-06-29 11:30 - [余金生被执行死刑！系杀害网红“罗大美”主犯](http://www.blog.kurohicncr.top/Article/details/60008175.shtml)
-- 2026-06-29 11:32 - [一季度郑州机场国际货运量同比增长21.8%](http://www.blog.kurohicncr.top/Article/details/38611743.shtml)
-- 2026-06-29 11:35 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](http://www.share.minike.top/Article/details/01172569875.shtml)
-- 2026-06-29 11:37 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](http://www.share.kurohicncr.top/Article/details/640665.shtml)
-- 2026-06-29 11:39 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.share.minike.top/Article/details/32829472.shtml)
-- 2026-06-29 11:34 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](http://www.blog.kurohicncr.top/Article/details/4955539.shtml)
-- 2026-06-29 11:17 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](http://www.share.minike.top/Article/details/35204151628.shtml)
-- 2026-06-29 11:26 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](http://www.share.minike.top/Article/details/55454.shtml)
-- 2026-06-29 11:46 - [河南南阳：警车亮灯守护三轮平安归途](http://www.blog.minike.top/Article/details/52612582.shtml)
-- 2026-06-29 11:31 - [云南印发实施意见全面推进共有精神家园建设](http://www.share.kurohicncr.top/Article/details/638394482079.shtml)
-- 2026-06-29 11:41 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.share.minike.top/Article/details/8340669819.shtml)
+- 2026-06-29 11:24 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:35 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:19 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:21 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:27 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:19 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:27 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:28 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:24 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:32 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:22 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:28 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:20 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:35 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)

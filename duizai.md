@@ -1,60 +1,57 @@
-# 又见大“肉签”！301666，中一签最高赚近10万元
+# 嘉诚国际（603535）及高管收警示函
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-又见大“肉签”。 A股市场今天（4月16日）上午整体上行，创业板指成功站上3600点。 今天A股市场有3只新股上市，分别为大普微（301666）、埃泰克（603293）、恒道科技（920177），上午盘中均实现大幅上涨，其中大普微涨势最为突出，盘中涨幅一度超过430%，中一签大普微最高浮盈约9.95万元。 创业板指站上3600点 A股市场今天上午整体上行，主要指数不同程度上涨。
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月25日晚间，广州市嘉诚国际物流股份有限公司（以下简称“嘉诚国际”，代码603535）公告称，公司于近日收到中国证券监督管理委员会广东监管局出具的《关于对广州市嘉诚国际物流股份有限公司采取责令改正措施并对段容文等采取出具警示函措施的决定》。 根据公告，经广东证监局查明，嘉诚国际的违规行为主要集中在两大方面：一是收入成本核算不规
 
 ## 正文
 
-又见大“肉签”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月25日晚间，广州市嘉诚国际物流股份有限公司（以下简称“嘉诚国际”，代码603535）公告称，公司于近日收到中国证券监督管理委员会广东监管局出具的《关于对广州市嘉诚国际物流股份有限公司采取责令改正措施并对段容文等采取出具警示函措施的决定》。
 
-A股市场今天（4月16日）上午整体上行，创业板指成功站上3600点。
+根据公告，经广东证监局查明，嘉诚国际的违规行为主要集中在两大方面：一是收入成本核算不规范。
 
-今天A股市场有3只新股上市，分别为大普微（301666）、埃泰克（603293）、恒道科技（920177），上午盘中均实现大幅上涨，其中大普微涨势最为突出，盘中涨幅一度超过430%，中一签大普微最高浮盈约9.95万元。
+嘉诚国际在未与客户达成一致意见的情况下将仓库设备投入确认为收入，对已退租客户继续确认租赁收入，对不享有商品交易定价权的贸易业务按总额法核算收入、未同步确认相关年度的收入成本、未按履约进度确认空调安装工程业务收入成本，未按实际采购入库的商品计提返利金额。
 
-创业板指站上3600点 A股市场今天上午整体上行，主要指数不同程度上涨。
+二是长期资产核算不准确。
 
-截至上午收盘，上证指数涨0.53%，深证成指涨1.69%；创业板指涨2.66%，成功站上3600点，并再度刷新近11年新高；科创综指涨1.19%。
+一方面，嘉诚国际在存货盘点中错误适用货架规格标准，并将部分已计入固定资产的货架作为抵债货架重复列入评估范围，导致2024年年报多记固定资产。
 
-主要行业板块和赛道方面，绝大多数板块上行，综合、通信、有色金属、计算机等板块涨幅居前，电力设备、传媒、钢铁等板块跟涨。
+另一方面，嘉诚国际在开展物流配送业务时，未考虑公司每月支付固定租金并确认当期费用等长期租赁仓库的业务实质，未有效识别确认使用权资产和租赁负债，导致2024年年报少记使用权资产及租赁负债。
 
-石油石化、医药生物等板块小幅下跌。
+广东证监局认定，上述问题反映嘉诚国际披露的相关财务数据不准确，违反了《上市公司信息披露管理办法（2021年修订）》（证监会令第182号，下同）第三条第一款的规定。
 
-典型个股方面，宁德时代表现抢眼，其总市值成功突破2万亿元。
+段容文作为公司时任董事长，黄艳婷作为公司副董事长，黄艳芸作为公司董事会秘书，杜书升、陈继明作为公司现任或时任财务总监，未按照《上市公司信息披露管理办法》第四条的规定履行勤勉尽责义务，对公司上述违规行为负有主要责任。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:28 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:23 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:41 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:20 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:16 - [Stellantis与微软合作部署逾百款AI工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:29 - [日本财务大臣：与美国财长密切讨论了外汇问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:42 - [多份联储报告显示美国物价飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:28 - [光大期货：4月16日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:22 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:37 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:45 - [近3万股东出走中际旭创](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:29 - [韩国称其运载原油船只安全驶离红海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:20 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:27 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:28 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:34 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:36 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:47 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [韩国、巴西两国部长商讨能源供应与中东风险](http://www.blog.minike.top/Article/details/561769245064.shtml)
-- 2026-06-29 11:32 - [中信建投期货：4月16日工业品早报](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [华凯易佰1.13亿收购深圳米品盛及香港纽瑞格：压力之下的精品化豪赌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.blog.kurohicncr.top/Article/details/1446666180.shtml)
-- 2026-06-29 11:40 - [重要法案通过！流失在法国的中国国宝，何时能回家？](http://www.blog.minike.top/Article/details/685363.shtml)
-- 2026-06-29 11:19 - [胜宏科技公布发售价厘定为每股H股209.88港元](http://www.share.kurohicncr.top/Article/details/98818989904.shtml)
-- 2026-06-29 11:41 - [IMF宣布恢复与委内瑞拉中断六年多的关系](http://www.share.kurohicncr.top/Article/details/922828.shtml)
-- 2026-06-29 11:19 - [145件作品摘获2025年河南省工业设计大赛奖项](http://www.blog.kurohicncr.top/Article/details/763617978525.shtml)
-- 2026-06-29 11:35 - [以终身追责制推动政府投资决策回归初心](http://www.blog.minike.top/Article/details/92825.shtml)
-- 2026-06-29 11:45 - [04月16日尿素1882.50元/吨 60天上涨4.87%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [OpenAI推出药物研发AI模型 挑战谷歌](http://www.share.kurohicncr.top/Article/details/09813417.shtml)
-- 2026-06-29 11:27 - [300076，业绩突发变脸，将被“*ST”](http://www.share.kurohicncr.top/Article/details/9743251.shtml)
-- 2026-06-29 11:34 - [美的集团获小摩增持约159.47万股 每股均价约85.90港元](http://www.blog.kurohicncr.top/Article/details/74834134.shtml)
-- 2026-06-29 11:32 - [英特尔推出低成本AI芯片，以扩大AI技术的普及](http://www.share.kurohicncr.top/Article/details/34945.shtml)
-- 2026-06-29 11:32 - [返乡夫妻一年卖出近30万双麻鞋](http://www.blog.kurohicncr.top/Article/details/73856.shtml)
+- 2026-06-29 11:19 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:41 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:30 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:37 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:34 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:24 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:21 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:31 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:31 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:44 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:39 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:47 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)

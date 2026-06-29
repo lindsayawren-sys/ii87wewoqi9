@@ -1,48 +1,56 @@
-# 全球智能鸿沟如何破解？这份报告给出答案！
+# 世纪华通索赔倒计时 已有股民二审胜诉
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-原标题：图解丨全球智能鸿沟如何破解？这份报告给出答案！ 统筹：李政葳 文案：孙满桃 设计：董诺 来源：光明网
+近日，备受关注的股民诉浙江世纪华通（维权）集团股份有限公司（证券简称：ST华通，代码：002602）证券虚假陈述案持续推进。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，ST华通案索赔时效只剩最后二十几天，受损股民仍可索赔。（厉健律师专栏） 案情回溯，2024年11月6日晚，世纪华通发布《关于收到的公告》。公告显示，证监会查明，世纪华通违法的事实如
 
 ## 正文
 
-原标题：图解丨全球智能鸿沟如何破解？
+近日，备受关注的股民诉浙江世纪华通（维权）集团股份有限公司（证券简称：ST华通，代码：002602）证券虚假陈述案持续推进。
 
-这份报告给出答案！
+曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，ST华通案索赔时效只剩最后二十几天，受损股民仍可索赔。
 
-统筹：李政葳 文案：孙满桃 设计：董诺 来源：光明网
+（厉健律师专栏） 案情回溯，2024年11月6日晚，世纪华通发布《关于收到的公告》。
+
+公告显示，证监会查明，世纪华通违法的事实如下：一、2018-2022年年报商誉有关情况存在虚假记载。
+
+（一）2018年未按规定执行商誉减值测试，导致2018年年报少计提商誉减值准备6，236.30万元，虚增利润6，236.30万元，占当年利润总额的5.94%。
+
+（二）2019-2022年年报商誉原值披露错误，商誉原值高估12，206.95万元。
+
+（三）2019-2022年年报报告分部的披露不符合会计准则的规定，未将点点作为单独的报告分部进行披露。
+
+（四）2020-2022年未按规定执行商誉减值测试，导致2020年、2022年未按规定计提商誉减值准备，虚增、虚减利润。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:25 - [海军航空大学某大队：更新知识体系 厚植打赢底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:21 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:19 - [Uber将收购Delivery Hero额外4.5%的股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:45 - [中国驻日本大使馆提醒在日中国公民注意人身安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:33 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:26 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:21 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:27 - [报告称中国在建核电机组装机容量连续19年保持全球第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:37 - [东艳：一季度外贸数据反映多个“增强”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:26 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:44 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:38 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:37 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:30 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:46 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:43 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:36 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:27 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:23 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [洪水猛兽还是有效工具？专家学者聚焦AI视域下的青少年科幻写作](http://www.blog.minike.top/Article/details/1365369784.shtml)
-- 2026-06-29 11:23 - [老外体验无人驾驶：“万万没想到，比司机开还稳”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [挖机销量增近三成，工程机械“金三”来了](http://www.blog.minike.top/Article/details/60160420.shtml)
-- 2026-06-29 11:29 - [开局之年看中国·开放自贸港：“艇”进三亚](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [首次原子尺度证实 中国科学家发现金属/载体三维体相参与催化新机制](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [财信宏观丨供给韧性较强，需求修复待提速—2026年1-3月经济数据点评](http://www.blog.minike.top/Article/details/72272187.shtml)
-- 2026-06-29 11:23 - [酒价内参4月16日价格发布：水晶剑南春小幅上涨1元/瓶](http://www.share.kurohicncr.top/Article/details/644204.shtml)
-- 2026-06-29 11:30 - [ATFX:特朗普威胁解除鲍威尔职务 美指跌破98点](http://www.blog.minike.top/Article/details/4589372760.shtml)
-- 2026-06-29 11:26 - [中东突发！刚刚，直线拉升！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [湖北：以正确政绩观引领“支点建设”新征程](http://www.share.kurohicncr.top/Article/details/58771885.shtml)
-- 2026-06-29 11:25 - [全球经济的严峻考验](http://www.blog.kurohicncr.top/Article/details/9323495.shtml)
-- 2026-06-29 11:21 - [Glamox将为Sea1 Offshore的海上能源支持船提供照明](http://www.share.minike.top/Article/details/59360600576.shtml)
-- 2026-06-29 11:36 - [在“商量声”中生长：浙江杭州小古城村民主协商发“新枝”](http://www.share.minike.top/Article/details/291008496.shtml)
-- 2026-06-29 11:29 - [伊朗最高领导人推动将黎巴嫩纳入美伊和谈](http://www.blog.kurohicncr.top/Article/details/467474.shtml)
-- 2026-06-29 11:17 - [珠江委积极开展珠江流域水预算管理工作指引研究](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:29 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:43 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:27 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:21 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:45 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:18 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:19 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:24 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:35 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:24 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:27 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:28 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:26 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:45 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)

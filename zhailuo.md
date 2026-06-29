@@ -1,61 +1,59 @@
-# 新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单
+# 央行拟修订同业存单管理暂行办法，适应货币政策调控和利率市场化改革的新形势
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-近日，一季度的外贸成绩单正式公布，如果用两个字来形容，那就是“提气”。从进出口规模来看，一季度整体外贸数据达到了11.84万亿元，历史上第一次超过了11万亿元，而且比上季度增速增加了15%，更重要的是，我们已经连续12个季度保持在10万亿元以上。那么，怎么来看待这样的一个表现？它背后支撑的因素是什么？如果我们说“起势有力、开局良好”，这样的开局能不能贯穿全局，这样的起步又会决定
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月26日，中国人民银行发布消息称，为进一步规范引导同业存单市场发展，加强金融监管，中国人民银行对《同业存单管理暂行办法》（中国人民银行公告〔2013〕第20号）、中国人民银行公告〔2017〕第12号进行修订，形成《同业存单管理办法》，并面向社会公开征求意见。 同业存单是指由银行业存款类金融机构在全国银行间市场上发行的记账式定期
 
 ## 正文
 
-近日，一季度的外贸成绩单正式公布，如果用两个字来形容，那就是“提气”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月26日，中国人民银行发布消息称，为进一步规范引导同业存单市场发展，加强金融监管，中国人民银行对《同业存单管理暂行办法》（中国人民银行公告〔2013〕第20号）、中国人民银行公告〔2017〕第12号进行修订，形成《同业存单管理办法》，并面向社会公开征求意见。
 
-从进出口规模来看，一季度整体外贸数据达到了11.84万亿元，历史上第一次超过了11万亿元，而且比上季度增速增加了15%，更重要的是，我们已经连续12个季度保持在10万亿元以上。
+同业存单是指由银行业存款类金融机构在全国银行间市场上发行的记账式定期存款凭证，是一种货币市场工具。
 
-那么，怎么来看待这样的一个表现？
+谈及修订的必要性，《起草说明》表示，一是适应货币政策调控和利率市场化改革的新形势；二是切合同业市场联动加深的新形势。
 
-它背后支撑的因素是什么？
+《办法》共 22 条，具体规定了同业存单发行人与投资人范围、存单要素、发行准备、发行与交易、登记托管与兑付、信息披露及监督管理等事项。
 
-如果我们说“起势有力、开局良好”，这样的开局能不能贯穿全局，这样的起步又会决定怎样的走势呢？
+《办法》的主要修订内容，一是明确了监督管理要求与措施。
 
-如何看待一季度外贸首破11万亿元？
+具体来说，《办法》一是明确中国人民银行可根据宏观审慎管理要求、发行人货币政策执行情况、金融市场审慎投资交易情况及利率定价自律情况对其年内备案额度进行动态调整。
 
-对外经济贸易大学校长 赵忠秀： 这份成绩单非常亮眼，它反映了我国外贸基础牢、韧性足、创新强的特征。
+具体来说，发行人可以在当年发行备案额度内，自行确定每期同业存单的发行金额、期限，但单期发行金额不得低于 5000 万元人民币（或等额外币）。
 
-所以，在第一季度完美呈现。
+二是明确发行计划应当包含影响投资判断的关键性财务信息及其他必要信息，提升同业存单发行透明度。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:44 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:42 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:16 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:24 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:40 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:42 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:28 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:22 - [Stellantis与微软合作部署逾百款AI工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:33 - [日本财务大臣：与美国财长密切讨论了外汇问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:44 - [多份联储报告显示美国物价飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:34 - [光大期货：4月16日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:40 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:45 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:20 - [近3万股东出走中际旭创](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:23 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:20 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:40 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:24 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:38 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:33 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:42 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:41 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:28 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:22 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:19 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:18 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:45 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [珠江委积极开展珠江流域水预算管理工作指引研究](http://www.blog.minike.top/Article/details/7102529096.shtml)
-- 2026-06-29 11:41 - [京东养车赛道日全民见证国货轮胎硬核实力 玲珑大师2代京东独家预售](http://www.share.kurohicncr.top/Article/details/0518386042.shtml)
-- 2026-06-29 11:25 - [港股硬科技再走强 同类规模最大港股通信息技术ETF(159131)冲高逾2% 机构看好港股二季度尤其是4-5月反弹机会](http://www.share.minike.top/Article/details/064874.shtml)
-- 2026-06-29 11:22 - [韩国、巴西两国部长商讨能源供应与中东风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [中信建投期货：4月16日工业品早报](http://www.share.minike.top/Article/details/327182175221.shtml)
-- 2026-06-29 11:30 - [华凯易佰1.13亿收购深圳米品盛及香港纽瑞格：压力之下的精品化豪赌](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.share.kurohicncr.top/Article/details/42480878617.shtml)
-- 2026-06-29 11:37 - [重要法案通过！流失在法国的中国国宝，何时能回家？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [胜宏科技公布发售价厘定为每股H股209.88港元](http://www.share.minike.top/Article/details/2726719006.shtml)
-- 2026-06-29 11:20 - [IMF宣布恢复与委内瑞拉中断六年多的关系](http://www.blog.kurohicncr.top/Article/details/7581316.shtml)
-- 2026-06-29 11:31 - [145件作品摘获2025年河南省工业设计大赛奖项](http://www.share.minike.top/Article/details/091188300138.shtml)
-- 2026-06-29 11:44 - [以终身追责制推动政府投资决策回归初心](http://www.blog.minike.top/Article/details/887513799.shtml)
-- 2026-06-29 11:28 - [04月16日尿素1882.50元/吨 60天上涨4.87%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [OpenAI推出药物研发AI模型 挑战谷歌](http://www.blog.minike.top/Article/details/03215167.shtml)
-- 2026-06-29 11:21 - [300076，业绩突发变脸，将被“*ST”](http://www.share.minike.top/Article/details/5111418.shtml)
+- 2026-06-29 11:47 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:27 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:40 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:46 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:38 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:45 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:31 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:27 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:43 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:29 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:18 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:38 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:27 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:26 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:25 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)

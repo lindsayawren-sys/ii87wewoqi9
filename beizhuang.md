@@ -1,59 +1,57 @@
-# 特斯拉完成AI5自动驾驶芯片流片
+# 云南贵州至长江中下游将有强降雨 内蒙古华北东北地区多雷阵雨
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-特斯拉公司（TSLA）在其制造自动驾驶汽车的道路上达成了又一个目标。首席执行官埃隆·马斯克声称，该公司已完成了AI5处理器的流片。这意味着设计阶段已经结束，该芯片现已可以进入生产环节。 这一进展至关重要，因为特斯拉一直在逐步将更多自动驾驶技术（从定制硅到软件）进行内部自研。该公司表示，AI5正在帮助其将下一代自动驾驶硬件的构想变为现实。 特斯拉正斥巨资投入自动驾驶汽车所需的算力
+中新网6月28日电 据中央气象台网站消息，昨日，福建、广东、云南等地出现暴雨或大暴雨，华北及内蒙古出现雷暴大风等强对流天气。预计29日起主雨带东段将北抬到长江中下游一带，西南地区东部至江南中北部、江淮一带有强降雨；未来三天东北、华北和内蒙古中东部仍将多阵性降雨和强对流天气。上述各地关注局地强降雨和强对流天气对城市运行、农业生产等的影响，加强防范暴雨可能引发的次生灾害。 云南贵州
 
 ## 正文
 
-特斯拉公司（TSLA）在其制造自动驾驶汽车的道路上达成了又一个目标。
+中新网6月28日电 据中央气象台网站消息，昨日，福建、广东、云南等地出现暴雨或大暴雨，华北及内蒙古出现雷暴大风等强对流天气。
 
-首席执行官埃隆·马斯克声称，该公司已完成了AI5处理器的流片。
+预计29日起主雨带东段将北抬到长江中下游一带，西南地区东部至江南中北部、江淮一带有强降雨；未来三天东北、华北和内蒙古中东部仍将多阵性降雨和强对流天气。
 
-这意味着设计阶段已经结束，该芯片现已可以进入生产环节。
+上述各地关注局地强降雨和强对流天气对城市运行、农业生产等的影响，加强防范暴雨可能引发的次生灾害。
 
-这一进展至关重要，因为特斯拉一直在逐步将更多自动驾驶技术（从定制硅到软件）进行内部自研。
+云南贵州至长江中下游将有强降雨 28日，西南地区东部和南部、江南南部、华南等地仍有中到大雨，局地暴雨或大暴雨。
 
-该公司表示，AI5正在帮助其将下一代自动驾驶硬件的构想变为现实。
+6月29日至7月3日，主雨带将逐渐北抬到长江中下游，雨势增强；云南、贵州、重庆南部、江南中北部、江淮西南部、华南西部等地有大到暴雨、局地大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
 
-特斯拉正斥巨资投入自动驾驶汽车所需的算力。
+内蒙古华北东北地区多雷阵雨 未来三天，内蒙古中东部、东北地区、华北等地多阵雨或雷阵雨天气，雨量分布不均，一般以小到中雨为主，局地有大雨或暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
 
-该芯片很可能成为公司未来全自动驾驶汽车雄心的重要组成部分。
+其中，6月28日8时至29日8时，华北、西北地区东部、内蒙古中东部、黄淮西部、华南南部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，山西东南部、河北东部和中部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上；华北东部、内蒙古东部、黄淮西部、江南东南部、华南、西南地区南部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，河北中部和东部、江西南部等地的部分地区小时雨量大于50毫米。
 
-马斯克还声称，人们目前正在研发AI6和Dojo3等新技术。
+中央气象台6月28日6时继续发布强对流天气蓝色预警。
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [凌晨，见证历史！全线大涨！美联储，重磅发布！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:21 - [圣贝拉集团：受托人根据股份奖励计划购买合共9.2万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:16 - [麦迪科技：4月13日召开业绩说明会，投资者参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:43 - [开局之年看中国·开放自贸港：三亚芒果闯世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:41 - [Hims & Hers股价周四上涨：监管突破助推](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:41 - [（经济观察）万商云集广交会 折射中国外贸新气象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:34 - [五一假期首日火车票今日开售 超全抢票攻略来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:19 - [距下次会议仅剩两周，欧洲央行仍未就利率走向给市场明确信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:24 - [实达集团营收缩水超2亿，退市警报拉响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:38 - [一季度“零发行”后银行二永债4月抢闸，会否冲击债市利差？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:31 - [戈壁湿地奏响春日序曲 万鸟翩跹染绿丝路古道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:19 - [美国和伊朗或考虑延长停火 霍尔木兹海峡局势仍高度紧张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:34 - [铝业股午前集体走高 中国铝业涨超5%俄铝涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:43 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:47 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:31 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:21 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:34 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:37 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:46 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:36 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:39 - [鬼畜区全明星拼接遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:21 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [伊朗称在与美国会谈期间讨论了解冻资产问题](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:17 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](http://www.share.minike.top/Article/details/762431.shtml)
-- 2026-06-29 11:36 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](http://www.share.minike.top/Article/details/637628.shtml)
-- 2026-06-29 11:28 - [美国将封锁范围扩大至受制裁船只](http://www.share.minike.top/Article/details/805761221.shtml)
-- 2026-06-29 11:45 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](http://www.share.kurohicncr.top/Article/details/589343.shtml)
-- 2026-06-29 11:44 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](http://www.blog.kurohicncr.top/Article/details/72041300784.shtml)
-- 2026-06-29 11:35 - [黎巴嫩总统同美国国务卿通话](http://www.blog.kurohicncr.top/Article/details/9176520644.shtml)
-- 2026-06-29 11:41 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](http://www.share.minike.top/Article/details/53676.shtml)
-- 2026-06-29 11:34 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](http://www.blog.kurohicncr.top/Article/details/879198600486.shtml)
-- 2026-06-29 11:32 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](http://www.share.minike.top/Article/details/70613498679.shtml)
+- 2026-06-29 11:39 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:21 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:42 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:25 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:37 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:37 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:30 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:20 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:19 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:41 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:38 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:39 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:23 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:19 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)

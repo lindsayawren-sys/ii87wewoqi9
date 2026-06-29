@@ -1,57 +1,61 @@
-# 致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议
+# “全球海洋热浪预报产品”正式发布
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-近日，致公党营口市委会召开了2025年度参政议政工作总结会议暨2026年度参政议政立题会议。市委会领导班子、市委委员、各支部、各专委会代表，参政议政专委会骨干党员参会，会议由市委会副主委王战英主持。 会议通报了2025年市委会参政议政工作开展情况——过去的一年，市委会紧扣上级工作部署，系统谋划、严管提质，扎实开展课题调研、提案撰写与社情民意报送，创新实地调研、数字赋能与跨部门协
+中新网北京6月26日电 (记者 阮煜琳)记者26日从自然资源部获悉，自然资源部国家海洋环境预报中心自主研发的全球海洋热浪业务预报产品正式投入业务运行，提升了我国海洋热浪精细化预报技术。 海洋热浪是海温连续5天超出当地常年均值的异常增暖现象。在全球气候变暖背景下，海洋升温趋势愈发严峻，海洋热浪已演变为高发的新型海洋灾害，严重威胁海洋生态安全、渔业经济、蓝色碳汇保护以及沿海地区高质
 
 ## 正文
 
-近日，致公党营口市委会召开了2025年度参政议政工作总结会议暨2026年度参政议政立题会议。
+中新网北京6月26日电 (记者 阮煜琳)记者26日从自然资源部获悉，自然资源部国家海洋环境预报中心自主研发的全球海洋热浪业务预报产品正式投入业务运行，提升了我国海洋热浪精细化预报技术。
 
-市委会领导班子、市委委员、各支部、各专委会代表，参政议政专委会骨干党员参会，会议由市委会副主委王战英主持。
+海洋热浪是海温连续5天超出当地常年均值的异常增暖现象。
 
-会议通报了2025年市委会参政议政工作开展情况——过去的一年，市委会紧扣上级工作部署，系统谋划、严管提质，扎实开展课题调研、提案撰写与社情民意报送，创新实地调研、数字赋能与跨部门协作，建言实效显著提升。
+在全球气候变暖背景下，海洋升温趋势愈发严峻，海洋热浪已演变为高发的新型海洋灾害，严重威胁海洋生态安全、渔业经济、蓝色碳汇保护以及沿海地区高质量发展，是海洋防灾减灾和全球海洋治理亟待解决的重要难题。
 
-完成参政议政调研报告26篇，提交社情民意信息60篇，多篇获省市领导批示，并在致公全省参政议政会议作经验交流，履职实效稳步提升。
+预报中心历经五年，完成理论研究、机理分析、区域预报、标准制定到全球产品落地的全链条技术突破。
 
-2026年要增强责任感和使命感，围绕经济发展和民生保障等重点领域精准建言，着力提升调研报告成果转化率和反映社情民意信息质效；同时课题深度、成果转化率、骨干队伍能力仍有提升空间，下一步将靶向改进、提质增效。
+2024年推出国内首款中国海海洋热浪预报产品，实现业务应用从无到有；2025年牵头推进《海洋热浪等级划分》国家标准编制，健全业务标准体系；2026年全球预报产品成功上线。
 
-会上宣读了2025年度参政议政工作先进集体、突出贡献奖个人，以及高质量调研奖、“十佳”调研报告奖、优质成果奖、优秀社情民意信息奖获奖名单，以表彰先进、树立标杆，激励全体党员履职尽责、争先创优。
+该全球预报产品以热浪强度、等级为核心预报内容，依托自研“妈祖”海洋环流模式开展动态预报，空间分辨率达1/12度，最长预报时效为7天，可预报全球海域未来一周海洋热浪的生消过程、影响范围及强度变化。
 
-为扎实推进 2026 年度参政议政工作，会议专题部署重点调研课题任务。
+该产品可提升我国海洋热浪灾害预判和应急处置能力，赋能海洋生态保护、海洋经济高质量发展与海洋安全保障建设，兼具重要的科学、业务与社会价值。
 
-市委会紧扣中央、省、市决策部署与履职重点，严格规范立题程序，广泛征集选题、集中研讨论证，科学确定中央、省、市三级重点调研课题，明确立项各级重点调研课题共29项，涵盖先进制造、教育科技、文旅消费、人工智能、银发经济、医疗卫生等重点领域。
+下一步，预报中心将持续优化产品精度与预报时效，健全监测预警和应急响应联动机制，深度参与国际海洋治理与合作，为全球海洋生态保护和可持续发展贡献中国智慧和中国力量。
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:38 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:36 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:26 - [多重利好叠加提振预期 消费板块能否苦尽甘来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:21 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:22 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:40 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:33 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:20 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:20 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:29 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:23 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:26 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:33 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:34 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:37 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:32 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:20 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:22 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:46 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:29 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:18 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:38 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:43 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.blog.kurohicncr.top/Article/details/448107787.shtml)
-- 2026-06-29 11:31 - [澳大利亚一炼油厂发生大火](http://www.share.minike.top/Article/details/77279181.shtml)
-- 2026-06-29 11:34 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [话剧《四世同堂》首次登陆澳大利亚](http://www.blog.kurohicncr.top/Article/details/461740532231.shtml)
-- 2026-06-29 11:34 - [中国HH-200航空商用无人运输系统首架机首飞成功](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.blog.minike.top/Article/details/177181848260.shtml)
-- 2026-06-29 11:19 - [一季度增城西站中欧班列开行量同比增长24%](http://www.share.minike.top/Article/details/88087692.shtml)
-- 2026-06-29 11:24 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.blog.minike.top/Article/details/825333397341.shtml)
-- 2026-06-29 11:41 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.blog.kurohicncr.top/Article/details/9638423.shtml)
-- 2026-06-29 11:26 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.share.kurohicncr.top/Article/details/4249383383.shtml)
-- 2026-06-29 11:38 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.share.kurohicncr.top/Article/details/97028733.shtml)
-- 2026-06-29 11:28 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](http://www.blog.kurohicncr.top/Article/details/725197890185.shtml)
-- 2026-06-29 11:34 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](http://www.share.minike.top/Article/details/1982917967.shtml)
-- 2026-06-29 11:26 - [韩国第一季度接待外国游客476万人次，创历史新高](http://www.blog.kurohicncr.top/Article/details/72077796.shtml)
+- 2026-06-29 11:29 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:18 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:30 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:38 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:30 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:37 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:35 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:25 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:37 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:25 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:18 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:25 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:21 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:41 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)

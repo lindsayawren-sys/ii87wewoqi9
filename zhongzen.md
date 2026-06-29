@@ -1,60 +1,57 @@
-# 美国制造业产值一季度反弹 增长扩大到AI领域之外
+# 【市场聚焦】贵金属：逻辑矛盾的超跌
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-继2025年底的疲软表现后，美国制造业产值在第一季度反弹，且增长扩大到人工智能领域以外。 美联储周四公布的数据显示，剔除计算机和半导体等高科技产业后，制造业产值折合年率增长2.8%。这是2021年以来最为强劲的增速之一，当时经济正从疫情中恢复。 美联储的数据显示，机械、汽车、矿产品和电气设备等行业均在第一季度实现大幅产出增长。 尽管伊朗战争推高投入成本给制造商带来新的不确定性，
+中粮期货研究中心 概览 本周贵金属行情大幅超跌，白银跌幅显著远超黄金，金银接连失守关键整数关口。 本轮行情呈现明显宏观逻辑背离，油价大幅回落、长端美债收益率边际下行，但金银跌势持续加剧，核心压力并非基本面恶化，而是加息预期抢跑、美元走强、流动性收缩及交易结构失衡共振所致。 6月FOMC会议点阵图转鹰引发市场过度解读，叠加美元指数受非美货币走弱提振走强，对贵金属形成短期估值压制。
 
 ## 正文
 
-继2025年底的疲软表现后，美国制造业产值在第一季度反弹，且增长扩大到人工智能领域以外。
+中粮期货研究中心 概览 本周贵金属行情大幅超跌，白银跌幅显著远超黄金，金银接连失守关键整数关口。
 
-美联储周四公布的数据显示，剔除计算机和半导体等高科技产业后，制造业产值折合年率增长2.8%。
+本轮行情呈现明显宏观逻辑背离，油价大幅回落、长端美债收益率边际下行，但金银跌势持续加剧，核心压力并非基本面恶化，而是加息预期抢跑、美元走强、流动性收缩及交易结构失衡共振所致。
 
-这是2021年以来最为强劲的增速之一，当时经济正从疫情中恢复。
+6月FOMC会议点阵图转鹰引发市场过度解读，叠加美元指数受非美货币走弱提振走强，对贵金属形成短期估值压制。
 
-美联储的数据显示，机械、汽车、矿产品和电气设备等行业均在第一季度实现大幅产出增长。
+国内多家银行集中上调贵金属合约保证金、收缩交易通道，触发系统性去杠杆与仓位踩踏，是本轮行情深度超跌的核心放大因素，叠加境外ETF持续资金流出、关键支撑位破位引发程序化止损负反馈，进一步放大波动。
 
-尽管伊朗战争推高投入成本给制造商带来新的不确定性，但制造业显现出复苏的苗头。
+整体来看，本轮下跌为交易性流动性出清，美国高债务、央行购金、去美元化等中长期支撑逻辑未被证伪。
 
-随着贸易政策不确定性缓解，以及企业利用有利税收政策，资本支出今年可能保持强劲。
+风险提示：通胀数据超预期风险、美伊谈判破裂、全球经济衰退、国内政策收紧风险、技术破位风险等。
 
-3月制造业产值下降0.1%，主要受汽车生产疲软拖累。
+一、市场表现：超跌 本周贵金属板块跌势加速，白银下跌幅度明显高于黄金，反映本轮行情并非单纯的避险情绪回吐，核心驱动源于高波动、高杠杆、强工业属性品种的流动性折价效应。
 
-剔除汽车后，制造业产值小幅增长0.1%，为连续第三个月上涨。
+伦敦金接连跌破4100美元/盎司、4000美元/盎司两大关键整数关口，伦敦银失守60美元/盎司一线，走势显著弱于黄金。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:42 - [报告称中国在建核电机组装机容量连续19年保持全球第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:37 - [东艳：一季度外贸数据反映多个“增强”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:36 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:36 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:36 - [中越签署一系列合作文件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:29 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:40 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:46 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:40 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:25 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:25 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:34 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:35 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:32 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:42 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:37 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:30 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:46 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:30 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:22 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:46 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:33 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:20 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [ATFX:特朗普威胁解除鲍威尔职务 美指跌破98点](http://www.blog.kurohicncr.top/Article/details/69094.shtml)
-- 2026-06-29 11:43 - [中东突发！刚刚，直线拉升！](http://www.share.kurohicncr.top/Article/details/2127336283.shtml)
-- 2026-06-29 11:18 - [湖北：以正确政绩观引领“支点建设”新征程](http://www.blog.kurohicncr.top/Article/details/14059.shtml)
-- 2026-06-29 11:21 - [全球经济的严峻考验](http://www.blog.minike.top/Article/details/50377472.shtml)
-- 2026-06-29 11:28 - [Glamox将为Sea1 Offshore的海上能源支持船提供照明](http://www.blog.kurohicncr.top/Article/details/03423038871.shtml)
-- 2026-06-29 11:29 - [在“商量声”中生长：浙江杭州小古城村民主协商发“新枝”](http://www.share.minike.top/Article/details/36144376367.shtml)
-- 2026-06-29 11:19 - [伊朗最高领导人推动将黎巴嫩纳入美伊和谈](http://www.blog.minike.top/Article/details/7199504072.shtml)
-- 2026-06-29 11:29 - [珠江委积极开展珠江流域水预算管理工作指引研究](http://www.share.kurohicncr.top/Article/details/53827.shtml)
-- 2026-06-29 11:28 - [京东养车赛道日全民见证国货轮胎硬核实力 玲珑大师2代京东独家预售](http://www.blog.minike.top/Article/details/289926489.shtml)
-- 2026-06-29 11:42 - [港股硬科技再走强 同类规模最大港股通信息技术ETF(159131)冲高逾2% 机构看好港股二季度尤其是4-5月反弹机会](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [韩国、巴西两国部长商讨能源供应与中东风险](http://www.share.minike.top/Article/details/152003691.shtml)
-- 2026-06-29 11:29 - [中信建投期货：4月16日工业品早报](http://www.blog.minike.top/Article/details/3027871.shtml)
-- 2026-06-29 11:37 - [华凯易佰1.13亿收购深圳米品盛及香港纽瑞格：压力之下的精品化豪赌](http://www.blog.kurohicncr.top/Article/details/7965578.shtml)
-- 2026-06-29 11:41 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.share.kurohicncr.top/Article/details/09457706.shtml)
-- 2026-06-29 11:45 - [重要法案通过！流失在法国的中国国宝，何时能回家？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:46 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:38 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:23 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:20 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:28 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:40 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:37 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:30 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:39 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:24 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:25 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:37 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:18 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:47 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)

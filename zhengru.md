@@ -1,45 +1,58 @@
-# 网易云音乐于4月15日耗资约1499.57万港元回购11.995万股
+# 特斯拉据悉计划今年在美投产Model Y长轴距版
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-网易云音乐（09899）公布，2026年4月15日耗资约1499.57万港元回购11.995万股股份。责任编辑：卢昱君
+特斯拉去年在中国推出了车身尺寸略大的Model Y长轴距版（Model Y L），这款车型一经上市便迅速热销。更长的轴距、更宽敞的车内空间以及腿部活动余量更充裕的后排，让不少美国消费者十分期待这款车型能够登陆本土市场，美国消费者此前一直呼吁特斯拉推出尺寸更大的SUV车型。 据报道，特斯拉据悉计划在今年将Model Y长轴距版引入美国市场。相关报道援引“可靠消息源”，汽车预测解决
 
 ## 正文
 
-网易云音乐（09899）公布，2026年4月15日耗资约1499.57万港元回购11.995万股股份。
+特斯拉去年在中国推出了车身尺寸略大的Model Y长轴距版（Model Y L），这款车型一经上市便迅速热销。
 
-责任编辑：卢昱君
+更长的轴距、更宽敞的车内空间以及腿部活动余量更充裕的后排，让不少美国消费者十分期待这款车型能够登陆本土市场，美国消费者此前一直呼吁特斯拉推出尺寸更大的SUV车型。
+
+据报道，特斯拉据悉计划在今年将Model Y长轴距版引入美国市场。
+
+相关报道援引“可靠消息源”，汽车预测解决方案公司的分析师Sam Fiorani表示，该车型将于今年晚些时候投产。
+
+Fiorani表示：“Model Y长轴距版预计将于9月在美国启动生产，并有望在 2026 年年底前正式开启北美市场销售”，该车型将在得克萨斯州超级工厂投产。
+
+此外，美国境内已经有人拍到数台车身被伪装覆盖的Model Y长轴距版，这进一步表明特斯拉计划将这款车型引入美国市场。
+
+特斯拉每当临近新车在美国上市前夕，这类采用下图同款伪装车衣的测试车辆频频现身早已不是新鲜事。
+
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [圣贝拉集团：受托人根据股份奖励计划购买合共9.2万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:24 - [麦迪科技：4月13日召开业绩说明会，投资者参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:45 - [开局之年看中国·开放自贸港：三亚芒果闯世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:29 - [Hims & Hers股价周四上涨：监管突破助推](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:43 - [（经济观察）万商云集广交会 折射中国外贸新气象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:23 - [五一假期首日火车票今日开售 超全抢票攻略来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:43 - [距下次会议仅剩两周，欧洲央行仍未就利率走向给市场明确信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:23 - [实达集团营收缩水超2亿，退市警报拉响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:30 - [一季度“零发行”后银行二永债4月抢闸，会否冲击债市利差？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:30 - [戈壁湿地奏响春日序曲 万鸟翩跹染绿丝路古道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:20 - [美国和伊朗或考虑延长停火 霍尔木兹海峡局势仍高度紧张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:45 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:39 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:24 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:37 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:45 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:28 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:23 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:44 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:26 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:31 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:45 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [伊朗称在与美国会谈期间讨论了解冻资产问题](http://www.share.kurohicncr.top/Article/details/9708471897.shtml)
-- 2026-06-29 11:45 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](http://www.blog.minike.top/Article/details/199236524844.shtml)
-- 2026-06-29 11:34 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](http://www.share.kurohicncr.top/Article/details/2697961373.shtml)
-- 2026-06-29 11:32 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](http://www.share.minike.top/Article/details/42973149840.shtml)
-- 2026-06-29 11:19 - [美国将封锁范围扩大至受制裁船只](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](http://www.share.kurohicncr.top/Article/details/744062392996.shtml)
-- 2026-06-29 11:41 - [涉“幽灵外卖”，抖音被罚5689万](http://www.blog.minike.top/Article/details/3602597123.shtml)
-- 2026-06-29 11:45 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](http://www.share.minike.top/Article/details/366963.shtml)
-- 2026-06-29 11:35 - [黎巴嫩总统同美国国务卿通话](http://www.blog.kurohicncr.top/Article/details/9278508.shtml)
-- 2026-06-29 11:18 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](http://www.share.kurohicncr.top/Article/details/877776.shtml)
-- 2026-06-29 11:38 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](http://www.blog.minike.top/Article/details/14859922.shtml)
-- 2026-06-29 11:45 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](http://www.share.kurohicncr.top/Article/details/960374.shtml)
-- 2026-06-29 11:37 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](http://www.blog.minike.top/Article/details/7754747531.shtml)
-- 2026-06-29 11:43 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](http://www.blog.kurohicncr.top/Article/details/2021107.shtml)
+- 2026-06-29 11:28 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:32 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:36 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:39 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:35 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:44 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:42 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:20 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:34 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:27 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:30 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:42 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:45 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:46 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:23 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)

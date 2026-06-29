@@ -1,59 +1,56 @@
-# 吃顿麻辣烫被多收近百元，称重计价餐饮的坑你踩过几个
+# 情满天山 援疆印记丨让每个孩子被看见：阜康这所新校的成长故事
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-北京西城的一位顾客最近在杨国福麻辣烫就餐时，惊讶地发现自己点的菜被“斤”计价，但系统后台把“斤”当成了“公斤”来计算，结果一顿麻辣烫实付97.21元。事后杨国福回应称是员工操作失误。这件事听起来是个偶发事故，但在称重计价的餐饮模式里，这样的“误差”并不是第一次出现，也不太可能是最后一次。 称重计价餐饮在近几年快速扩张，从麻辣烫、称重自助到按克卖的日料和海鲜，越来越多的餐饮场景让
+石榴云/新疆日报记者 张婷 6月16日，“情满天山 援疆印记”采访团走进阜康市晋和小学，扑面而来的是一整座校园涌动的朝气与活力。大课间铃声响起，宽阔的操场上瞬间热闹起来，整齐列队、欢快跳跃，少年的蓬勃气息，充盈着校园每一个角落。 2025年9月正式投用的晋和小学，是山西对口援疆重点落地的全新公办校园。崭新的楼宇、标准化的场地、智能化的教学设备一应俱全。在干净崭新的校舍背后，真正
 
 ## 正文
 
-北京西城的一位顾客最近在杨国福麻辣烫就餐时，惊讶地发现自己点的菜被“斤”计价，但系统后台把“斤”当成了“公斤”来计算，结果一顿麻辣烫实付97.21元。
+石榴云/新疆日报记者 张婷 6月16日，“情满天山 援疆印记”采访团走进阜康市晋和小学，扑面而来的是一整座校园涌动的朝气与活力。
 
-事后杨国福回应称是员工操作失误。
+大课间铃声响起，宽阔的操场上瞬间热闹起来，整齐列队、欢快跳跃，少年的蓬勃气息，充盈着校园每一个角落。
 
-这件事听起来是个偶发事故，但在称重计价的餐饮模式里，这样的“误差”并不是第一次出现，也不太可能是最后一次。
+2025年9月正式投用的晋和小学，是山西对口援疆重点落地的全新公办校园。
 
-称重计价餐饮在近几年快速扩张，从麻辣烫、称重自助到按克卖的日料和海鲜，越来越多的餐饮场景让消费者直接面对“价格由重量决定”的结算方式。
+崭新的楼宇、标准化的场地、智能化的教学设备一应俱全。
 
-这种模式本身没有问题，问题在于消费者几乎无法独立核验称量结果——秤在商家那里，记录在系统里，消费者付款时能看到的，只有一个最终数字。
+在干净崭新的校舍背后，真正让校园“活起来、暖起来、亮起来”的，是一套从千里之外山西完整移植、又深度扎根阜康本地的全新教育模式。
 
-称重计价餐饮的常见套路 计量单位混淆：如杨国福事件，将“斤”和“公斤”混用，一旦系统设置错误，消费者实际支付的可能是两倍价格，很难在现场察觉，往往付款后才回过神来。
+“建校之初，我们始终把育人放在首位，山西省援疆教育团队立足阜康本地学情，让成熟实用的育人经验落地生根，用心关注每一名孩子，正视孩子差异、发掘孩子亮点、陪伴孩子踏实成长。
 
-商家自备秤不经计量认证：餐饮经营者使用的秤应符合计量法规要求，但市面上不少小店使用未经检验或精度不达标的秤具，称出的重量偏高偏低都是消费者的损失，而消费者缺乏即时验证手段。
+”晋和小学党支部书记张蓓说。
 
-提前浸水、抹油增重：部分按斤售卖的生鲜、熟食商家被曝光存在向食材中添加水分增加重量的操作，外观看不出，实际含水量远超正常水平，消费者为水分付出了高价。
+借助太原市杏花岭区五一路小学教育集团办学资源，晋和小学打破传统教学模式，落实山西成熟教育经验，尊重孩子性格差异，挖掘每个人身上的长处，因材施教做好日常教学。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [国家发改委：将制定2026—2030年扩大内需战略实施方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:17 - [国家发改委：稳步提高最低工资标准，多渠道增加城乡居民财产性收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:23 - [世界最大清洁能源走廊一季度补水超203亿立方米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:18 - [特斯拉完成AI5自动驾驶芯片流片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:29 - [网易云音乐于4月15日耗资约1499.57万港元回购11.995万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:24 - [专家解读法国通过文物归还法案 为中国文物回流提供契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:19 - [云南瑞丽边检站为骨折缅甸旅客开通“紧急通道”入境就医](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:45 - [新华时评·首季经济观察丨稳健开局展现中国经济韧性底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:21 - [迪拜启用全球首个综合空中出租车起降场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:23 - [长三角港口从“互连”迈向“深融” “连申快航”年运量突破15.2万标箱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:33 - [凌晨，见证历史！全线大涨！美联储，重磅发布！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:26 - [圣贝拉集团：受托人根据股份奖励计划购买合共9.2万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:38 - [麦迪科技：4月13日召开业绩说明会，投资者参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:30 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:38 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:23 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:29 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:28 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:32 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:18 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:44 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:37 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](http://www.share.kurohicncr.top/Article/details/19409940421.shtml)
-- 2026-06-29 11:41 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](http://www.blog.minike.top/Article/details/50712706302.shtml)
-- 2026-06-29 11:28 - [南方精工索赔时效只剩两个月 此前部分股民调解](http://www.share.minike.top/Article/details/24805798.shtml)
-- 2026-06-29 11:35 - [第十五届中国饭店文化节将在横琴和澳门两地举办](http://www.share.kurohicncr.top/Article/details/364703725804.shtml)
-- 2026-06-29 11:35 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [4月16日人民币对美元中间价报6.8616 下调34个基点](http://www.blog.kurohicncr.top/Article/details/5848167351.shtml)
-- 2026-06-29 11:43 - [厦门钨业：子公司金龙稀土进入创新层](http://www.share.kurohicncr.top/Article/details/651609045.shtml)
-- 2026-06-29 11:20 - [镜观·回响丨在交流中深化中越青年情谊](http://www.share.minike.top/Article/details/9339513.shtml)
-- 2026-06-29 11:45 - [中金：维持波司登跑赢行业评级 目标价5.65港元](http://www.blog.minike.top/Article/details/2542392058.shtml)
-- 2026-06-29 11:40 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](http://www.blog.kurohicncr.top/Article/details/8851028.shtml)
-- 2026-06-29 11:19 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [伊朗称在与美国会谈期间讨论了解冻资产问题](http://www.blog.kurohicncr.top/Article/details/168150832.shtml)
-- 2026-06-29 11:38 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](http://www.share.minike.top/Article/details/744019072000.shtml)
-- 2026-06-29 11:20 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](http://www.blog.minike.top/Article/details/9048284483.shtml)
-- 2026-06-29 11:33 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](http://www.blog.kurohicncr.top/Article/details/55579.shtml)
+- 2026-06-29 11:47 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:31 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:34 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:35 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:47 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:36 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:29 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:26 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:35 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:38 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:39 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:18 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:37 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:35 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)

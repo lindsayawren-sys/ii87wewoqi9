@@ -1,57 +1,61 @@
-# 坦赞铁路采风绘画展将亮相赞比亚
+# 中国音乐家协会第十次全国代表大会、中国舞蹈家协会第十二次全国代表大会、中国杂技家协会第九次全国代表大会在北京召开 李书磊出席开幕式并讲话
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-中新社北京4月16日电 (记者 应妮)记者从16日在中国国家博物馆举行的发布会上获悉，由中国驻赞比亚大使馆、中国国家博物馆、赞比亚卢萨卡国家博物馆及中国土木工程集团有限公司联合主办的“同路朋友——坦赞铁路采风绘画展(赞比亚站)”，将于4月23日在赞比亚卢萨卡国家博物馆开幕。 20世纪六七十年代，数万名中国专家和技术人员远涉重洋，奔赴坦桑尼亚与赞比亚，与当地人民并肩奋斗，修建完成
+新华社北京6月27日电 中国音乐家协会第十次全国代表大会、中国舞蹈家协会第十二次全国代表大会、中国杂技家协会第九次全国代表大会27日在北京召开。中共中央政治局委员、中宣部部长李书磊出席开幕式并讲话。 代表们认为，近年来广大音乐、舞蹈、杂技工作者深入学习实践习近平文化思想，围绕中心、服务大局，以声传情、以形塑魂、以技赋美，推出许多反映时代、讴歌人民的艺术佳作，在提高大众审美、凝聚
 
 ## 正文
 
-中新社北京4月16日电 (记者 应妮)记者从16日在中国国家博物馆举行的发布会上获悉，由中国驻赞比亚大使馆、中国国家博物馆、赞比亚卢萨卡国家博物馆及中国土木工程集团有限公司联合主办的“同路朋友——坦赞铁路采风绘画展(赞比亚站)”，将于4月23日在赞比亚卢萨卡国家博物馆开幕。
+新华社北京6月27日电 中国音乐家协会第十次全国代表大会、中国舞蹈家协会第十二次全国代表大会、中国杂技家协会第九次全国代表大会27日在北京召开。
 
-20世纪六七十年代，数万名中国专家和技术人员远涉重洋，奔赴坦桑尼亚与赞比亚，与当地人民并肩奋斗，修建完成了被誉为“友谊之路”“自由之路”的坦赞铁路。
+中共中央政治局委员、中宣部部长李书磊出席开幕式并讲话。
 
-从铁路工程的勘测设计到物资运输再到铁路施工，坦赞铁路建设者们克服环境与技术难题，谱写了一段患难相助的中非友谊故事。
+代表们认为，近年来广大音乐、舞蹈、杂技工作者深入学习实践习近平文化思想，围绕中心、服务大局，以声传情、以形塑魂、以技赋美，推出许多反映时代、讴歌人民的艺术佳作，在提高大众审美、凝聚奋进力量、深化对外交流等方面发挥了重要作用，为繁荣发展社会主义文艺作出了积极贡献。
 
-当前，坦赞铁路激活项目作为新时代中非合作的标志性工程，续写着友谊新篇章，推动了共建“一带一路”高质量发展走深走实。
+代表们表示，要锚定2035年建成文化强国的宏伟目标，不断满足人民群众精神文化需求，弘扬民族精神、奏响时代强音。
 
-2025年11月，“同路朋友”展览在坦桑尼亚国家博物馆成功首展，收获当地民众的广泛赞誉与高度认可。
+要用多姿多彩的艺术创作展现奋斗图景、表达群众心声，推出更多无愧于时代、无愧于人民的优秀作品。
 
-本次赞比亚站展览以“中非人文交流年”为契机，赓续中赞传统友好情谊。
+要坚定文化自信，进一步传承和展现中华审美风范。
 
-作为该展策展人，中国国家博物馆书画院研究馆员谭斐介绍，展览汇集中赞两国艺术家的49幅作品，通过绘画、影像等丰富多元的艺术形式，全景式再现坦赞铁路建设的奋斗历程、沿线人文风貌及自然景观。
+要以具有中国特色、符合海外受众需求的音乐、舞蹈和杂技作品，有声有色讲好中国故事，在促进中外文明交流互鉴中发挥更大作用。
 
-展览同期将推出“青春有爱，未来有光”系列文化交流活动：邀请赞比亚青年担任导览与传播使者，提升国际传播的亲和力与实效性；走进当地校园，将文化惠民与公益捐助深度结合，以实际行动传递温暖；开展学术对话，推动文旅融合，助力中赞人文交流与务实合作走深走实。
+要培养造就高水平领军人才，培育基层、青年和新兴领域人才，为他们活跃文化创作、投身新大众文艺提供更多舞台。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [中金：乐舒适维持跑赢行业评级 目标价40.00港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:39 - [董宇辉谈消博会壮锦包走红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:22 - [国家发改委：将制定2026—2030年扩大内需战略实施方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:45 - [国家发改委：稳步提高最低工资标准，多渠道增加城乡居民财产性收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:29 - [世界最大清洁能源走廊一季度补水超203亿立方米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:30 - [特斯拉完成AI5自动驾驶芯片流片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:33 - [网易云音乐于4月15日耗资约1499.57万港元回购11.995万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:40 - [专家解读法国通过文物归还法案 为中国文物回流提供契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:35 - [云南瑞丽边检站为骨折缅甸旅客开通“紧急通道”入境就医](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:31 - [新华时评·首季经济观察丨稳健开局展现中国经济韧性底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:35 - [迪拜启用全球首个综合空中出租车起降场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:33 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:21 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:45 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:20 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:25 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:22 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:30 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:27 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:22 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:27 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:43 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:20 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:37 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:21 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](http://www.share.minike.top/Article/details/69947282.shtml)
-- 2026-06-29 11:38 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](http://www.blog.kurohicncr.top/Article/details/72169395.shtml)
-- 2026-06-29 11:41 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](http://www.share.minike.top/Article/details/229584032.shtml)
-- 2026-06-29 11:33 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](http://www.share.minike.top/Article/details/216366129030.shtml)
-- 2026-06-29 11:18 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [第十五届中国饭店文化节将在横琴和澳门两地举办](http://www.share.kurohicncr.top/Article/details/5638740.shtml)
-- 2026-06-29 11:19 - [第二届西藏微短剧大赛正式启动征稿](http://www.blog.minike.top/Article/details/31323.shtml)
-- 2026-06-29 11:23 - [4月16日人民币对美元中间价报6.8616 下调34个基点](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [厦门钨业：子公司金龙稀土进入创新层](http://www.blog.minike.top/Article/details/8605831.shtml)
-- 2026-06-29 11:22 - [镜观·回响丨在交流中深化中越青年情谊](http://www.blog.minike.top/Article/details/228299898.shtml)
-- 2026-06-29 11:37 - [中金：维持波司登跑赢行业评级 目标价5.65港元](http://www.share.kurohicncr.top/Article/details/31797523318.shtml)
-- 2026-06-29 11:41 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](http://www.blog.minike.top/Article/details/569004.shtml)
-- 2026-06-29 11:40 - [伊朗称在与美国会谈期间讨论了解冻资产问题](http://www.blog.kurohicncr.top/Article/details/755897088648.shtml)
-- 2026-06-29 11:34 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](http://www.blog.kurohicncr.top/Article/details/27192494495.shtml)
+- 2026-06-29 11:42 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:34 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:23 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:32 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:36 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:43 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:43 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:25 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:19 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:27 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:39 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:47 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:37 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:30 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:30 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)

@@ -1,60 +1,49 @@
-# 美国和伊朗或考虑延长停火 霍尔木兹海峡局势仍高度紧张
+# 人民币兑美元中间价报6.8166，上调43点
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-据知情人士透露，美国与伊朗正考虑将停火延长两周，以争取更多时间推进和平协议谈判。尽管围绕霍尔木兹海峡的对峙加剧，但此举有望降低战争重燃的风险。 知情人士表示，调解方正寻求开展技术性会谈，以解决阻碍在下周停火到期后达成更长期协议的关键分歧。相关问题包括重开霍尔木兹海峡以及伊朗核计划的未来。 霍尔木兹海峡的局势仍然严峻。美国设立了海上封锁以切断伊朗运输，而德黑兰继续限制其他船只通过
+6月26日，人民币兑美元中间价报6.8166，上调43点。 美联储7月维持利率不变的概率为69% CME“美联储观察”：美联储7月维持利率不变的概率为69%，累计加息25个基点的概率为31%。 美联储到9月维持利率不变的概率为36.6%，累计加息25个基点的概率为48.8%，累计加息50个基点的概率为14.6%。责任编辑：郭建
 
 ## 正文
 
-据知情人士透露，美国与伊朗正考虑将停火延长两周，以争取更多时间推进和平协议谈判。
+6月26日，人民币兑美元中间价报6.8166，上调43点。
 
-尽管围绕霍尔木兹海峡的对峙加剧，但此举有望降低战争重燃的风险。
+美联储7月维持利率不变的概率为69% CME“美联储观察”：美联储7月维持利率不变的概率为69%，累计加息25个基点的概率为31%。
 
-知情人士表示，调解方正寻求开展技术性会谈，以解决阻碍在下周停火到期后达成更长期协议的关键分歧。
+美联储到9月维持利率不变的概率为36.6%，累计加息25个基点的概率为48.8%，累计加息50个基点的概率为14.6%。
 
-相关问题包括重开霍尔木兹海峡以及伊朗核计划的未来。
-
-霍尔木兹海峡的局势仍然严峻。
-
-美国设立了海上封锁以切断伊朗运输，而德黑兰继续限制其他船只通过该海峡。
-
-这种对峙导致航运量大幅下降，加剧了能源供应危机并威胁对全球经济造成重大冲击。
-
-美伊之间的战斗在4月8日左右开始暂停，当时美国总统特朗普在前一晚宣布达成为期两周的停火。
+责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [中国电动三轮车爆火美国 电动三轮车在美国价格翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:41 - [国家统计局：一季度GDP同比增长5.0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:19 - [小摩：中金公司首季业绩料胜预期 重申行业首选股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:39 - [沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:21 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:45 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:34 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:25 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:23 - [珠江流域部分中小河流近期可能出现超警洪水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:45 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:39 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:31 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:39 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:24 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:32 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:45 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:34 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:23 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:18 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:33 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:33 - [哈尔滨“全城追菠萝蜜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:34 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:37 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:33 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:29 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](http://www.blog.kurohicncr.top/Article/details/902188624.shtml)
-- 2026-06-29 11:25 - [余金生被执行死刑！系杀害网红“罗大美”主犯](http://www.blog.kurohicncr.top/Article/details/580954.shtml)
-- 2026-06-29 11:26 - [一季度郑州机场国际货运量同比增长21.8%](http://www.share.kurohicncr.top/Article/details/255156.shtml)
-- 2026-06-29 11:24 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](http://www.blog.kurohicncr.top/Article/details/78230.shtml)
-- 2026-06-29 11:25 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](http://www.share.kurohicncr.top/Article/details/23419702.shtml)
-- 2026-06-29 11:32 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.blog.minike.top/Article/details/27335410318.shtml)
-- 2026-06-29 11:21 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](http://www.share.kurohicncr.top/Article/details/897872698621.shtml)
-- 2026-06-29 11:41 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](http://www.blog.kurohicncr.top/Article/details/107810144315.shtml)
-- 2026-06-29 11:29 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [云南印发实施意见全面推进共有精神家园建设](http://www.blog.minike.top/Article/details/01689703888.shtml)
-- 2026-06-29 11:43 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.share.minike.top/Article/details/1630439.shtml)
-- 2026-06-29 11:29 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.share.kurohicncr.top/Article/details/816253.shtml)
-- 2026-06-29 11:22 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](http://www.blog.minike.top/Article/details/08224497899.shtml)
+- 2026-06-29 11:33 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:35 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:19 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:25 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:21 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:25 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:41 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:34 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:22 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:43 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:28 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:20 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:46 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:24 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:19 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)

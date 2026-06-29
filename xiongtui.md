@@ -1,61 +1,61 @@
-# 谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系
+# 以大银幕再呈长征精神 电影《四渡》北京首映
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-据科技媒体The Information周四（4月16日）报道，谷歌母公司Alphabet正与美国国防部就一项机密人工智能合作协议进行谈判，此举标志着谷歌在AI军备竞赛中加速追赶竞争对手，并彻底扭转此前与军方合作的谨慎立场。 谈判核心：Gemini模型进驻机密环境 报道援引两位直接知情人士的消息称，谷歌与五角大楼正在商讨一项协议，拟允许美国国防部在机密环境中部署谷歌的Gemin
+中新网北京6月25日电 (记者 高凯)重大革命历史题材电影《四渡》日前在位于中国共产党历史展览馆的北京中影国际影城举行首映礼。 该片出品人、总制片人于冬，制片人蒋德富，监制刘伟强，导演徐展雄，演员刘烨、王雷、王志飞、王耀庆、林永健、印小天、张俪、许魏洲、蓝盈莹、李晨、谷嘉诚、李健、高戈、谭凯、梁大维等在现场分享了此次创作感悟。 在纪念红军长征胜利90周年之际，电影《四渡》以全新
 
 ## 正文
 
-据科技媒体The Information周四（4月16日）报道，谷歌母公司Alphabet正与美国国防部就一项机密人工智能合作协议进行谈判，此举标志着谷歌在AI军备竞赛中加速追赶竞争对手，并彻底扭转此前与军方合作的谨慎立场。
+中新网北京6月25日电 (记者 高凯)重大革命历史题材电影《四渡》日前在位于中国共产党历史展览馆的北京中影国际影城举行首映礼。
 
-谈判核心：Gemini模型进驻机密环境 报道援引两位直接知情人士的消息称，谷歌与五角大楼正在商讨一项协议，拟允许美国国防部在机密环境中部署谷歌的Gemini人工智能模型。
+该片出品人、总制片人于冬，制片人蒋德富，监制刘伟强，导演徐展雄，演员刘烨、王雷、王志飞、王耀庆、林永健、印小天、张俪、许魏洲、蓝盈莹、李晨、谷嘉诚、李健、高戈、谭凯、梁大维等在现场分享了此次创作感悟。
 
-若协议达成，五角大楼将被授权在“所有合法用途”中使用谷歌的人工智能技术。
+在纪念红军长征胜利90周年之际，电影《四渡》以全新视听语言呈现土城战斗、娄山关战斗、四次渡过赤水河、兵临贵阳等重要历史事件，再现中央红军在敌军重兵围堵之下，运用高超战略智慧以少胜多、扭转战局的奇迹。
 
-红线与制约：自主武器与大规模监控 在谈判过程中，谷歌方面展现出对伦理边界的考量。
+影片导演徐展雄当日表示，此次创作在塑造历史人物中着力展现其有血有肉的真实人性，他尤其提及影片对“苟坝会议”桥段的呈现，表示其中“马灯小路”等情节的真实呈现让领袖人物更具感染力和可信度。
 
-据悉，谷歌已在拟议的合同中提出附加条款，旨在防止其人工智能技术被用于美国国内的大规模监控，或在缺乏“适当”人工监督的情况下被用于自主武器系统。
+对于影片对普通战士的刻画，徐展雄称，希望完成对普通战士群像的塑造，正是这些当年的热血年轻人的牺牲与奋斗，才带来今天的美好生活。
 
-这一做法与OpenAI此前与五角大楼达成协议时的条款保持一致，被视为平衡商业利益与技术伦理的尝试。
+创作团队深入研究史料，希望呈现长征中更真实、更贴近普通士兵的历史画面。
 
-背景透视：从“Maven项目”风波到“全面拥抱” 此次谈判标志着谷歌与军方关系的显著逆转，也意味着谷歌正积极填补Anthropic退出后留下的市场空白。
+导演毕赣是贵州凯里人，当天他作为观众出席了首映礼，并在映后分享了自己的观影感受。
 
-2018年（冰点）：谷歌在员工大规模抗议下，被迫退出旨在利用AI分析无人机镜头的美军“Maven项目”，并发布了禁止将AI用于武器的使用原则。
+他说，很开心看到发生在老家的故事被拍成电影，“虽然历史距离我们很遥远，但电影让我们有机会贴近历史，感谢优秀的主创们把这段传奇又关键的历史传递到观众心里，让更多人记住。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:32 - [中东局势变化对我国外贸有何影响？国家统计局回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:39 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:36 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:19 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:28 - [长光辰芯首挂上市 早盘高开81.80%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:29 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:44 - [中国向伊朗提供紧急人道主义援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:19 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:19 - [浙江启用防汛防台机器狗“AI防汛勇士”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:44 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:22 - [安徽淮北：云海罩城 宛如美丽画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:40 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:28 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:26 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:43 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:33 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:30 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:44 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:34 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:41 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:30 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:34 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:19 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:24 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:19 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:29 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:26 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [采购商谈消博会：这里是一座“全球好物中转站”](http://www.share.kurohicncr.top/Article/details/83163.shtml)
-- 2026-06-29 11:33 - [渤海银行：首席信息官谢凯任职资格获批](http://www.share.minike.top/Article/details/641487941017.shtml)
-- 2026-06-29 11:18 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](http://www.share.minike.top/Article/details/10168.shtml)
-- 2026-06-29 11:38 - [国际能源署署长：欧洲仅剩够用6周航空燃油](http://www.share.minike.top/Article/details/505723199208.shtml)
-- 2026-06-29 11:37 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](http://www.share.kurohicncr.top/Article/details/9971471694.shtml)
-- 2026-06-29 11:18 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](http://www.share.kurohicncr.top/Article/details/8764142657.shtml)
-- 2026-06-29 11:21 - [酒价内参4月17日价格发布，青花郎下跌2元](http://www.share.minike.top/Article/details/14970628854.shtml)
-- 2026-06-29 11:31 - [外交部提醒赴美国中国公民注意入境安全风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [Stena DrillMAX将在希腊近海钻探首口深水井](http://www.share.kurohicncr.top/Article/details/70392504848.shtml)
-- 2026-06-29 11:32 - [在沙地种下一片“云朵玫瑰”](http://www.share.minike.top/Article/details/286585065.shtml)
-- 2026-06-29 11:21 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](http://www.blog.minike.top/Article/details/158819.shtml)
-- 2026-06-29 11:39 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](http://www.share.kurohicncr.top/Article/details/92340164.shtml)
-- 2026-06-29 11:17 - [美又一核动力航母失火 8名船员受伤](http://www.blog.minike.top/Article/details/68857.shtml)
-- 2026-06-29 11:28 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](http://www.blog.kurohicncr.top/Article/details/497516263137.shtml)
-- 2026-06-29 11:35 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:47 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:47 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:20 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:36 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:27 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:18 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:43 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:37 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:37 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:36 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:42 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)

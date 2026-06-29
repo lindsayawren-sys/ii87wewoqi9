@@ -1,54 +1,53 @@
-# “世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演
+# 中国创新药被全球扫货
 
-> 更新时间：2026-06-29 11:46:25 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-今年4月16日是韩国“世越”号客轮倾覆事故发生12周年。韩国总统李在明当天表示，将竭尽全力，防止国民生命安全因国家和资金缺位而受到威胁的事件再次发生。 李在明当天在青瓦台主持了首席辅佐官会议，他在会上向“世越”号倾覆事故的遇难者家属和事故幸存者表示深切慰问。李在明强调，应彻底根除把成本置于安全之上、把利益置于生命之上的错误认知；也必须切实建立起生命高于金钱的社会文化。他指出，为
+发布时间：2026年06月28日 07:45 来源：三里河 在中国，机器人、人工智能和创新药，正成为新的“新三样”。其中，创新药，正在被全球“扫货”。2026年前三个月，中国创新药对外授权交易总额超过600亿美元，接近2025年全年的一半，增速之快引发全球关注。有外媒分析，中国生物科技资产正迎来价值重估。中国正打开这条黄金赛道的无限想象空间。 责任编辑：【张舰元】
 
 ## 正文
 
-今年4月16日是韩国“世越”号客轮倾覆事故发生12周年。
+发布时间：2026年06月28日 07:45 来源：三里河 在中国，机器人、人工智能和创新药，正成为新的“新三样”。
 
-韩国总统李在明当天表示，将竭尽全力，防止国民生命安全因国家和资金缺位而受到威胁的事件再次发生。
+其中，创新药，正在被全球“扫货”。
 
-李在明当天在青瓦台主持了首席辅佐官会议，他在会上向“世越”号倾覆事故的遇难者家属和事故幸存者表示深切慰问。
+2026年前三个月，中国创新药对外授权交易总额超过600亿美元，接近2025年全年的一半，增速之快引发全球关注。
 
-李在明强调，应彻底根除把成本置于安全之上、把利益置于生命之上的错误认知；也必须切实建立起生命高于金钱的社会文化。
+有外媒分析，中国生物科技资产正迎来价值重估。
 
-他指出，为了不让这样的悲剧重演，所有人都应竭尽全力。
+中国正打开这条黄金赛道的无限想象空间。
 
-2014年4月16日，载有476人的“世越”号客轮从韩国西北部仁川港出发，前往西南部济州岛，在西南海域进水翻沉，导致304人遇难，多数是参加修学旅行的安山市檀园高中师生。
-
-(总台记者 张昀）
+责任编辑：【张舰元】
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:40 - [连连数字于4月15日斥资99.71万港元回购16.25万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:39 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:22 - [酒价内参4月17日价格发布，古井贡古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:39 - [新晋退休人士最后悔的事：没多存点钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:30 - [IEA警示历史性石油冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:38 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:26 - [A股盘前速递：黄金涨回4800美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:28 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:17 - [澳大利亚一炼油厂发生大火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:22 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:31 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:34 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:37 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:20 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:46 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:43 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:38 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:21 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](http://www.share.kurohicncr.top/Article/details/68449781466.shtml)
-- 2026-06-29 11:17 - [全球智能鸿沟如何破解？这份报告给出答案！](http://www.blog.minike.top/Article/details/93162.shtml)
-- 2026-06-29 11:40 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](http://www.share.kurohicncr.top/Article/details/5683064.shtml)
-- 2026-06-29 11:29 - [新疆新设草湖市](http://www.blog.kurohicncr.top/Article/details/55218750.shtml)
-- 2026-06-29 11:31 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](http://www.blog.kurohicncr.top/Article/details/57806.shtml)
-- 2026-06-29 11:40 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](http://www.blog.kurohicncr.top/Article/details/03607272.shtml)
-- 2026-06-29 11:17 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](http://www.blog.minike.top/Article/details/1164981991.shtml)
-- 2026-06-29 11:25 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](http://www.share.kurohicncr.top/Article/details/3764064.shtml)
-- 2026-06-29 11:35 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](http://www.blog.minike.top/Article/details/771095.shtml)
-- 2026-06-29 11:22 - [海军航空大学某大队：更新知识体系 厚植打赢底气](http://www.share.kurohicncr.top/Article/details/96572.shtml)
-- 2026-06-29 11:18 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](http://www.blog.minike.top/Article/details/596282.shtml)
-- 2026-06-29 11:33 - [Uber将收购Delivery Hero额外4.5%的股份](http://www.blog.minike.top/Article/details/6413524491.shtml)
-- 2026-06-29 11:35 - [中国驻日本大使馆提醒在日中国公民注意人身安全](http://www.share.kurohicncr.top/Article/details/2192594423.shtml)
-- 2026-06-29 11:19 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](http://www.share.minike.top/Article/details/912525.shtml)
-- 2026-06-29 11:16 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:31 - [鬼畜区全明星拼接遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:42 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:29 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:31 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:42 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:20 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:43 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:44 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:44 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:44 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:42 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:18 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:23 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:32 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)

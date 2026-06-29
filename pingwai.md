@@ -1,47 +1,58 @@
-# 上美股份将于6月23日派发末期股息每股0.75元
+# 博时基金市场异动陪伴6月26日：沪指跌超2%，深证成指跌超3%，创业板指跌超4%
 
-> 更新时间：2026-06-29 11:46:24 UTC+8
+> 更新时间：2026-06-29 11:48:03 UTC+8
 
 ## 摘要
 
-上美股份（02145）发布公告，该公司将于2026年6月23日派发末期股息每股0.75元人民币。责任编辑：卢昱君
+♨博时基金市场异动陪伴 🔆市场表现： 6月26日，沪指跌超2%，深证成指跌超3%，创业板指跌超4%。 👉解析： ‼今日A股三大指数全线调整，创业板指跌超4%领跌。美国5月PCE物价指数同比上涨4.1%，核心PCE同比上涨3.4%，均创2023年下半年以来新高水平。通胀数据居高不下，叠加6月议息会议点阵图中约半数官员预计年内仍需至少加息一次，市场对美联储进一步紧缩的预期持续升温，
 
 ## 正文
 
-上美股份（02145）发布公告，该公司将于2026年6月23日派发末期股息每股0.75元人民币。
+♨博时基金市场异动陪伴 🔆市场表现： 6月26日，沪指跌超2%，深证成指跌超3%，创业板指跌超4%。
 
-责任编辑：卢昱君
+👉解析： ‼今日A股三大指数全线调整，创业板指跌超4%领跌。
+
+美国5月PCE物价指数同比上涨4.1%，核心PCE同比上涨3.4%，均创2023年下半年以来新高水平。
+
+通胀数据居高不下，叠加6月议息会议点阵图中约半数官员预计年内仍需至少加息一次，市场对美联储进一步紧缩的预期持续升温，对全球成长股估值形成系统性压制。
+
+与此同时，苹果与微软同日宣布对多款硬件及游戏主机大幅提价，引发市场对AI算力竞赛正将成本转嫁给消费者、进而推升更广泛通胀的担忧，叠加科技板块前期涨幅巨大、交易拥挤度偏高，资金获利了结意愿集中释放。
+
+‼苹果与微软的同步涨价，揭示了AI产业链扩张对终端消费价格的传导正在加速，对A股科技板块构成情绪与逻辑的双重映射。
+
+从产业逻辑看，AI数据中心的快速扩张造成对存储和内存的超常需求激增。
+
+对A股而言，这一方面印证了AI产业链的高景气度仍在持续，存储芯片、先进封装等上游环节订单可见度依然较高；但另一方面，涨价也可能抑制终端需求，引发市场对AI应用落地节奏的重新评估。
 
 ## 相关推荐
 
-- 2026-06-29 11:33 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:37 - [多重利好叠加提振预期 消费板块能否苦尽甘来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:16 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:43 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:45 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:24 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:24 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:44 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:35 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:42 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:21 - [市场监管总局：将深入开展CCC认证守底线专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:19 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:23 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:47 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:28 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:24 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:20 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:29 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:21 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:42 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:45 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:20 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:47 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:29 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](http://www.share.kurohicncr.top/Article/details/445466805.shtml)
-- 2026-06-29 11:27 - [话剧《四世同堂》首次登陆澳大利亚](http://www.share.kurohicncr.top/Article/details/61275.shtml)
-- 2026-06-29 11:31 - [中国HH-200航空商用无人运输系统首架机首飞成功](http://www.blog.kurohicncr.top/Article/details/438950137.shtml)
-- 2026-06-29 11:24 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.share.kurohicncr.top/Article/details/97447839257.shtml)
-- 2026-06-29 11:36 - [一季度增城西站中欧班列开行量同比增长24%](http://www.blog.kurohicncr.top/Article/details/119214.shtml)
-- 2026-06-29 11:33 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.share.kurohicncr.top/Article/details/06529196651.shtml)
-- 2026-06-29 11:36 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.blog.kurohicncr.top/Article/details/5797127753.shtml)
-- 2026-06-29 11:44 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.share.minike.top/Article/details/225302562978.shtml)
-- 2026-06-29 11:36 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](http://www.blog.minike.top/Article/details/018435121.shtml)
-- 2026-06-29 11:42 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.blog.minike.top/Article/details/1617962.shtml)
-- 2026-06-29 11:27 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](http://www.blog.kurohicncr.top/Article/details/460728.shtml)
-- 2026-06-29 11:40 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [韩国第一季度接待外国游客476万人次，创历史新高](http://www.blog.minike.top/Article/details/50402.shtml)
-- 2026-06-29 11:31 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](http://www.blog.kurohicncr.top/Article/details/17238010.shtml)
-- 2026-06-29 11:28 - [采购商谈消博会：这里是一座“全球好物中转站”](http://www.share.minike.top/Article/details/29151.shtml)
+- 2026-06-29 11:33 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:19 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:34 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:40 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:46 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:22 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:35 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:25 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:30 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:35 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:34 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:34 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:33 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
