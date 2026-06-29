@@ -1,57 +1,58 @@
-# 中国联塑午前涨近4% 与天怀数智达成战略合作进军AI算力领域
+# 百余位海归英才武汉热议OPC发展机遇
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中国联塑（02128）盘中涨超5%，截至发稿，股价上涨3.50%，现报4.44港元，成交额2952.42万港元。 6月16日，中国联塑集团旗下的联塑算力设施供应有限公司与浙江天怀数智科技有限公司在香港签订战略合作协议。此次合作，双方在AIDC 项目建设过程中，将优先使用联塑相关产品及解决方案。此外，双方将共同开拓海外AIDC市场。联塑利用海外生产基地布局及国际客户网络，浙江天怀
+中新社武汉6月17日电 (武一力 徐喆 周凡)2026年鸿鹄海归城际科创联盟大会17日在武汉举行，百余位海归英才齐聚一堂，热议“一人公司”(One Person Company，简称“OPC”)发展新机遇。 2026年2月，武汉出台人工智能OPC专项扶持政策，从算力补贴、人才安居、场地扶持等维度赋能单人创业。截至今年5月底，武汉已落地建成30个OPC生态社区，汇聚AI类OPC市
 
 ## 正文
 
-中国联塑（02128）盘中涨超5%，截至发稿，股价上涨3.50%，现报4.44港元，成交额2952.42万港元。
+中新社武汉6月17日电 (武一力 徐喆 周凡)2026年鸿鹄海归城际科创联盟大会17日在武汉举行，百余位海归英才齐聚一堂，热议“一人公司”(One Person Company，简称“OPC”)发展新机遇。
 
-6月16日，中国联塑集团旗下的联塑算力设施供应有限公司与浙江天怀数智科技有限公司在香港签订战略合作协议。
+2026年2月，武汉出台人工智能OPC专项扶持政策，从算力补贴、人才安居、场地扶持等维度赋能单人创业。
 
-此次合作，双方在AIDC 项目建设过程中，将优先使用联塑相关产品及解决方案。
+截至今年5月底，武汉已落地建成30个OPC生态社区，汇聚AI类OPC市场主体400余家，覆盖AI智能体研发、数字文创、智能招聘、跨境数智服务等细分领域。
 
-此外，双方将共同开拓海外AIDC市场。
+“对于年轻海归来说，OPC这种轻量化创业模式减少了试错成本，让我们更有勇气踏出创业的脚步。
 
-联塑利用海外生产基地布局及国际客户网络，浙江天怀数智利用技术服务能力及产业资源，合作推进“一带一路”沿线国家及东南亚地区的算力中心项目。
+”在武汉创业的“90后”海归罗弼文说，“我的公司员工比高峰期缩减了大约三分之二，但业务量增长很快，产品卖到了美国、日本、新加坡等国家。
 
-公司指出，通过合作，双方致力于构建“资本+产业”、“资源+技术”深度融合的战略合作模式，共同推进国内外AIDC智算中心项目的落地与运营，实现联塑产品及业务进军AI算力领域并进行深入布局，拓宽产品应用领域。
+” 合肥市欧美同学会副会长李波认为，OPC创业模式虽处于起步阶段，但通过平台与社区的串联，能使分散的个体“抱团取暖”、融入当地，互相补齐资源与能力短板，形成上下游联动的产业协同效应，完成资源整合与价值放大。
 
-责任编辑：卢昱君
+他建议海归创业者在“稳住底盘”的前提下，积极拥抱多元创业生态。
+
+活动现场，杭州、成都、武汉、深圳、宁波、长沙、合肥同步发布海归人才创新创业服务平台。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 17:19 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 17:20 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 17:20 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 17:24 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 17:07 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 17:15 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 17:10 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 17:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 17:15 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 17:11 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 17:00 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 17:12 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 17:31 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 17:14 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 17:17 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 17:15 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 17:27 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 17:13 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 17:07 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 17:20 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 17:13 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 17:16 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 17:17 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 17:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:06 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/4043058.shtml)
-- 2026-06-29 17:28 - [日本偶像龟梨和也宣布结婚](http://www.blog.kurohicncr.top/Article/details/732138828.shtml)
-- 2026-06-29 17:17 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/4113786.shtml)
-- 2026-06-29 17:20 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/51125.shtml)
-- 2026-06-29 17:18 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/989152760048.shtml)
-- 2026-06-29 17:13 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/901313772420.shtml)
-- 2026-06-29 17:08 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/3018301.shtml)
-- 2026-06-29 17:18 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/517100.shtml)
-- 2026-06-29 17:29 - [急先锋](https://www.blog.kurohicncr.top/Article/details/90653753746.shtml)
-- 2026-06-29 17:20 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/291921.shtml)
-- 2026-06-29 17:18 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/868106.shtml)
-- 2026-06-29 17:04 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/188893.shtml)
-- 2026-06-29 17:02 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/818752.shtml)
-- 2026-06-29 17:26 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/4340074.shtml)
-- 2026-06-29 17:07 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/800316.shtml)
+- 2026-06-29 17:35 - [斛珠夫人](https://www.blog.minike.top/Article/details/335964455.shtml)
+- 2026-06-29 17:08 - [女心理师](http://www.blog.minike.top/Article/details/7730640687.shtml)
+- 2026-06-29 17:34 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/08106418.shtml)
+- 2026-06-29 17:10 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/6861051.shtml)
+- 2026-06-29 17:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/8735959133.shtml)
+- 2026-06-29 17:35 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/59698829825.shtml)
+- 2026-06-29 17:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/38798200.shtml)
+- 2026-06-29 17:12 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/5856962564.shtml)
+- 2026-06-29 17:32 - [TTG KSG](http://www.blog.minike.top/Article/details/21418205.shtml)
+- 2026-06-29 17:33 - [沙丘](https://www.blog.minike.top/Article/details/2027235541.shtml)
+- 2026-06-29 17:10 - [金刚川](https://www.blog.kurohicncr.top/Article/details/90982119281.shtml)
+- 2026-06-29 17:34 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/51736938511.shtml)
+- 2026-06-29 17:06 - [啊啊啊](http://www.blog.minike.top/Article/details/76282.shtml)
+- 2026-06-29 17:20 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/265529.shtml)
+- 2026-06-29 17:31 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/02224.shtml)

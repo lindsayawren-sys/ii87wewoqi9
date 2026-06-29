@@ -1,57 +1,56 @@
-# “赓续‘莫高精神’，潜心为国护宝”
+# 百胜中国12亿美元拿下必胜客中国大陆所有权，下沉拓展博得新筹码
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-原标题：近镜头·习近平的文化足迹｜“赓续‘莫高精神’，潜心为国护宝” 渭水渺渺，陇坂莽莽。甘肃天水东南，麦积山孤峰兀立，“东方微笑”跨越千年。 2024年9月11日，习近平总书记来到麦积山石窟，沿着栈道仔细察看距今1600多年的洞窟和雕塑、壁画，同保护修复工作人员亲切交流。 “希望文物工作者赓续‘莫高精神’，潜心为国护宝，为传承创新中华优秀传统文化、增强中华文化影响力作出更大贡
+餐饮行业再现重大交易。6月16日，全球知名餐饮集团Yum!Brands(美国的百胜环球公司)官网发布公告称，以总价27亿美元(折合人民币约182亿元)的价格出售必胜客，买家分别是私募股权公司LongRange Capital和百胜中国；于同日晚间，百胜中国发布公告称，以现金对价12亿美元拿到了中国大陆的必胜客品牌所有权。这是百胜中国继2020年港股上市以来在品牌资产上的最大动作
 
 ## 正文
 
-原标题：近镜头·习近平的文化足迹｜“赓续‘莫高精神’，潜心为国护宝” 渭水渺渺，陇坂莽莽。
+餐饮行业再现重大交易。
 
-甘肃天水东南，麦积山孤峰兀立，“东方微笑”跨越千年。
+6月16日，全球知名餐饮集团Yum!
 
-2024年9月11日，习近平总书记来到麦积山石窟，沿着栈道仔细察看距今1600多年的洞窟和雕塑、壁画，同保护修复工作人员亲切交流。
+Brands(美国的百胜环球公司)官网发布公告称，以总价27亿美元(折合人民币约182亿元)的价格出售必胜客，买家分别是私募股权公司LongRange Capital和百胜中国；于同日晚间，百胜中国发布公告称，以现金对价12亿美元拿到了中国大陆的必胜客品牌所有权。
 
-“希望文物工作者赓续‘莫高精神’，潜心为国护宝，为传承创新中华优秀传统文化、增强中华文化影响力作出更大贡献。
+这是百胜中国继2020年港股上市以来在品牌资产上的最大动作。
 
-”习近平总书记语重心长、满怀寄望。
+然而，在餐饮市场整体承压、百胜中国自身业绩增速明显放缓的背景下，这笔交易能否帮助百胜中国有效撬动下沉市场、打开新的增长空间，成为市场关注的重点。
 
-莫高精神，是一代代敦煌人身上积淀和凝结的可贵精神。
+必胜客卖了百胜中国成为中国大陆必胜客的品牌所有者。
 
-2019年8月19日，习近平总书记在敦煌研究院座谈时就提到：“70年来，一代又一代的敦煌人秉承‘坚守大漠、甘于奉献、勇于担当、开拓进取’的莫高精神，在极其艰苦的物质生活条件下，在敦煌石窟资料整理和保护修复、敦煌文化艺术研究弘扬、文化旅游开发和遗址管理等方面做了大量工作，取得了不少重要研究成果。
+根据6月16日百胜中国发布的公告，该公司已与Yum!
 
-” 在坚守中奉献，在担当中进取。
+Brands签署最终协议，以12亿美元现金对价收购必胜客品牌在中国大陆的所有权；交易完成后，百胜中国将从必胜客品牌在中国大陆的“独家特许经营商”转变为“品牌所有者”，必胜客中国将无须再向Yum!
 
 ## 相关推荐
 
-- 2026-06-29 17:00 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 17:21 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 17:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 17:00 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 17:25 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 17:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 17:04 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 17:29 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 17:02 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 17:11 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 17:28 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 17:28 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 17:21 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 17:30 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 17:30 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 17:22 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 17:34 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 17:15 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 17:09 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 17:09 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 17:31 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/165201508.shtml)
-- 2026-06-29 17:24 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/2570665435.shtml)
-- 2026-06-29 17:10 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/64106031.shtml)
-- 2026-06-29 17:04 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/42710981583.shtml)
-- 2026-06-29 17:16 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/274469249.shtml)
-- 2026-06-29 17:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/9520661406.shtml)
-- 2026-06-29 17:24 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/55607225576.shtml)
-- 2026-06-29 17:04 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/046731.shtml)
-- 2026-06-29 17:28 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/978168.shtml)
-- 2026-06-29 17:03 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/030988871310.shtml)
-- 2026-06-29 17:28 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/07609061673.shtml)
-- 2026-06-29 17:07 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/2892778632.shtml)
-- 2026-06-29 17:02 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/679013.shtml)
-- 2026-06-29 17:22 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/08693790.shtml)
-- 2026-06-29 17:01 - [我和我的家乡](http://www.share.minike.top/Article/details/484194689495.shtml)
+- 2026-06-29 17:12 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/75292.shtml)
+- 2026-06-29 17:22 - [博主：AI泡沫必须破灭](https://www.blog.kurohicncr.top/Article/details/88998127868.shtml)
+- 2026-06-29 17:33 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/4177095.shtml)
+- 2026-06-29 17:13 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/654968037702.shtml)
+- 2026-06-29 17:13 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/915753526.shtml)
+- 2026-06-29 17:31 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/104106488.shtml)
+- 2026-06-29 17:08 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/617407.shtml)
+- 2026-06-29 17:17 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/769648746.shtml)
+- 2026-06-29 17:20 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/33092.shtml)
+- 2026-06-29 17:11 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/1322154681.shtml)
+- 2026-06-29 17:28 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/043576959.shtml)
+- 2026-06-29 17:31 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/2453538.shtml)
+- 2026-06-29 17:31 - [流金岁月](http://www.share.kurohicncr.top/Article/details/06364.shtml)
+- 2026-06-29 17:34 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/193531931932.shtml)
+- 2026-06-29 17:12 - [扫黑风暴](https://www.blog.minike.top/Article/details/6272331559.shtml)

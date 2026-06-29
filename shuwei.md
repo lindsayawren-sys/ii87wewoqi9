@@ -1,50 +1,56 @@
-# GTC泽汇资本:金价下跌再看支撑
+# 万物皆可做“CT” “璧山造”智造装备如何远销全球？
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-6月18日，贵金属周中由强转弱后，GTC泽汇资本表示市场正在重新评估政策利率维持高位的时间长度，金价回落说明短线资金更在意利率路径而非单次决议本身。 按照最新盘面变化，GTC泽汇资本认为现货金跌至每盎司4258美元附近，反映出交易员在鹰派表态落地后快速压缩多头仓位，同时把关注点转向下方支撑是否稳固。 从结构上看，若美元与债券收益率继续维持韧性，黄金或仍以区间整理为主；一旦后续数
+中新网重庆6月17日电(马佳欣)走进重庆日联科技有限公司(以下简称“日联科技”)的展厅，一系列“X光片”引人驻足。汽车一体压铸车身内部的微小气孔清晰可见、新能源电池的焊点瑕疵无所遁形……6月16日，“2026海外华媒侨领川渝行”参访团走进位于重庆市璧山区的日联科技，实地观摩智能检测核心装备，深入了解企业技术研发创新与全球化市场布局情况。 重庆日联科技有限公司成立于2013年，是
 
 ## 正文
 
-6月18日，贵金属周中由强转弱后，GTC泽汇资本表示市场正在重新评估政策利率维持高位的时间长度，金价回落说明短线资金更在意利率路径而非单次决议本身。
+中新网重庆6月17日电(马佳欣)走进重庆日联科技有限公司(以下简称“日联科技”)的展厅，一系列“X光片”引人驻足。
 
-按照最新盘面变化，GTC泽汇资本认为现货金跌至每盎司4258美元附近，反映出交易员在鹰派表态落地后快速压缩多头仓位，同时把关注点转向下方支撑是否稳固。
+汽车一体压铸车身内部的微小气孔清晰可见、新能源电池的焊点瑕疵无所遁形……6月16日，“2026海外华媒侨领川渝行”参访团走进位于重庆市璧山区的日联科技，实地观摩智能检测核心装备，深入了解企业技术研发创新与全球化市场布局情况。
 
-从结构上看，若美元与债券收益率继续维持韧性，黄金或仍以区间整理为主；一旦后续数据使紧缩预期边际降温，贵金属也有机会逐步修复失地。
+重庆日联科技有限公司成立于2013年，是一家专注于精密X射线技术研究及智能检测装备研发、生产与销售的国家级高新技术企业。
 
-综合来看，GTC泽汇资本预计后续仍需跟踪收益率、美元和风险偏好是否同步变化，金价在当前区间的稳定程度，将决定下一阶段波动是继续放大还是开始收敛。
+公司建有总面积达75000平方米的X射线检测装备产业基地。
 
-责任编辑：陈平
+凭借可覆盖工业制造、食品医药、美妆日化等多品类、全场景的精密X射线检测技术，实现“万物皆可工业CT”的精准检测能力，这家扎根璧山13年的企业生产智造装备已经远销全球70多个国家，成为“璧山造”智造装备走向全球的一张名片。
+
+X射线智能检测装备被誉为“工业医生”，其核心部件微焦点X射线源曾长期被美国、日本等国垄断，是国内高端制造业的难题。
+
+重庆日联科技有限公司副总经理余海鹏称，日联科技历时十余年攻坚，成功研制出国内首款封闭式热阴极微焦点X射线源并实现产业化。
+
+“这一突破对中国新能源电池、汽车制造等重点产业的产业链安全检测具有重要意义。
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 17:19 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 17:27 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 17:25 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 17:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 17:15 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 17:16 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 17:18 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 17:06 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 17:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 17:21 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 17:34 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 17:21 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 17:34 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 17:25 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 17:19 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 17:10 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 17:31 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 17:16 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 17:28 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/486368624.shtml)
-- 2026-06-29 17:29 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/64762.shtml)
-- 2026-06-29 17:26 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/66607028739.shtml)
-- 2026-06-29 17:17 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/4031231.shtml)
-- 2026-06-29 17:14 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/837223.shtml)
-- 2026-06-29 17:21 - [人形机器人](http://www.blog.minike.top/Article/details/27834618.shtml)
-- 2026-06-29 17:01 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/94670.shtml)
-- 2026-06-29 17:07 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/02633703934.shtml)
-- 2026-06-29 17:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/752318452674.shtml)
-- 2026-06-29 17:12 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/093823472725.shtml)
-- 2026-06-29 17:26 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/680767332.shtml)
-- 2026-06-29 17:04 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/705674.shtml)
-- 2026-06-29 17:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/940065110.shtml)
-- 2026-06-29 17:00 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/486935473.shtml)
-- 2026-06-29 17:15 - [舒行钢任湖南省交通运输厅厅长](https://www.share.kurohicncr.top/Article/details/50308.shtml)
+- 2026-06-29 17:13 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/176465.shtml)
+- 2026-06-29 17:15 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/5275212.shtml)
+- 2026-06-29 17:22 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/18243743.shtml)
+- 2026-06-29 17:25 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/7140010623.shtml)
+- 2026-06-29 17:30 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/901865459837.shtml)
+- 2026-06-29 17:30 - [广东一地发现极危植物新物种](https://www.share.kurohicncr.top/Article/details/32560.shtml)
+- 2026-06-29 17:06 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/946011061.shtml)
+- 2026-06-29 17:33 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/68995.shtml)
+- 2026-06-29 17:24 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/715451089009.shtml)
+- 2026-06-29 17:17 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/0836437.shtml)
+- 2026-06-29 17:22 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/554100102.shtml)
+- 2026-06-29 17:18 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/8951406.shtml)
+- 2026-06-29 17:34 - [王安宇尊重田曦薇的一切选择](https://www.blog.kurohicncr.top/Article/details/0246198.shtml)
+- 2026-06-29 17:26 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/714356056097.shtml)
+- 2026-06-29 17:16 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/867346066.shtml)

@@ -1,58 +1,44 @@
-# 达巍：美国全球制度霸权走向终结
+# 哈马斯高官称不会向美国和以色列移交武器
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网北京6月18日电(记者 王莹 孔任远)清华大学战略与安全研究中心主任、国际关系学系教授达巍17日在北京表示，美国全球领导力正面临“崩溃的时刻”，特朗普政府以“掀桌子”的方式主动拆解既有多边制度框架，美国的全球制度霸权走向终结。 当日，中国人民大学区域国别研究院(重阳金融研究院)、中国人民大学全球领导力学院共同举办“区域国别学与全球领导力系列讲座”第六场活动，达巍就“中美的
+发布时间：2026年06月18日 14:33 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网北京6月18日电(记者 王莹 孔任远)清华大学战略与安全研究中心主任、国际关系学系教授达巍17日在北京表示，美国全球领导力正面临“崩溃的时刻”，特朗普政府以“掀桌子”的方式主动拆解既有多边制度框架，美国的全球制度霸权走向终结。
-
-当日，中国人民大学区域国别研究院(重阳金融研究院)、中国人民大学全球领导力学院共同举办“区域国别学与全球领导力系列讲座”第六场活动，达巍就“中美的全球领导力兴衰与区域国别研究”作专题分享。
-
-达巍指出，美国从1890年成为世界第一大经济体到真正建立全球霸权，历经半个世纪波折，形成单极霸权支撑下的自由主义多边体系。
-
-近年来，伴随美国国内左右翼民粹主义同步兴起，特朗普政府反对过去自由主义国际秩序及多边主义传统，主动拆解美国构建的制度主义霸权。
-
-他强调，如今美国领导力的实现方式从制度主导转向强制与交易优先。
-
-关于中国全球领导力，达巍指出，当前，中国的对外实践始终在自主性与世界性两股力量的互动中探索前行。
-
-一方面，自主性脉络强调主权优先、独立自主，坚持反霸权反干涉，推动国际关系多极化；另一方面，世界性脉络则体现为融入全球体系、贡献全球发展、推动全球治理改革的积极姿态。
-
-他指出，中国的全球影响力拓展走出了一条不同于美国霸权的全新路径，即以主权平等为基础，以发展合作为核心抓手，以“结伴不结盟”的伙伴关系网络为依托，反对任何一国垄断全球领导权。
+发布时间：2026年06月18日 14:33 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:11 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 17:28 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 17:24 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 17:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 17:23 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 17:10 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 17:23 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 17:00 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 17:17 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 17:18 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 17:09 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 17:17 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 17:30 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 17:22 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 17:22 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 17:19 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 17:17 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 17:32 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 17:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 17:15 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 17:26 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 17:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 17:12 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 17:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/948181951486.shtml)
-- 2026-06-29 17:21 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/52596792825.shtml)
-- 2026-06-29 17:02 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/111990761705.shtml)
-- 2026-06-29 17:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/129992073.shtml)
-- 2026-06-29 17:05 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/5673294.shtml)
-- 2026-06-29 17:06 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/363805.shtml)
-- 2026-06-29 17:03 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/50482.shtml)
-- 2026-06-29 17:14 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/002367.shtml)
-- 2026-06-29 17:21 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/266986184.shtml)
-- 2026-06-29 17:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/8599942.shtml)
-- 2026-06-29 17:24 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/449457332170.shtml)
-- 2026-06-29 17:22 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/940985172.shtml)
-- 2026-06-29 17:24 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/4807239792.shtml)
-- 2026-06-29 17:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/307060.shtml)
-- 2026-06-29 17:02 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/76648246.shtml)
+- 2026-06-29 17:15 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/212919351432.shtml)
+- 2026-06-29 17:35 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/37373957616.shtml)
+- 2026-06-29 17:18 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/355974.shtml)
+- 2026-06-29 17:28 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/245181292189.shtml)
+- 2026-06-29 17:09 - [大六座SUV进入黄金时代](http://www.share.minike.top/Article/details/02651187.shtml)
+- 2026-06-29 17:19 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/2615668923.shtml)
+- 2026-06-29 17:30 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/32377.shtml)
+- 2026-06-29 17:11 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/309733510.shtml)
+- 2026-06-29 17:23 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/39269251.shtml)
+- 2026-06-29 17:27 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/325624846.shtml)
+- 2026-06-29 17:13 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/2384558918.shtml)
+- 2026-06-29 17:30 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/4986594.shtml)
+- 2026-06-29 17:11 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/41542585.shtml)
+- 2026-06-29 17:10 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/7891736710.shtml)
+- 2026-06-29 17:18 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/456637575503.shtml)

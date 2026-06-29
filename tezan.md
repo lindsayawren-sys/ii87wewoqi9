@@ -1,59 +1,56 @@
-# AI全新风险：难以预判的政府监管政策
+# 封关半年看海南：靠什么让外国游客“真香”？
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-投资人工智能行业，从来不是胆小者能涉足的领域。抛开数据中心巨额投入、市场需求前景不明等风险，政府突如其来的监管政策随时可能彻底颠覆行业格局。典型案例便是：上周末特朗普政府向 Anthropic 发出监管警告，未经许可，任何外籍人员（包括企业内部外籍员工）均不得访问该公司最新一代 AI 大模型。 尽管本次监管指令仅针对正与美方陷入博弈的 Anthropic，但其他 AI 企业都担
+发布时间：2026年06月17日 21:08 来源：中国新闻网 2025年12月18日，海南自贸港启动全岛封关。封关以来，政策红利持续释放，旅游市场热度节节攀升。 6月17日，海南自由贸易港封关半年新闻发布会在海口举行。中新社记者在会上获悉，初步核算，2025年12月至2026年5月，海南全省接待国内外游客同比增长12%，其中入境游客134.4万人次，同比增长93.9%。俄语区
 
 ## 正文
 
-投资人工智能行业，从来不是胆小者能涉足的领域。
+发布时间：2026年06月17日 21:08 来源：中国新闻网 2025年12月18日，海南自贸港启动全岛封关。
 
-抛开数据中心巨额投入、市场需求前景不明等风险，政府突如其来的监管政策随时可能彻底颠覆行业格局。
+封关以来，政策红利持续释放，旅游市场热度节节攀升。
 
-典型案例便是：上周末特朗普政府向 Anthropic 发出监管警告，未经许可，任何外籍人员（包括企业内部外籍员工）均不得访问该公司最新一代 AI 大模型。
+6月17日，海南自由贸易港封关半年新闻发布会在海口举行。
 
-尽管本次监管指令仅针对正与美方陷入博弈的 Anthropic，但其他 AI 企业都担忧，此举会成为行业监管的恶劣先例。
+中新社记者在会上获悉，初步核算，2025年12月至2026年5月，海南全省接待国内外游客同比增长12%，其中入境游客134.4万人次，同比增长93.9%。
 
-正如本刊今日独家报道，OpenAI 高管周六向内部员工致信表示，公司已向美国政府明确表态：人工智能研发需要汇聚全球顶尖人才，这也是美国能够领跑 AI 赛道的核心根基。
+俄语区市场继续领跑，东南亚市场稳步恢复，港澳台市场保持活跃，欧美澳新远程市场快速上升。
 
-美国政府大量外籍科研人员参与前沿 AI 研发，确实存在合理的国家安全顾虑（此前多篇报道提及，美国大量 AI 顶尖研究者均为海外出生）。
+海南靠什么让外国游客“真香”？
 
-但本届政府本身对外来移民并不友好，外界很难厘清，此番限制外籍人员参与 AI 研发的政策，究竟源于国家安全考量，还是移民政策的延伸。
-
-但显而易见的是，该政策或将拖累美国人工智能产业发展，这也是 OpenAI 极力反对的核心原因。
+(陈英清 李宇凡 林士杰 海南综合报道） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 17:20 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 17:21 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 17:18 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 17:27 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 17:17 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 17:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 17:07 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 17:15 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 17:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 17:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 17:03 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 17:02 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 17:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 17:21 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 17:29 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 17:34 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 17:15 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 17:35 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 17:06 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 17:21 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 17:21 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 17:16 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 17:18 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 17:29 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [抓特务票房破亿](http://www.share.minike.top/Article/details/84189.shtml)
-- 2026-06-29 17:08 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/08319395242.shtml)
-- 2026-06-29 17:00 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/05324945390.shtml)
-- 2026-06-29 17:22 - [花万元相亲对象是50元雇的演员](https://www.blog.minike.top/Article/details/774303.shtml)
-- 2026-06-29 17:27 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/8983140175.shtml)
-- 2026-06-29 17:09 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/957822486903.shtml)
-- 2026-06-29 17:19 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/92341204610.shtml)
-- 2026-06-29 17:11 - [沙丘](http://www.share.kurohicncr.top/Article/details/7120986.shtml)
-- 2026-06-29 17:10 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/5998770464.shtml)
-- 2026-06-29 17:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/40135157094.shtml)
-- 2026-06-29 17:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/4404969157.shtml)
-- 2026-06-29 17:16 - [花万元相亲对象是50元雇的演员](https://www.blog.minike.top/Article/details/191956483.shtml)
-- 2026-06-29 17:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/20729.shtml)
-- 2026-06-29 17:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/9345607.shtml)
-- 2026-06-29 17:27 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/9520051.shtml)
+- 2026-06-29 17:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/18585.shtml)
+- 2026-06-29 17:07 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/043790329.shtml)
+- 2026-06-29 17:16 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/2743377415.shtml)
+- 2026-06-29 17:25 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/466084073.shtml)
+- 2026-06-29 17:12 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/3855678.shtml)
+- 2026-06-29 17:30 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/46663.shtml)
+- 2026-06-29 17:19 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/31250.shtml)
+- 2026-06-29 17:10 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/870301424.shtml)
+- 2026-06-29 17:33 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/45241715426.shtml)
+- 2026-06-29 17:15 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/7968191404.shtml)
+- 2026-06-29 17:21 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/526724842.shtml)
+- 2026-06-29 17:18 - [博主：AI泡沫必须破灭](https://www.blog.minike.top/Article/details/0039381274.shtml)
+- 2026-06-29 17:32 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/643256164.shtml)
+- 2026-06-29 17:07 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/2982023.shtml)
+- 2026-06-29 17:26 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/94590006914.shtml)

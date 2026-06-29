@@ -1,49 +1,47 @@
-# 在川台胞台青包粽子、缝香囊 共话端午安康
+# 封关半年看海南：“空中丝路”持续拓展
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 14:58 来源：中国新闻网 6月17日，端午佳节前夕，在川台胞台青端午联谊会在四川成都郫都区举办。30余名在川台胞、台青齐聚一堂，现场包粽子、缝香囊，在艾草清香中共话端午安康。(王利文 杨予頔 制作 侯诗蕊） 责任编辑：【罗攀】
+发布时间：2026年06月18日 11:03 来源：中国新闻网 6月17日，海南自由贸易港封关半年新闻发布会在海口举行。海南省交通运输厅副厅长黄澎亮出了海南自贸港封关半年来航空领域的“成绩单”，显见“空中丝路”持续拓展。(李宇凡 陈英清） 责任编辑：【罗攀】
 
 ## 正文
 
-发布时间：2026年06月18日 14:58 来源：中国新闻网 6月17日，端午佳节前夕，在川台胞台青端午联谊会在四川成都郫都区举办。
+发布时间：2026年06月18日 11:03 来源：中国新闻网 6月17日，海南自由贸易港封关半年新闻发布会在海口举行。
 
-30余名在川台胞、台青齐聚一堂，现场包粽子、缝香囊，在艾草清香中共话端午安康。
+海南省交通运输厅副厅长黄澎亮出了海南自贸港封关半年来航空领域的“成绩单”，显见“空中丝路”持续拓展。
 
-(王利文 杨予頔 制作 侯诗蕊） 责任编辑：【罗攀】
+(李宇凡 陈英清） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 17:19 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 17:03 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 17:16 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 17:00 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 17:16 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 17:10 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 17:13 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 17:18 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 17:24 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 17:22 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 17:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 17:06 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 17:07 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 17:35 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 17:35 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 17:20 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 17:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 17:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 17:26 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 17:16 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 17:12 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 17:20 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 17:25 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 17:17 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/378536477.shtml)
-- 2026-06-29 17:28 - [千与千寻](https://www.share.kurohicncr.top/Article/details/00651989067.shtml)
-- 2026-06-29 17:22 - [乔家的儿女](https://www.blog.minike.top/Article/details/910134073744.shtml)
-- 2026-06-29 17:08 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/9089425.shtml)
-- 2026-06-29 17:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/40438.shtml)
-- 2026-06-29 17:02 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/740079156.shtml)
-- 2026-06-29 17:16 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/283070.shtml)
-- 2026-06-29 17:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/78306989.shtml)
-- 2026-06-29 17:12 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/961274920945.shtml)
-- 2026-06-29 17:03 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/647172033.shtml)
-- 2026-06-29 17:26 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/336248577710.shtml)
-- 2026-06-29 17:25 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/08373880.shtml)
-- 2026-06-29 17:07 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/2573151089.shtml)
-- 2026-06-29 17:09 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/09797338.shtml)
-- 2026-06-29 17:08 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/978289807.shtml)
+- 2026-06-29 17:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/43510595.shtml)
+- 2026-06-29 17:27 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/802036.shtml)
+- 2026-06-29 17:35 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/72427140.shtml)
+- 2026-06-29 17:22 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/410312747.shtml)
+- 2026-06-29 17:23 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/7278167.shtml)
+- 2026-06-29 17:09 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/58234.shtml)
+- 2026-06-29 17:21 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/464570779515.shtml)
+- 2026-06-29 17:20 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/1869010833.shtml)
+- 2026-06-29 17:31 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/375009899672.shtml)
+- 2026-06-29 17:35 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/071776055.shtml)
+- 2026-06-29 17:32 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/91429591.shtml)
+- 2026-06-29 17:31 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/87501318.shtml)
+- 2026-06-29 17:22 - [逆天祖国人](http://www.blog.minike.top/Article/details/3742319965.shtml)
+- 2026-06-29 17:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/6343843.shtml)
+- 2026-06-29 17:22 - [沙丘](https://www.share.kurohicncr.top/Article/details/7692164.shtml)

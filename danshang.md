@@ -1,50 +1,60 @@
-# 天数智芯早盘涨超5% 通用GPU产品成主要增长引擎
+# 吴伟：截至今年5月沪港通累计成交额近157.7万亿元，成为跨境资本高效配置的重要通道
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-天数智芯（09903）早盘高开逾7%，截至发稿，股价上涨5.38%，现报548港元，成交额1.99亿港元。 公开资料显示，天数智芯是国内领先的通用GPU产品及AI算力解决方案提供商，业务聚焦AI训练GPU、AI推理GPU、AI算力服务器/集群及配套软件生态。该公司2025年收入实现高增，其中，通用GPU产品成主要增长引擎。责任编辑：卢昱君
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，202陆家嘴论坛于今日召开，上海市常务副市长吴伟出席“全体大会四：沪港金融协同发展赋能高水平金融开放”并发言。 吴伟表示，建设上海香港两大国际金融中心是重大国家战略。中央金融工作会议明确提出，增强上海国际金融中心的竞争力和影响力，巩固提升香港国际金融中心地位。近年来，沪港两地深入推进金融协同发
 
 ## 正文
 
-天数智芯（09903）早盘高开逾7%，截至发稿，股价上涨5.38%，现报548港元，成交额1.99亿港元。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，202陆家嘴论坛于今日召开，上海市常务副市长吴伟出席“全体大会四：沪港金融协同发展赋能高水平金融开放”并发言。
 
-公开资料显示，天数智芯是国内领先的通用GPU产品及AI算力解决方案提供商，业务聚焦AI训练GPU、AI推理GPU、AI算力服务器/集群及配套软件生态。
+吴伟表示，建设上海香港两大国际金融中心是重大国家战略。
 
-该公司2025年收入实现高增，其中，通用GPU产品成主要增长引擎。
+中央金融工作会议明确提出，增强上海国际金融中心的竞争力和影响力，巩固提升香港国际金融中心地位。
 
-责任编辑：卢昱君
+近年来，沪港两地深入推进金融协同发展。
+
+特别是去年陆家嘴论坛期间，沪港国际金融中心协同发展行动方案签署。
+
+一年来，两地金融市场互联互通机制持续优化，跨境和离岸金融协同不断深化，科技金融、绿色金融和金融科技等新兴领域合作亮点纷呈。
+
+吴伟指出，截至今年5月，沪港通累计成交额近157.7万亿元，成为跨境资本高效配置的重要通道。
+
+上海黄金交易所落地香港国际板指定交割仓库，并同步推出离岸黄金交割合约，进一步夯实沪港金融市场互联互通的基础设施底座。
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 17:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 17:00 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 17:18 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 17:17 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 17:07 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 17:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 17:17 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 17:12 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 17:19 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 17:16 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 17:20 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 17:24 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 17:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 17:35 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 17:17 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 17:32 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 17:24 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 17:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 17:09 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 17:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 17:15 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 17:11 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 17:33 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 17:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 17:11 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:10 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/809372.shtml)
-- 2026-06-29 17:17 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/7202793118.shtml)
-- 2026-06-29 17:13 - [李在镕：计划将光州作为芯片生产基地](https://www.share.kurohicncr.top/Article/details/56226.shtml)
-- 2026-06-29 17:11 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/991158806.shtml)
-- 2026-06-29 17:28 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/69890.shtml)
-- 2026-06-29 17:12 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/832028573391.shtml)
-- 2026-06-29 17:21 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/402775.shtml)
-- 2026-06-29 17:17 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/3011290918.shtml)
-- 2026-06-29 17:05 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/88973962111.shtml)
-- 2026-06-29 17:15 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/9113736469.shtml)
-- 2026-06-29 17:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/412910.shtml)
-- 2026-06-29 17:26 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/7831516.shtml)
-- 2026-06-29 17:29 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/0326391626.shtml)
-- 2026-06-29 17:00 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/564467677.shtml)
-- 2026-06-29 17:00 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/806937207881.shtml)
+- 2026-06-29 17:08 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/2190755.shtml)
+- 2026-06-29 17:11 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/7889999.shtml)
+- 2026-06-29 17:07 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/90279702949.shtml)
+- 2026-06-29 17:30 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/789493941916.shtml)
+- 2026-06-29 17:13 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/113740.shtml)
+- 2026-06-29 17:16 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/39944356.shtml)
+- 2026-06-29 17:33 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/07321934097.shtml)
+- 2026-06-29 17:09 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/5201730437.shtml)
+- 2026-06-29 17:16 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.minike.top/Article/details/10440930945.shtml)
+- 2026-06-29 17:07 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/860315720673.shtml)
+- 2026-06-29 17:23 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/8541458717.shtml)
+- 2026-06-29 17:08 - [东方风云榜红毯](http://www.share.minike.top/Article/details/25287601250.shtml)
+- 2026-06-29 17:07 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/77861.shtml)
+- 2026-06-29 17:24 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/4985736.shtml)
+- 2026-06-29 17:23 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/03835238517.shtml)

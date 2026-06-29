@@ -1,57 +1,59 @@
-# 香港优化自动交换税务资料行政框架 侦查和打击跨境逃税
+# 热卷期货“出海”！“LME上海热轧卷板合约”将于今年10月在伦敦挂牌
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新社香港6月17日电 香港特区立法会17日三读通过《2026年税务(修订)(自动交换资料)条例草案》，以优化香港自动交换税务资料的行政框架。香港特区政府对此表示欢迎。 特区政府介绍，自2018年起，香港按经济合作及发展组织(简称“经合组织”)制定的共同汇报标准，在确保资料保密和安全的前提下，每年与伙伴税务管辖区自动交换与税务相关的财务账户资料，协助相关税务当局对其税务居民进行
+来源：期货日报 6月17日，上海期货交易所（简称上期所）与伦敦金属交易所（简称LME）在陆家嘴论坛期间，举行热轧卷板期货结算价授权签约仪式。上海市政府副秘书长金鹏辉、上海市推进国际金融中心建设办公室主任周小全、上海市浦东新区副区长徐欣、上期所理事长田向阳、伦敦金融城政府政策与资源委员会主席贺凯思、香港交易所集团行政总裁陈翊庭、LME主席约翰·威廉姆森出席签约仪式并见证。上期所总
 
 ## 正文
 
-中新社香港6月17日电 香港特区立法会17日三读通过《2026年税务(修订)(自动交换资料)条例草案》，以优化香港自动交换税务资料的行政框架。
+来源：期货日报 6月17日，上海期货交易所（简称上期所）与伦敦金属交易所（简称LME）在陆家嘴论坛期间，举行热轧卷板期货结算价授权签约仪式。
 
-香港特区政府对此表示欢迎。
+上海市政府副秘书长金鹏辉、上海市推进国际金融中心建设办公室主任周小全、上海市浦东新区副区长徐欣、上期所理事长田向阳、伦敦金融城政府政策与资源委员会主席贺凯思、香港交易所集团行政总裁陈翊庭、LME主席约翰·威廉姆森出席签约仪式并见证。
 
-特区政府介绍，自2018年起，香港按经济合作及发展组织(简称“经合组织”)制定的共同汇报标准，在确保资料保密和安全的前提下，每年与伙伴税务管辖区自动交换与税务相关的财务账户资料，协助相关税务当局对其税务居民进行评估，助力侦查和打击跨境逃税。
+上期所总经理鲁东升与LME首席执行官张柏廉代表双方签约。
 
-因应经合组织此前对香港实施自动交换税务资料制度展开成员相互评估后提出的意见，特区政府认同需要优化相关行政框架，将于2027年1月1日起实施新规定，包括强制申报财务机构登记以便特区政府税务局加强识辨、优化财务机构备存尽职审查记录的规定、调整罚则以提高阻吓力。
+田向阳表示，本次结算价授权合作，是上期所加快落实资本市场对外开放、加快建成世界一流交易所的具体举措。
 
-香港特区政府财经事务及库务局局长许正宇说，香港一直支持国际间提升税务透明度及打击跨境逃税的工作。
+我国钢铁产业规模庞大、产业基础扎实，期货市场运行规范、发展成熟。
 
-优化自动交换税务资料行政框架以回应经合组织的意见，有助于增加其他税务管辖区对香港税制的信心。
+此次合作将进一步拓展“上海价格”的国际应用场景，吸引全球钢铁企业与金融机构参与价格形成，持续提升我国钢铁期货的国际影响力。
 
-此举有利于香港扩展全面性避免双重课税协定网络，让香港企业在对外拓展业务时可享有更高税务确定性并避免双重课税。
+未来，上期所将继续深化与国际机构务实合作，积极拓展对外开放的路径和模式，更好发挥期货市场功能。
 
-据介绍，为协助业界适应新规定和提高税务明确性，特区政府税务局将发布相关指引，向业界提供技术支持和解答查询。
+LME主席约翰·威廉姆森表示：“此次合作对两地市场而言都是激动人心的进展，中国以外的企业可以更容易地参与世界流动性最好的大宗商品合约之一，并同时享有交易LME现金交割合约的便捷性。
 
 ## 相关推荐
 
-- 2026-06-29 17:27 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 17:25 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 17:22 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 17:18 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 17:14 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 17:25 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 17:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 17:03 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 17:17 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 17:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 17:27 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 17:28 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 17:31 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 17:21 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 17:23 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 17:25 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 17:10 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 17:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 17:27 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 17:28 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 17:29 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 17:08 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 17:36 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 17:16 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/50755693.shtml)
-- 2026-06-29 17:14 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/063369.shtml)
-- 2026-06-29 17:10 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/32121.shtml)
-- 2026-06-29 17:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/532020.shtml)
-- 2026-06-29 17:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/3098653.shtml)
-- 2026-06-29 17:26 - [斛珠夫人](http://www.share.minike.top/Article/details/3973872.shtml)
-- 2026-06-29 17:25 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/07026595.shtml)
-- 2026-06-29 17:14 - [绘画区你赢了](http://www.blog.minike.top/Article/details/342088256012.shtml)
-- 2026-06-29 17:06 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/414749970.shtml)
-- 2026-06-29 17:10 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.minike.top/Article/details/909700.shtml)
-- 2026-06-29 17:03 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/470537543.shtml)
-- 2026-06-29 17:18 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/7115476.shtml)
-- 2026-06-29 17:21 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/227718948110.shtml)
-- 2026-06-29 17:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/26385.shtml)
-- 2026-06-29 17:18 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/04589916.shtml)
+- 2026-06-29 17:33 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/0583147.shtml)
+- 2026-06-29 17:35 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/701178210552.shtml)
+- 2026-06-29 17:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/8908855344.shtml)
+- 2026-06-29 17:13 - [送你一朵小红花](https://www.blog.minike.top/Article/details/850201.shtml)
+- 2026-06-29 17:34 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.minike.top/Article/details/54250055967.shtml)
+- 2026-06-29 17:11 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/609387.shtml)
+- 2026-06-29 17:21 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/566396.shtml)
+- 2026-06-29 17:32 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/7271728.shtml)
+- 2026-06-29 17:31 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/980853092642.shtml)
+- 2026-06-29 17:17 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/840839503160.shtml)
+- 2026-06-29 17:07 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/840818.shtml)
+- 2026-06-29 17:35 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/1519786117.shtml)
+- 2026-06-29 17:22 - [逆天祖国人](https://www.share.minike.top/Article/details/141348.shtml)
+- 2026-06-29 17:24 - [沙丘](https://www.share.kurohicncr.top/Article/details/809967957438.shtml)
+- 2026-06-29 17:08 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/09211.shtml)

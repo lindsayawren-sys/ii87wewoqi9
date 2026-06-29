@@ -1,46 +1,60 @@
-# 吴清：支持上海浦东、北京海淀、广东深圳、江苏苏州、浙江杭州等多地打造首批资本市场科技金融实践样本
+# 首届国际应急与航空医疗交流会议在港举行
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，支持上海浦东、北京海淀、广东深圳、江苏苏州、浙江杭州打造首批资本市场科技金融实践样本。责任编辑：常福强
+中新社香港6月17日电 (记者 邱兆翔)由香港特区政府飞行服务队(简称“飞服队”)主办的首届国际应急与航空医疗交流会议17日在香港开幕。本次会议期望通过高层次理论交流与实务展示，分享应急准备、航空医疗及科技应用等方面的宝贵经验，共同探讨行业未来发展趋势。本次会议汇聚来自中国内地和香港及英国、澳大利亚、新加坡、奥地利等国家与地区的逾230名专家学者、业内人士，就大型灾难应对、航空
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，支持上海浦东、北京海淀、广东深圳、江苏苏州、浙江杭州打造首批资本市场科技金融实践样本。
+中新社香港6月17日电 (记者 邱兆翔)由香港特区政府飞行服务队(简称“飞服队”)主办的首届国际应急与航空医疗交流会议17日在香港开幕。
 
-责任编辑：常福强
+本次会议期望通过高层次理论交流与实务展示，分享应急准备、航空医疗及科技应用等方面的宝贵经验，共同探讨行业未来发展趋势。
+
+本次会议汇聚来自中国内地和香港及英国、澳大利亚、新加坡、奥地利等国家与地区的逾230名专家学者、业内人士，就大型灾难应对、航空医疗运作模式、风险管理、资源调配等话题展开讨论。
+
+香港特区政府保安局副局长卓孝业在开幕致辞中表示，近年来，气候变化带来的现实影响愈发凸显，极端天气与各类突发状况愈发频繁，影响强度不断加剧，应急处置工作面临的挑战前所未有。
+
+他呼吁各方应持续深化国际与区域协作，加强经验交流，共商更高效处置方案。
+
+香港特区政府飞行服务队总监廖嘉俊表示，飞服队自成立以来，始终坚守一线。
+
+除服务香港地区外，依据国际相关协定，飞服队的搜救范围可延伸至香港以南1300公里的大部分区域。
+
+他指出，想要守护海上民众的生命安全，就需要搭建完善、成熟的协作体系，凝聚各方相关机构与各领域专家的力量。
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 17:11 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 17:25 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 17:03 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 17:01 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 17:08 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 17:21 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 17:03 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 17:25 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 17:03 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 17:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 17:25 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 17:10 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 17:31 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 17:34 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 17:29 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 17:06 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 17:35 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 17:13 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 17:14 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 17:29 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 17:30 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 17:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 17:19 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 17:15 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 17:09 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:00 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/944607.shtml)
-- 2026-06-29 17:23 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/89811160.shtml)
-- 2026-06-29 17:03 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/83616459.shtml)
-- 2026-06-29 17:21 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/032903.shtml)
-- 2026-06-29 17:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/94517692.shtml)
-- 2026-06-29 17:21 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/977577672818.shtml)
-- 2026-06-29 17:13 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/377104986.shtml)
-- 2026-06-29 17:07 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/43222941467.shtml)
-- 2026-06-29 17:21 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/556060.shtml)
-- 2026-06-29 17:09 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/63739.shtml)
-- 2026-06-29 17:15 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/1343277934.shtml)
-- 2026-06-29 17:26 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/093545454538.shtml)
-- 2026-06-29 17:21 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/334770640546.shtml)
-- 2026-06-29 17:10 - [金刚川](https://www.share.kurohicncr.top/Article/details/535825095629.shtml)
-- 2026-06-29 17:22 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/2352728176.shtml)
+- 2026-06-29 17:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/8001440.shtml)
+- 2026-06-29 17:23 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/815717766125.shtml)
+- 2026-06-29 17:33 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/26901853.shtml)
+- 2026-06-29 17:33 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/72852.shtml)
+- 2026-06-29 17:14 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/59463.shtml)
+- 2026-06-29 17:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/524136991124.shtml)
+- 2026-06-29 17:25 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/080562532.shtml)
+- 2026-06-29 17:15 - [一见倾心](https://www.blog.minike.top/Article/details/9900877.shtml)
+- 2026-06-29 17:19 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/7700345778.shtml)
+- 2026-06-29 17:14 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/6951755344.shtml)
+- 2026-06-29 17:17 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/91067469191.shtml)
+- 2026-06-29 17:35 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/7989584372.shtml)
+- 2026-06-29 17:25 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/58164.shtml)
+- 2026-06-29 17:18 - [中国战机大片上新](http://www.share.minike.top/Article/details/42539208.shtml)
+- 2026-06-29 17:34 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/7391589.shtml)

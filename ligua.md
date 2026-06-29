@@ -1,61 +1,58 @@
-# 十项措施对接签约会受两岸民众欢迎 国台办：让更多同胞共享其惠
+# 中国科研团队让光纤变身“微型灵巧手”
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者问：在海峡论坛期间，举办了十项促进两岸交流合作的政策措施对接签约会，受到两岸民众欢迎和好评。请介绍有关情况。 发言人陈斌华表示，十项促进两岸交流合作的政策措施对接签约会13日在厦门举行。大陆企业与来自台湾多地的企业和商会协会进行签约，采购台湾台东、云林、南投等县市凤梨释迦、文旦柚、茶叶等农渔产品。来自两岸的120余
+中新社合肥6月18日电 (记者 张俊)记者18日从安徽大学获悉，该校助理研究员潘登与中国科学技术大学吴东教授、胡衍雷教授团队合作，在微纳操控领域取得重要突破，让光纤变身“微型灵巧手”。 相关研究成果近日在国际权威学术期刊《自然》(Nature)上发表。 微纳尺度的精准操控，是光电信息、生物医学等领域的前沿方向。如何在极微小的空间内实现高精度、大力度的操控，一直是技术瓶颈。为此，
 
 ## 正文
 
-中新网6月17日电 6月17日，国台办举行例行新闻发布会。
+中新社合肥6月18日电 (记者 张俊)记者18日从安徽大学获悉，该校助理研究员潘登与中国科学技术大学吴东教授、胡衍雷教授团队合作，在微纳操控领域取得重要突破，让光纤变身“微型灵巧手”。
 
-有记者问：在海峡论坛期间，举办了十项促进两岸交流合作的政策措施对接签约会，受到两岸民众欢迎和好评。
+相关研究成果近日在国际权威学术期刊《自然》(Nature)上发表。
 
-请介绍有关情况。
+微纳尺度的精准操控，是光电信息、生物医学等领域的前沿方向。
 
-发言人陈斌华表示，十项促进两岸交流合作的政策措施对接签约会13日在厦门举行。
+如何在极微小的空间内实现高精度、大力度的操控，一直是技术瓶颈。
 
-大陆企业与来自台湾多地的企业和商会协会进行签约，采购台湾台东、云林、南投等县市凤梨释迦、文旦柚、茶叶等农渔产品。
+为此，研究团队创新性地提出一种飞秒激光复合制造方法，在仅有头发丝粗细的商用光纤端部，成功构建出一种新型三维光纤微镊。
 
-来自两岸的120余名嘉宾参加对接会。
+这款新型微镊巧妙地将光传输、光热转换、软材料响应和刚性微结构力学输出集成于微小空间。
 
-参加签约会的台湾业者表示，十项措施让岛内农渔民获得实实在在的两岸和平红利，希望两岸通过善意对话沟通，推动更多更好成果不断落地。
+它的工作原理如同一个细胞尺度的“微型灵巧手”，通过输入光功率，即可实现微镊的开合与作用力的连续控制，真正做到了“以光驭力”。
 
-陈斌华指出，今后，国台办将进一步推动十项措施落实落细，坚持以交流融合增进民生福祉，争取让两岸更多同胞同获其利、共享其惠。
+实验数据显示，该新型微镊的输出力是传统光镊的十万倍以上，不仅能实现微米尺度目标的高精度、低损伤操控，还能在百微米级别的狭窄空间内完成复杂微结构的精确装配和微尺度取样。
 
 ## 相关推荐
 
-- 2026-06-29 17:09 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 17:04 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 17:05 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 17:27 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 17:09 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 17:03 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 17:18 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 17:05 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 17:15 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 17:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 17:19 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 17:20 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 17:07 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 17:18 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 17:16 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 17:32 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 17:09 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 17:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 17:32 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 17:31 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 17:09 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 17:11 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 17:12 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 17:13 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 17:09 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 17:26 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 17:28 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:13 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/3905190.shtml)
-- 2026-06-29 17:24 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/709313.shtml)
-- 2026-06-29 17:09 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/5805771.shtml)
-- 2026-06-29 17:29 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/28651.shtml)
-- 2026-06-29 17:04 - [《贺子珍》](https://www.blog.minike.top/Article/details/915754.shtml)
-- 2026-06-29 17:25 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/535327463.shtml)
-- 2026-06-29 17:14 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/2952194.shtml)
-- 2026-06-29 17:06 - [《贺子珍》](http://www.blog.minike.top/Article/details/179705126.shtml)
-- 2026-06-29 17:12 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/3662492603.shtml)
-- 2026-06-29 17:09 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/560534.shtml)
-- 2026-06-29 17:12 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/9842097580.shtml)
-- 2026-06-29 17:03 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/2734615745.shtml)
-- 2026-06-29 17:20 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/86920972774.shtml)
-- 2026-06-29 17:12 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/2866126.shtml)
-- 2026-06-29 17:27 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/334919635153.shtml)
+- 2026-06-29 17:06 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/8676190564.shtml)
+- 2026-06-29 17:27 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/0024140227.shtml)
+- 2026-06-29 17:24 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/7252699394.shtml)
+- 2026-06-29 17:13 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/317857.shtml)
+- 2026-06-29 17:33 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/936196.shtml)
+- 2026-06-29 17:23 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/96749.shtml)
+- 2026-06-29 17:20 - [T1 KC](http://www.share.minike.top/Article/details/379758466517.shtml)
+- 2026-06-29 17:34 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/68392213.shtml)
+- 2026-06-29 17:10 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/6743028.shtml)
+- 2026-06-29 17:15 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.kurohicncr.top/Article/details/1683618499.shtml)
+- 2026-06-29 17:06 - [叠纸](http://www.share.kurohicncr.top/Article/details/581368.shtml)
+- 2026-06-29 17:29 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/51968235806.shtml)
+- 2026-06-29 17:27 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/892082915089.shtml)
+- 2026-06-29 17:20 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/66044.shtml)
+- 2026-06-29 17:23 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/13645844.shtml)

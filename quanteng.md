@@ -1,58 +1,48 @@
-# 无人装备上岗 津门智造提速
+# 雅天妮集团拟“5合1”进行股份合并及更改每手买卖单位
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-原标题：活力中国调研行丨无人装备上岗 津门智造提速 科技日报记者 侯萌 赵卫华 没有司机，数万集装箱如何高效转运？不见焊工，精密焊缝如何保质完成？走进天津的码头与工厂，答案就藏在一台台智能装备之中。无人值守、远程操控、人机协作，一系列新技术、新模式，让传统产业焕发全新生机。 6月16日，科技日报记者跟随2026年“活力中国调研行”天津主题采访活动来到天津港，探访这座全球首个“智
+雅天妮集团（00789）发布公告，董事会建议按每5股每股面值0.05港元的已发行及未发行股份合并为1股每股0.25港元的合并股份的基准进行股份合并。于本公告日期，现有股份以每手买卖单位2万股现有股份于联交所买卖。建议待股份合并生效后及以此为条件，于联交所买卖的每手买卖单位由2万股现有股份更改为5000股合并股份。责任编辑：卢昱君
 
 ## 正文
 
-原标题：活力中国调研行丨无人装备上岗 津门智造提速 科技日报记者 侯萌 赵卫华 没有司机，数万集装箱如何高效转运？
+雅天妮集团（00789）发布公告，董事会建议按每5股每股面值0.05港元的已发行及未发行股份合并为1股每股0.25港元的合并股份的基准进行股份合并。
 
-不见焊工，精密焊缝如何保质完成？
+于本公告日期，现有股份以每手买卖单位2万股现有股份于联交所买卖。
 
-走进天津的码头与工厂，答案就藏在一台台智能装备之中。
+建议待股份合并生效后及以此为条件，于联交所买卖的每手买卖单位由2万股现有股份更改为5000股合并股份。
 
-无人值守、远程操控、人机协作，一系列新技术、新模式，让传统产业焕发全新生机。
-
-6月16日，科技日报记者跟随2026年“活力中国调研行”天津主题采访活动来到天津港，探访这座全球首个“智慧零碳”码头。
-
-该码头于2021年10月建成投用，依托全流程自动化码头作业，综合运营水平位居全球智慧港口前列。
-
-放眼整个港区，人工智能运输机器人ART往来穿梭、有序作业。
-
-全国劳动模范、全国技术能手、天津港第一港埠有限公司拖头队副队长成卫东站在现场介绍：“咱们眼前这些ART机器人，和传统拖车完全不一样，取消了独立车头，导航、液压、动力所有控制系统全部整合在车身内部。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 17:05 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 17:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 17:12 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 17:29 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 17:27 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 17:02 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 17:19 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 17:04 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 17:26 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 17:03 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 17:20 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 17:16 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 17:14 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 17:14 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 17:24 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 17:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 17:13 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 17:34 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 17:10 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 17:29 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 17:12 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/0817017.shtml)
-- 2026-06-29 17:03 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.kurohicncr.top/Article/details/472543013014.shtml)
-- 2026-06-29 17:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/81225623.shtml)
-- 2026-06-29 17:03 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/722631897.shtml)
-- 2026-06-29 17:22 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/1284646537.shtml)
-- 2026-06-29 17:03 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/36993162209.shtml)
-- 2026-06-29 17:05 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/4175081526.shtml)
-- 2026-06-29 17:07 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/326857272715.shtml)
-- 2026-06-29 17:16 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/124907040.shtml)
-- 2026-06-29 17:09 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/89465179329.shtml)
-- 2026-06-29 17:03 - [看大国重器“云端穿针引线”](https://www.blog.minike.top/Article/details/727577504247.shtml)
-- 2026-06-29 17:21 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/64887781504.shtml)
-- 2026-06-29 17:08 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.minike.top/Article/details/619716.shtml)
-- 2026-06-29 17:12 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/53887705843.shtml)
-- 2026-06-29 17:06 - [T1零封KC MSI](http://www.share.minike.top/Article/details/7967649.shtml)
+- 2026-06-29 17:24 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/6779452760.shtml)
+- 2026-06-29 17:33 - [东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/096477793.shtml)
+- 2026-06-29 17:24 - [王安宇尊重田曦薇的一切选择](http://www.share.kurohicncr.top/Article/details/5684922278.shtml)
+- 2026-06-29 17:23 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/936192424.shtml)
+- 2026-06-29 17:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/992253235958.shtml)
+- 2026-06-29 17:29 - [金刚川](https://www.share.minike.top/Article/details/51458089.shtml)
+- 2026-06-29 17:35 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/614021.shtml)
+- 2026-06-29 17:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/8536198291.shtml)
+- 2026-06-29 17:28 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/71248.shtml)
+- 2026-06-29 17:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/82306011.shtml)
+- 2026-06-29 17:26 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/359635.shtml)
+- 2026-06-29 17:34 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/90690.shtml)
+- 2026-06-29 17:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/535226.shtml)
+- 2026-06-29 17:16 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/918951018.shtml)
+- 2026-06-29 17:11 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/81570056608.shtml)

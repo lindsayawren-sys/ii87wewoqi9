@@ -1,56 +1,60 @@
-# 余华通透谈自我和解：大部分挫折，都是自己困住自己
+# （乡村行·看振兴）外籍“新农人”带货长粽出山 浙江遂昌借力直播拓销路
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 10:29 来源：中国新闻网 6月17日，作家余华亮相北京国际图书博览会特别访谈，针对年轻人如何与负面情绪、生活困境自我和解的问题，分享了通透治愈的处世心得。 在现场互动中，余华表示，遇事和解的第一步是分清境遇：面对外界批评，中肯建议虚心接纳、心怀感恩，不实非议则不必纠结、坦然无视。 谈及人生挫折，余华结合自身创作经历坦言，人很容易陷入思维死胡
+中新网丽水6月17日电(黄彦君 刘岚 陈员)“家人们，你们见过这么长的粽子吗？这长粽可是遂昌一绝，一口下去，满嘴的糯米香！”端午临近，在浙江省遂昌县妙高街道创业创新孵化团的技能工作室，扎根遂昌十余年的非洲籍“洋媳妇”露丝(Rose)正熟练展示遂昌长粽。 火热的电商直播，正让这款传承百年的特色美食加速出山。 遂昌长粽又名“长情粽”“分享粽”，其制作技艺已被列入浙江省级非物质文化遗
 
 ## 正文
 
-发布时间：2026年06月18日 10:29 来源：中国新闻网 6月17日，作家余华亮相北京国际图书博览会特别访谈，针对年轻人如何与负面情绪、生活困境自我和解的问题，分享了通透治愈的处世心得。
+中新网丽水6月17日电(黄彦君 刘岚 陈员)“家人们，你们见过这么长的粽子吗？
 
-在现场互动中，余华表示，遇事和解的第一步是分清境遇：面对外界批评，中肯建议虚心接纳、心怀感恩，不实非议则不必纠结、坦然无视。
+这长粽可是遂昌一绝，一口下去，满嘴的糯米香！
 
-谈及人生挫折，余华结合自身创作经历坦言，人很容易陷入思维死胡同，很多看似跨不过去的难关，其实都是自我内耗所致，并非现实阻碍。
+”端午临近，在浙江省遂昌县妙高街道创业创新孵化团的技能工作室，扎根遂昌十余年的非洲籍“洋媳妇”露丝(Rose)正熟练展示遂昌长粽。
 
-他建议不必硬扛挫折，学会暂停休整，很多难题往往睡一觉、心态放松后便迎刃而解。
+火热的电商直播，正让这款传承百年的特色美食加速出山。
 
-在他看来，自愈的关键在于调整心态、看清现实。
+遂昌长粽又名“长情粽”“分享粽”，其制作技艺已被列入浙江省级非物质文化遗产代表性项目名录。
 
-学会记住成长、放下内耗，跳出自我束缚的心结，就能从容应对人生诸多困境。
+其凭借高山箬叶包裹、龙须草手工捆扎的古法工艺独树一帜，长条形制承载着情谊长久、阖家安康的民俗寓意，是当地端午节庆的必备佳品。
 
-(记者 范思忆 制作 徐妙巧） 责任编辑：【罗攀】
+长久以来，受地域、渠道限制，这款特色农产品销售范围较窄，多局限于县域内部，难以打开外部市场。
+
+早已融入本地乡村生活的露丝，亲眼见证山里诸多优质土特产面临的销售困境。
 
 ## 相关推荐
 
-- 2026-06-29 17:13 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 17:16 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 17:26 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 17:15 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 17:29 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 17:15 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 17:15 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 17:14 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 17:07 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 17:22 - [人形机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 17:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 17:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 17:31 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 17:18 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 17:23 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 17:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 17:22 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 17:26 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 17:30 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 17:32 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 17:31 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 17:20 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 17:34 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 17:25 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 17:06 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 17:16 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/437523.shtml)
-- 2026-06-29 17:26 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/21609.shtml)
-- 2026-06-29 17:26 - [金牌调解](https://www.share.kurohicncr.top/Article/details/710047036036.shtml)
-- 2026-06-29 17:18 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/51557876.shtml)
-- 2026-06-29 17:05 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/535948585550.shtml)
-- 2026-06-29 17:22 - [绘画区你赢了](http://www.share.minike.top/Article/details/4502549.shtml)
-- 2026-06-29 17:19 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/4905954869.shtml)
-- 2026-06-29 17:08 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/07658664.shtml)
-- 2026-06-29 17:12 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/50013555374.shtml)
-- 2026-06-29 17:10 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/47213508771.shtml)
-- 2026-06-29 17:10 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/21472176719.shtml)
-- 2026-06-29 17:09 - [王楚钦开门红](https://www.share.minike.top/Article/details/740387152428.shtml)
-- 2026-06-29 17:02 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/375784770031.shtml)
-- 2026-06-29 17:15 - [疑似吴建豪老婆正脸照](http://www.share.kurohicncr.top/Article/details/71304048594.shtml)
-- 2026-06-29 17:16 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/914580885.shtml)
+- 2026-06-29 17:27 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/45373193.shtml)
+- 2026-06-29 17:31 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/950829.shtml)
+- 2026-06-29 17:34 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/42369949054.shtml)
+- 2026-06-29 17:35 - [王俊凯命名方式](https://www.share.minike.top/Article/details/6550903.shtml)
+- 2026-06-29 17:07 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/175103809.shtml)
+- 2026-06-29 17:06 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/660692573987.shtml)
+- 2026-06-29 17:35 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/19961260.shtml)
+- 2026-06-29 17:31 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/56551.shtml)
+- 2026-06-29 17:19 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/070870151.shtml)
+- 2026-06-29 17:30 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/66401270.shtml)
+- 2026-06-29 17:32 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/447341779964.shtml)
+- 2026-06-29 17:26 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/996674.shtml)
+- 2026-06-29 17:15 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/217779554.shtml)
+- 2026-06-29 17:15 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/471052.shtml)
+- 2026-06-29 17:24 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/21330.shtml)

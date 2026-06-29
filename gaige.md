@@ -1,59 +1,59 @@
-# 库迪失去王一博之后
+# “吴哥粽香，端午情长”文化主题活动在柬埔寨举办
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品|虎嗅商业消费组 作者|刘纾含 最后一次参加世界杯的梅西，上演了本届世界杯的首个帽子戏法。 北京时间6月17日，在2026美加墨世界杯足球赛J组小组赛中，阿根廷队对阵阿尔及利亚队，在比赛的第76分钟，梅西打入个人本场比赛第三球，上演“帽子戏法”的同时，追平了世界杯纪录。对于阿根廷国家足球队全球赞助商库迪
+中新网金边6月18日电 (记者 杨强)6月17日，“吴哥粽香，端午情长”文化主题活动在柬埔寨皇家艺术大学举办。该活动由中国和平发展基金会驻柬办事处、柬埔寨王家研究院孔子学院、第二批“友谊之桥”广西志愿服务队及柬中关系发展学会联合主办，是“丝路心相通”中柬情相连文化交流活动之一。 中国和平发展基金会驻柬办事处主任王亚辉、柬埔寨王家研究院孔子学院中方院长吴滔、柬埔寨皇家艺术大学副校
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网金边6月18日电 (记者 杨强)6月17日，“吴哥粽香，端午情长”文化主题活动在柬埔寨皇家艺术大学举办。
 
-出品|虎嗅商业消费组 作者|刘纾含 最后一次参加世界杯的梅西，上演了本届世界杯的首个帽子戏法。
+该活动由中国和平发展基金会驻柬办事处、柬埔寨王家研究院孔子学院、第二批“友谊之桥”广西志愿服务队及柬中关系发展学会联合主办，是“丝路心相通”中柬情相连文化交流活动之一。
 
-北京时间6月17日，在2026美加墨世界杯足球赛J组小组赛中，阿根廷队对阵阿尔及利亚队，在比赛的第76分钟，梅西打入个人本场比赛第三球，上演“帽子戏法”的同时，追平了世界杯纪录。
+中国和平发展基金会驻柬办事处主任王亚辉、柬埔寨王家研究院孔子学院中方院长吴滔、柬埔寨皇家艺术大学副校长彭西塔、柬中关系发展学会会长谢莫尼勒等中柬嘉宾以及近百名师生参加活动，通过美食制作、艺术体验与民俗展示，进一步增进两国人民相互理解，深化传统友谊。
 
-对于阿根廷国家足球队全球赞助商库迪来说，这是一个难得的品牌高光时刻。
+王亚辉在致辞中表示，柬埔寨安桑粽和中国端午粽形制相近，印证中柬饮食文化交融互通。
 
-失去王一博之后，库迪需要新的流量资产，也需要一个比“9.9元咖啡”更体面的品牌故事。
+她说，青年是文明交流的使者，是两国友好未来的建设者。
 
-只是，赛场上的高光，照不到所有门店。
+举办此次端午交流活动，旨在以节日为纽带，共同领略中华传统民俗，搭建一座中柬人民尤其是青年人相知、相识、相融的文化桥梁。
 
-6月，是夏季茶饮旺季即将到来的时刻，但库迪的联营商们正在准备闭店。
+彭西塔表示，端午节是中华民族重要的传统节日之一，柬中粽子共同承载着孝亲团圆、传承文脉的美好寓意。
 
-经营两年多后，山东联营商刘伟终于给自己的门店贴上了“停业闭店”的标识。
+此次活动通过分享两国粽子的制作传统与文化内涵，不仅进一步认识彼此丰富多彩的文化特色，也进一步加强两国人民之间的友谊与合作，推动柬中民心相通不断迈向新高度。
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 17:22 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 17:24 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 17:07 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 17:07 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 17:17 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 17:04 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 17:03 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 17:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 17:24 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 17:01 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 17:07 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 17:19 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 17:12 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 17:28 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 17:14 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 17:29 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 17:07 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 17:34 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 17:29 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 17:26 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 17:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 17:23 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 17:16 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 17:08 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 17:34 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/5407988.shtml)
-- 2026-06-29 17:23 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/076077209.shtml)
-- 2026-06-29 17:16 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/419368.shtml)
-- 2026-06-29 17:10 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/37559.shtml)
-- 2026-06-29 17:23 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/121657384.shtml)
-- 2026-06-29 17:11 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/197038.shtml)
-- 2026-06-29 17:00 - [永远有话聊的原因](http://www.share.minike.top/Article/details/85635284.shtml)
-- 2026-06-29 17:12 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/49831035.shtml)
-- 2026-06-29 17:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/7323037.shtml)
-- 2026-06-29 17:02 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/548676870.shtml)
-- 2026-06-29 17:09 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/2730998.shtml)
-- 2026-06-29 17:04 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/9983672552.shtml)
-- 2026-06-29 17:21 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/615997435.shtml)
-- 2026-06-29 17:07 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/06198343.shtml)
-- 2026-06-29 17:13 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/9468605952.shtml)
+- 2026-06-29 17:25 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/807869658572.shtml)
+- 2026-06-29 17:33 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/983953286077.shtml)
+- 2026-06-29 17:27 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/1947827377.shtml)
+- 2026-06-29 17:14 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/2636349520.shtml)
+- 2026-06-29 17:14 - [存储三巨头被告了](http://www.share.minike.top/Article/details/83019733.shtml)
+- 2026-06-29 17:19 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/421682.shtml)
+- 2026-06-29 17:21 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/13721346.shtml)
+- 2026-06-29 17:25 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/07175227700.shtml)
+- 2026-06-29 17:17 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/67814786959.shtml)
+- 2026-06-29 17:16 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/012011905342.shtml)
+- 2026-06-29 17:10 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/9929909.shtml)
+- 2026-06-29 17:27 - [流金岁月](http://www.share.minike.top/Article/details/8159411460.shtml)
+- 2026-06-29 17:32 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/08995774.shtml)
+- 2026-06-29 17:25 - [逃狱兄弟](https://www.share.minike.top/Article/details/057061.shtml)
+- 2026-06-29 17:19 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/92405.shtml)

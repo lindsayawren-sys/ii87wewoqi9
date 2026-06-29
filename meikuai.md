@@ -1,57 +1,59 @@
-# 见证历史，A股市值前十，5只科技股
+# 帮境外机构解决人民币流动性问题，央行出手了
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股市值榜结构性巨变。 A股市值版图迎来历史性重塑，科技力量30多年来首次占据半壁江山。截至2026年6月18日收盘，A股市值前十强中，科技股独占5席，彻底打破了传统金融与能源巨头长期霸榜的格局。 回溯A股历史，科技股集体跻身市值前十的盛况，仅在1993年以前、全市场仅有10多只股票的初创阶段出现过。因此，
+21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。同日，央行发布公告，披露了该工具的操作框架。 潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。 公告指出，该工具操作方式包括买断式
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。
 
-A股市值榜结构性巨变。
+同日，央行发布公告，披露了该工具的操作框架。
 
-A股市值版图迎来历史性重塑，科技力量30多年来首次占据半壁江山。
+潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。
 
-截至2026年6月18日收盘，A股市值前十强中，科技股独占5席，彻底打破了传统金融与能源巨头长期霸榜的格局。
+公告指出，该工具操作方式包括买断式逆回购和质押式逆回购，操作期限涵盖7天、1个月、3个月，回购利率在公开市场7天期逆回购操作利率上加点确定。
 
-回溯A股历史，科技股集体跻身市值前十的盛况，仅在1993年以前、全市场仅有10多只股票的初创阶段出现过。
+境外机构可使用中国国债、央行票据、政策性金融债等高等级人民币债券作为合格抵押品。
 
-因此，在当前拥有数千家上市公司的成熟市场中，5只科技股同时挺进前十，堪称史无前例的历史性突破。
+换言之，境外央行类机构可凭合格抵押品从中国人民银行融入资金，从而有效便利其人民币流动性管理，增强持有人民币资产的信心。
 
-从具体数据来看，这5只科技巨头分别是宁德时代、工业富联、中际旭创、寒武纪和新易盛。
+‌远东资信研究院副院长张林告诉记者，境外机构持有人民币资产有时会面临短期流动性缺口，该工具有助于解决他们“变现渠道不畅”问题。
 
-其中，宁德时代A股市值超过1.7万亿元，位居A股市值第三；工业富联A股市值超过1.54万亿元，位居第五；中际旭创A股市值超过1.52万亿元，位居第六；寒武纪市值超过9400亿元，位居第九；新易盛A股市值超过8100亿元，位居第十。
+此举可以降低境外机构持有人民币资产的流动性风险溢价，从而增强人民币资产对全球配置机构的吸引力。
 
 ## 相关推荐
 
-- 2026-06-29 17:10 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 17:24 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 17:05 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 17:17 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 17:13 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 17:16 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 17:29 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 17:12 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 17:22 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 17:15 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 17:10 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 17:13 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 17:13 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 17:09 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 17:31 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 17:11 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 17:31 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 17:17 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 17:15 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 17:28 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 17:23 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 17:34 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 17:11 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 17:09 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/83480.shtml)
-- 2026-06-29 17:08 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/52991.shtml)
-- 2026-06-29 17:26 - [王安宇尊重田曦薇的一切选择](https://www.blog.kurohicncr.top/Article/details/499549235.shtml)
-- 2026-06-29 17:08 - [送你一朵小红花](http://www.share.minike.top/Article/details/2719431.shtml)
-- 2026-06-29 17:09 - [流金岁月](https://www.share.minike.top/Article/details/4485525396.shtml)
-- 2026-06-29 17:18 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/23547400.shtml)
-- 2026-06-29 17:01 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/077619197.shtml)
-- 2026-06-29 17:24 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/68999.shtml)
-- 2026-06-29 17:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/27919105.shtml)
-- 2026-06-29 17:00 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/190132422.shtml)
-- 2026-06-29 17:22 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/030439.shtml)
-- 2026-06-29 17:05 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/18470.shtml)
-- 2026-06-29 17:03 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/691835551.shtml)
-- 2026-06-29 17:11 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/5383627.shtml)
-- 2026-06-29 17:15 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/74494.shtml)
+- 2026-06-29 17:24 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/32765163.shtml)
+- 2026-06-29 17:06 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/546153.shtml)
+- 2026-06-29 17:13 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/7886347052.shtml)
+- 2026-06-29 17:07 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/76057.shtml)
+- 2026-06-29 17:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/057213562361.shtml)
+- 2026-06-29 17:08 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/32266.shtml)
+- 2026-06-29 17:14 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/5808875.shtml)
+- 2026-06-29 17:20 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/219214.shtml)
+- 2026-06-29 17:10 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/69342.shtml)
+- 2026-06-29 17:29 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/625590878.shtml)
+- 2026-06-29 17:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/99277.shtml)
+- 2026-06-29 17:30 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/01402537.shtml)
+- 2026-06-29 17:17 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/04871317.shtml)
+- 2026-06-29 17:12 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/88081720.shtml)
+- 2026-06-29 17:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/72633.shtml)

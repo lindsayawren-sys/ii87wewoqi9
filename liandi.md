@@ -1,56 +1,59 @@
-# 陈志犯罪集团重要骨干成员刘忍被从柬埔寨押解回国
+# 促进分布式数字身份互通互认 国家网信办公开征求意见
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-新华社北京6月17日电（记者李明辉）记者6月17日从公安部获悉，近日，在柬埔寨有关部门大力支持下，公安部派出工作组，成功将陈志犯罪集团重要骨干成员刘忍从柬埔寨金边押解回国。这是中柬执法合作取得的又一战果。 经查，2016年，陈志指挥刘忍等人在柬埔寨创立金贝集团，运营多个网络赌博平台，对我境内公民大肆招赌吸赌。2020年以来，金贝集团在柬埔寨经营电诈园区，大肆实施电信网络诈骗犯罪
+为促进分布式数字身份创新发展和互通互认应用，建立健全分布式数字身份公共服务体系，支撑国家区块链网络基础共性服务能力建设，根据有关法律法规，我办会同有关部门起草了《促进分布式数字身份互通互认应用规定(征求意见稿)》，现向社会公开征求意见。公众可通过以下途径和方式提出反馈意见：1.通过电子邮件方式发送至：did@cac.gov.cn。 2.通过信函方式将意见寄至：北京市海淀区阜成路
 
 ## 正文
 
-新华社北京6月17日电（记者李明辉）记者6月17日从公安部获悉，近日，在柬埔寨有关部门大力支持下，公安部派出工作组，成功将陈志犯罪集团重要骨干成员刘忍从柬埔寨金边押解回国。
+为促进分布式数字身份创新发展和互通互认应用，建立健全分布式数字身份公共服务体系，支撑国家区块链网络基础共性服务能力建设，根据有关法律法规，我办会同有关部门起草了《促进分布式数字身份互通互认应用规定(征求意见稿)》，现向社会公开征求意见。
 
-这是中柬执法合作取得的又一战果。
+公众可通过以下途径和方式提出反馈意见：1.通过电子邮件方式发送至：did@cac.gov.cn。
 
-经查，2016年，陈志指挥刘忍等人在柬埔寨创立金贝集团，运营多个网络赌博平台，对我境内公民大肆招赌吸赌。
+2.通过信函方式将意见寄至：北京市海淀区阜成路15号国家互联网信息办公室信息化发展局，邮编100048，并在信封上注明“促进分布式数字身份互通互认应用规定”。
 
-2020年以来，金贝集团在柬埔寨经营电诈园区，大肆实施电信网络诈骗犯罪，涉案金额特别巨大。
+意见反馈截止时间为2026年7月18日。
 
-此外，刘忍还涉嫌非法拘禁、故意伤害等严重暴力犯罪。
+附件：促进分布式数字身份互通互认应用规定(征求意见稿) 国家互联网信息办公室 2026年6月18日 促进分布式数字身份互通互认应用规定 (征求意见稿) 第一章 总则 第一条 为深入推进网络强国、数字中国战略实施，促进分布式数字身份创新发展和互通互认应用，建立健全分布式数字身份公共服务体系，夯实网络空间可信身份认证基础，支撑国家区块链网络基础共性服务能力建设，推动国民经济和社会发展各领域数字身份跨平台互通互认，根据《中华人民共和国网络安全法》《中华人民共和国数据安全法》《中华人民共和国个人信息保护法》《中华人民共和国电子签名法》等法律法规，制定本规定。
 
-目前，刘忍已被依法采取强制措施，相关案件正在进一步侦办中。
+第二条 本规定所称分布式数字身份，是指基于区块链等分布式技术，支持用户自主管理身份信息的新型数字身份，由标识符、密钥、可验证凭证和可验证声明构成，可用于数字账户管理、登录认证、数据授权等场景，旨在解决跨地域、跨行业、跨平台身份互通互认问题。
 
-责任编辑：刘万里 SF014
+本规定所称国家区块链网络，是指基于区块链技术，由国家统筹规划建设，遵循统一技术标准和接入规范，面向社会提供服务的数字基础设施。
+
+本规定所称分布式数字身份公共服务(以下称“公共服务”)，是指依托分布式数字身份链，为个人、机关事业单位、法人及其他组织机构、工业设备及物品等主体提供的分布式数字身份申请注册、身份核验、可验证凭证签发和可验证凭证授权使用等服务。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 17:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 17:15 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 17:12 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 17:06 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 17:12 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 17:03 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 17:24 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 17:07 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 17:15 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 17:19 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 17:06 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 17:16 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 17:24 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 17:32 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 17:34 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 17:10 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 17:29 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 17:27 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 17:06 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 17:06 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 17:35 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 17:35 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 17:22 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 17:12 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/651966525.shtml)
-- 2026-06-29 17:28 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/4482273204.shtml)
-- 2026-06-29 17:12 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/98601.shtml)
-- 2026-06-29 17:05 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/62262.shtml)
-- 2026-06-29 17:26 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/0940098143.shtml)
-- 2026-06-29 17:03 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/811153.shtml)
-- 2026-06-29 17:01 - [《贺子珍》](http://www.share.minike.top/Article/details/84643469.shtml)
-- 2026-06-29 17:04 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/806023734.shtml)
-- 2026-06-29 17:05 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/382795.shtml)
-- 2026-06-29 17:03 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/4472567421.shtml)
-- 2026-06-29 17:02 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/404374.shtml)
-- 2026-06-29 17:05 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/3654744244.shtml)
-- 2026-06-29 17:18 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/86596460.shtml)
-- 2026-06-29 17:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/92564513.shtml)
-- 2026-06-29 17:17 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/882012299521.shtml)
+- 2026-06-29 17:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/997211.shtml)
+- 2026-06-29 17:23 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/658119031107.shtml)
+- 2026-06-29 17:32 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/609844149.shtml)
+- 2026-06-29 17:34 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/010576575.shtml)
+- 2026-06-29 17:14 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/42837.shtml)
+- 2026-06-29 17:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/173562656.shtml)
+- 2026-06-29 17:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/96764413.shtml)
+- 2026-06-29 17:32 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/444948070.shtml)
+- 2026-06-29 17:24 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/997806912.shtml)
+- 2026-06-29 17:20 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/65291335.shtml)
+- 2026-06-29 17:28 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/1292249.shtml)
+- 2026-06-29 17:25 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/6224888446.shtml)
+- 2026-06-29 17:21 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/95153685.shtml)
+- 2026-06-29 17:32 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/754049971.shtml)
+- 2026-06-29 17:13 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/3236182551.shtml)

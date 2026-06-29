@@ -1,58 +1,59 @@
-# “科技信仰式并购”浪潮的最新注脚：安德利果汁拟以6亿至8亿跨界收购半导体材料企业
+# 安仕科技IPO前夜，核心创始人为何神隐？
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-2026年6月15日晚间，浓缩果汁龙头企业安德利（605198.SH）的一纸公告，在A股市场投下一枚重磅炸弹。公司宣布拟以6亿元至8亿元的自有或自筹资金，收购宁波甬强科技有限公司的控制权。一家主营浓缩果汁、产品外销占比长期维持在60%至70%的食品企业，一步跨入了集成电路高端电子材料赛道。 资本市场用三个涨停板给出了最直白的回应。6月12日、15日、16日，安德利A股连续三个交
+登录新浪财经APP 搜索【信披】查看更多考评等级 一个好汉三个帮。安仕科技，中泰盛（已注销）、比克（经营困难）帮。人们传统印象中一直在做ODM电池企业——安仕科技，最近提交了创业板IPO申请。其强调的商业标签，已变成了BBU备用电源，安仕科技也由此成为一家数据中心、AI产业链企业了。那么，安仕科技究竟是一家什么样的企业？它是真有技术，还是强蹭概念？其核心创始人员王景辉等重要股东
 
 ## 正文
 
-2026年6月15日晚间，浓缩果汁龙头企业安德利（605198.SH）的一纸公告，在A股市场投下一枚重磅炸弹。
+登录新浪财经APP 搜索【信披】查看更多考评等级 一个好汉三个帮。
 
-公司宣布拟以6亿元至8亿元的自有或自筹资金，收购宁波甬强科技有限公司的控制权。
+安仕科技，中泰盛（已注销）、比克（经营困难）帮。
 
-一家主营浓缩果汁、产品外销占比长期维持在60%至70%的食品企业，一步跨入了集成电路高端电子材料赛道。
+人们传统印象中一直在做ODM电池企业——安仕科技，最近提交了创业板IPO申请。
 
-资本市场用三个涨停板给出了最直白的回应。
+其强调的商业标签，已变成了BBU备用电源，安仕科技也由此成为一家数据中心、AI产业链企业了。
 
-6月12日、15日、16日，安德利A股连续三个交易日涨停，总市值累计上涨超60亿元；港股安德利果汁开盘更是一度暴涨80.44%。
+那么，安仕科技究竟是一家什么样的企业？
 
-然而，股价狂欢的另一面，是上交所当晚火速下发的监管工作函，涉及对象涵盖上市公司、董事、高级管理人员、控股股东及实际控制人。
+它是真有技术，还是强蹭概念？
 
-从果汁到半导体，安德利这一步跨得究竟有多大？
+其核心创始人员王景辉等重要股东，利用中泰盛、比克两家公司帮助安仕科技成长，为什么在IPO前夜，却选择了隐身幕后？
 
-果汁龙头的“舒适区”焦虑 安德利是国内最早涉足浓缩果汁加工的企业之一，自1996年成立以来，在原料果主产区建有10个加工基地、20条生产线，2003年和2020年先后在港股与A股上市，是国内首家果汁饮料类“A+H”双上市企业。
+01王景辉其人安仕科技的实际控制人是1988年出生的赵振超。
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 17:08 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 17:08 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 17:16 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 17:12 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 17:15 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 17:16 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 17:23 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 17:25 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 17:05 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 17:04 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 17:13 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 17:28 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 17:33 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 17:07 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 17:13 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 17:35 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 17:09 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 17:27 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 17:17 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 17:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 17:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 17:08 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 17:16 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 17:11 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:04 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/45168425310.shtml)
-- 2026-06-29 17:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/2663982.shtml)
-- 2026-06-29 17:09 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/59729116712.shtml)
-- 2026-06-29 17:28 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/749820698.shtml)
-- 2026-06-29 17:08 - [普京承认俄出现燃料危机](https://www.blog.minike.top/Article/details/269885524862.shtml)
-- 2026-06-29 17:12 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/01153929739.shtml)
-- 2026-06-29 17:11 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/50155.shtml)
-- 2026-06-29 17:26 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/311821424.shtml)
-- 2026-06-29 17:24 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/002667078.shtml)
-- 2026-06-29 17:19 - [中国战机大片上新](http://www.blog.minike.top/Article/details/110746.shtml)
-- 2026-06-29 17:11 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/767292.shtml)
-- 2026-06-29 17:18 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/805841.shtml)
-- 2026-06-29 17:13 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/32329695.shtml)
-- 2026-06-29 17:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/655942066.shtml)
-- 2026-06-29 17:13 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/3625066.shtml)
+- 2026-06-29 17:15 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/1242947.shtml)
+- 2026-06-29 17:08 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/409313951084.shtml)
+- 2026-06-29 17:23 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/99420750.shtml)
+- 2026-06-29 17:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/19334315541.shtml)
+- 2026-06-29 17:06 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/6853651969.shtml)
+- 2026-06-29 17:31 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/29187.shtml)
+- 2026-06-29 17:08 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/0958933879.shtml)
+- 2026-06-29 17:33 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/14434056.shtml)
+- 2026-06-29 17:27 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/16943626.shtml)
+- 2026-06-29 17:10 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/419536283.shtml)
+- 2026-06-29 17:27 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/10659.shtml)
+- 2026-06-29 17:35 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/440913943.shtml)
+- 2026-06-29 17:10 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/1328029175.shtml)
+- 2026-06-29 17:24 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/43040410677.shtml)
+- 2026-06-29 17:34 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/891096.shtml)

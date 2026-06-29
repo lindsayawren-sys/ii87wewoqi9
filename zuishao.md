@@ -1,56 +1,58 @@
-# 税务部门曝光3起涉税中介违法违规案件
+# 国泰君安期货：低透明+高波动？沃什首秀之后，市场该如何“适应”新格局？
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据国家税务总局官方微信消息，6月18日，河南、广东、江西等地税务部门依法查处并曝光3起涉税中介违法违规案件。 一、河南省焦作市税务局稽查局依法查处涉税中介沁阳市立达会计服务有限公司违规帮助企业注销造成少缴税款案件。经查，2024年，沁阳市立达会计服务有限公司在帮助河南佳轩贸易有限公司办理税务注销时，违规确认企业货币资产损失，虚假填报财务报表及清算附表，进行虚
+国泰君安期货市场分析师 陈骏昊 投资咨询证号：Z0021546 周四凌晨，美联储公布6月议息会议决议，新任美联储主席凯文·沃什迎来首次政策新闻发布会。虽然利率如市场预期按兵不动，但沃什这场首秀带来的诸多变化，也令市场短期反应剧烈。那么这次议息会议相比此前有哪些重大变化？投资者应如何看待市场波动？ 政策风向转变，美联储等待“重塑” 一、利率决议：按兵不动，全票通过 美联储联邦公开
 
 ## 正文
 
-中新网6月18日电 据国家税务总局官方微信消息，6月18日，河南、广东、江西等地税务部门依法查处并曝光3起涉税中介违法违规案件。
+国泰君安期货市场分析师 陈骏昊 投资咨询证号：Z0021546 周四凌晨，美联储公布6月议息会议决议，新任美联储主席凯文·沃什迎来首次政策新闻发布会。
 
-一、河南省焦作市税务局稽查局依法查处涉税中介沁阳市立达会计服务有限公司违规帮助企业注销造成少缴税款案件。
+虽然利率如市场预期按兵不动，但沃什这场首秀带来的诸多变化，也令市场短期反应剧烈。
 
-经查，2024年，沁阳市立达会计服务有限公司在帮助河南佳轩贸易有限公司办理税务注销时，违规确认企业货币资产损失，虚假填报财务报表及清算附表，进行虚假纳税申报，造成河南佳轩贸易有限公司法人代表、投资人王子轩少缴个人所得税133.32万元。
+那么这次议息会议相比此前有哪些重大变化？
 
-2025年11月，税务部门根据《中华人民共和国税收征收管理法实施细则》第九十三条，对沁阳市立达会计服务有限公司作出没收违法所得2万元，并处以企业投资人少缴税款0.5倍罚款66.66万元的处理处罚决定；根据涉税专业服务管理相关规定，对沁阳市立达会计服务有限公司及其实际控制人张秋霞采取列为涉税服务失信主体等措施。
+投资者应如何看待市场波动？
 
-同时，对王子轩依法追征少缴的个人所得税133.32万元。
+政策风向转变，美联储等待“重塑” 一、利率决议：按兵不动，全票通过 美联储联邦公开市场委员会（FOMC）以12票全票赞成，决定将联邦基金利率目标区间维持在3.5%至3.75%不变。
 
-目前，涉案违法所得、税款及罚款均已追缴入库。
+这是美联储连续第四次维持利率不变，上一次降息要追溯到2025年12月。
 
-二、广东省惠州市税务局第一稽查局依法查处涉税中介惠州市展信会计咨询服务有限公司偷税案件。
+二、政策声明：大幅精简，删除宽松表述 声明大幅“瘦身”，除了利率决议外，FOMC会后声明删除了此前暗示未来倾向于宽松政策的措辞，还对声明的其余部分进行了大幅删减。
 
-经查，2021年至2023年，惠州市展信会计咨询服务有限公司通过不计少计收入、利用私人账户收款、虚列成本费用进行虚假申报等方式，少缴增值税、企业所得税等税费款共计103.80万元。
+该声明仅对经济状况进行了简短总结，随后承诺将控制通胀。
 
 ## 相关推荐
 
-- 2026-06-29 17:18 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 17:23 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 17:28 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 17:21 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 17:29 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 17:08 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 17:10 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 17:25 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 17:19 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 17:01 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 17:28 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 17:10 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 17:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 17:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 17:06 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 17:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 17:07 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 17:10 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 17:32 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 17:32 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 17:27 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 17:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:08 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/142334866118.shtml)
-- 2026-06-29 17:20 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/18326069793.shtml)
-- 2026-06-29 17:15 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/725151.shtml)
-- 2026-06-29 17:04 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/39348014496.shtml)
-- 2026-06-29 17:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/400811454.shtml)
-- 2026-06-29 17:03 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/32554.shtml)
-- 2026-06-29 17:18 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/65648.shtml)
-- 2026-06-29 17:17 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/5327221.shtml)
-- 2026-06-29 17:07 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/56589962580.shtml)
-- 2026-06-29 17:17 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/06078146753.shtml)
-- 2026-06-29 17:16 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/18849.shtml)
-- 2026-06-29 17:13 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/517483263.shtml)
-- 2026-06-29 17:10 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/81178661.shtml)
-- 2026-06-29 17:05 - [恋与深空 731](http://www.share.minike.top/Article/details/1027924554.shtml)
-- 2026-06-29 17:03 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/8542973.shtml)
+- 2026-06-29 17:18 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/21328024079.shtml)
+- 2026-06-29 17:16 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/268927.shtml)
+- 2026-06-29 17:23 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/30230121.shtml)
+- 2026-06-29 17:29 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/35472752790.shtml)
+- 2026-06-29 17:22 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/106175200.shtml)
+- 2026-06-29 17:27 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/244279320.shtml)
+- 2026-06-29 17:11 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/385486.shtml)
+- 2026-06-29 17:34 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/9403295.shtml)
+- 2026-06-29 17:23 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/298098858057.shtml)
+- 2026-06-29 17:16 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/570439587.shtml)
+- 2026-06-29 17:21 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/9489763.shtml)
+- 2026-06-29 17:16 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/40208.shtml)
+- 2026-06-29 17:13 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/930509.shtml)
+- 2026-06-29 17:20 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/080092102.shtml)
+- 2026-06-29 17:23 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/007354.shtml)

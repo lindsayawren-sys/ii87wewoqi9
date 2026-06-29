@@ -1,61 +1,57 @@
-# 青藏集团公司管内列车逐步恢复通行 加开临客补齐运力
+# 中国官方：中美禁毒合作成效明显，禁毒部门保持良好合作关系
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网西宁6月17日电(祁增蓓)17日，记者从中国铁路青藏集团有限公司(以下简称“青藏集团公司”)获悉，青海省海西州大柴旦行委发生6.3级地震后，并伴有多次余震，波及青藏集团公司管内格库铁路、敦煌铁路、青藏铁路部分区段。截至记者发稿，当地铁路部门已稳妥处置震后运输险情，逐步恢复列车通行，并加开临客补齐运力。 地震发生后，青藏集团公司第一时间启动Ⅰ级应急响应，紧急扣停青藏铁路西格
+中新社北京6月17日电 (记者 国璇)中国国家禁毒委员会办公室常务副主任、公安部禁毒局局长魏晓军17日在北京召开的新闻发布会上说，中美元首釜山会晤以来，两国禁毒部门紧密合作，取得明显成效，当前中美禁毒部门保持着良好合作关系。“双方开展了很多机制性交流和务实合作，我们与美国白宫国家禁毒政策办公室等政策部门保持联络沟通，定期相互通报工作进展，商讨下步合作优先事项。”魏晓军说，中方与
 
 ## 正文
 
-中新网西宁6月17日电(祁增蓓)17日，记者从中国铁路青藏集团有限公司(以下简称“青藏集团公司”)获悉，青海省海西州大柴旦行委发生6.3级地震后，并伴有多次余震，波及青藏集团公司管内格库铁路、敦煌铁路、青藏铁路部分区段。
+中新社北京6月17日电 (记者 国璇)中国国家禁毒委员会办公室常务副主任、公安部禁毒局局长魏晓军17日在北京召开的新闻发布会上说，中美元首釜山会晤以来，两国禁毒部门紧密合作，取得明显成效，当前中美禁毒部门保持着良好合作关系。
 
-截至记者发稿，当地铁路部门已稳妥处置震后运输险情，逐步恢复列车通行，并加开临客补齐运力。
+“双方开展了很多机制性交流和务实合作，我们与美国白宫国家禁毒政策办公室等政策部门保持联络沟通，定期相互通报工作进展，商讨下步合作优先事项。
 
-地震发生后，青藏集团公司第一时间启动Ⅰ级应急响应，紧急扣停青藏铁路西格段区间7列在途旅客列车，并集结工务、电务、供电等近千名铁路职工，对沿线车站、线路、桥梁、隧道、供电信号设备开展拉网式排查，紧盯余震、山体落石、滑坡等次生灾害风险，严守行车安全底线。
+”魏晓军说，中方与美国缉毒署、联邦调查局和移民海关执法局等执法部门联合侦办多起案件，合作遣返涉毒逃犯。
 
-同时，全方位做好旅客服务保障：西宁客运段落实晚点列车餐食、饮水供应及旅客安抚工作；格尔木、德令哈等车站值守重点区域疏导客流，及时发布行车信息，有序疏导旅客转移至站前广场候车。
+在积极合作应对非列管化学品流入北美制毒渠道方面，2025年11月，商务部等五部委联合发布公告，将13种芬太尼类物质前体化学品和美国、墨西哥、加拿大分别增列到《向特定国家(地区)出口易制毒化学品管理目录》《特定国家(地区)目录》，今年5月又针对上述三国增列了3种芬太尼类物质前体化学品。
 
-针对震后当地大风阴雨天气，德令哈车站联动地方搭建防雨安置设施。
+此外，针对国内少数不法分子向境外贩运列管或非列管前体化学品及新精神活性物质等敏感化学品的情况，中国禁毒部门在全国范围内多轮次部署开展打击管控专项行动，全面强化案件侦办。
 
-西宁站增开退票窗口，召集120名休班职工返岗，已为3000余名旅客办理退改签业务，并联动地方部门完成4000余名滞留旅客转运安置。
+“今年以来，美方在多个场合积极评价中美禁毒合作，并向中方表示感谢；美国的一些专家学者还在《科学》等权威期刊上发表文章，肯定中方的禁毒工作成效。
 
-在完成线路安全排查后，此前震后扣停的在途列车已逐步恢复运行。
+”魏晓军表示，通过合作，中方还根据美方提供的信息和线索侦办了一些案件，对提升中国国内毒品问题治理起到了一定的积极作用。
 
-为弥补地震带来的运力缺口，青藏集团公司于6月17日加开西宁至拉萨Z9807次、Z9809次、Z9811次临时列车，6月18日加开拉萨至西宁Z9808次、Z9810次临时列车，降低地震对民众出行影响。
+他表示，当前，中美禁毒部门保持着良好合作关系，这样的局面来之不易，需要双方继续相向而行、共同维护。
 
 ## 相关推荐
 
-- 2026-06-29 17:26 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 17:20 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 17:18 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 17:05 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 17:25 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 17:12 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 17:18 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 17:27 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 17:12 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 17:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 17:01 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 17:13 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 17:15 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 17:23 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 17:28 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 17:19 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 17:35 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 17:24 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 17:24 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 17:25 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 17:23 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 17:15 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 17:32 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 17:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 17:15 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 17:15 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/8490615.shtml)
-- 2026-06-29 17:26 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/178749.shtml)
-- 2026-06-29 17:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/643187143622.shtml)
-- 2026-06-29 17:02 - [女心理师](http://www.share.minike.top/Article/details/347606628932.shtml)
-- 2026-06-29 17:24 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/2306430974.shtml)
-- 2026-06-29 17:15 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/630385605.shtml)
-- 2026-06-29 17:19 - [范志毅看好日本淘汰巴西](https://www.blog.minike.top/Article/details/533782.shtml)
-- 2026-06-29 17:09 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/8383223482.shtml)
-- 2026-06-29 17:24 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/2617057.shtml)
-- 2026-06-29 17:21 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/32393246.shtml)
-- 2026-06-29 17:28 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/756567469049.shtml)
-- 2026-06-29 17:22 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/922436.shtml)
-- 2026-06-29 17:28 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/8264347.shtml)
-- 2026-06-29 17:12 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/42598887519.shtml)
-- 2026-06-29 17:19 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/12437.shtml)
+- 2026-06-29 17:17 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/45371062.shtml)
+- 2026-06-29 17:35 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/492032261.shtml)
+- 2026-06-29 17:31 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/1252486.shtml)
+- 2026-06-29 17:33 - [看大国重器“云端穿针引线”](http://www.share.minike.top/Article/details/790307236.shtml)
+- 2026-06-29 17:11 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/0033521885.shtml)
+- 2026-06-29 17:10 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/16347.shtml)
+- 2026-06-29 17:08 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/7909143309.shtml)
+- 2026-06-29 17:34 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/757406.shtml)
+- 2026-06-29 17:08 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/57776892.shtml)
+- 2026-06-29 17:25 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/74866201.shtml)
+- 2026-06-29 17:26 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/172837.shtml)
+- 2026-06-29 17:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/2102673921.shtml)
+- 2026-06-29 17:26 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/3624550.shtml)
+- 2026-06-29 17:06 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.minike.top/Article/details/04652657974.shtml)
+- 2026-06-29 17:23 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/24036583549.shtml)

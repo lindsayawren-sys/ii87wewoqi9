@@ -1,54 +1,58 @@
-# 刘珺谈人才梯队：并不特别看中其是否为财经类专业背景 更看重其行业知识
+# 从停战协议到油轮复航，中间隔着“时间差”，市场过早庆祝美伊和平？
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，中国工商银行行长刘珺出席2026陆家嘴论坛，并参加主题为“健全科技金融全生命周期服务体系，服务实体经济高质量发展”的主题演讲。 刘珺指出，现代经济发展需要人才供给的极致组合。现在对于大型金融机构来说，并不特别看中求职者是否是财经类专业的毕业生，更看重其行业知识，是否有行业知识、技术方面的专长、
+汇通网 汇通财经APP讯——近期布伦特原油跌至每桶80美元下方，期货市场因美伊有望达成临时协议出现乐观情绪，但各大能源机构与油企高管集体警示，海峡航运、产能、保险、全球库存均存在长期制约，现货市场供需紧绷的现实并未改变，油价后续仍具备强劲上行动力。 美伊协议难快速修复原油供给，多重损耗短期无法抹平 多家机构提前预判，即便霍尔木兹海峡通航恢复，波斯湾原油产能与出口规模也难以快速回
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，中国工商银行行长刘珺出席2026陆家嘴论坛，并参加主题为“健全科技金融全生命周期服务体系，服务实体经济高质量发展”的主题演讲。
+汇通网 汇通财经APP讯——近期布伦特原油跌至每桶80美元下方，期货市场因美伊有望达成临时协议出现乐观情绪，但各大能源机构与油企高管集体警示，海峡航运、产能、保险、全球库存均存在长期制约，现货市场供需紧绷的现实并未改变，油价后续仍具备强劲上行动力。
 
-刘珺指出，现代经济发展需要人才供给的极致组合。
+美伊协议难快速修复原油供给，多重损耗短期无法抹平 多家机构提前预判，即便霍尔木兹海峡通航恢复，波斯湾原油产能与出口规模也难以快速回归冲突前水平。
 
-现在对于大型金融机构来说，并不特别看中求职者是否是财经类专业的毕业生，更看重其行业知识，是否有行业知识、技术方面的专长、科技方面的掌握。
+能源咨询机构分析师6月初表示，停战协议落地不等于航运立刻复苏，油轮通航节奏修复存在时间差，现阶段全球只能依靠消耗库存维持供需平衡。
 
-如果没有这三方面的知识储备和教育背景，我不相信你会做出很好的科技金融。
+菲利普·诺瓦分析师普里扬卡·萨赫德瓦（Priyanka Sachdeva）表示，冲突造成的负面影响具备长期性，不仅油气基础设施出现实体损毁，原油进口国长期承担高油价带来的经济负担，短期难以消化。
 
-现在我们要求我们的人才队伍的组合是“π型组合”，要求对他对金融知识、市场知识有充分掌握，同时在横线画π出来π的越多越好，说明你对不同的行业有相当有深度的了解，这样人力资源构成体系才是符合现代金融机构发展需求，使得金融机构在财务、资产负债表、数据资产负债表的基础上形成财智资产负债表。
+船舶数据机构Vortexa资深分析师泽维尔·唐（Xavier Tang）指出航运保险是关键阻碍，只有协议落地且保险公司恢复承保，空载油轮通航、油田复产、炼厂重启才会循序渐进推进，不存在油价一次性企稳回升的可能。
 
-责任编辑：曹睿潼
+全球原油库存持续大幅去化，库存低位极易触发油价暴涨 头部石油企业高管纷纷针对库存危机发出预警。
+
+雪佛龙首席执行官迈克·沃思（Mike Wirth）6月初表示，库存收缩带来的压力将逐步传导至现货市场，6至7月油价上行压力会持续放大。
+
+埃克森美孚高级副总裁尼尔·查普曼（Neil Chapman）称当前原油库存跌至历史罕见低位，库存触及临界值后油价将快速冲高。
 
 ## 相关推荐
 
-- 2026-06-29 17:17 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 17:19 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 17:18 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 17:07 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 17:29 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 17:22 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 17:23 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 17:19 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 17:15 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 17:29 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 17:08 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 17:29 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 17:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 17:06 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 17:27 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 17:09 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 17:08 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 17:09 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 17:21 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 17:18 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 17:14 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 17:13 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 17:11 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 17:20 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:10 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/7069233.shtml)
-- 2026-06-29 17:03 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/235701.shtml)
-- 2026-06-29 17:15 - [普京介绍前线战事](http://www.blog.kurohicncr.top/Article/details/0725435685.shtml)
-- 2026-06-29 17:21 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/537053.shtml)
-- 2026-06-29 17:26 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/703877.shtml)
-- 2026-06-29 17:17 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.minike.top/Article/details/0826337.shtml)
-- 2026-06-29 17:15 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/06689912912.shtml)
-- 2026-06-29 17:12 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/81026.shtml)
-- 2026-06-29 17:03 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/38552435024.shtml)
-- 2026-06-29 17:15 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/635552575.shtml)
-- 2026-06-29 17:26 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/925318.shtml)
-- 2026-06-29 17:19 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/504570.shtml)
-- 2026-06-29 17:06 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/45296473505.shtml)
-- 2026-06-29 17:25 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/078471.shtml)
-- 2026-06-29 17:18 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/23284589731.shtml)
+- 2026-06-29 17:28 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/53206054726.shtml)
+- 2026-06-29 17:27 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/637766414.shtml)
+- 2026-06-29 17:13 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/97598.shtml)
+- 2026-06-29 17:35 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/95255019.shtml)
+- 2026-06-29 17:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/263756657885.shtml)
+- 2026-06-29 17:17 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/66781.shtml)
+- 2026-06-29 17:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/98218582044.shtml)
+- 2026-06-29 17:14 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/087923.shtml)
+- 2026-06-29 17:18 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/01294.shtml)
+- 2026-06-29 17:10 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/724137.shtml)
+- 2026-06-29 17:26 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/693335.shtml)
+- 2026-06-29 17:07 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/7301811.shtml)
+- 2026-06-29 17:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/56507075105.shtml)
+- 2026-06-29 17:06 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/34891545045.shtml)
+- 2026-06-29 17:11 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/028685804.shtml)

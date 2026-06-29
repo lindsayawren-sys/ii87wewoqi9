@@ -1,55 +1,57 @@
-# 新疆阜康文物展山西展出：“希腊风”带柄铜镜见证丝路交融
+# 高盛：中国人寿给予“中性”评级 目标价28.5港元
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 13:47 来源：中国新闻网 6月16日，“明月出天山——新疆阜康历史文物展”在山西博物院开展。展览汇集石器、陶器、青铜器、玻璃器、瓷器等近180件珍贵文物，时间跨度从新石器时代直至清代，串联起天山北麓6000年的文明长卷。 阜康位于博格达峰北麓，毗邻天山天池，是丝绸之路北道的必经之地。展柜中，一件“希腊风”带柄铜镜格外引人注目。它下方有一个长
+高盛发布研报称，对中国人寿（02628）评级为中性，基于总资产回报率计算的12个月目标价为28.5港元，对应1.0倍的2027年预期市净率。投资者问题主要集中于销售前景、银保渠道的潜在增长和干扰情况、投资及股息方面。中国人寿重申2026年的目标是实现新业务价值两位数增长，并强调了银保渠道的竞争优势。2026年二季度股市的强劲走势已推动投资表现改善。对于担忧三季度基数效应的投资者
 
 ## 正文
 
-发布时间：2026年06月17日 13:47 来源：中国新闻网 6月16日，“明月出天山——新疆阜康历史文物展”在山西博物院开展。
+高盛发布研报称，对中国人寿（02628）评级为中性，基于总资产回报率计算的12个月目标价为28.5港元，对应1.0倍的2027年预期市净率。
 
-展览汇集石器、陶器、青铜器、玻璃器、瓷器等近180件珍贵文物，时间跨度从新石器时代直至清代，串联起天山北麓6000年的文明长卷。
+投资者问题主要集中于销售前景、银保渠道的潜在增长和干扰情况、投资及股息方面。
 
-阜康位于博格达峰北麓，毗邻天山天池，是丝绸之路北道的必经之地。
+中国人寿重申2026年的目标是实现新业务价值两位数增长，并强调了银保渠道的竞争优势。
 
-展柜中，一件“希腊风”带柄铜镜格外引人注目。
+2026年二季度股市的强劲走势已推动投资表现改善。
 
-它下方有一个长柄，背面刻有希腊罗马风格的勇士形象，柄上饰以植物纹样，印证了丝绸之路不仅是商品通道，更是文化交融的纽带。
+对于担忧三季度基数效应的投资者，中国人寿表示应该关注全年利润，尤其是考虑到四季度较低的基数。
 
-(记者 王惠琳) 责任编辑：【罗攀】
+管理层还将努力降低每股股息的波动幅度。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:15 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 17:25 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 17:18 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 17:17 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 17:16 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 17:15 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 17:21 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 17:15 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 17:06 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 17:15 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 17:18 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 17:07 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 17:05 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 17:34 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 17:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 17:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 17:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 17:11 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 17:27 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 17:07 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 17:23 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 17:15 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 17:06 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 17:11 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 17:32 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 17:33 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/280640836318.shtml)
-- 2026-06-29 17:14 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/10099801347.shtml)
-- 2026-06-29 17:15 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/47647.shtml)
-- 2026-06-29 17:19 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/53294609641.shtml)
-- 2026-06-29 17:03 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/814218.shtml)
-- 2026-06-29 17:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/1670301482.shtml)
-- 2026-06-29 17:07 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/121542827.shtml)
-- 2026-06-29 17:12 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/30012.shtml)
-- 2026-06-29 17:14 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/21807124702.shtml)
-- 2026-06-29 17:17 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/189514637787.shtml)
-- 2026-06-29 17:22 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/4179173.shtml)
-- 2026-06-29 17:00 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/50994101.shtml)
-- 2026-06-29 17:13 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/97258676590.shtml)
-- 2026-06-29 17:26 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/323912651.shtml)
-- 2026-06-29 17:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/99661486238.shtml)
+- 2026-06-29 17:25 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/005796849940.shtml)
+- 2026-06-29 17:23 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/34365799221.shtml)
+- 2026-06-29 17:34 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/146115819847.shtml)
+- 2026-06-29 17:23 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/03701.shtml)
+- 2026-06-29 17:19 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/9501262348.shtml)
+- 2026-06-29 17:15 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/3980664.shtml)
+- 2026-06-29 17:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/10163.shtml)
+- 2026-06-29 17:13 - [急先锋](https://www.share.minike.top/Article/details/8739384410.shtml)
+- 2026-06-29 17:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/264391.shtml)
+- 2026-06-29 17:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/26010.shtml)
+- 2026-06-29 17:27 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/069142330898.shtml)
+- 2026-06-29 17:14 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/9372246.shtml)
+- 2026-06-29 17:11 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/1531404.shtml)
+- 2026-06-29 17:06 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/17766564393.shtml)
+- 2026-06-29 17:17 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/08072852356.shtml)

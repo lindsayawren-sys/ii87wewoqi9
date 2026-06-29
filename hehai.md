@@ -1,57 +1,51 @@
-# 《喜欢你我也是6》首次盲选约会开启，星诉屋上线解锁恋综新玩法
+# 缅甸总统乘高铁抵达杭州 将参观宇树科技
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-由爱奇艺出品、元气森林独家冠名的青年社交观察恋爱治愈系节目《喜欢你我也是》第六季持续热播。本期节目迎来首次“大约会”，随着盲选约会机制开启，小屋情感关系面临打乱重组。 原本逐渐清晰的好感线开始出现新的变量，有人在相处中发现新的心动对象，也有人在比较与选择中重新审视自己的感情方向。与此同时，全新升级的“星诉屋”正式上线，通过与AI表达情感的互动机制，为嘉宾提供了更加私密的情感出口
+发布时间：2026年06月18日 21:10 来源：中国新闻网 6月18日下午，缅甸总统敏昂莱乘坐高铁抵达浙江杭州，杭州是他此次访华的最后一站。在杭州，敏昂莱将走访青士新材料、宇树科技等企业，考察中国在绿色新材料、人工智能领域的发展成果。(记者 孙杨洋 鲍梦妮 编辑 方敏） 责任编辑：【李季】
 
 ## 正文
 
-由爱奇艺出品、元气森林独家冠名的青年社交观察恋爱治愈系节目《喜欢你我也是》第六季持续热播。
+发布时间：2026年06月18日 21:10 来源：中国新闻网 6月18日下午，缅甸总统敏昂莱乘坐高铁抵达浙江杭州，杭州是他此次访华的最后一站。
 
-本期节目迎来首次“大约会”，随着盲选约会机制开启，小屋情感关系面临打乱重组。
+在杭州，敏昂莱将走访青士新材料、宇树科技等企业，考察中国在绿色新材料、人工智能领域的发展成果。
 
-原本逐渐清晰的好感线开始出现新的变量，有人在相处中发现新的心动对象，也有人在比较与选择中重新审视自己的感情方向。
-
-与此同时，全新升级的“星诉屋”正式上线，通过与AI表达情感的互动机制，为嘉宾提供了更加私密的情感出口，也为观众观察亲密关系发展提供了新的视角。
-
-首次盲选约会开启，小屋关系线迎来大洗牌 作为本季开播以来最具看点的环节之一，首次“半场约会”正式开启。
-
-男女嘉宾分别提前准备一幅不透露个人身份与特质的照片，由异性嘉宾仅凭画面内容进行选择，配对成功后开启约会。
-
-在无法提前锁定心动对象的情况下，原本逐渐明朗的关系线被重新打乱，也给不少嘉宾带来了意料之外的新机会。
-
-此前，章梓馨与何江在日常相处中已经积累了不少好感，两人互动频繁，被不少观众视为潜力CP；与此同时，武炼治也在持续向朱昊谦释放好感，杜媛春子、杜晨晨同样对小朱表现出浓厚兴趣。
+(记者 孙杨洋 鲍梦妮 编辑 方敏） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 17:09 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 17:28 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 17:03 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 17:17 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 17:10 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 17:07 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 17:09 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 17:08 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 17:10 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 17:02 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 17:25 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 17:32 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 17:10 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 17:06 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 17:15 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 17:09 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 17:08 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 17:09 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 17:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 17:22 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 17:21 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 17:18 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 17:22 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 17:18 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 17:16 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 17:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/6898056476.shtml)
-- 2026-06-29 17:17 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/430993222.shtml)
-- 2026-06-29 17:25 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/641407.shtml)
-- 2026-06-29 17:16 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/460591970393.shtml)
-- 2026-06-29 17:23 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/182904.shtml)
-- 2026-06-29 17:17 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/959182591150.shtml)
-- 2026-06-29 17:07 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/359408839590.shtml)
-- 2026-06-29 17:01 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/9900502880.shtml)
-- 2026-06-29 17:08 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/812494156.shtml)
-- 2026-06-29 17:15 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/215674531540.shtml)
-- 2026-06-29 17:28 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/619652.shtml)
-- 2026-06-29 17:04 - [爱很美味](http://www.blog.minike.top/Article/details/7469805436.shtml)
-- 2026-06-29 17:02 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/467534.shtml)
-- 2026-06-29 17:11 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/507121051.shtml)
-- 2026-06-29 17:29 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/804805893347.shtml)
+- 2026-06-29 17:06 - [沙丘](http://www.blog.minike.top/Article/details/7743580.shtml)
+- 2026-06-29 17:25 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/17380.shtml)
+- 2026-06-29 17:22 - [沉睡花园](https://www.share.minike.top/Article/details/02252521.shtml)
+- 2026-06-29 17:07 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/64271967671.shtml)
+- 2026-06-29 17:22 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/99196280.shtml)
+- 2026-06-29 17:15 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/65168.shtml)
+- 2026-06-29 17:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/113096431003.shtml)
+- 2026-06-29 17:16 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/5238589571.shtml)
+- 2026-06-29 17:20 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/81576346.shtml)
+- 2026-06-29 17:12 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/50257474.shtml)
+- 2026-06-29 17:35 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/980919204914.shtml)
+- 2026-06-29 17:19 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/7613348.shtml)
+- 2026-06-29 17:30 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/829264662687.shtml)
+- 2026-06-29 17:31 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/5216855937.shtml)
+- 2026-06-29 17:23 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/28842.shtml)

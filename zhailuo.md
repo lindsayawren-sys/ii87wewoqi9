@@ -1,58 +1,59 @@
-# 长江有色：17日镍价微涨 节前贸易商轻仓市场观望氛围浓厚
+# 美国5月份零售销售普遍增长 表明消费者需求强韧
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍区间窄幅震荡，沪期镍主力月2607合约开盘报135870元/吨，盘中最高报136240元/吨，最低价报135280元/吨，收盘报135740元/吨，下跌20元/吨，跌幅0.04%，沪镍主力月2607主力合约成交量149119手。 据长江有色属网统计：6月17日ccmn长江综合1#镍价报135400元/吨-137700元/吨，均价
+5月份，美国消费者增加了在广泛类别的零售商处的支出，表明尽管汽油价格走高，但家庭支出仍然保持强劲。 美国普查局周三公布的数据显示，5月份零售额增长0.9%，为连续四个月增长。该数据未经通胀调整。 加油站销售额增长3.4%，帮助推高了总体数据，因为受伊朗战争影响，5月份汽油价格上涨。剔除加油站收入后，零售额仍稳健增长0.7%。 这份报告显示，进入夏季之际，消费者支出增强，尽管平均
 
 ## 正文
 
-长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍区间窄幅震荡，沪期镍主力月2607合约开盘报135870元/吨，盘中最高报136240元/吨，最低价报135280元/吨，收盘报135740元/吨，下跌20元/吨，跌幅0.04%，沪镍主力月2607主力合约成交量149119手。
+5月份，美国消费者增加了在广泛类别的零售商处的支出，表明尽管汽油价格走高，但家庭支出仍然保持强劲。
 
-据长江有色属网统计：6月17日ccmn长江综合1#镍价报135400元/吨-137700元/吨，均价报136550元/吨，较前一日价格上涨250元，长江现货1#镍报135550元/吨-137550元/吨，均价报136550元/吨，较前一日价格上涨200元，广东现货镍报137250元/吨-137650元/吨，均价报137450元/吨，较前一日价格上涨550元。
+美国普查局周三公布的数据显示，5月份零售额增长0.9%，为连续四个月增长。
 
-宏观面影响因素 6.17-18 美联储议息来袭，5 月美国就业、CPI 数据偏强，鹰派表态将推高美元美债利率施压金属；欧央行同步加息，欧元区制造业低迷拖累 LME 外盘需求。
+该数据未经通胀调整。
 
-国内政策托底明显，矿产新规收紧战略金属供给，万亿基建及高耗能产能出清支撑铜铝钢价。
+加油站销售额增长3.4%，帮助推高了总体数据，因为受伊朗战争影响，5月份汽油价格上涨。
 
-但眼下制造业、地产、电动车步入淡季，下游备货低迷，多头获利离场及端午资金避险，叠加海外矿新增投放，金属多空博弈加剧，短期维持区间震荡。
+剔除加油站收入后，零售额仍稳健增长0.7%。
 
-全品类镍原料供需分化，产业链偏弱运行 红土镍矿受印尼年度开采配额收紧约束，高品位矿流通偏紧，菲律宾增量仅小幅对冲缺口；硫化镍矿资源稀缺，供应保持稳定。
+这份报告显示，进入夏季之际，消费者支出增强，尽管平均汽油价格升至近4年来最高水平。
 
-高冰镍产出小幅增加，但下游产线适配不足，交投清淡；氢氧化镍钴受硫磺紧缺拖累冶炼负荷，货源偏紧支撑中间品报价。
+企业也指出需求保持坚挺，包括塔吉特公司和沃尔玛公司在内的大型零售商暗示，尽管经历了多年高通胀，消费仍具韧性。
 
-再生镍流通量充足，持续拖累现货低价。
+美国银行的经济学家Shruti Mishra表示：“支出增长相当广泛。
 
 ## 相关推荐
 
-- 2026-06-29 17:26 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 17:03 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 17:06 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 17:04 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 17:00 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 17:08 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 17:12 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 17:13 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 17:11 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 17:25 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 17:27 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 17:05 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 17:14 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 17:19 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 17:12 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 17:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 17:28 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 17:06 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 17:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 17:22 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 17:30 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 17:27 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 17:11 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 17:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 17:15 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [东方风云榜](http://www.blog.minike.top/Article/details/317922830.shtml)
-- 2026-06-29 17:20 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/373195.shtml)
-- 2026-06-29 17:01 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/493416871.shtml)
-- 2026-06-29 17:00 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/495304365358.shtml)
-- 2026-06-29 17:16 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/570382.shtml)
-- 2026-06-29 17:14 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/614751007.shtml)
-- 2026-06-29 17:02 - [东方风云榜](https://www.share.minike.top/Article/details/073334437.shtml)
-- 2026-06-29 17:11 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/759566.shtml)
-- 2026-06-29 17:16 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/30107048472.shtml)
-- 2026-06-29 17:20 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/4335148.shtml)
-- 2026-06-29 17:07 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/2806018923.shtml)
-- 2026-06-29 17:12 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/414067960438.shtml)
-- 2026-06-29 17:22 - [王安宇尊重田曦薇的一切选择](https://www.blog.kurohicncr.top/Article/details/07727.shtml)
-- 2026-06-29 17:07 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/6119502378.shtml)
-- 2026-06-29 17:10 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/8382391273.shtml)
+- 2026-06-29 17:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/8806520.shtml)
+- 2026-06-29 17:12 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/93724.shtml)
+- 2026-06-29 17:13 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/95504.shtml)
+- 2026-06-29 17:20 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/6135652258.shtml)
+- 2026-06-29 17:11 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/0253737764.shtml)
+- 2026-06-29 17:06 - [青春环游记第三季](https://www.blog.minike.top/Article/details/14367208132.shtml)
+- 2026-06-29 17:32 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/97193357764.shtml)
+- 2026-06-29 17:22 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/500233.shtml)
+- 2026-06-29 17:29 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/42067988223.shtml)
+- 2026-06-29 17:23 - [业内：全球市场迎来结构性投资窗口](https://www.share.kurohicncr.top/Article/details/2742052221.shtml)
+- 2026-06-29 17:11 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/818906.shtml)
+- 2026-06-29 17:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/862895077.shtml)
+- 2026-06-29 17:24 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/430558457.shtml)
+- 2026-06-29 17:27 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/5760455370.shtml)
+- 2026-06-29 17:07 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/49116478.shtml)

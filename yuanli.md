@@ -1,42 +1,58 @@
-# 金融监管总局局长丁向群亮相陆家嘴论坛：金融监管要切实做到“长牙带刺”
+# 1至5月云南新能源电池产业增加值同比增长78.2％
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 13:57 来源：中国新闻网 金融监管总局局长丁向群亮相陆家嘴论坛：金融监管要切实做到“长牙带刺” 责任编辑：【李光伟】
+中新网昆明6月18日电 (记者 韩帅南)云南省统计局、国家统计局云南调查总队18日发布今年1至5月云南省经济运行情况。1至5月，云南省新能源电池产业发展加快，增加值同比增长78.2%。 1至5月，云南省绿色铝产业延续良好增长态势，增加值同比增长9.7%。重点行业中，电力行业增加值增长2.1%，有色行业增长2.5%，农副食品加工业、食品制造业分别增长4.3%、4.9%。 能源方面
 
 ## 正文
 
-发布时间：2026年06月17日 13:57 来源：中国新闻网 金融监管总局局长丁向群亮相陆家嘴论坛：金融监管要切实做到“长牙带刺” 责任编辑：【李光伟】
+中新网昆明6月18日电 (记者 韩帅南)云南省统计局、国家统计局云南调查总队18日发布今年1至5月云南省经济运行情况。
+
+1至5月，云南省新能源电池产业发展加快，增加值同比增长78.2%。
+
+1至5月，云南省绿色铝产业延续良好增长态势，增加值同比增长9.7%。
+
+重点行业中，电力行业增加值增长2.1%，有色行业增长2.5%，农副食品加工业、食品制造业分别增长4.3%、4.9%。
+
+能源方面，1至5月全省规模以上工业发电量1620.65亿千瓦时，同比增长0.8%。
+
+分品种看，火力发电量下降9.9%，水力发电量下降0.4%，风力发电量增长4%，太阳能发电量增长21.5%。
+
+清洁电力占比达83.3%，较上年同期提高2.2个百分点。
+
+从消费端看，规模以上工业综合能源消费量(当量热值)增长2.6%，规模以上工业用电量增长5.9%，全社会用电量增长7.6%。
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 17:05 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 17:27 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 17:01 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 17:24 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 17:29 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 17:20 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 17:01 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 17:04 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 17:19 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 17:19 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 17:25 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 17:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 17:06 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 17:16 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 17:06 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 17:21 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 17:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 17:24 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 17:20 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 17:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 17:08 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/860702.shtml)
-- 2026-06-29 17:16 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/73551631163.shtml)
-- 2026-06-29 17:07 - [天道](https://www.share.minike.top/Article/details/0030748.shtml)
-- 2026-06-29 17:00 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/616062663446.shtml)
-- 2026-06-29 17:27 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/175052139.shtml)
-- 2026-06-29 17:10 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/2571940942.shtml)
-- 2026-06-29 17:03 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/59871102272.shtml)
-- 2026-06-29 17:24 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/48457356576.shtml)
-- 2026-06-29 17:13 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/7998961259.shtml)
-- 2026-06-29 17:23 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/35508.shtml)
-- 2026-06-29 17:11 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/287208868.shtml)
-- 2026-06-29 17:22 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/10000.shtml)
-- 2026-06-29 17:18 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/862911075169.shtml)
-- 2026-06-29 17:05 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/896441804.shtml)
-- 2026-06-29 17:18 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/91147.shtml)
+- 2026-06-29 17:34 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.minike.top/Article/details/50581242621.shtml)
+- 2026-06-29 17:29 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/300658976.shtml)
+- 2026-06-29 17:08 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/4005412532.shtml)
+- 2026-06-29 17:23 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/041431880.shtml)
+- 2026-06-29 17:11 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/4935463.shtml)
+- 2026-06-29 17:16 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/7340130577.shtml)
+- 2026-06-29 17:34 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/59505394.shtml)
+- 2026-06-29 17:32 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/5971045882.shtml)
+- 2026-06-29 17:26 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/78990812.shtml)
+- 2026-06-29 17:30 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/870474360037.shtml)
+- 2026-06-29 17:32 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/16221123.shtml)
+- 2026-06-29 17:28 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/586666.shtml)
+- 2026-06-29 17:18 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/41840018.shtml)
+- 2026-06-29 17:23 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/80889.shtml)
+- 2026-06-29 17:33 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/914150464466.shtml)

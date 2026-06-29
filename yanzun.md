@@ -1,45 +1,56 @@
-# 自然资源部组织开展我国台湾岛以东管辖海域海洋环境调查
+# 马上评｜办五粮液案却扣押茅台，酒去哪儿了？
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据自然资源部网站消息，为全面了解我国管辖海域自然生态状况，支撑服务海洋生态保护，6月16日至18日，自然资源部东海局“向阳红22”船在我国台湾岛以东海域开展了海洋环境调查。 此次调查采用多学科同步调查手段，采集了海水环境DNA、鸟类、鲸豚类、海洋化学和水文气象等数据，为我国进一步掌握该海域关键生境状况，开展生态系统健康状况评价奠定了基础，也为在该海域开展海洋
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 警方跨省侦办五粮液（维权）假酒案，却扣了159瓶茅台酒。三年后，被扣押的茅台出现多瓶缺失及空瓶现象。茅台酒去哪儿了？ 2023年四川宜宾珙县警方前往沈阳查假五粮液，却扣走酒商何先生的159瓶茅台，此后警方以其涉嫌销售假酒移送检方起诉。今年5月，何先生在珙县公安局食药环侦大队查验发现，多瓶高价茅台酒缺失，部分茅台酒已被开启
 
 ## 正文
 
-中新网6月18日电 据自然资源部网站消息，为全面了解我国管辖海域自然生态状况，支撑服务海洋生态保护，6月16日至18日，自然资源部东海局“向阳红22”船在我国台湾岛以东海域开展了海洋环境调查。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 警方跨省侦办五粮液（维权）假酒案，却扣了159瓶茅台酒。
 
-此次调查采用多学科同步调查手段，采集了海水环境DNA、鸟类、鲸豚类、海洋化学和水文气象等数据，为我国进一步掌握该海域关键生境状况，开展生态系统健康状况评价奠定了基础，也为在该海域开展海洋生物多样性保护提供了科学依据。
+三年后，被扣押的茅台出现多瓶缺失及空瓶现象。
+
+茅台酒去哪儿了？
+
+2023年四川宜宾珙县警方前往沈阳查假五粮液，却扣走酒商何先生的159瓶茅台，此后警方以其涉嫌销售假酒移送检方起诉。
+
+今年5月，何先生在珙县公安局食药环侦大队查验发现，多瓶高价茅台酒缺失，部分茅台酒已被开启变成空瓶。
+
+6月17日，宜宾市公安局督审支队工作人员回应澎湃新闻：“正进行内部调查”。
+
+首先，茅台酒不该扣押。
+
+一码归一码，酒商涉嫌售卖假酒，应该被调查处罚；警方办案也应该严格遵守法律规定和法定程序。
 
 ## 相关推荐
 
-- 2026-06-29 17:18 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 17:28 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 17:16 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 17:18 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 17:10 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 17:04 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 17:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 17:20 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 17:06 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 17:26 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 17:23 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 17:08 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 17:21 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 17:17 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 17:21 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 17:17 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 17:27 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 17:16 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 17:25 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 17:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 17:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/8065777468.shtml)
-- 2026-06-29 17:07 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/3404969.shtml)
-- 2026-06-29 17:08 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/66113500.shtml)
-- 2026-06-29 17:29 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/45641444.shtml)
-- 2026-06-29 17:28 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/70063298472.shtml)
-- 2026-06-29 17:25 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/962014950226.shtml)
-- 2026-06-29 17:27 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/90651805532.shtml)
-- 2026-06-29 17:22 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/4249602592.shtml)
-- 2026-06-29 17:26 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/38990614.shtml)
-- 2026-06-29 17:24 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/8585007.shtml)
-- 2026-06-29 17:04 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/769596221473.shtml)
-- 2026-06-29 17:07 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/5598788.shtml)
-- 2026-06-29 17:04 - [博主：黄金和原油回落不等于风险消失](http://www.blog.minike.top/Article/details/57168.shtml)
-- 2026-06-29 17:20 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/93222210511.shtml)
-- 2026-06-29 17:12 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/04626593054.shtml)
+- 2026-06-29 17:21 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/52473233.shtml)
+- 2026-06-29 17:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/000946934.shtml)
+- 2026-06-29 17:31 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/4493088721.shtml)
+- 2026-06-29 17:13 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/5902476608.shtml)
+- 2026-06-29 17:19 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/8987442135.shtml)
+- 2026-06-29 17:16 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/883424227.shtml)
+- 2026-06-29 17:19 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/53795930118.shtml)
+- 2026-06-29 17:26 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/60282800.shtml)
+- 2026-06-29 17:22 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/30620131.shtml)
+- 2026-06-29 17:10 - [《贺子珍》](http://www.share.minike.top/Article/details/014634144.shtml)
+- 2026-06-29 17:31 - [日本偶像龟梨和也宣布结婚](http://www.share.kurohicncr.top/Article/details/7665934.shtml)
+- 2026-06-29 17:13 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/32941947939.shtml)
+- 2026-06-29 17:14 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/548615.shtml)
+- 2026-06-29 17:34 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/6293550195.shtml)
+- 2026-06-29 17:33 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/352610791.shtml)

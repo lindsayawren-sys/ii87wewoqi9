@@ -1,56 +1,61 @@
-# 需求转淡，6月中旬湖北鸡蛋价格高位回落
+# 今夜！美联储，重磅来袭！
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-卓创资讯鸡蛋市场分析师王金玉 【导语】6月中旬湖北鸡蛋价格高位回落，截止到16日，蛋价累计下跌0.24元/斤，跌幅4.66%。端午备货收尾、市场避险情绪升温叠加梅雨季节来临，需求转淡主导价格走势，预计下旬湖北蛋价仍有下调空间。 需求转淡，6月中旬湖北鸡蛋价格回调 进入6月中旬，持续偏强运行的湖北鸡蛋市场迎来转折，价格结束上行趋势，进入阶段性回调通道。据卓创资讯监测数据显示，湖北
+全球关注。 当地时间6月17日下午2点（北京时间18日凌晨2点），美联储联邦公开市场委员会（FOMC）将发布最新的议息结果，随后新任主席凯文·沃什（Kevin Warsh）将举行履职后的首次新闻发布会。 目前，市场普遍预期，美联储将继续维持基准利率不变。但美联储政策声明的措辞如何变化，新主席沃什是否会提交个人利率路径预期，以及他将在新闻发布会上如何解读通胀与利率前景，都将成为市
 
 ## 正文
 
-卓创资讯鸡蛋市场分析师王金玉 【导语】6月中旬湖北鸡蛋价格高位回落，截止到16日，蛋价累计下跌0.24元/斤，跌幅4.66%。
+全球关注。
 
-端午备货收尾、市场避险情绪升温叠加梅雨季节来临，需求转淡主导价格走势，预计下旬湖北蛋价仍有下调空间。
+当地时间6月17日下午2点（北京时间18日凌晨2点），美联储联邦公开市场委员会（FOMC）将发布最新的议息结果，随后新任主席凯文·沃什（Kevin Warsh）将举行履职后的首次新闻发布会。
 
-需求转淡，6月中旬湖北鸡蛋价格回调 进入6月中旬，持续偏强运行的湖北鸡蛋市场迎来转折，价格结束上行趋势，进入阶段性回调通道。
+目前，市场普遍预期，美联储将继续维持基准利率不变。
 
-据卓创资讯监测数据显示，湖北主产区鸡蛋出场价从6月11日的5.15元/斤高位回落，截至6月16日降至4.91元/斤，累计下跌0.24元/斤，跌幅4.66%。
+但美联储政策声明的措辞如何变化，新主席沃什是否会提交个人利率路径预期，以及他将在新闻发布会上如何解读通胀与利率前景，都将成为市场关注的焦点。
 
-随着节前集中备货结束，市场避险情绪升温，湖北蛋价高位承压下行。
+美联储大概率维持利率不变 当前美国通胀水平持续维持高位，而就业形势良好。
 
-图1 湖北鸡蛋价格走势图 数据来源：卓创资讯 本轮蛋价回调的核心逻辑在于需求端的转弱。
+数据显示，美国5月CPI同比升至4.2%，创三年新高，中东地缘冲突推升能源价格，叠加关税政策持续传导，通胀距离2%长期目标仍存在显著差距；就业市场韧性超预期，当月新增非农就业17.2万人，近乎市场预期两倍，失业率维持4.3%低位，双重指标均不支撑降息操作。
 
-端午节作为上半年重要消费节点，节前经销商、商超、农贸市场及终端用户均已完成集中备货，节前刚需得到充分释放。
+市场几乎完全定价本次会议维持3.5%—3.75%基准利率区间不变。
 
-备货周期结束后，市场需求进入扫尾阶段，整体消费力度明显回落。
+芝加哥商品交易所（CME）美联储观察工具显示6月降息概率趋近于零，但年末加息概率达42%。
 
 ## 相关推荐
 
-- 2026-06-29 17:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 17:02 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 17:02 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 17:05 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-29 17:00 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 17:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 17:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 17:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 17:05 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 17:02 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 17:16 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 17:24 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 17:08 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 17:12 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 17:25 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 17:11 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 17:32 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 17:30 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 17:13 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 17:22 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 17:10 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 17:12 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 17:19 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 17:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 17:09 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/0034478.shtml)
-- 2026-06-29 17:00 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/987694927.shtml)
-- 2026-06-29 17:04 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/15137360628.shtml)
-- 2026-06-29 17:28 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/080901332856.shtml)
-- 2026-06-29 17:29 - [12所大学更正招生目录](http://www.share.minike.top/Article/details/71794678803.shtml)
-- 2026-06-29 17:12 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/29509.shtml)
-- 2026-06-29 17:18 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/85656735454.shtml)
-- 2026-06-29 17:15 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/2779648.shtml)
-- 2026-06-29 17:16 - [东方风云榜](http://www.share.minike.top/Article/details/23192917.shtml)
-- 2026-06-29 17:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/899989712624.shtml)
-- 2026-06-29 17:10 - [天道](http://www.blog.minike.top/Article/details/6102115.shtml)
-- 2026-06-29 17:27 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/77514878759.shtml)
-- 2026-06-29 17:13 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/965108.shtml)
-- 2026-06-29 17:06 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/851581917380.shtml)
-- 2026-06-29 17:08 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/520515870612.shtml)
+- 2026-06-29 17:32 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/409733862817.shtml)
+- 2026-06-29 17:15 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/227817.shtml)
+- 2026-06-29 17:30 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/94620368.shtml)
+- 2026-06-29 17:12 - [叠纸客服回应恋与深空新角色争议](https://www.blog.kurohicncr.top/Article/details/159604717898.shtml)
+- 2026-06-29 17:14 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/354861898623.shtml)
+- 2026-06-29 17:13 - [沙丘](https://www.share.kurohicncr.top/Article/details/1759711020.shtml)
+- 2026-06-29 17:21 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/6885798.shtml)
+- 2026-06-29 17:26 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/219776014359.shtml)
+- 2026-06-29 17:07 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/482550786930.shtml)
+- 2026-06-29 17:20 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/1597535.shtml)
+- 2026-06-29 17:30 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/652696.shtml)
+- 2026-06-29 17:35 - [流金岁月](https://www.share.minike.top/Article/details/94552507.shtml)
+- 2026-06-29 17:34 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/899503.shtml)
+- 2026-06-29 17:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/528590.shtml)
+- 2026-06-29 17:31 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/21272872642.shtml)

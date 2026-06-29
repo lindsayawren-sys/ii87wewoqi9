@@ -1,61 +1,60 @@
-# 豪掷50亿押注DeepSeek，宁王跨界AI背后藏何“阳谋”？
+# 盘前：纳指期货涨0.41% 市场等待美联储利率决定
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：环球老虎财经app 6月16日，DeepSeek首轮510亿元融资接近尾声，投后估值接近500亿美元。尤受外界关注的是，宁德时代豪掷50亿元争抢DeepSeek份额。这不禁引发遐想——为何一家电池巨头要跨界押注AI？宁王这笔钱背后，究竟藏着什么心思？ 6月16日，据多家媒体报道，DeepSeek首轮融
+美国股指期货涨跌互现，投资者在等待美联储政策决定及利率前景指引，油价则在前期连续下跌后企稳整理。通胀降温预期升温，推动全球债券收益率走低。 截至发稿，道指期货跌0.02%，标普500指数期货涨0.05%，纳指期货涨0.41%。 欧洲股市方面，泛欧STOXX 600指数小幅上涨0.1%，维持在历史高位附近；英国富时指数小幅走弱。BMWYY>宝马股价一度下跌高达12%，因下调业绩预
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国股指期货涨跌互现，投资者在等待美联储政策决定及利率前景指引，油价则在前期连续下跌后企稳整理。
 
-来源：环球老虎财经app 6月16日，DeepSeek首轮510亿元融资接近尾声，投后估值接近500亿美元。
+通胀降温预期升温，推动全球债券收益率走低。
 
-尤受外界关注的是，宁德时代豪掷50亿元争抢DeepSeek份额。
+截至发稿，道指期货跌0.02%，标普500指数期货涨0.05%，纳指期货涨0.41%。
 
-这不禁引发遐想——为何一家电池巨头要跨界押注AI？
+欧洲股市方面，泛欧STOXX 600指数小幅上涨0.1%，维持在历史高位附近；英国富时指数小幅走弱。
 
-宁王这笔钱背后，究竟藏着什么心思？
+BMWYY>宝马股价一度下跌高达12%，因下调业绩预期并警告中国需求疲软及中东局势影响。
 
-6月16日，据多家媒体报道，DeepSeek首轮融资计划达成，此次共募资510亿元，投后估值500亿美元。
+德国DAX指数下跌0.15%。
 
-据悉，公司创始人梁文锋本人出资200亿元，腾讯出资100亿元，宁德时代系出资50亿元，参投方还包括国家人工智能产业投资基金、京东、网易、IDG资本等。
+巴黎CAC 40指数上涨0.1%，意大利FTSE MIB与西班牙IBEX 35下跌0.1%，荷兰AEX上涨0.2%。
 
-值得注意的是，宁德时代是仅有的以AI上游储能电池大厂身份参与投资的股东方。
+亚洲市场方面，MSCI亚太（除日本）指数上涨0.4%，日经225指数上涨0.7%，韩国综指上涨1.6%并再创历史新高，AI相关股票领涨，SK海力士上涨5.8%。
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 17:27 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 17:04 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 17:14 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 17:02 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 17:19 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 17:16 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 17:19 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 17:24 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 17:09 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 17:24 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 17:24 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 17:07 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 17:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 17:05 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 17:25 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 17:13 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 17:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 17:17 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 17:34 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 17:30 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 17:18 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 17:26 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 17:15 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 17:13 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 17:28 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 17:18 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 17:26 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 17:17 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:16 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/6609485.shtml)
-- 2026-06-29 17:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/74610.shtml)
-- 2026-06-29 17:18 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/713350.shtml)
-- 2026-06-29 17:24 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/43109.shtml)
-- 2026-06-29 17:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/213690.shtml)
-- 2026-06-29 17:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/398056863118.shtml)
-- 2026-06-29 17:17 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/974682533.shtml)
-- 2026-06-29 17:12 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/4628893.shtml)
-- 2026-06-29 17:05 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/310662319.shtml)
-- 2026-06-29 17:24 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.minike.top/Article/details/39465.shtml)
-- 2026-06-29 17:01 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/700928.shtml)
-- 2026-06-29 17:29 - [王俊凯命名方式](https://www.share.minike.top/Article/details/5552899908.shtml)
-- 2026-06-29 17:14 - [扬名立万](http://www.share.kurohicncr.top/Article/details/00637573292.shtml)
-- 2026-06-29 17:01 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/82636436.shtml)
-- 2026-06-29 17:00 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/335499198.shtml)
+- 2026-06-29 17:33 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/2127057.shtml)
+- 2026-06-29 17:28 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/032774535.shtml)
+- 2026-06-29 17:33 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/3928281051.shtml)
+- 2026-06-29 17:19 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/3571620958.shtml)
+- 2026-06-29 17:09 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/45111362.shtml)
+- 2026-06-29 17:10 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/0440749633.shtml)
+- 2026-06-29 17:18 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/5095132227.shtml)
+- 2026-06-29 17:10 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/61012.shtml)
+- 2026-06-29 17:30 - [工作靠AI算不算职场作弊](https://www.blog.minike.top/Article/details/593064985496.shtml)
+- 2026-06-29 17:30 - [T1 KC](http://www.share.minike.top/Article/details/54525579603.shtml)
+- 2026-06-29 17:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/8508385.shtml)
+- 2026-06-29 17:27 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/19436685.shtml)
+- 2026-06-29 17:12 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/154122222.shtml)
+- 2026-06-29 17:31 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/49307652.shtml)
+- 2026-06-29 17:16 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/5040143945.shtml)

@@ -1,61 +1,60 @@
-# 前5月湖南工程机械对非出口额增长超八成
+# 从规模扩张到功能升级 离岸金融锚定上海金融发展新阶段
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月17日电(丁仲熙 肖琛)长沙海关17日发布数据，2026年前5月，湖南省工程机械出口总额达173亿元，同比上涨20.1%，产业出海势头强劲。非洲市场成为拉动增长的重要支点，前5月湖南工程机械对非出口额同比增长85.2%。今年前5月，湖南对共建“一带一路”国家出口工程机械140.2亿元，同比增长23.2%，占全省出口总量81.1%，增速高于整体水平3.1个百分点。细
+中新社上海6月17日电 (高志苗)以“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”为主题的2026陆家嘴论坛17日在上海开幕，《上海国际金融中心发展离岸金融行动方案》同期发布。从规模扩张到功能升级，离岸金融行动方案锚定上海国际金融中心发展新阶段。 该《行动方案》从支持在浦东新区开展离岸金融先行先试、资金流动与账户管理、数字化应用、离岸金融业务、离岸金融法律制度体系、
 
 ## 正文
 
-中新网长沙6月17日电(丁仲熙 肖琛)长沙海关17日发布数据，2026年前5月，湖南省工程机械出口总额达173亿元，同比上涨20.1%，产业出海势头强劲。
+中新社上海6月17日电 (高志苗)以“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”为主题的2026陆家嘴论坛17日在上海开幕，《上海国际金融中心发展离岸金融行动方案》同期发布。
 
-非洲市场成为拉动增长的重要支点，前5月湖南工程机械对非出口额同比增长85.2%。
+从规模扩张到功能升级，离岸金融行动方案锚定上海国际金融中心发展新阶段。
 
-今年前5月，湖南对共建“一带一路”国家出口工程机械140.2亿元，同比增长23.2%，占全省出口总量81.1%，增速高于整体水平3.1个百分点。
+该《行动方案》从支持在浦东新区开展离岸金融先行先试、资金流动与账户管理、数字化应用、离岸金融业务、离岸金融法律制度体系、离岸金融监管和风险防控、统筹推进实施等方面提出重点举措，对加快上海国际金融中心建设和在更深层次、更宽领域推进金融高水平开放具有重要意义。
 
-细分区域来看，东盟出口涨幅27.2%，中亚五国增速达到35.5%；非洲、拉美、欧盟市场表现亮眼，出口额依次为25.5亿元、25亿元、11.6亿元，同比分别增长85.2%、43.7%、28.7%；越南、俄罗斯等重点国别出口同样稳步走高。
+上海交通大学上海高级金融学院金融学教授朱宁在论坛上接受中新社采访时表示，上海自贸区的金融改革试验，一开始就带有清晰的方法论特征：“沙盒式”风险可控的创新，以贸易金融为起点，逐步积累制度经验。
 
-非洲市场的爆发式增长，成为本次出口最大亮点。
+经过多年探索，改革正步入“深水区”，下一阶段的核心不在于简单的业务扩围，而在于从“经常账户下的便利化”向“资本账户下的有序开放”跨越，从“规模限制的逐步放松”向“规则层面与香港基本等同”迈进。
 
-非洲约75%挖掘机需求来源于矿产开采业务，前5月湖南对马里、几内亚工程机械出口分别大增171.9%、179.7%，对加纳出口涨幅也达到89.1%。
+同济大学经济与管理学院经济学长聘特聘教授、财经研究所所长石建勋则指出，《行动方案》的核心逻辑是“基于风险管理能力，渐进式推进高水平制度型开放”，走的是“在岸引领、离岸探索、账户隔离”的务实路径。
 
-民营企业扛起出口主力大旗。
+“通过技术赋能，在风险可控的‘试验田’里，先建成一套高标准的离岸金融微循环系统，再将成熟经验和监管能力向更广范围复制推广。
 
-前5月，湖南民企工程机械出口154亿元，同比增长39.8%，在整体出口规模中占比高达89%；外商投资企业、国有企业分别出口17.3亿元、1.7亿元，市场主体结构持续优化，民营经济释放充沛外贸活力。
+” 上海市经济学会副秘书长邓志超也表示，《行动方案》将发展离岸金融的落脚点聚焦于服务中国近年来快速增长的“离岸经济金融需求”。
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 17:14 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 17:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 17:01 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 17:09 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 17:21 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 17:02 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 17:05 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 17:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 17:12 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 17:24 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 17:29 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 17:06 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 17:11 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 17:21 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 17:10 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 17:25 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 17:08 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 17:28 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 17:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 17:35 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 17:10 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 17:22 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 17:19 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 17:23 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 17:35 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 17:33 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 17:27 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 17:19 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:29 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/4071123.shtml)
-- 2026-06-29 17:21 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/163709005094.shtml)
-- 2026-06-29 17:25 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/0839374.shtml)
-- 2026-06-29 17:21 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/6238621.shtml)
-- 2026-06-29 17:14 - [沙丘](http://www.share.kurohicncr.top/Article/details/2510153.shtml)
-- 2026-06-29 17:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/5088073236.shtml)
-- 2026-06-29 17:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/11359722.shtml)
-- 2026-06-29 17:07 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/0856862760.shtml)
-- 2026-06-29 17:05 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/5683297.shtml)
-- 2026-06-29 17:05 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/81132081061.shtml)
-- 2026-06-29 17:07 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/526332960720.shtml)
-- 2026-06-29 17:27 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/4924526.shtml)
-- 2026-06-29 17:21 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/0243801984.shtml)
-- 2026-06-29 17:27 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/874585052.shtml)
-- 2026-06-29 17:17 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.minike.top/Article/details/37865862.shtml)
+- 2026-06-29 17:18 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/75698820.shtml)
+- 2026-06-29 17:07 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/0855631326.shtml)
+- 2026-06-29 17:28 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/223337037.shtml)
+- 2026-06-29 17:26 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/3082968583.shtml)
+- 2026-06-29 17:35 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/24074.shtml)
+- 2026-06-29 17:21 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/693195229917.shtml)
+- 2026-06-29 17:28 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/7587743.shtml)
+- 2026-06-29 17:35 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/3061040.shtml)
+- 2026-06-29 17:07 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/898764333.shtml)
+- 2026-06-29 17:32 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/96872261538.shtml)
+- 2026-06-29 17:13 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/814500478484.shtml)
+- 2026-06-29 17:19 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.minike.top/Article/details/7396241.shtml)
+- 2026-06-29 17:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/296845067896.shtml)
+- 2026-06-29 17:19 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/38872420.shtml)
+- 2026-06-29 17:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/625931842.shtml)

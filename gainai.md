@@ -1,58 +1,44 @@
-# 上任一周，钉钉新CEO陈宇森宣布组织调整
+# 甘咨询：公司制定了《违规经营投资责任追究办法》《应收账款管理办法》等相关制度
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-6月18日消息，90后技术极客陈宇森接任钉钉CEO一周后，首次在内部发出全员信，宣布一系列组织调整，他在信中的落款为 “宇森 悟空事业部CEO”。 具体调整如下：成立核心平台业务部，负责钉钉等一系列核心业务，由朱鸿负责，向陈宇森汇报；整合悟空与MuleRun两个团队，成立新的悟空团队，由束骏亮负责，向陈宇森汇报。 将直销、电销、服务商、售前、交付、客户成功团队全面整合，成立客户
+证券日报网讯 6月18日，甘咨询在互动平台回答投资者提问时表示，公司制定了《违规经营投资责任追究办法》《应收账款管理办法》等相关制度，完善了“经营管理有关人员违反规定，未履行或未正确履行职责，在经营投资中造成国有资产损失以及其他严重不良后果，经调查核实和责任认定，对相关责任人进行问责处理”“市场运营部会同党委组织部（人力资源部）对应收账款的回收情况与相关业务部门和人员的绩效考核
 
 ## 正文
 
-6月18日消息，90后技术极客陈宇森接任钉钉CEO一周后，首次在内部发出全员信，宣布一系列组织调整，他在信中的落款为 “宇森 悟空事业部CEO”。
+证券日报网讯 6月18日，甘咨询在互动平台回答投资者提问时表示，公司制定了《违规经营投资责任追究办法》《应收账款管理办法》等相关制度，完善了“经营管理有关人员违反规定，未履行或未正确履行职责，在经营投资中造成国有资产损失以及其他严重不良后果，经调查核实和责任认定，对相关责任人进行问责处理”“市场运营部会同党委组织部（人力资源部）对应收账款的回收情况与相关业务部门和人员的绩效考核及其奖惩相挂钩”等相关问责机制。
 
-具体调整如下：成立核心平台业务部，负责钉钉等一系列核心业务，由朱鸿负责，向陈宇森汇报；整合悟空与MuleRun两个团队，成立新的悟空团队，由束骏亮负责，向陈宇森汇报。
-
-将直销、电销、服务商、售前、交付、客户成功团队全面整合，成立客户发展部，由杨猛负责，向陈宇森汇报；成立市场部，由李昕瑜负责，向陈宇森汇报。
-
-此外，还成立公司信息技术部，负责优化迭代公司各业务系统，让一切系统易于被Agent使用，由邓悟负责，向陈宇森汇报。
-
-其中，“悟空”是阿里巴巴发布的全球首个企业级AI原生工作平台，MuleRun（骡子快跑）是全场景接入、多模态原生、企业级资产联动的Al原生智能工作空间。
-
-陈宇森生于1992年，是年少成名的技术极客，也是技术型连续创业者，入选福布斯亚洲“30 Under 30”榜单。
-
-他曾在国内外顶级计算机赛事中屡获冠军，22岁时创办的网络安全公司长亭科技被阿里云收购。
-
-作为一名兼具技术实力与商业判断力的年轻管理者，他2025年在阿里云内部创业，带领研发了MuleRun。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 17:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 17:23 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 17:14 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 17:24 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 17:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 17:12 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 17:05 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 17:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 17:15 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 17:12 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 17:19 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 17:15 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 17:13 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 17:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 17:18 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 17:12 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 17:19 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 17:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 17:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 17:16 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 17:11 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 17:21 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:04 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/5051856.shtml)
-- 2026-06-29 17:06 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/311247743.shtml)
-- 2026-06-29 17:14 - [周生如故](http://www.share.kurohicncr.top/Article/details/40134700249.shtml)
-- 2026-06-29 17:18 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/313326605095.shtml)
-- 2026-06-29 17:05 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/1156051334.shtml)
-- 2026-06-29 17:15 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/9831080866.shtml)
-- 2026-06-29 17:15 - [请回答王牌2019](http://www.share.minike.top/Article/details/4509701715.shtml)
-- 2026-06-29 17:03 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/89207.shtml)
-- 2026-06-29 17:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/191551421826.shtml)
-- 2026-06-29 17:06 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/36982.shtml)
-- 2026-06-29 17:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/59841.shtml)
-- 2026-06-29 17:01 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/827002439241.shtml)
-- 2026-06-29 17:25 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/385771727330.shtml)
-- 2026-06-29 17:27 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/5436255.shtml)
-- 2026-06-29 17:02 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/919939903185.shtml)
+- 2026-06-29 17:13 - [广东一地发现极危植物新物种](https://www.share.kurohicncr.top/Article/details/6377985523.shtml)
+- 2026-06-29 17:25 - [斛珠夫人](http://www.blog.minike.top/Article/details/8912447.shtml)
+- 2026-06-29 17:26 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/36721813.shtml)
+- 2026-06-29 17:25 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/74639375947.shtml)
+- 2026-06-29 17:19 - [周生如故](https://www.share.minike.top/Article/details/875125884736.shtml)
+- 2026-06-29 17:28 - [毒液2](https://www.blog.minike.top/Article/details/10866960.shtml)
+- 2026-06-29 17:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/74580.shtml)
+- 2026-06-29 17:34 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/288745596.shtml)
+- 2026-06-29 17:31 - [花万元相亲对象是50元雇的演员](http://www.blog.minike.top/Article/details/95183932.shtml)
+- 2026-06-29 17:34 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/05063.shtml)
+- 2026-06-29 17:32 - [斗破苍穹](https://www.share.minike.top/Article/details/3511460.shtml)
+- 2026-06-29 17:16 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/451734.shtml)
+- 2026-06-29 17:09 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/46716459688.shtml)
+- 2026-06-29 17:16 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/8159674987.shtml)
+- 2026-06-29 17:12 - [谢依霖夸杨幂靠谱](https://www.blog.minike.top/Article/details/411960.shtml)

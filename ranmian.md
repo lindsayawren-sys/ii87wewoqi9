@@ -1,52 +1,57 @@
-# 麦记牛奶总经理谢永亮证实3-4月整体业绩下滑20%多
+# 广东预计端午假期期间车流压力集中在粤港澳大湾区
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-针对近期关于品牌团队跑路、总部对加盟商有罚款KPI等一系列传闻，糖水连锁品牌麦记牛奶总经理谢永亮独家对界面新闻表示，是恶意诽谤。 他对界面新闻称，食品安全卫生是核心要素，对于违反食品安全的门店确实有适当处罚，这也是必须手段，同时也是所有连锁品牌的常规管理措施，不存在不恰当之处。 麦记牛奶目前门店数量在1000家左右。谢永亮对界面新闻称，2026年3-4月整体业绩确实下滑20%多
+中新网广州6月17日电 (记者 蔡敏婕)广东省交通运输厅17日预计，今年端午假期期间车流压力主要集中在粤港澳大湾区，小型客车占比较高，其中，港珠澳大桥日均车流量约2.3万车次，同比增长42.48%。 2026年端午假期期间(6月19日至21日，共计3天)，广东省交通运输厅预计高速公路车流整体保持高位运行，主要以旅游度假、探亲访友等中短途出行为主，全省总体出行流量轻微增长。 广东
 
 ## 正文
 
-针对近期关于品牌团队跑路、总部对加盟商有罚款KPI等一系列传闻，糖水连锁品牌麦记牛奶总经理谢永亮独家对界面新闻表示，是恶意诽谤。
+中新网广州6月17日电 (记者 蔡敏婕)广东省交通运输厅17日预计，今年端午假期期间车流压力主要集中在粤港澳大湾区，小型客车占比较高，其中，港珠澳大桥日均车流量约2.3万车次，同比增长42.48%。
 
-他对界面新闻称，食品安全卫生是核心要素，对于违反食品安全的门店确实有适当处罚，这也是必须手段，同时也是所有连锁品牌的常规管理措施，不存在不恰当之处。
+2026年端午假期期间(6月19日至21日，共计3天)，广东省交通运输厅预计高速公路车流整体保持高位运行，主要以旅游度假、探亲访友等中短途出行为主，全省总体出行流量轻微增长。
 
-麦记牛奶目前门店数量在1000家左右。
+广东省交通运输厅预计2026年端午假期日均车流量约885万车次，同比增长约1.94%。
 
-谢永亮对界面新闻称，2026年3-4月整体业绩确实下滑20%多，有淡季和大环境的影响因素。
+其中，虎门大桥日均车流量约11.92万车次；南沙大桥日均车流量约14.25万车次；黄埔大桥日均车流量约13.4万车次，同比增长0.73%；深中通道日均车流量约13.62万车次，同比增长11.05%。
 
-（界面新闻记者 马越）责任编辑：梁斌 SF055
+广东省交通运输厅预计假期前一天(6月18日)出行需求最为旺盛，假期结束后一天(6月22日)通行需求逐步回归常态。
+
+广东交通集团认为，端午假期期间公众出行以返乡探亲、短途自驾为主。
+
+但“请到广东过端午”系列活动正在全面推广，各地赛龙舟、包粽子等民俗活动氛围浓郁，将激发公众节日出游需求。
+
+广州、深圳等大城市周边高速公路及通往热门景区、龙舟赛场的路段仍可能出现阶段性拥堵。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 17:09 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 17:25 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 17:21 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 17:23 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 17:05 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 17:23 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 17:24 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 17:04 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 17:17 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 17:26 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 17:06 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 17:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 17:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 17:18 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 17:28 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 17:21 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 17:11 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 17:18 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 17:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 17:10 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 17:22 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 17:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/649749.shtml)
-- 2026-06-29 17:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/980943424415.shtml)
-- 2026-06-29 17:19 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/946837872.shtml)
-- 2026-06-29 17:18 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/9588251132.shtml)
-- 2026-06-29 17:09 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/8087356.shtml)
-- 2026-06-29 17:17 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/5122885.shtml)
-- 2026-06-29 17:15 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/356729855729.shtml)
-- 2026-06-29 17:28 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/617330487942.shtml)
-- 2026-06-29 17:13 - [工作靠AI算不算职场作弊](https://www.blog.minike.top/Article/details/7003965406.shtml)
-- 2026-06-29 17:09 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/27747.shtml)
-- 2026-06-29 17:28 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/8427036973.shtml)
-- 2026-06-29 17:01 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/799468237989.shtml)
-- 2026-06-29 17:04 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/8738378728.shtml)
-- 2026-06-29 17:03 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/5115862.shtml)
-- 2026-06-29 17:09 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/031808896115.shtml)
+- 2026-06-29 17:34 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/472650701393.shtml)
+- 2026-06-29 17:25 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/0962348.shtml)
+- 2026-06-29 17:32 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/6112875878.shtml)
+- 2026-06-29 17:15 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/241711.shtml)
+- 2026-06-29 17:22 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/55145545837.shtml)
+- 2026-06-29 17:30 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/2016696.shtml)
+- 2026-06-29 17:24 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/01640443.shtml)
+- 2026-06-29 17:15 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/29000.shtml)
+- 2026-06-29 17:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/67115816.shtml)
+- 2026-06-29 17:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/71220.shtml)
+- 2026-06-29 17:07 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/55677218.shtml)
+- 2026-06-29 17:19 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/889746570753.shtml)
+- 2026-06-29 17:19 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/497380468.shtml)
+- 2026-06-29 17:32 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/524852156.shtml)
+- 2026-06-29 17:26 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/541805.shtml)

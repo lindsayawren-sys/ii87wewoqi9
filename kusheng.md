@@ -1,60 +1,60 @@
-# 泛大西洋投资据悉洽谈领投快手旗下可灵AI首轮融资
+# 中国戏剧家协会第十次全国代表大会、中国民间文艺家协会第十一次全国代表大会、中国书法家协会第九次全国代表大会在北京召开 李书磊出席开幕式并讲话
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-据知情人士称，快手科技正与泛大西洋投资商讨由后者领投其视频人工智能AI部门的首轮融资，寻求在首次公开招股（IPO）之前锁定一家美国主要投资者的支持。 据知情人士透露，可灵AI计划以180亿美元的投资后估值，筹集超过20亿美元资金。他们说，这家中国公司最初曾与投资者讨论过200亿美元的目标，但为了迎合市场需求，最终下调了预期。知情人士表示，可灵AI已引起其他一些专注于亚洲投资公司
+新华社北京6月17日电 中国戏剧家协会第十次全国代表大会、中国民间文艺家协会第十一次全国代表大会、中国书法家协会第九次全国代表大会17日在北京召开。中共中央政治局委员、中宣部部长李书磊出席开幕式并讲话。 代表们认为，党的十八大以来，习近平总书记高度重视文艺工作，发表一系列重要讲话、作出一系列重要指示批示，为新时代文艺事业指明了前进方向。广大戏剧、民间文艺和书法工作者深入学习实践
 
 ## 正文
 
-据知情人士称，快手科技正与泛大西洋投资商讨由后者领投其视频人工智能AI部门的首轮融资，寻求在首次公开招股（IPO）之前锁定一家美国主要投资者的支持。
+新华社北京6月17日电 中国戏剧家协会第十次全国代表大会、中国民间文艺家协会第十一次全国代表大会、中国书法家协会第九次全国代表大会17日在北京召开。
 
-据知情人士透露，可灵AI计划以180亿美元的投资后估值，筹集超过20亿美元资金。
+中共中央政治局委员、中宣部部长李书磊出席开幕式并讲话。
 
-他们说，这家中国公司最初曾与投资者讨论过200亿美元的目标，但为了迎合市场需求，最终下调了预期。
+代表们认为，党的十八大以来，习近平总书记高度重视文艺工作，发表一系列重要讲话、作出一系列重要指示批示，为新时代文艺事业指明了前进方向。
 
-知情人士表示，可灵AI已引起其他一些专注于亚洲投资公司的初步兴趣。
+广大戏剧、民间文艺和书法工作者深入学习实践习近平文化思想，创作推出许多思想性艺术性俱佳的优秀作品，为繁荣发展文艺事业、建设社会主义文化强国作出了重要贡献。
 
-由于涉及私人谈话，知情人士要求匿名。
+代表们表示，要落实“十五五”时期文化建设的战略部署，用心用情描绘新时代的万千气象，在中国式现代化历史进程中自觉担当文化使命。
 
-知情人士称，谈判仍处于早期阶段，无法保证最终会按现有条款达成协议。
+要传承好、发展好我国优秀民族艺术，以艺术创作更好赓续中华文脉。
 
-如果协议最终达成，这将是泛大西洋投资在中国竞争激烈的生成式AI领域一次罕见的投资。
+要坚持以人民为中心的创作导向，打造更多立得住、传得开、留得下的优质作品，以优秀作品滋养人民精神世界。
 
-而且当前正值北京和华盛顿围绕这项新兴技术而关系高度紧张之际。
+要坚持守正创新，把中华文化的精髓要义融入血脉，把固本求新、推陈出新的理念融入日常。
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 17:00 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 17:07 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 17:08 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 17:15 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 17:27 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 17:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 17:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 17:04 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 17:16 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 17:09 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 17:21 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 17:07 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 17:25 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 17:20 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 17:32 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 17:12 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 17:32 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 17:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 17:23 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 17:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 17:29 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 17:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 17:26 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 17:13 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 17:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 17:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 17:15 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/918781714.shtml)
-- 2026-06-29 17:11 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/30288.shtml)
-- 2026-06-29 17:18 - [爱很美味](http://www.share.minike.top/Article/details/61104.shtml)
-- 2026-06-29 17:03 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/36791223019.shtml)
-- 2026-06-29 17:27 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/811202139.shtml)
-- 2026-06-29 17:11 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/0910854654.shtml)
-- 2026-06-29 17:28 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/950559636.shtml)
-- 2026-06-29 17:20 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/242207.shtml)
-- 2026-06-29 17:07 - [扫黑风暴](https://www.blog.minike.top/Article/details/85017.shtml)
-- 2026-06-29 17:26 - [业内：全球市场迎来结构性投资窗口](http://www.share.kurohicncr.top/Article/details/727806.shtml)
-- 2026-06-29 17:27 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/284391.shtml)
-- 2026-06-29 17:24 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/9568171292.shtml)
-- 2026-06-29 17:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/0458825.shtml)
-- 2026-06-29 17:28 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/747002781.shtml)
-- 2026-06-29 17:21 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/596018.shtml)
+- 2026-06-29 17:27 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/611364.shtml)
+- 2026-06-29 17:13 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/11311700969.shtml)
+- 2026-06-29 17:10 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/29943189951.shtml)
+- 2026-06-29 17:32 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.minike.top/Article/details/3369671717.shtml)
+- 2026-06-29 17:28 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.kurohicncr.top/Article/details/802512115984.shtml)
+- 2026-06-29 17:31 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/510619502.shtml)
+- 2026-06-29 17:28 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/116522.shtml)
+- 2026-06-29 17:13 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/5577788.shtml)
+- 2026-06-29 17:06 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/52781387.shtml)
+- 2026-06-29 17:31 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/2591095019.shtml)
+- 2026-06-29 17:06 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/98544350.shtml)
+- 2026-06-29 17:33 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/14018844629.shtml)
+- 2026-06-29 17:08 - [扬名立万](https://www.blog.minike.top/Article/details/00630.shtml)
+- 2026-06-29 17:09 - [省市招考专家解读山西高考志愿政策](https://www.share.kurohicncr.top/Article/details/85650959.shtml)
+- 2026-06-29 17:09 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/8525631.shtml)

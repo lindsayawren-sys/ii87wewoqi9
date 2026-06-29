@@ -1,57 +1,55 @@
-# 日经225指数上涨1.6% 首次收于70000点上方 创历史新高
+# 邱勇：着力打造“宽基+科创+红利”的指数体系 提升中长期资金入市便利
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-日本日经225指数上涨1.6%，收于71053.49点，创历史新高，首次收于70000点关口上方。 电子股领涨，市场对美伊和平协议以及人工智能需求持续增长的乐观情绪继续发酵。村田制作所上涨8.1%，东京电子上涨4.7%。日本十年期国债收益率上升1.5个基点，至2.615%。美元兑日元报160.63，较周三纽约尾盘的160.64基本持平。投资者目前关注中东局势和原油价格走势。责任
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，在2026陆家嘴论坛上，上海证券交易所理事长邱勇表示，着力推动投资端建设，营造长钱长投的市场生态。着力打造“宽基+科创+红利”的指数体系，持续丰富ETF产品供给，提升中长期资金入市便利，研究优化做市商机制，提升ETF市场流动性。积极创
 
 ## 正文
 
-日本日经225指数上涨1.6%，收于71053.49点，创历史新高，首次收于70000点关口上方。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-电子股领涨，市场对美伊和平协议以及人工智能需求持续增长的乐观情绪继续发酵。
+6月17日，在2026陆家嘴论坛上，上海证券交易所理事长邱勇表示，着力推动投资端建设，营造长钱长投的市场生态。
 
-村田制作所上涨8.1%，东京电子上涨4.7%。
+着力打造“宽基+科创+红利”的指数体系，持续丰富ETF产品供给，提升中长期资金入市便利，研究优化做市商机制，提升ETF市场流动性。
 
-日本十年期国债收益率上升1.5个基点，至2.615%。
+积极创造条件，构建中长期资金愿意来、留得住、发展得好的市场环境。
 
-美元兑日元报160.63，较周三纽约尾盘的160.64基本持平。
+加大境外推介宣传力度，吸引境外中长期资金配置中国资产。
 
-投资者目前关注中东局势和原油价格走势。
-
-责任编辑：王永生
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 17:12 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 17:00 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 17:15 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 17:24 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 17:26 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 17:02 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 17:05 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 17:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 17:02 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 17:27 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 17:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 17:06 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 17:19 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 17:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 17:34 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 17:29 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 17:11 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 17:28 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 17:29 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 17:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 17:30 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 17:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 17:06 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 17:21 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 17:28 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 17:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:03 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/374234995804.shtml)
-- 2026-06-29 17:26 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/889326575.shtml)
-- 2026-06-29 17:27 - [王俊凯命名方式](http://www.share.kurohicncr.top/Article/details/75002052686.shtml)
-- 2026-06-29 17:07 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/27951.shtml)
-- 2026-06-29 17:21 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/9103874.shtml)
-- 2026-06-29 17:12 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/94959662.shtml)
-- 2026-06-29 17:22 - [流金岁月](http://www.blog.minike.top/Article/details/3919702.shtml)
-- 2026-06-29 17:13 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/08199343.shtml)
-- 2026-06-29 17:00 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/02660969.shtml)
-- 2026-06-29 17:00 - [倪春青跨市履新苏州市委组织部部长](https://www.share.kurohicncr.top/Article/details/3647347.shtml)
-- 2026-06-29 17:23 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/618840.shtml)
-- 2026-06-29 17:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/12929.shtml)
-- 2026-06-29 17:24 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/736910905.shtml)
-- 2026-06-29 17:07 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/58403742251.shtml)
-- 2026-06-29 17:09 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/98687906264.shtml)
+- 2026-06-29 17:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/082847824650.shtml)
+- 2026-06-29 17:34 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/126125034758.shtml)
+- 2026-06-29 17:25 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/50778401797.shtml)
+- 2026-06-29 17:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/69634.shtml)
+- 2026-06-29 17:06 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/420223448.shtml)
+- 2026-06-29 17:27 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/93173471870.shtml)
+- 2026-06-29 17:27 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/41489.shtml)
+- 2026-06-29 17:28 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/21272047414.shtml)
+- 2026-06-29 17:25 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/03307.shtml)
+- 2026-06-29 17:21 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/95384.shtml)
+- 2026-06-29 17:29 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/9427203705.shtml)
+- 2026-06-29 17:32 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/0956690077.shtml)
+- 2026-06-29 17:07 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/80023.shtml)
+- 2026-06-29 17:23 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/394183.shtml)
+- 2026-06-29 17:27 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/758479157.shtml)

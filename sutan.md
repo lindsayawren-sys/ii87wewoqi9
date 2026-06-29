@@ -1,58 +1,43 @@
-# 原油价格走低 美伊协议提振供应前景
+# 四川：九寨沟、峨眉山等重点景区热度升温
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-随着美伊临时和平协议生效，原油价格下跌，人们的关注点转移到波斯湾生产商重启关闭的油田后，霍尔木兹海峡的石油运输是否会增加。 WTI原油价格跌破每桶76美元；此前价格周三经历了剧烈波动，最终小幅收高。布伦特原油收盘低于80美元。美国总统唐纳德·特朗普在法国回答记者提问时表示，他已经签署了与伊朗的协议。 据伊朗外交部发言人Esmail Baghaei称，美国石油制裁现在必须立即解除
+发布时间：2026年06月18日 15:20 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-随着美伊临时和平协议生效，原油价格下跌，人们的关注点转移到波斯湾生产商重启关闭的油田后，霍尔木兹海峡的石油运输是否会增加。
-
-WTI原油价格跌破每桶76美元；此前价格周三经历了剧烈波动，最终小幅收高。
-
-布伦特原油收盘低于80美元。
-
-美国总统唐纳德·特朗普在法国回答记者提问时表示，他已经签署了与伊朗的协议。
-
-据伊朗外交部发言人Esmail Baghaei称，美国石油制裁现在必须立即解除。
-
-“伊朗必须能够出售石油，航运和保险不应受到任何影响，石油销售收入也必须能够收到。
-
-”他在国家电视台说道，“制裁必须解除。
-
-”7月交割的WTI原油价格下跌1.1%，至每桶75.96美元。
+发布时间：2026年06月18日 15:20 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 17:23 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 17:09 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 17:03 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 17:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 17:09 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 17:20 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 17:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 17:19 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 17:02 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 17:12 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 17:14 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 17:12 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 17:28 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 17:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 17:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 17:08 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 17:18 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 17:29 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 17:17 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 17:30 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 17:17 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 17:33 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:02 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/922336.shtml)
-- 2026-06-29 17:09 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/60825985116.shtml)
-- 2026-06-29 17:23 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/1366931754.shtml)
-- 2026-06-29 17:02 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/4521969316.shtml)
-- 2026-06-29 17:11 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/52976227108.shtml)
-- 2026-06-29 17:21 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/987340877354.shtml)
-- 2026-06-29 17:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/459928693.shtml)
-- 2026-06-29 17:19 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/446504585281.shtml)
-- 2026-06-29 17:20 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/477538250089.shtml)
-- 2026-06-29 17:18 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/793744.shtml)
-- 2026-06-29 17:15 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/8119883.shtml)
-- 2026-06-29 17:28 - [博主：黄金和原油回落不等于风险消失](https://www.blog.kurohicncr.top/Article/details/301874.shtml)
-- 2026-06-29 17:11 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/5637701.shtml)
-- 2026-06-29 17:09 - [5万块的威力](http://www.blog.minike.top/Article/details/74178.shtml)
-- 2026-06-29 17:18 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/884646621999.shtml)
+- 2026-06-29 17:10 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/4255687918.shtml)
+- 2026-06-29 17:19 - [众星恭喜吴建豪](https://www.share.kurohicncr.top/Article/details/862674200.shtml)
+- 2026-06-29 17:33 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/76716703.shtml)
+- 2026-06-29 17:19 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/73153.shtml)
+- 2026-06-29 17:19 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/246573952.shtml)
+- 2026-06-29 17:21 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/0459874919.shtml)
+- 2026-06-29 17:31 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/32046.shtml)
+- 2026-06-29 17:32 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/37030161.shtml)
+- 2026-06-29 17:28 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/5995325.shtml)
+- 2026-06-29 17:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/217930456.shtml)
+- 2026-06-29 17:15 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/343794.shtml)
+- 2026-06-29 17:24 - [时光音乐会](http://www.share.minike.top/Article/details/750734.shtml)
+- 2026-06-29 17:23 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/16030802.shtml)
+- 2026-06-29 17:15 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/455962.shtml)
+- 2026-06-29 17:24 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/24397.shtml)

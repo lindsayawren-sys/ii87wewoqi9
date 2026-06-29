@@ -1,57 +1,59 @@
-# 国家医保局通报用人单位未及时发放生育津贴典型案例
+# 在霍尔木兹海峡办“贵宾通航证”，特朗普又一次开脑洞
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据国家医保局微信公众号消息，近期，国家医保局通过信访渠道收到“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”的网民留言，立即启动快核快反。经彝良县医保部门核实，留言人为彝良县人民医院职工，正常参加职工基本医疗保险及生育保险，2025年5月19日，彝良县人民医院向彝良县医保局提交留言人的生育津贴报销材料，2025年5月23日，彝良县医保局将留言人的
+撰稿 / 徐立凡（专栏作家） 编辑 / 迟道华 校对 / 赵琳 据《参考消息》援引美媒报道，在美国和伊朗持续开展和平谈判之际，美国又为推动油轮恢复通航霍尔木兹海峡谋划了新招。 报道称，美国总统特朗普一直在努力劝说船企派遣更多油轮通行霍尔木兹海峡，却鲜有企业响应。为此，特朗普政府官员提出了各种方案。其中一个方案，是船舶可向美国付费，享受美军护航的快速通行服务。了解讨论内情的人士说
 
 ## 正文
 
-中新网6月17日电 据国家医保局微信公众号消息，近期，国家医保局通过信访渠道收到“云南省昭通市彝良县人民医院女职工生育津贴申领超一年未发放”的网民留言，立即启动快核快反。
+撰稿 / 徐立凡（专栏作家） 编辑 / 迟道华 校对 / 赵琳 据《参考消息》援引美媒报道，在美国和伊朗持续开展和平谈判之际，美国又为推动油轮恢复通航霍尔木兹海峡谋划了新招。
 
-经彝良县医保部门核实，留言人为彝良县人民医院职工，正常参加职工基本医疗保险及生育保险，2025年5月19日，彝良县人民医院向彝良县医保局提交留言人的生育津贴报销材料，2025年5月23日，彝良县医保局将留言人的生育津贴25158.87元全额拨付至彝良县人民医院医保代管资金专户，但医院未及时发放。
+报道称，美国总统特朗普一直在努力劝说船企派遣更多油轮通行霍尔木兹海峡，却鲜有企业响应。
 
-同时，核查中发现，彝良县人民医院还存在未及时足额发放其他12人生育津贴问题。
+为此，特朗普政府官员提出了各种方案。
 
-经医保部门督促指导，该院已于2026年4月9日将13人生育津贴共计200672.7元(其中留言人25158.87元)全额发放至职工个人。
+其中一个方案，是船舶可向美国付费，享受美军护航的快速通行服务。
 
-为更好维护参保人合法权益，自2025年起，国家医保局支持引导有条件的地方将生育保险生育津贴按程序直接发放给参保人。
+了解讨论内情的人士说：“这相当于给船只办一张贵宾通航证。
 
-截至目前，全国31个省份和新疆生产建设兵团基本实现生育津贴直接发放至个人。
+” 另一名美国前政府官员称，这个向油轮收取护航通行费的方案，同时也是一个谈判筹码，意在施压欧洲各国，迫使欧洲加大参与中东地区事务的力度。
 
-国家医保局提醒，如发现所在单位或企业对生育津贴存在截留克扣、未及时发放等情况，请及时向当地医保部门反映。
+6月14日，特朗普在社交媒体宣布美伊达成协议时曾欢呼：“世界各国的船只，发动引擎吧。
+
+让石油流动起来！
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 17:15 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 17:21 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 17:10 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 17:13 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 17:09 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 17:05 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 17:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 17:17 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 17:17 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 17:29 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 17:03 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 17:17 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 17:23 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 17:31 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 17:09 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 17:19 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 17:08 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 17:07 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 17:17 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 17:34 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 17:28 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 17:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 17:21 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 17:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 17:15 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/35047.shtml)
-- 2026-06-29 17:06 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/031235.shtml)
-- 2026-06-29 17:04 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/816260.shtml)
-- 2026-06-29 17:22 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/62238322.shtml)
-- 2026-06-29 17:25 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/018454290.shtml)
-- 2026-06-29 17:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/966712367249.shtml)
-- 2026-06-29 17:06 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/971306807.shtml)
-- 2026-06-29 17:00 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/4727125913.shtml)
-- 2026-06-29 17:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/336331.shtml)
-- 2026-06-29 17:11 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/6342238.shtml)
-- 2026-06-29 17:22 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/3723471.shtml)
-- 2026-06-29 17:04 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/831236.shtml)
-- 2026-06-29 17:20 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/458528789503.shtml)
-- 2026-06-29 17:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/1067819.shtml)
-- 2026-06-29 17:16 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/0558305.shtml)
+- 2026-06-29 17:11 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/049257307530.shtml)
+- 2026-06-29 17:31 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/97420.shtml)
+- 2026-06-29 17:11 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/05354.shtml)
+- 2026-06-29 17:12 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/36437146128.shtml)
+- 2026-06-29 17:21 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/47669.shtml)
+- 2026-06-29 17:22 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/148066039037.shtml)
+- 2026-06-29 17:21 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/95905.shtml)
+- 2026-06-29 17:07 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/423949.shtml)
+- 2026-06-29 17:28 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/022475731768.shtml)
+- 2026-06-29 17:06 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/55801560.shtml)
+- 2026-06-29 17:08 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/529658011.shtml)
+- 2026-06-29 17:29 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/375160201.shtml)
+- 2026-06-29 17:25 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/021208144294.shtml)
+- 2026-06-29 17:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/957343155.shtml)
+- 2026-06-29 17:24 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/799781007.shtml)

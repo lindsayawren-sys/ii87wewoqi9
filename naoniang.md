@@ -1,50 +1,58 @@
-# 巴基斯坦总理签署美伊谅解备忘录
+# 2026年中国（广西）—东盟青年手拉手活动在南宁举办
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社伊斯兰堡6月18日电（记者杨恺）巴基斯坦总理办公室18日发表声明说，巴基斯坦总理夏巴兹作为调解人签署了美国和伊朗谅解备忘录。（完）责任编辑：宋雅芳
+中新网南宁6月17日电 (陈秋霞)6月17日，2026年中国(广西)—东盟青年手拉手活动在南宁举行。来自中国与东盟的青年代表、高校师生及组织单位代表等近350人齐聚一堂，交流分享、共叙友谊。 本次活动以“青春伙伴 桂在携手”为主题，由广西青年联合会、广西壮族自治区人民政府新闻办公室主办，广西民族大学、中国(广西)国际青年交流学院共同承办。 在故事分享环节，来自中国、柬埔寨、老挝
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网南宁6月17日电 (陈秋霞)6月17日，2026年中国(广西)—东盟青年手拉手活动在南宁举行。
 
-新华社伊斯兰堡6月18日电（记者杨恺）巴基斯坦总理办公室18日发表声明说，巴基斯坦总理夏巴兹作为调解人签署了美国和伊朗谅解备忘录。
+来自中国与东盟的青年代表、高校师生及组织单位代表等近350人齐聚一堂，交流分享、共叙友谊。
 
-（完）责任编辑：宋雅芳
+本次活动以“青春伙伴 桂在携手”为主题，由广西青年联合会、广西壮族自治区人民政府新闻办公室主办，广西民族大学、中国(广西)国际青年交流学院共同承办。
+
+在故事分享环节，来自中国、柬埔寨、老挝、缅甸、泰国、越南的6名新聘任“广西故事青年讲述官”依次登台。
+
+他们紧扣数字经济、绿色发展、乡村振兴、文化交流及个人成长等时代议题，结合自身亲身经历与亲眼见证，生动讲述了中国与东盟青年在互学互鉴中共同成长、在守望相助中携手前行的青春故事。
+
+据了解，自2022年以来，中国(广西)—东盟青年手拉手活动已成功举办5届，累计聘任31名中国、东盟青年为“广西故事青年讲述官”，吸引了超过1800名中国和东盟各国的优秀青年参加，为推动地区青年互学互鉴、共同发展搭建了有益平台。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 17:02 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 17:00 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 17:13 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 17:19 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 17:10 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 17:23 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 17:24 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 17:19 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 17:09 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 17:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 17:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 17:16 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 17:06 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 17:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 17:15 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 17:25 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 17:28 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 17:27 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 17:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 17:22 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 17:28 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 17:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 17:26 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 17:24 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 17:10 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 17:35 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 17:34 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/41317.shtml)
-- 2026-06-29 17:02 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/6483877.shtml)
-- 2026-06-29 17:26 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/092579524.shtml)
-- 2026-06-29 17:11 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.minike.top/Article/details/04694840.shtml)
-- 2026-06-29 17:08 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/7390247519.shtml)
-- 2026-06-29 17:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/6774589.shtml)
-- 2026-06-29 17:05 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/305922209.shtml)
-- 2026-06-29 17:14 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/8486307854.shtml)
-- 2026-06-29 17:24 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.kurohicncr.top/Article/details/527755329.shtml)
-- 2026-06-29 17:02 - [扫黑风暴](https://www.blog.minike.top/Article/details/20786161949.shtml)
-- 2026-06-29 17:14 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/405544780.shtml)
-- 2026-06-29 17:24 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/931176.shtml)
-- 2026-06-29 17:14 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/960898655788.shtml)
-- 2026-06-29 17:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/1591390476.shtml)
-- 2026-06-29 17:08 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/54737840.shtml)
+- 2026-06-29 17:32 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/702404998.shtml)
+- 2026-06-29 17:30 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/993516089020.shtml)
+- 2026-06-29 17:10 - [新能源车能当外接空调用吗](http://www.share.kurohicncr.top/Article/details/298180.shtml)
+- 2026-06-29 17:11 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/467577855982.shtml)
+- 2026-06-29 17:23 - [沉睡花园](http://www.blog.minike.top/Article/details/05317214.shtml)
+- 2026-06-29 17:22 - [省市招考专家解读山西高考志愿政策](http://www.blog.minike.top/Article/details/12734632967.shtml)
+- 2026-06-29 17:20 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/855909583.shtml)
+- 2026-06-29 17:14 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/740240160.shtml)
+- 2026-06-29 17:15 - [大六座SUV进入黄金时代](http://www.share.minike.top/Article/details/86651175047.shtml)
+- 2026-06-29 17:33 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/725422604.shtml)
+- 2026-06-29 17:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/73548.shtml)
+- 2026-06-29 17:31 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/3608847.shtml)
+- 2026-06-29 17:31 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/01226538.shtml)
+- 2026-06-29 17:11 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/20624.shtml)
+- 2026-06-29 17:18 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/98732.shtml)

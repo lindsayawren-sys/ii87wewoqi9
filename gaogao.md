@@ -1,57 +1,56 @@
-# 博时基金市场异动陪伴6月18日：沪深三大指数分化，创业板指涨超2%
+# 回避比特币的投资者，如今被迫持有波动率高出比特币三倍的SpaceX股票
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-♨博时基金市场异动陪伴 🔆市场表现： 6月18日，沪深三大指数分化，创业板指涨超2%。 👉解析： ‼节前科技板块表现强势，通信、电子板块涨幅靠前，主要受地缘风险阶段性降温与资本市场制度改革的双重提振。美伊双方确认谅解备忘录文本最终敲定，计划本周五在瑞士正式签署，霍尔木兹海峡封锁将同步解除，国际油价中枢回落有效缓解了全球通胀预期。与此同时，在2026陆家嘴论坛上，证监会主席吴清宣
+从很多方面来看，SpaceX 都和比特币十分相似：没有盈利、不产生收益、价格波动剧烈，反对者与忠实拥趸的数量不相上下。 但二者有一个显著区别：没有人会强迫投资者配置比特币。 可对于大量投资指数基金的理财顾问与基金管理人而言，SpaceX 的情况恰恰相反。今年夏季，该股票将被纳入多款主流交易所交易基金（ETF），而这类产品是绝大多数美国投资者的核心持仓，届时这些被动投资者将被动持
 
 ## 正文
 
-♨博时基金市场异动陪伴 🔆市场表现： 6月18日，沪深三大指数分化，创业板指涨超2%。
+从很多方面来看，SpaceX 都和比特币十分相似：没有盈利、不产生收益、价格波动剧烈，反对者与忠实拥趸的数量不相上下。
 
-👉解析： ‼节前科技板块表现强势，通信、电子板块涨幅靠前，主要受地缘风险阶段性降温与资本市场制度改革的双重提振。
+但二者有一个显著区别：没有人会强迫投资者配置比特币。
 
-美伊双方确认谅解备忘录文本最终敲定，计划本周五在瑞士正式签署，霍尔木兹海峡封锁将同步解除，国际油价中枢回落有效缓解了全球通胀预期。
+可对于大量投资指数基金的理财顾问与基金管理人而言，SpaceX 的情况恰恰相反。
 
-与此同时，在2026陆家嘴论坛上，证监会主席吴清宣布将科创板第五套上市标准扩大至人工智能领域，并支持量子科技、生物制造、具身智能等更多“硬科技”企业在科创板上市。
+今年夏季，该股票将被纳入多款主流交易所交易基金（ETF），而这类产品是绝大多数美国投资者的核心持仓，届时这些被动投资者将被动持有这只承载着埃隆・马斯克宏大愿景的个股。
 
-资本市场对未盈利科技企业的包容性有望大幅提升，为AI产业链中尚处于研发投入期的优质企业打开直接融资通 道。
+伊利诺伊州奥兰多帕克市注册投资顾问公司 Strategic Investment Solutions 合伙人艾曼・赛义迪表示：“先锋领航以及其他遵从纳斯达克新规的大型资管机构，正在损害美国储蓄者的利益。
 
-‼当地时间6月17日，美联储宣布维持利率区间在3.5%-3.75%不变，但声明删除了“宽松倾向”表述，点阵图显示年内加息概率升至约85%。
+我持仓中的先锋成长型指数 ETF（VUG）很快就会纳入 SpaceX。
 
-美伊协议带来的油价回落有助于缓和通胀预期，为联储政策路径提供了一定缓冲空间。
+这也是我偏爱维度基金的原因，该公司不会单纯复刻指数成分股，本次指数调整将会造成严重的市场扭曲。
 
-当前科技板块的强势表现是产业趋势与政策红利共振的结果，但需警惕海外利率高位运行对科技成长股的估值倍数可能形成潜在约束，估值与业绩的匹配度或将成为后续市场定价的核心考量，科技板块中具备核心技术壁垒和明确商业化路径的细分方向仍值得重视。
+” 注：VUG 即先锋领航成长型指数 ETF。
 
 ## 相关推荐
 
-- 2026-06-29 17:12 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 17:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 17:23 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 17:14 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 17:16 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 17:09 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 17:26 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 17:06 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 17:06 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 17:14 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 17:06 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 17:06 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 17:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 17:32 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 17:20 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 17:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 17:10 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 17:32 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 17:24 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 17:18 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 17:36 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/971997.shtml)
-- 2026-06-29 17:01 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/24997.shtml)
-- 2026-06-29 17:19 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/154951013984.shtml)
-- 2026-06-29 17:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/172875411.shtml)
-- 2026-06-29 17:00 - [评论员：日菲勾连各有盘算](https://www.blog.minike.top/Article/details/8469154.shtml)
-- 2026-06-29 17:29 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/35847266.shtml)
-- 2026-06-29 17:24 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/1458726762.shtml)
-- 2026-06-29 17:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/7872545102.shtml)
-- 2026-06-29 17:11 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/196903422029.shtml)
-- 2026-06-29 17:15 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/47928301.shtml)
-- 2026-06-29 17:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/83323452059.shtml)
-- 2026-06-29 17:21 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/746994.shtml)
-- 2026-06-29 17:01 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/050175991.shtml)
-- 2026-06-29 17:26 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/20321887206.shtml)
-- 2026-06-29 17:10 - [未成年少女长期吸毒导致卧床不起](http://www.blog.minike.top/Article/details/1608717.shtml)
+- 2026-06-29 17:28 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/0773231721.shtml)
+- 2026-06-29 17:32 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/801740720.shtml)
+- 2026-06-29 17:22 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/59655.shtml)
+- 2026-06-29 17:26 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.minike.top/Article/details/338879404.shtml)
+- 2026-06-29 17:19 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/83031597.shtml)
+- 2026-06-29 17:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/54816084055.shtml)
+- 2026-06-29 17:22 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/790716597.shtml)
+- 2026-06-29 17:28 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/5470221402.shtml)
+- 2026-06-29 17:20 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/756062086.shtml)
+- 2026-06-29 17:07 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.minike.top/Article/details/1604944551.shtml)
+- 2026-06-29 17:25 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/429339108.shtml)
+- 2026-06-29 17:26 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/15818708.shtml)
+- 2026-06-29 17:32 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/3884232243.shtml)
+- 2026-06-29 17:23 - [欧洲人驾车200公里抢购中国空调](http://www.blog.kurohicncr.top/Article/details/08539384.shtml)
+- 2026-06-29 17:21 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/369240043.shtml)

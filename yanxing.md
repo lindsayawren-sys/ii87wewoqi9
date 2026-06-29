@@ -1,57 +1,60 @@
-# 抗美援朝战争：打得一拳开，免得百拳来
+# 张天闻转投大成背后，宝盈基金的“造星留不住星”怪圈
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-原标题：伟大征程丨抗美援朝战争：打得一拳开，免得百拳来 新华社北京6月17日电 题：抗美援朝战争：打得一拳开，免得百拳来 新华社记者王思北、高爽 朝鲜平壤牡丹峰麓，为纪念中国人民志愿军英烈丰功伟绩而修建的中朝友谊塔庄严矗立。2026年6月9日，正在朝鲜进行国事访问的习近平总书记来此参谒。友谊塔纪念厅内，在展现中国人民志愿军同朝鲜人民并肩浴血战斗、共同重建家园的史料、照片和油画作
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：Y趣理说 沉寂近半年的张天闻，终于揭开了职业生涯下一站的谜底。 中国证券投资基金业协会最新公示信息显示，原宝盈基金明星基金经理张天闻已于6月3日正式登记入职大成基金。 张天闻曾以重仓半导体、人工智能等科技赛道闻名的基金经理，在去年底“清仓式”卸任全部在管产品后，正式完成职业转换。 对于大成基金而言，这
 
 ## 正文
 
-原标题：伟大征程丨抗美援朝战争：打得一拳开，免得百拳来 新华社北京6月17日电 题：抗美援朝战争：打得一拳开，免得百拳来 新华社记者王思北、高爽 朝鲜平壤牡丹峰麓，为纪念中国人民志愿军英烈丰功伟绩而修建的中朝友谊塔庄严矗立。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-2026年6月9日，正在朝鲜进行国事访问的习近平总书记来此参谒。
+来源：Y趣理说 沉寂近半年的张天闻，终于揭开了职业生涯下一站的谜底。
 
-友谊塔纪念厅内，在展现中国人民志愿军同朝鲜人民并肩浴血战斗、共同重建家园的史料、照片和油画作品前，习近平总书记驻足良久，感慨地说：“抗美援朝是我们那一代人永恒的历史记忆，现在也传到了中国的下一代。
+中国证券投资基金业协会最新公示信息显示，原宝盈基金明星基金经理张天闻已于6月3日正式登记入职大成基金。
 
-” 跨越时空，那段承载血与火的记忆深深镌刻在中华儿女心中。
+张天闻曾以重仓半导体、人工智能等科技赛道闻名的基金经理，在去年底“清仓式”卸任全部在管产品后，正式完成职业转换。
 
-1950年6月25日，朝鲜内战爆发。
+对于大成基金而言，这是一笔重要的人才补充；而对于宝盈基金来说，却更像是又一次熟悉的人才流失故事。
 
-美国政府从其全球战略和冷战思维出发，作出武装干涉朝鲜内战的决定，并派遣第七舰队侵入台湾海峡。
+近年来，从王茹远、彭敢，到杨思亮、张仲维，再到如今的张天闻，宝盈基金似乎始终摆脱不了“培养人才，却留不住人才”的循环。
 
-1950年10月初，美军不顾中国政府一再警告，悍然越过三八线，把战火烧到中朝边境。
+科技投资新星离场：三年时间跑出多只高收益产品 放眼近年来公募行业涌现出的科技基金经理，张天闻无疑是成长速度较快的一位。
 
-侵朝美军飞机多次轰炸中国东北边境地区，给人民生命财产造成严重损失，我国安全面临严重威胁。
+公开资料显示，张天闻毕业于复旦大学金融学专业，先后在海通证券、国泰君安证券从事研究工作。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 17:18 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 17:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 17:28 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 17:13 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 17:03 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 17:24 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 17:00 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 17:06 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 17:29 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 17:26 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 17:34 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 17:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 17:07 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 17:11 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 17:31 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 17:26 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 17:25 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 17:09 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 17:20 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 17:17 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 17:11 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 17:09 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 17:32 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 17:20 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/7364872.shtml)
-- 2026-06-29 17:08 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/939294287.shtml)
-- 2026-06-29 17:27 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/3935033.shtml)
-- 2026-06-29 17:13 - [王曼昱被突如其来的话筒逗笑了](https://www.share.minike.top/Article/details/652693926.shtml)
-- 2026-06-29 17:28 - [工作靠AI算不算职场作弊](http://www.blog.minike.top/Article/details/973390118281.shtml)
-- 2026-06-29 17:12 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/984931580919.shtml)
-- 2026-06-29 17:24 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/6699615189.shtml)
-- 2026-06-29 17:27 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/1307870.shtml)
-- 2026-06-29 17:00 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/513731022545.shtml)
-- 2026-06-29 17:09 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/3323512742.shtml)
-- 2026-06-29 17:06 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/2438691558.shtml)
-- 2026-06-29 17:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/567849100.shtml)
-- 2026-06-29 17:27 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/395862264614.shtml)
-- 2026-06-29 17:11 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/255012900420.shtml)
-- 2026-06-29 17:10 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/63068095910.shtml)
+- 2026-06-29 17:24 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/38744750.shtml)
+- 2026-06-29 17:14 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/707982478545.shtml)
+- 2026-06-29 17:10 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/51786957.shtml)
+- 2026-06-29 17:14 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/5142558543.shtml)
+- 2026-06-29 17:26 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/347330475.shtml)
+- 2026-06-29 17:29 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/65360404165.shtml)
+- 2026-06-29 17:20 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/1262721.shtml)
+- 2026-06-29 17:30 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/3365871025.shtml)
+- 2026-06-29 17:16 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/97695137353.shtml)
+- 2026-06-29 17:20 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/392592434.shtml)
+- 2026-06-29 17:21 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/81280971434.shtml)
+- 2026-06-29 17:26 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/586564959378.shtml)
+- 2026-06-29 17:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/39525725.shtml)
+- 2026-06-29 17:26 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/99323.shtml)
+- 2026-06-29 17:23 - [青春环游记第三季](https://www.blog.minike.top/Article/details/16716268.shtml)

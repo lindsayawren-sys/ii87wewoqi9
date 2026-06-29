@@ -1,58 +1,61 @@
-# 重庆林业产业对接活动在璧山举行 签约331.47亿元
+# 20多国职工代表将参加亚信国家职工技能大赛
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月17日电 (张旭)青山叠翠，碧水含情。6月17日，“万企重庆行·渝林惠八方”林业产业对接活动在重庆市璧山区举行，来自行业主管部门、企业的约400名嘉宾齐聚一堂，共谋林业发展新机遇。活动现场，164个优质项目成功签约，总投资额达331.47亿元。 这些项目遍布重庆各区县，覆盖国储林、特色经济林、木竹加工、林下经济、森林康养、自然教育六大核心赛道。其中，既有百亿级全产
+中新网广州6月17日电 (王华 李欣怡)广州市政府新闻办公室17日举行发布会公布，亚信国家职工技能大赛落地广州，这是亚洲相互协作与信任措施会议框架下首次举办的国际性职工技能赛事，来自亚洲多国的技能能手将齐聚羊城同台竞技、互学互鉴，以技能为桥梁，深化亚洲区域务实合作。亚洲相互协作与信任措施会议(简称亚信)，成立于1992年，现有28个成员国、15个观察员国家和国际组织，覆盖亚洲9
 
 ## 正文
 
-中新网重庆6月17日电 (张旭)青山叠翠，碧水含情。
+中新网广州6月17日电 (王华 李欣怡)广州市政府新闻办公室17日举行发布会公布，亚信国家职工技能大赛落地广州，这是亚洲相互协作与信任措施会议框架下首次举办的国际性职工技能赛事，来自亚洲多国的技能能手将齐聚羊城同台竞技、互学互鉴，以技能为桥梁，深化亚洲区域务实合作。
 
-6月17日，“万企重庆行·渝林惠八方”林业产业对接活动在重庆市璧山区举行，来自行业主管部门、企业的约400名嘉宾齐聚一堂，共谋林业发展新机遇。
+亚洲相互协作与信任措施会议(简称亚信)，成立于1992年，现有28个成员国、15个观察员国家和国际组织，覆盖亚洲90%以上地区、汇聚全球超过一半人口，是促进亚洲和平、安全与稳定的重要多边论坛。
 
-活动现场，164个优质项目成功签约，总投资额达331.47亿元。
+据介绍，亚信国家职工技能大赛6月30日至7月4日将在穗举行。
 
-这些项目遍布重庆各区县，覆盖国储林、特色经济林、木竹加工、林下经济、森林康养、自然教育六大核心赛道。
+赛事核心场地位于广东岭南现代技师学院，有20多个亚信成员国及部分观察员国的职工代表参赛，外方代表约80人。
 
-其中，既有百亿级全产业链龙头项目，适合大型集团系统布局；也有百千万级特色精品项目，适配中小企业深耕细作。
+此次大赛事突破单一赛事竞技属性，经层层论证，确定砌筑、无人机装调检修、高压电缆智能运检三大竞赛项目，兼顾传统基础产业刚需与未来智能产业趋势。
 
-值得一提的是，签约项目中近三成来自重庆市外企业，投资额占比超过三分之一，充分彰显了“万企重庆行”跨区域招商的辐射力与吸引力。
+其中，砌筑技艺适用性广、普及度高，契合亚信各国基础建设发展需求；无人机装调检修、高压电缆智能运检两大赛项，紧扣低空经济、智慧城市、能源安全等前沿领域，直击各国数字化转型、电网智慧运维、应急防灾巡检等发展痛点，技术实用性强、推广价值高。
 
-据重庆市林业局介绍，除了现场签约项目外，另有34个项目处于深度洽谈阶段，投资额达73.11亿元。
+值得一提的是，大赛期间，广州组织了“技能+文化+体验”三大板块活动，将组织各国代表参访企业，深入了解中国企业的创新实力和技能人才培养体系；以及参加城市文化体验活动等。
 
-活动现场，重庆市林业局党组书记、局长曹春华通过“走进重庆、扎根重庆、兴业重庆”三个篇章，向与会嘉宾全面推介重庆林业的发展机遇。
+目前，广州拥有431万技能人才、169万高技能人才，已形成覆盖多层级、多元化的工匠培育体系。
 
 ## 相关推荐
 
-- 2026-06-29 17:19 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 17:24 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 17:18 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 17:03 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 17:12 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 17:07 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 17:13 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 17:00 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 17:22 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 17:29 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 17:24 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 17:22 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 17:24 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 17:19 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 17:24 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 17:18 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 17:17 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 17:29 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 17:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 17:29 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 17:34 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 17:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 17:31 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 17:09 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 17:19 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 17:06 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 17:23 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:00 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/10385.shtml)
-- 2026-06-29 17:08 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/6456858025.shtml)
-- 2026-06-29 17:19 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/0080510273.shtml)
-- 2026-06-29 17:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/443427.shtml)
-- 2026-06-29 17:01 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/50537906.shtml)
-- 2026-06-29 17:24 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/02035666.shtml)
-- 2026-06-29 17:01 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/388229248631.shtml)
-- 2026-06-29 17:27 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/9082260592.shtml)
-- 2026-06-29 17:27 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/847334479505.shtml)
-- 2026-06-29 17:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/7733465.shtml)
-- 2026-06-29 17:24 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/78511.shtml)
-- 2026-06-29 17:01 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/05270587865.shtml)
-- 2026-06-29 17:26 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/4552447.shtml)
-- 2026-06-29 17:01 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/5020407.shtml)
-- 2026-06-29 17:23 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/651450.shtml)
+- 2026-06-29 17:27 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/9199895.shtml)
+- 2026-06-29 17:32 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/7514754146.shtml)
+- 2026-06-29 17:27 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/77110273.shtml)
+- 2026-06-29 17:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/893542739493.shtml)
+- 2026-06-29 17:25 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/279044.shtml)
+- 2026-06-29 17:08 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/91529326.shtml)
+- 2026-06-29 17:10 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/633333541396.shtml)
+- 2026-06-29 17:12 - [工作靠AI算不算职场作弊](http://www.blog.minike.top/Article/details/953375.shtml)
+- 2026-06-29 17:12 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/102763462.shtml)
+- 2026-06-29 17:27 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/149585.shtml)
+- 2026-06-29 17:07 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/03180694.shtml)
+- 2026-06-29 17:27 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/5720824.shtml)
+- 2026-06-29 17:22 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/6689961679.shtml)
+- 2026-06-29 17:17 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/12859.shtml)
+- 2026-06-29 17:22 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/6557577781.shtml)

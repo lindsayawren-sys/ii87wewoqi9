@@ -1,48 +1,58 @@
-# 雅天妮集团拟“5合1”进行股份合并及更改每手买卖单位
+# （乡村行·看振兴）福建明溪：生态观鸟催热乡村经济
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-雅天妮集团（00789）发布公告，董事会建议按每5股每股面值0.05港元的已发行及未发行股份合并为1股每股0.25港元的合并股份的基准进行股份合并。于本公告日期，现有股份以每手买卖单位2万股现有股份于联交所买卖。建议待股份合并生效后及以此为条件，于联交所买卖的每手买卖单位由2万股现有股份更改为5000股合并股份。责任编辑：卢昱君
+中新网福建明溪6月18日电 (叶盛凯)连日来，在福建省明溪县盖洋镇村头村观鸟点，各地观鸟爱好者早早架设好摄影器材，静静守候蓝喉蜂虎翩跹而来，定格飞鸟凌空的灵动瞬间。山林间，人与自然相融共生。 明溪位于东亚-澳大利西亚候鸟迁徙通道——全球九大候鸟迁徙路线之一。据统计，明溪已记录鸟类349种，占福建省鸟类种数的60%以上，其中包括鸳鸯、海南鳽、黄腹角雉等珍稀鸟种。每年迁徙季，数百万
 
 ## 正文
 
-雅天妮集团（00789）发布公告，董事会建议按每5股每股面值0.05港元的已发行及未发行股份合并为1股每股0.25港元的合并股份的基准进行股份合并。
+中新网福建明溪6月18日电 (叶盛凯)连日来，在福建省明溪县盖洋镇村头村观鸟点，各地观鸟爱好者早早架设好摄影器材，静静守候蓝喉蜂虎翩跹而来，定格飞鸟凌空的灵动瞬间。
 
-于本公告日期，现有股份以每手买卖单位2万股现有股份于联交所买卖。
+山林间，人与自然相融共生。
 
-建议待股份合并生效后及以此为条件，于联交所买卖的每手买卖单位由2万股现有股份更改为5000股合并股份。
+明溪位于东亚-澳大利西亚候鸟迁徙通道——全球九大候鸟迁徙路线之一。
 
-责任编辑：卢昱君
+据统计，明溪已记录鸟类349种，占福建省鸟类种数的60%以上，其中包括鸳鸯、海南鳽、黄腹角雉等珍稀鸟种。
+
+每年迁徙季，数百万只候鸟在此形成“万鸟翔集”的生态奇观。
+
+近年来，明溪县深耕生态观鸟特色产业，推动优质生态资源转化为生态效益、社会效益与经济效益，走出一条生态保护与产业发展互促共赢的绿色发展之路。
+
+自2017年发布全域野生鸟类十年禁猎通告、2018年发出全国首份“护鸟令”以来，明溪县持续加大鸟类保护力度。
+
+全县落地5.38万亩闽西北山地丘陵生物多样性保护项目，深化校地合作开展鸟类环志与资源监测，依托野外红外相机、候鸟智能监测平台搭建管护体系。
 
 ## 相关推荐
 
-- 2026-06-29 17:01 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 17:29 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 17:04 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 17:04 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 17:00 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 17:03 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 17:15 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 17:11 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 17:18 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 17:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 17:26 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 17:27 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 17:31 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 17:25 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 17:09 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 17:11 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 17:31 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 17:25 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 17:28 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 17:25 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 17:18 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 17:07 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/0077707838.shtml)
-- 2026-06-29 17:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/52255.shtml)
-- 2026-06-29 17:29 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/709122550719.shtml)
-- 2026-06-29 17:25 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/1013888721.shtml)
-- 2026-06-29 17:27 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/91845812.shtml)
-- 2026-06-29 17:20 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/018383386.shtml)
-- 2026-06-29 17:24 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/001101547961.shtml)
-- 2026-06-29 17:27 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/5030707249.shtml)
-- 2026-06-29 17:11 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/428217829.shtml)
-- 2026-06-29 17:07 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/3628170.shtml)
-- 2026-06-29 17:19 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/752738.shtml)
-- 2026-06-29 17:21 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/292165762035.shtml)
-- 2026-06-29 17:16 - [美的空调 卡bug](http://www.share.minike.top/Article/details/84502.shtml)
-- 2026-06-29 17:13 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/15103449063.shtml)
-- 2026-06-29 17:05 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/7235867.shtml)
+- 2026-06-29 17:35 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/3378704910.shtml)
+- 2026-06-29 17:25 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/83418233887.shtml)
+- 2026-06-29 17:18 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/27609.shtml)
+- 2026-06-29 17:12 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/673712027.shtml)
+- 2026-06-29 17:09 - [沙丘](https://www.blog.minike.top/Article/details/473290.shtml)
+- 2026-06-29 17:13 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/68531.shtml)
+- 2026-06-29 17:26 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/125552428.shtml)
+- 2026-06-29 17:20 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/68281113275.shtml)
+- 2026-06-29 17:15 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/1841943008.shtml)
+- 2026-06-29 17:19 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/24838643.shtml)
+- 2026-06-29 17:07 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/729398119.shtml)
+- 2026-06-29 17:06 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/397357396887.shtml)
+- 2026-06-29 17:10 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/694169.shtml)
+- 2026-06-29 17:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/022662153176.shtml)
+- 2026-06-29 17:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/96608.shtml)

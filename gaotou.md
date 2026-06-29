@@ -1,56 +1,56 @@
-# 长江有色：基本面疲弱压制反弹空间，18日多晶硅或涨跌不大
+# 全国政协召开双周协商座谈会 围绕充分挖掘体育产业促进消费潜力协商议政 王沪宁主持
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 【早盘直击】多晶硅主力合约震荡微升，基本面疲弱压制反弹空间 【盘面速递】 2026年6月18日09：01，广期所多晶硅期货主力合约（PS2509）早盘维持震荡偏强运行。受昨日期货盘面技术性修复的惯性影响，早盘小幅高开并维持红盘震荡。尽管多头资金试图借助前期超跌后的反弹情绪继续推升价格，但由于缺乏基本面实质性利好支撑，盘面整体交投情绪依然偏向谨慎，价格在当前箱体上
+全国政协召开双周协商座谈会 围绕充分挖掘体育产业促进消费潜力协商议政 王沪宁主持 本报讯(记者 吕巍)十四届全国政协第四十五次双周协商座谈会6月17日在京召开，中共中央政治局常委、全国政协主席王沪宁主持会议。他表示，中共十八大以来，在以习近平同志为核心的中共中央坚强领导下，体育强国、健康中国建设加快推进，全民健身国家战略深入实施，群众体育和竞技体育蓬勃发展，体育产业快速壮大，我
 
 ## 正文
 
-长江有色金属网 【早盘直击】多晶硅主力合约震荡微升，基本面疲弱压制反弹空间 【盘面速递】 2026年6月18日09：01，广期所多晶硅期货主力合约（PS2509）早盘维持震荡偏强运行。
+全国政协召开双周协商座谈会 围绕充分挖掘体育产业促进消费潜力协商议政 王沪宁主持 本报讯(记者 吕巍)十四届全国政协第四十五次双周协商座谈会6月17日在京召开，中共中央政治局常委、全国政协主席王沪宁主持会议。
 
-受昨日期货盘面技术性修复的惯性影响，早盘小幅高开并维持红盘震荡。
+他表示，中共十八大以来，在以习近平同志为核心的中共中央坚强领导下，体育强国、健康中国建设加快推进，全民健身国家战略深入实施，群众体育和竞技体育蓬勃发展，体育产业快速壮大，我国体育事业取得重大成就。
 
-尽管多头资金试图借助前期超跌后的反弹情绪继续推升价格，但由于缺乏基本面实质性利好支撑，盘面整体交投情绪依然偏向谨慎，价格在当前箱体上沿面临一定的技术性阻力。
+要深入学习贯彻习近平总书记关于发展体育产业、促进体育消费的重要论述，落实“十五五”规划相关部署要求，把准履职建言的方向和重点。
 
-【基本面透视】 早盘的微幅反弹并未能掩盖多晶硅市场根深蒂固的供需矛盾。
+王沪宁表示，人民政协要围绕推动体育产业高质量发展，聚焦把握“十五五”时期体育需求趋势特征、顺应体育产业升级要求丰富产品服务供给、契合居民消费升级特点激发体育消费需求、完善政策机制优化体育消费环境等重点问题深入开展研究，通过视察考察调研、社情民意信息、提案等反映情况、提出建议。
 
-目前多晶硅市场整体呈现弱势延续、底部承压的状态，核心矛盾未有实质性改善： • 高库存与弱需求并存：行业库存长期高位运行，下游组件端价格持续低迷，导致终端电站投资回报率受限。
+政协委员中的专家学者、企业家、运动员等，要立足本职岗位和专业优势，为充分挖掘体育产业促进消费潜力发挥更大作用。
 
-硅片厂采购策略依然极度谨慎，普遍采取“按需滚动、随用随采”的模式，叠加前期备货充足，极大地限制了上游硅料的成交放量。
+全国政协委员周进强、刘尚希、丁亚琳、丁世忠、张小冬、卢敏、鲍明晓、张虹、王勇峰、刘征、祝林芳发言。
 
-• 丰水期复产加剧供给压力：随着西南地区丰水期到来，水电成本显著下降，头部大厂复产及提产计划逐步落地。
+大家认为，要认真落实“十五五”时期体育强国建设目标任务，大力发展赛事经济，构建多项目多层次赛事体系，推动体育产业高质量发展。
 
-行业预计6月份国内多晶硅产量将进一步增加，供应端的边际宽松与下游疲弱的消化能力形成鲜明对比，短期内市场仍将处于小幅累库状态。
+要推进体育服务业扩能提质和制造业创新升级，深化商旅文体健融合发展，丰富体育产品和服务的差异化、个性化供给，推进中国体育品牌建设，激发体育消费活力。
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 17:03 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 17:25 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 17:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 17:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 17:25 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 17:08 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 17:27 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 17:05 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 17:16 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 17:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 17:35 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 17:30 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 17:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 17:19 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 17:18 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 17:31 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 17:34 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 17:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 17:30 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:14 - [博主：美航母沦为毒品集散窝点](http://www.blog.minike.top/Article/details/896921.shtml)
-- 2026-06-29 17:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/746132347163.shtml)
-- 2026-06-29 17:18 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/820352.shtml)
-- 2026-06-29 17:08 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.minike.top/Article/details/614816345667.shtml)
-- 2026-06-29 17:11 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/8555126772.shtml)
-- 2026-06-29 17:28 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/340866.shtml)
-- 2026-06-29 17:10 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/469313886.shtml)
-- 2026-06-29 17:01 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/69048.shtml)
-- 2026-06-29 17:08 - [我和我的家乡](http://www.blog.minike.top/Article/details/2533993573.shtml)
-- 2026-06-29 17:16 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/552428392.shtml)
-- 2026-06-29 17:17 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/58765538.shtml)
-- 2026-06-29 17:17 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/697810.shtml)
-- 2026-06-29 17:12 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/1781572.shtml)
-- 2026-06-29 17:24 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/1287950157.shtml)
-- 2026-06-29 17:03 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/301242.shtml)
+- 2026-06-29 17:11 - [美的空调 卡bug](http://www.share.minike.top/Article/details/543451248.shtml)
+- 2026-06-29 17:29 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/44539125.shtml)
+- 2026-06-29 17:35 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/42142.shtml)
+- 2026-06-29 17:20 - [和周杰伦在演唱会合唱了](https://www.blog.minike.top/Article/details/620439.shtml)
+- 2026-06-29 17:22 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/3082891.shtml)
+- 2026-06-29 17:30 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/64581393.shtml)
+- 2026-06-29 17:10 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.kurohicncr.top/Article/details/976114.shtml)
+- 2026-06-29 17:22 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/6453756.shtml)
+- 2026-06-29 17:18 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/43600580649.shtml)
+- 2026-06-29 17:20 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/05882336662.shtml)
+- 2026-06-29 17:12 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/819714822196.shtml)
+- 2026-06-29 17:21 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/836783.shtml)
+- 2026-06-29 17:06 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/836826828.shtml)
+- 2026-06-29 17:27 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/76602568397.shtml)
+- 2026-06-29 17:29 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/21279514747.shtml)

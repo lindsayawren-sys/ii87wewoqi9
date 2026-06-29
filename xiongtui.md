@@ -1,57 +1,60 @@
-# 航天环宇发生21笔大宗交易 合计成交4501.10万元
+# 湖北鄂州加快建设国际一流航空货运枢纽
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-航天环宇6月17日大宗交易平台共发生21笔成交，合计成交量97.85万股，成交金额4501.10万元。成交价格均为46.00元，相对今日收盘价折价13.53%。从参与大宗交易营业部来看，机构专用席位共出现在15笔成交的买方或卖方营业部中，合计成交金额为3001.50万元，净买入3001.50万元。进一步统计，近3个月内该股累计发生36笔大宗交易，合计成交金额为8008.37万元
+中新网武汉6月18日电 (记者 武一力)湖北省政府新闻办18日召开“开局起步‘十五五’ 加力奋进建支点”系列新闻发布会鄂州专场。记者从会上获悉，鄂州坐拥亚洲最大专业货运机场——鄂州花湖国际机场，“十五五”时期，该市将按照“世界一流、全国枢纽、港产融合、现代智慧”要求，加快建设国际一流航空货运枢纽。 据介绍，鄂州将强化鄂港、鄂琼等枢纽联动，加密优化欧美航线网络。加快机场铁路联络线
 
 ## 正文
 
-航天环宇6月17日大宗交易平台共发生21笔成交，合计成交量97.85万股，成交金额4501.10万元。
+中新网武汉6月18日电 (记者 武一力)湖北省政府新闻办18日召开“开局起步‘十五五’ 加力奋进建支点”系列新闻发布会鄂州专场。
 
-成交价格均为46.00元，相对今日收盘价折价13.53%。
+记者从会上获悉，鄂州坐拥亚洲最大专业货运机场——鄂州花湖国际机场，“十五五”时期，该市将按照“世界一流、全国枢纽、港产融合、现代智慧”要求，加快建设国际一流航空货运枢纽。
 
-从参与大宗交易营业部来看，机构专用席位共出现在15笔成交的买方或卖方营业部中，合计成交金额为3001.50万元，净买入3001.50万元。
+据介绍，鄂州将强化鄂港、鄂琼等枢纽联动，加密优化欧美航线网络。
 
-进一步统计，近3个月内该股累计发生36笔大宗交易，合计成交金额为8008.37万元。
+加快机场铁路联络线建设，完善铁路与机场货站衔接设施，推动中欧班列直达花湖机场；提升燕矶港、三江港能级，谋划建设三江港与燕矶港、燕矶港与花湖机场快速路，统筹“铁水公空”、畅通“东南西北”。
 
-证券时报·数据宝统计显示，航天环宇今日收盘价为53.20元，上涨1.08%，日换手率为1.51%，成交额为3.28亿元，全天主力资金净流出637.53万元，近5日该股累计上涨0.40%，近5日资金合计净流出2.41亿元。
+鄂州将加快建设顺丰集笼中心，做大卡车航班业务规模。
 
-两融数据显示，该股最新融资余额为2.38亿元，近5日减少6449.14万元，降幅为21.33%。
+加强花湖—天河双枢纽协同，依托货代企业，研究定制省内重点产品集拼方案，全力推动“鄂货鄂运、鄂货回鄂”。
 
-据天眼查APP显示，湖南航天环宇通信科技股份有限公司成立于2000年03月10日，注册资本40688万人民币。
+加强第五航权应用，做强“E转全球”中转品牌，在更大范围内集聚货源。
 
-（数据宝）6月17日航天环宇大宗交易一览注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
+在优化服务方面，鄂州将建立更多前置货站“旱码头”，投用机场北区2号国际货站、日邮货站、中实货站，届时机场国际货站总数将达7个、国际货邮保障能力达140万吨/年。
 
 ## 相关推荐
 
-- 2026-06-29 17:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 17:17 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 17:20 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 17:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 17:02 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 17:09 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 17:23 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 17:15 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 17:14 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 17:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 17:17 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 17:25 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 17:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 17:13 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 17:11 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 17:25 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 17:09 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 17:23 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 17:33 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 17:13 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 17:08 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 17:15 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 17:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 17:11 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 17:25 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/405228836.shtml)
-- 2026-06-29 17:01 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/0872366.shtml)
-- 2026-06-29 17:09 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/137626.shtml)
-- 2026-06-29 17:07 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/57746527364.shtml)
-- 2026-06-29 17:20 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/08548.shtml)
-- 2026-06-29 17:10 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/5941199.shtml)
-- 2026-06-29 17:01 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/658102.shtml)
-- 2026-06-29 17:03 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/18825069.shtml)
-- 2026-06-29 17:10 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/73574.shtml)
-- 2026-06-29 17:14 - [端午节加班工资应该怎么算](http://www.share.kurohicncr.top/Article/details/3518909.shtml)
-- 2026-06-29 17:11 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/95336.shtml)
-- 2026-06-29 17:27 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/452806742.shtml)
-- 2026-06-29 17:10 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/950456820.shtml)
-- 2026-06-29 17:27 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/51185191677.shtml)
-- 2026-06-29 17:10 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/9241809.shtml)
+- 2026-06-29 17:20 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/4581147330.shtml)
+- 2026-06-29 17:21 - [周生如故](http://www.share.kurohicncr.top/Article/details/00072575271.shtml)
+- 2026-06-29 17:22 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/10307.shtml)
+- 2026-06-29 17:11 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/932854920188.shtml)
+- 2026-06-29 17:21 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/258327589.shtml)
+- 2026-06-29 17:12 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/2103900200.shtml)
+- 2026-06-29 17:30 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/658778459559.shtml)
+- 2026-06-29 17:26 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/86014743486.shtml)
+- 2026-06-29 17:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/6477193.shtml)
+- 2026-06-29 17:28 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/28349000.shtml)
+- 2026-06-29 17:31 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.kurohicncr.top/Article/details/84829809932.shtml)
+- 2026-06-29 17:21 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/632768.shtml)
+- 2026-06-29 17:07 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/6856555.shtml)
+- 2026-06-29 17:08 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/78440637.shtml)
+- 2026-06-29 17:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/942847.shtml)

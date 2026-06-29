@@ -1,60 +1,54 @@
-# 王信：以可持续金融及国际合作促进国际金融治理体系改革
+# 今年前5月湖北水运建设投资同比增长74%
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，中国人民银行研究局（参事室）局长（主任）王信参加2026陆家嘴论坛并表示，可持续金融的发展和国际合作可以促进国际金融治理的改革。 王信表示，可持续金融发展及相关国际合作，可从四大维度发力，推动国际金融治理改革，助力构建更加公平、包容且更具韧性的国际金融治理体系。 首先，在国际货币体系层面，绿色
+中新网武汉6月18日电 (梁婷 孙勋 )记者18日从湖北省港航事业发展中心获悉，今年前5月，湖北累计完成水运建设固定资产投资67.8亿元，同比增长74%。 湖北推动重大项目开工，推动三峡水运新通道工程、武汉港车都散货码头、宜昌港姚家港液体化工码头等7个重点项目开工建设，全省水运投资增量持续释放。 此外，该省加速推进重大项目实施，今年以来，汉湘桂内河航运大通道湖北段核心项目“四船
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，中国人民银行研究局（参事室）局长（主任）王信参加2026陆家嘴论坛并表示，可持续金融的发展和国际合作可以促进国际金融治理的改革。
+中新网武汉6月18日电 (梁婷 孙勋 )记者18日从湖北省港航事业发展中心获悉，今年前5月，湖北累计完成水运建设固定资产投资67.8亿元，同比增长74%。
 
-王信表示，可持续金融发展及相关国际合作，可从四大维度发力，推动国际金融治理改革，助力构建更加公平、包容且更具韧性的国际金融治理体系。
+湖北推动重大项目开工，推动三峡水运新通道工程、武汉港车都散货码头、宜昌港姚家港液体化工码头等7个重点项目开工建设，全省水运投资增量持续释放。
 
-首先，在国际货币体系层面，绿色低碳转型将带动大规模投融资活动，涵盖碳市场、能源市场、电力市场的互联互通建设，新能源关键矿产贸易往来，跨境绿色投融资扩容等内容。
+此外，该省加速推进重大项目实施，今年以来，汉湘桂内河航运大通道湖北段核心项目“四船闸三航道”全速推进，进展显著。
 
-同时，多国陆续发行绿色主权债券，进一步增加全球安全资产供给。
+随着武穴港马口作业区铁水联运一期、武穴港固昌综合码头、荆州港盐卡三期多用途码头工程等项目建成投运，新增港口通过能力超1500万吨。
 
-各类绿色投融资与贸易活动，将持续发挥货币定价、结算、贸易流通、投融资结算及价值储藏等职能。
+其中，总投资5.6亿元的荆州港盐卡三期多用途码头工程，规划建设4个3000吨级(兼顾5000吨级)泊位，配套建设铁路集装箱、件杂、散货等专业化后方堆场。
 
-绿色低碳转型成效显著、可持续金融发展领先的经济体，其货币在国际货币体系中将获得更大发挥空间。
+随着三期工程投用，盐卡港已形成8个标准化运营泊位，拥有1公里连续优质岸线，年设计货物吞吐能力达700万吨、集装箱吞吐能力20万标箱，港口规模化、集约化运营格局全面形成。
 
-与此同时，国际货币体系的演进，也需要及时、充分适配绿色低碳转型带来的全球金融发展新格局。
-
-第二，在全球金融稳定体系层面，目前各界已形成共识，气候变化、生态环境恶化、生物多样性减少等问题，会通过经济金融渠道引发金融风险，主要分为物理风险和转型风险两类。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:12 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 17:10 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 17:18 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 17:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 17:15 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 17:13 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 17:08 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 17:11 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 17:16 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 17:05 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 17:09 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 17:15 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 17:12 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 17:18 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 17:15 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 17:28 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 17:28 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 17:31 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 17:07 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 17:20 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 17:16 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 17:35 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 17:14 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 17:35 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/05691412054.shtml)
-- 2026-06-29 17:10 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/567405426297.shtml)
-- 2026-06-29 17:12 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/7110060435.shtml)
-- 2026-06-29 17:12 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/263547201352.shtml)
-- 2026-06-29 17:07 - [新能源车能当外接空调用吗](https://www.share.kurohicncr.top/Article/details/519600645506.shtml)
-- 2026-06-29 17:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/872647.shtml)
-- 2026-06-29 17:01 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/536032221.shtml)
-- 2026-06-29 17:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/1576393.shtml)
-- 2026-06-29 17:23 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/0552957.shtml)
-- 2026-06-29 17:13 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/9529959132.shtml)
-- 2026-06-29 17:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/87046504749.shtml)
-- 2026-06-29 17:29 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/280456166.shtml)
-- 2026-06-29 17:25 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/1305136.shtml)
-- 2026-06-29 17:20 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/6505980.shtml)
-- 2026-06-29 17:20 - [急先锋](http://www.blog.kurohicncr.top/Article/details/25472313228.shtml)
+- 2026-06-29 17:15 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/5395033.shtml)
+- 2026-06-29 17:18 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/923466010.shtml)
+- 2026-06-29 17:27 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/581322766797.shtml)
+- 2026-06-29 17:34 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/708560668.shtml)
+- 2026-06-29 17:06 - [东方风云榜](http://www.share.minike.top/Article/details/403663442952.shtml)
+- 2026-06-29 17:06 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/454398251972.shtml)
+- 2026-06-29 17:30 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/605201174717.shtml)
+- 2026-06-29 17:15 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/228909558112.shtml)
+- 2026-06-29 17:11 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/404268.shtml)
+- 2026-06-29 17:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/38552624.shtml)
+- 2026-06-29 17:27 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/552025101109.shtml)
+- 2026-06-29 17:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/376402.shtml)
+- 2026-06-29 17:11 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/645632296996.shtml)
+- 2026-06-29 17:06 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/36738.shtml)
+- 2026-06-29 17:29 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/57118223.shtml)

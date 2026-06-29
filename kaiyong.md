@@ -1,57 +1,56 @@
-# 2026年宁夏“我们的节日·端午”示范活动在隆德举行
+# （乡村行·看振兴）山西祁县：首挂杏果满枝头 荒山结出“振兴果”
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网固原6月17日电 (李佩珊 李亚雯 李晓歌)6月17日，2026年宁夏“我们的节日·端午”新时代文明实践集中示范活动在固原市隆德县启幕。活动以“相约千年古县 共话端午文明”为主题，千余人现场沉浸式体验兼具民俗底蕴与文明新风的端午盛会。 本次活动设置民俗端午、非遗端午、康养端午、乡味端午、同心端午、新风端午六大篇章，融合传统民俗演绎、本土非遗传承、中医康养便民、乡土美食品鉴
+中新网晋中6月17日电 (高雨晴 史婉)初夏时节，山西省晋中市祁县峪口乡上王庄吉利山种养综合家庭农场的150亩梅杏、凯特杏迎来首次挂果丰收。漫山杏林间，金红相间的果实缀满枝头，为当地特色林果产业增添新亮色，也为周边农户拓宽增收渠道。 峪口乡地处山地，光照充足、昼夜温差大，为杏果糖分积累和风味形成提供了天然优势。农场依托这一自然条件，精选梅杏、凯特杏优良品种，经多年科学管护，今年
 
 ## 正文
 
-中新网固原6月17日电 (李佩珊 李亚雯 李晓歌)6月17日，2026年宁夏“我们的节日·端午”新时代文明实践集中示范活动在固原市隆德县启幕。
+中新网晋中6月17日电 (高雨晴 史婉)初夏时节，山西省晋中市祁县峪口乡上王庄吉利山种养综合家庭农场的150亩梅杏、凯特杏迎来首次挂果丰收。
 
-活动以“相约千年古县 共话端午文明”为主题，千余人现场沉浸式体验兼具民俗底蕴与文明新风的端午盛会。
+漫山杏林间，金红相间的果实缀满枝头，为当地特色林果产业增添新亮色，也为周边农户拓宽增收渠道。
 
-本次活动设置民俗端午、非遗端午、康养端午、乡味端午、同心端午、新风端午六大篇章，融合传统民俗演绎、本土非遗传承、中医康养便民、乡土美食品鉴、闽宁协作成果展示、移风易俗宣传等多元内容，既丰富群众精神文化生活，也集中展现隆德乡土风情与宁夏新时代文明实践建设成效。
+峪口乡地处山地，光照充足、昼夜温差大，为杏果糖分积累和风味形成提供了天然优势。
 
-地处六盘山西麓的隆德，是古丝绸之路东段北道重要驿站，坐拥“中国书法之乡”“中国民间文化艺术之乡”等称号，县域内非物质文化遗产代表性项目达50余项，杨氏泥塑、魏氏砖雕、高台马社火更是入选国家级非遗代表性项目名录。
+农场依托这一自然条件，精选梅杏、凯特杏优良品种，经多年科学管护，今年正式进入挂果期。
 
-活动现场，非遗展区人气最旺，魏氏砖雕、杨氏彩塑、刺绣、剪纸等集中亮相，非遗代表性传承人手把手指导游客制作手工艺品。
+据农场初步估算，首年总产量约5万斤，预计可创收十余万元，昔日的荒山坡地正逐步转化为富民果园。
 
-“传统佳节来临之际，我们专程带学生感受社火、秦腔等传统文化，让他们直观领略传统文化魅力。
+据农场负责人王秀山介绍，该批杏树为精心培育的优新品种，今年首年挂果效果超出预期，坚定了发展山地杏果特色产业的信心。
 
-”隆德县张程中学带队老师王晓阳说。
+“接下来将持续做好田间精细化管护，稳定果品质量，力争把山地杏果做成地方特色品牌。
 
-“香包里加了本地土草药，能助眠防蚊虫。
+” 杏果丰收不仅带来经济效益，还带动村民就业。
 
 ## 相关推荐
 
-- 2026-06-29 17:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 17:12 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 17:16 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 17:22 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 17:17 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 17:23 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 17:08 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 17:07 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 17:28 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 17:25 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 17:22 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 17:13 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 17:27 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 17:21 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 17:28 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 17:12 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 17:29 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 17:20 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 17:25 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 17:15 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 17:07 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:00 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/781510550.shtml)
-- 2026-06-29 17:13 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/80160813.shtml)
-- 2026-06-29 17:07 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/412832.shtml)
-- 2026-06-29 17:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/5703736.shtml)
-- 2026-06-29 17:17 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/147743627700.shtml)
-- 2026-06-29 17:16 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/5267328.shtml)
-- 2026-06-29 17:16 - [男孩复读一年减重20斤涨分111分](http://www.blog.minike.top/Article/details/221797708.shtml)
-- 2026-06-29 17:08 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/364642847745.shtml)
-- 2026-06-29 17:09 - [女心理师](http://www.share.kurohicncr.top/Article/details/28126119.shtml)
-- 2026-06-29 17:27 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/0800144636.shtml)
-- 2026-06-29 17:21 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/6418012397.shtml)
-- 2026-06-29 17:25 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/33563471.shtml)
-- 2026-06-29 17:10 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/2496094.shtml)
-- 2026-06-29 17:16 - [女心理师](http://www.blog.kurohicncr.top/Article/details/892573.shtml)
-- 2026-06-29 17:00 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/07124253329.shtml)
+- 2026-06-29 17:35 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/648607851.shtml)
+- 2026-06-29 17:16 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/9633941439.shtml)
+- 2026-06-29 17:18 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/93780.shtml)
+- 2026-06-29 17:09 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/250706072.shtml)
+- 2026-06-29 17:30 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/03865735.shtml)
+- 2026-06-29 17:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/4975900363.shtml)
+- 2026-06-29 17:32 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/2231397.shtml)
+- 2026-06-29 17:20 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/70711072862.shtml)
+- 2026-06-29 17:24 - [倪春青跨市履新苏州市委组织部部长](https://www.share.minike.top/Article/details/4581580.shtml)
+- 2026-06-29 17:23 - [普京承认俄出现燃料危机](http://www.share.kurohicncr.top/Article/details/2013714.shtml)
+- 2026-06-29 17:12 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/250213.shtml)
+- 2026-06-29 17:12 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/20991114690.shtml)
+- 2026-06-29 17:25 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/8578035923.shtml)
+- 2026-06-29 17:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/101520892211.shtml)
+- 2026-06-29 17:07 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/471706159.shtml)

@@ -1,56 +1,57 @@
-# 上海证券交易所理事长邱勇： 更大力度支持科技创新
+# 端午假期铁路运输启幕 宁夏多座火车站举办主题活动
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-本报记者 吴晓璐 6月17日，上海证券交易所理事长邱勇在2026陆家嘴论坛上表示，更好发挥资本市场支持科技创新的功能，首先要把握科技创新发展规律，持续提升资本市场制度的包容性、适应性，更好支持科技创新；其次要立足中国实践，持续深化改革。 在2026陆家嘴论坛开幕式上，中国证监会主席吴清就下一步资本市场改革提出了一揽子举措。邱勇表示，上交所将承担起责任和使命，多措并举推动一系列改
+中新网银川6月18日电 (记者 杨迪)记者18日从铁路部门获悉，2026年端午假期运输期限为6月18日至6月22日，共计5天，兰州铁路局银川车站及管内各站预计发送旅客24.5万人次，日均4.9万人次。 根据车票预售及节前客流调查，本次假期客流以结伴出游、探亲访友和学生客流为主，长途方向集中在北京、西安、兰州、成都、敦煌等旅游城市，短途客流则主要集中在石嘴山、中卫、固原等地。 节
 
 ## 正文
 
-本报记者 吴晓璐 6月17日，上海证券交易所理事长邱勇在2026陆家嘴论坛上表示，更好发挥资本市场支持科技创新的功能，首先要把握科技创新发展规律，持续提升资本市场制度的包容性、适应性，更好支持科技创新；其次要立足中国实践，持续深化改革。
+中新网银川6月18日电 (记者 杨迪)记者18日从铁路部门获悉，2026年端午假期运输期限为6月18日至6月22日，共计5天，兰州铁路局银川车站及管内各站预计发送旅客24.5万人次，日均4.9万人次。
 
-在2026陆家嘴论坛开幕式上，中国证监会主席吴清就下一步资本市场改革提出了一揽子举措。
+根据车票预售及节前客流调查，本次假期客流以结伴出游、探亲访友和学生客流为主，长途方向集中在北京、西安、兰州、成都、敦煌等旅游城市，短途客流则主要集中在石嘴山、中卫、固原等地。
 
-邱勇表示，上交所将承担起责任和使命，多措并举推动一系列改革。
+节日期间，银川车站加开高峰线动车组列车30趟，包括银川至西安北11趟、庆阳至西安北11趟、银川至兰州西8趟；同时对银川至北京北、银川至成都东、银川至敦煌的部分动车组列车实施重联运行，满足旅客出行需求。
 
-一是精准高效防控风险，夯实资本市场稳定发展的基础。
+端午节将至，宁夏多座火车站举办节日主题活动。
 
-加强风险监测和预警预判，全力做好稳市工作，及时推动逆周期调节手段机制落地，提升风险的应对能力。
+6月18日，银川车站举办“我的铁路风景：美好旅途 ‘粽’享端午”文化宣传活动。
 
-督促和引导上市公司提升质量、治理水平和回报投资者。
+活动中，旅客可亲手DIY团扇，将美好寓意寄托于扇面；也可参与猜谜游戏，了解端午节的由来与习俗，并领取香甜的粽子或一份小纪念品。
 
-健全预期管理机制，加强宣传引导，努力凝聚市场共识，为深化改革营造良好的环境。
+车站还特别设置了留影打卡墙，为旅客留下在端午假期的难忘瞬间。
 
-二是依法从严监管，维护市场公平秩序。
+同日，中卫车站候车室举办系列主题活动。
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 17:00 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 17:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 17:21 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 17:19 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 17:10 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 17:19 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 17:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 17:06 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 17:17 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 17:23 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 17:32 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 17:09 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 17:35 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 17:12 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 17:29 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 17:22 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 17:34 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 17:10 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 17:27 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 17:18 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:12 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/35404.shtml)
-- 2026-06-29 17:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/08343692.shtml)
-- 2026-06-29 17:05 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/36432997416.shtml)
-- 2026-06-29 17:11 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/785825580.shtml)
-- 2026-06-29 17:01 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/520989995.shtml)
-- 2026-06-29 17:14 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/31429680116.shtml)
-- 2026-06-29 17:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/27588247.shtml)
-- 2026-06-29 17:15 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/0942339272.shtml)
-- 2026-06-29 17:22 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/78702876968.shtml)
-- 2026-06-29 17:01 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/741695.shtml)
-- 2026-06-29 17:24 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/503916649660.shtml)
-- 2026-06-29 17:23 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/40046374.shtml)
-- 2026-06-29 17:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/284185.shtml)
-- 2026-06-29 17:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/311127.shtml)
-- 2026-06-29 17:09 - [7款商保创新药“转道”](https://www.blog.kurohicncr.top/Article/details/592577894010.shtml)
+- 2026-06-29 17:13 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.kurohicncr.top/Article/details/98104074233.shtml)
+- 2026-06-29 17:35 - [逃狱兄弟](https://www.share.minike.top/Article/details/7173220.shtml)
+- 2026-06-29 17:10 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/105088.shtml)
+- 2026-06-29 17:09 - [绘画区你赢了](https://www.blog.minike.top/Article/details/367250.shtml)
+- 2026-06-29 17:09 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/03492466201.shtml)
+- 2026-06-29 17:35 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/18514008.shtml)
+- 2026-06-29 17:35 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.kurohicncr.top/Article/details/9513779173.shtml)
+- 2026-06-29 17:22 - [一生一世](https://www.share.kurohicncr.top/Article/details/43269201.shtml)
+- 2026-06-29 17:06 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/0388862.shtml)
+- 2026-06-29 17:15 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/61783067.shtml)
+- 2026-06-29 17:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/96993153.shtml)
+- 2026-06-29 17:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/95172.shtml)
+- 2026-06-29 17:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/429804805.shtml)
+- 2026-06-29 17:35 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/3013963.shtml)
+- 2026-06-29 17:27 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/46675078948.shtml)

@@ -1,42 +1,60 @@
-# 脑膜炎和普通感冒的症状有哪些区别？
+# 红利低波ETF华泰柏瑞（512890）半日成交超9亿领跑同类！业内：分红兑现+风格切换是主因 高股息逻辑未破
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 09:38 来源：央视新闻 责任编辑：【王祎】
+6月18日，三大指数涨跌互现，创业板指涨超1%，沪指跌0.37%。在此背景下，红利低波ETF华泰柏瑞（512890） 早盘下跌1.84%，报1.119元，换手率2.77%，半日成交额9.05亿元，成交规模居同类ETF首位。 最新报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股早盘多数下跌。截止午盘，上海银行跌1.78%，南京银行跌1.71%，平安银行跌2.04%，沪农
 
 ## 正文
 
-发布时间：2026年06月18日 09:38 来源：央视新闻 责任编辑：【王祎】
+6月18日，三大指数涨跌互现，创业板指涨超1%，沪指跌0.37%。
+
+在此背景下，红利低波ETF华泰柏瑞（512890） 早盘下跌1.84%，报1.119元，换手率2.77%，半日成交额9.05亿元，成交规模居同类ETF首位。
+
+最新报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股早盘多数下跌。
+
+截止午盘，上海银行跌1.78%，南京银行跌1.71%，平安银行跌2.04%，沪农商行跌1.91%，华润江中涨0.41%，中国海油跌2.29%，中国石油跌1.43%，民生银行跌1.69%，陕鼓动力跌3.05%，成都银行跌2.55%。
+
+资金流向上，红利低波ETF华泰柏瑞（512890）长期受资金青睐，近5个交易日资金净流入7亿元，近20个交易日资金净流入26.3亿元，近60个交易日资金净流入34.6亿元。
+
+截至2026年6月17日，该ETF流通规模330.28亿元。
+
+业内分析指出，本轮连续回调主要受分红兑现、风格切换等短期因素驱动，并非行业基本面恶化。
+
+当前银行净息差基本筑底，资产质量保持稳健，板块4%至6%的高股息仍具备配置吸引力。
 
 ## 相关推荐
 
-- 2026-06-29 17:07 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 17:25 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 17:20 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 17:10 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 17:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 17:14 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 17:11 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 17:13 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 17:21 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 17:23 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 17:28 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 17:11 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 17:25 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 17:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 17:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 17:09 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 17:18 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 17:06 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 17:07 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 17:21 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 17:28 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 17:29 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 17:30 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 17:24 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/6709211147.shtml)
-- 2026-06-29 17:16 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/45916179047.shtml)
-- 2026-06-29 17:00 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/167318252.shtml)
-- 2026-06-29 17:00 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/74404503232.shtml)
-- 2026-06-29 17:16 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/72071.shtml)
-- 2026-06-29 17:05 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/949825133600.shtml)
-- 2026-06-29 17:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/4647758.shtml)
-- 2026-06-29 17:07 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/2120688.shtml)
-- 2026-06-29 17:09 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/729882.shtml)
-- 2026-06-29 17:08 - [葛军谈AI时代理科生出路](http://www.blog.kurohicncr.top/Article/details/0225076472.shtml)
-- 2026-06-29 17:13 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/80541377.shtml)
-- 2026-06-29 17:11 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/053215815310.shtml)
-- 2026-06-29 17:15 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/590519.shtml)
-- 2026-06-29 17:04 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/63936726895.shtml)
-- 2026-06-29 17:15 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/92057886.shtml)
+- 2026-06-29 17:25 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/80131.shtml)
+- 2026-06-29 17:16 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/2178474042.shtml)
+- 2026-06-29 17:22 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/592742013.shtml)
+- 2026-06-29 17:25 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/808775.shtml)
+- 2026-06-29 17:10 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/784899.shtml)
+- 2026-06-29 17:29 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/3888924.shtml)
+- 2026-06-29 17:16 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/01641362118.shtml)
+- 2026-06-29 17:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/745315051.shtml)
+- 2026-06-29 17:13 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/0517890.shtml)
+- 2026-06-29 17:14 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/594548271.shtml)
+- 2026-06-29 17:26 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/80140335687.shtml)
+- 2026-06-29 17:23 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/6187468.shtml)
+- 2026-06-29 17:30 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/997685278.shtml)
+- 2026-06-29 17:33 - [税务总局披露5起合规申报个税案例](http://www.blog.kurohicncr.top/Article/details/62080.shtml)
+- 2026-06-29 17:14 - [请回答王牌2019](http://www.share.minike.top/Article/details/1780614.shtml)

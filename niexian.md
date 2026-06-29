@@ -1,60 +1,61 @@
-# 国家能源局：5月份全社会用电量同比增长6.9%
+# AI催生生物医学科研危机？顶尖科学家差点被AI假文献蒙骗
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-6月18日，国家能源局发布5月份全社会用电量等数据。 5月份，全社会用电量8671亿千瓦时，同比增长6.9%。从分产业用电看，第一产业用电量124亿千瓦时，同比增长5.0%。第二产业用电量5753亿千瓦时，同比增长6.0%；其中，工业用电量5703亿千瓦时，同比增长6.2%，高技术装备制造业用电量1091亿千瓦时，同比增长12.2%。第三产业用电量1704亿千瓦时，同比增长9.
+每经记者｜林姿辰 2026年5月，《柳叶刀》刊发的一篇“AI(人工智能)引文造假”文章(correspondence，通讯稿件)，在中国的医学科研圈火了。 基于对PubMed Central(美国国立医学图书馆旗下的免费生物医学全文档案库)收录的约250万篇生物医学论文开展的筛查，这篇文章指出，过去几年生物医学论文参考文献造假率涨幅超12倍。2023年每万篇论文约出现4条伪造参
 
 ## 正文
 
-6月18日，国家能源局发布5月份全社会用电量等数据。
+每经记者｜林姿辰 2026年5月，《柳叶刀》刊发的一篇“AI(人工智能)引文造假”文章(correspondence，通讯稿件)，在中国的医学科研圈火了。
 
-5月份，全社会用电量8671亿千瓦时，同比增长6.9%。
+基于对PubMed Central(美国国立医学图书馆旗下的免费生物医学全文档案库)收录的约250万篇生物医学论文开展的筛查，这篇文章指出，过去几年生物医学论文参考文献造假率涨幅超12倍。
 
-从分产业用电看，第一产业用电量124亿千瓦时，同比增长5.0%。
+2023年每万篇论文约出现4条伪造参考文献，到2026年初达到每万篇56.9条。
 
-第二产业用电量5753亿千瓦时，同比增长6.0%；其中，工业用电量5703亿千瓦时，同比增长6.2%，高技术装备制造业用电量1091亿千瓦时，同比增长12.2%。
+有意思的是，该项研究牵头人Maxim Topaz不仅是哥伦比亚大学护理学院副教授、医疗AI研究员，还是全球前2%顶尖科学家。
 
-第三产业用电量1704亿千瓦时，同比增长9.7%；其中，充换电服务业、互联网数据服务用电量分别为149亿、90亿千瓦时，增速分别达到59.9%、45.4%。
+但即便是这位常年和AI打交道的专家，也曾在评论写作中被一篇AI生成的虚假文献“唬”过。
 
-城乡居民生活用电量1090亿千瓦时，同比增长7.5%。
+对此，人们能做什么？
 
-1~5月，全社会用电量累计42018亿千瓦时，同比增长5.7%。
+《每日经济新闻》记者(以下简称NBD)就此专访了Maxim Topaz。
 
-从分产业用电看，第一产业用电量574亿千瓦时，同比增长5.6%。
+虚假引文遍布各类文献 NBD：是什么契机或经历，让你开始关注生物医学论文中的引文造假问题？
 
 ## 相关推荐
 
-- 2026-06-29 17:10 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 17:23 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 17:23 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 17:02 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 17:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 17:24 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 17:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 17:03 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 17:10 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 17:23 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 17:26 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 17:15 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 17:26 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 17:07 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 17:26 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 17:21 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 17:19 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 17:19 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 17:32 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 17:34 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 17:32 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 17:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 17:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 17:14 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 17:24 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 17:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 17:07 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 17:33 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 17:32 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:25 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/61413.shtml)
-- 2026-06-29 17:20 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/065769.shtml)
-- 2026-06-29 17:27 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/1610104.shtml)
-- 2026-06-29 17:08 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/47332077.shtml)
-- 2026-06-29 17:16 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/5727450908.shtml)
-- 2026-06-29 17:09 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/9152005405.shtml)
-- 2026-06-29 17:17 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/16728802.shtml)
-- 2026-06-29 17:17 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/760118456.shtml)
-- 2026-06-29 17:05 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/0948533.shtml)
-- 2026-06-29 17:01 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/43153470277.shtml)
-- 2026-06-29 17:07 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/122248.shtml)
-- 2026-06-29 17:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/83209219.shtml)
-- 2026-06-29 17:22 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/28603.shtml)
-- 2026-06-29 17:17 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/96082974.shtml)
-- 2026-06-29 17:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/7016932080.shtml)
+- 2026-06-29 17:22 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/6551001.shtml)
+- 2026-06-29 17:16 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/4475674970.shtml)
+- 2026-06-29 17:31 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/778957288468.shtml)
+- 2026-06-29 17:32 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/2603109.shtml)
+- 2026-06-29 17:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/073892842940.shtml)
+- 2026-06-29 17:16 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/15695849.shtml)
+- 2026-06-29 17:23 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/6971045510.shtml)
+- 2026-06-29 17:06 - [日本偶像龟梨和也宣布结婚](https://www.share.kurohicncr.top/Article/details/649173557691.shtml)
+- 2026-06-29 17:07 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/293553007398.shtml)
+- 2026-06-29 17:19 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/012263466.shtml)
+- 2026-06-29 17:10 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/28109525.shtml)
+- 2026-06-29 17:08 - [极限挑战第一季](https://www.blog.minike.top/Article/details/14071.shtml)
+- 2026-06-29 17:35 - [极限挑战第一季](http://www.blog.minike.top/Article/details/757419.shtml)
+- 2026-06-29 17:30 - [中国战机大片上新](http://www.blog.kurohicncr.top/Article/details/6832183.shtml)
+- 2026-06-29 17:23 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/0944793.shtml)

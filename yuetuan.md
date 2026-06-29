@@ -1,56 +1,45 @@
-# 证监会主席吴清：将进一步推动健全跨境监管协调机制，“开正门、堵偏门”
+# 江西南昌：端午临近粽飘香 老款新品齐热销
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-记者|李蕾 编辑|彭水萍 《每日经济新闻》记者获悉，2026年6月17日，2026陆家嘴论坛正式开幕，中国证监会主席吴清出席论坛并发表主题演讲。 在谈及积极参与全球金融治理与开放合作，促进两个市场、两种资源协同联动时，吴清表示：“近期，我们会同有关方面坚决查处了个别机构违法违规跨境展业等问题。持牌经营是国际通行规则，也是保护投资者合法权益的基本要求。我们打击的是违法违规跨境展业
+发布时间：2026年06月18日 15:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-记者|李蕾 编辑|彭水萍 《每日经济新闻》记者获悉，2026年6月17日，2026陆家嘴论坛正式开幕，中国证监会主席吴清出席论坛并发表主题演讲。
-
-在谈及积极参与全球金融治理与开放合作，促进两个市场、两种资源协同联动时，吴清表示：“近期，我们会同有关方面坚决查处了个别机构违法违规跨境展业等问题。
-
-持牌经营是国际通行规则，也是保护投资者合法权益的基本要求。
-
-我们打击的是违法违规跨境展业，对投资者依法合规的跨境投资活动是支持的”。
-
-他介绍，接下来将进一步推动健全跨境监管协调机制，强化日常信息共享和市场沟通，开正门、堵偏门，既支持合法合规的跨境投融资活动，又依法打击各类跨境违法违规行为，切实维护市场正常秩序和投资者合法权益。
-
-吴清在讲话中提到，近年来，无论是“引进来”的“投资中国”还是“走出去”的“中国投资”，广度深度都在不断拓展，这对深化资本市场高水平双向开放提出了更高要求。
-
-吴清指出，将坚持以开放促改革、促发展，进一步统筹好开放与安全，持续提升资本市场跨境投融资便利度，不断增强面向全球的资源配置效率和能力。
-
-其中一项重要举措，就是着力提升跨境监管协作力度。
+发布时间：2026年06月18日 15:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:04 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 17:12 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 17:06 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 17:17 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 17:03 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 17:00 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 17:10 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 17:14 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 17:00 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 17:05 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 17:30 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 17:10 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 17:33 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 17:13 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 17:10 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 17:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 17:25 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 17:15 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 17:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 17:10 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 17:22 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 17:26 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 17:22 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:20 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/14296.shtml)
-- 2026-06-29 17:17 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/516346839.shtml)
-- 2026-06-29 17:21 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/13076369.shtml)
-- 2026-06-29 17:14 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/85358572.shtml)
-- 2026-06-29 17:24 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/192443305.shtml)
-- 2026-06-29 17:27 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/3385225.shtml)
-- 2026-06-29 17:29 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/5427428.shtml)
-- 2026-06-29 17:28 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/4880916.shtml)
-- 2026-06-29 17:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/9816739523.shtml)
-- 2026-06-29 17:22 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/834955886.shtml)
-- 2026-06-29 17:26 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/26698.shtml)
-- 2026-06-29 17:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/30795338081.shtml)
-- 2026-06-29 17:20 - [金牌调解](http://www.share.kurohicncr.top/Article/details/1489490461.shtml)
-- 2026-06-29 17:22 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/367351.shtml)
-- 2026-06-29 17:18 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/4187371.shtml)
+- 2026-06-29 17:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/11493980982.shtml)
+- 2026-06-29 17:14 - [逃狱兄弟](https://www.blog.minike.top/Article/details/904862.shtml)
+- 2026-06-29 17:27 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/73664.shtml)
+- 2026-06-29 17:28 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.minike.top/Article/details/51796736.shtml)
+- 2026-06-29 17:23 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/82095515.shtml)
+- 2026-06-29 17:35 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/60781639696.shtml)
+- 2026-06-29 17:19 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/204818417.shtml)
+- 2026-06-29 17:19 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/020552.shtml)
+- 2026-06-29 17:08 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/8591279019.shtml)
+- 2026-06-29 17:26 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/4263257195.shtml)
+- 2026-06-29 17:31 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/225085235.shtml)
+- 2026-06-29 17:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/802259438.shtml)
+- 2026-06-29 17:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/0903935274.shtml)
+- 2026-06-29 17:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/653833850659.shtml)
+- 2026-06-29 17:23 - [人形机器人](http://www.share.minike.top/Article/details/0545756562.shtml)

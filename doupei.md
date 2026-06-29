@@ -1,51 +1,56 @@
-# 高层建筑起火是向上跑还是向下跑？国家消防救援局回应
+# 酒价内参6月18日价格发布：洋河梦之蓝M6+下跌2元
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 13:26 来源：中国新闻网 国家消防救援局6月17日上午举行例行新闻发布会，国家消防救援局新闻发言人、消防监督司副司长王天瑞在会上介绍，一般高层住宅楼梯间多为封闭楼梯间和防烟楼梯间，理论上进入这些区域，无论向上还是向下都应该是安全的。但可惜的是，多数小区楼梯间堆放杂物、防火门损坏等问题比较突出，原来的“生命通道”有可能就成为了“死亡陷阱”。所
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月18日整体温和回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9907元，较昨日下跌18元，连续三日回落并创下四天以来最低。今日除飞天茅台与青花郎上涨外，其余品种均回落，终端交投情绪环比明显降温。 今日11大白酒单品二涨九跌，输家
 
 ## 正文
 
-发布时间：2026年06月17日 13:26 来源：中国新闻网 国家消防救援局6月17日上午举行例行新闻发布会，国家消防救援局新闻发言人、消防监督司副司长王天瑞在会上介绍，一般高层住宅楼梯间多为封闭楼梯间和防烟楼梯间，理论上进入这些区域，无论向上还是向下都应该是安全的。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月18日整体温和回落。
 
-但可惜的是，多数小区楼梯间堆放杂物、防火门损坏等问题比较突出，原来的“生命通道”有可能就成为了“死亡陷阱”。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9907元，较昨日下跌18元，连续三日回落并创下四天以来最低。
 
-所以从家里向外逃生时，一定要冷静，如果判断火灾在自家住宅的上面，这个时候在烟气不大的情况下，可以快速向下逃生；如果判断火灾在自家住宅下面，且自家离屋顶比较近，并且确保楼梯是通屋顶的，可以优先选择向上逃生。
+今日除飞天茅台与青花郎上涨外，其余品种均回落，终端交投情绪环比明显降温。
 
-(记者 刘世炯） 责任编辑：【罗攀】
+今日11大白酒单品二涨九跌，输家数量占据绝对优势。
+
+上涨方面，青花郎涨幅居前，上涨9元/瓶，创下近一月最大单日涨幅，连续两日上涨并升至近一月最高位；飞天茅台小幅上涨2元/瓶。
+
+下跌方面，五粮液普五八代的跌幅居前，下跌7元/瓶，创近一月最大单日跌幅，重新回落至810元下方；国窖1573下跌5元/瓶，连续三日回落，价格跌至近一月次低位；精品茅台下跌4元/瓶，亦滑落至近一月次低位；青花汾20与古井贡古20均下跌3元/瓶，其中前者连续三日回落并创下近一月最低价；五粮液1618、洋河梦之蓝M6+与习酒君品均下跌2元/瓶；水晶剑南春小幅下跌1元/瓶，平进入六月以来的最低价纪录。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 17:19 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 17:09 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 17:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 17:00 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 17:20 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 17:14 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 17:13 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 17:29 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 17:19 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 17:19 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 17:15 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 17:19 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 17:10 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 17:25 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 17:11 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 17:17 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 17:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 17:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 17:18 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 17:28 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 17:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 17:13 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 17:26 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:13 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/27297.shtml)
-- 2026-06-29 17:03 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/9918958962.shtml)
-- 2026-06-29 17:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/100692132621.shtml)
-- 2026-06-29 17:24 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/121270.shtml)
-- 2026-06-29 17:26 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/681394.shtml)
-- 2026-06-29 17:09 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/746707593.shtml)
-- 2026-06-29 17:00 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/5112067.shtml)
-- 2026-06-29 17:29 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/759541.shtml)
-- 2026-06-29 17:18 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/43242539853.shtml)
-- 2026-06-29 17:18 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/045303687202.shtml)
-- 2026-06-29 17:07 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/63487443.shtml)
-- 2026-06-29 17:20 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/5846426776.shtml)
-- 2026-06-29 17:27 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/51875716.shtml)
-- 2026-06-29 17:02 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/90495.shtml)
-- 2026-06-29 17:09 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/93190647.shtml)
+- 2026-06-29 17:30 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/94792912485.shtml)
+- 2026-06-29 17:17 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/830050861.shtml)
+- 2026-06-29 17:28 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/2151232.shtml)
+- 2026-06-29 17:08 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/6028139.shtml)
+- 2026-06-29 17:14 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/02529900.shtml)
+- 2026-06-29 17:11 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/44290134091.shtml)
+- 2026-06-29 17:23 - [起风了](https://www.share.minike.top/Article/details/36111930.shtml)
+- 2026-06-29 17:17 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/938683.shtml)
+- 2026-06-29 17:14 - [斛珠夫人](http://www.share.minike.top/Article/details/913771802154.shtml)
+- 2026-06-29 17:09 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/92596.shtml)
+- 2026-06-29 17:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/75326443507.shtml)
+- 2026-06-29 17:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/4757290.shtml)
+- 2026-06-29 17:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/27984514510.shtml)
+- 2026-06-29 17:13 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/467447317926.shtml)
+- 2026-06-29 17:32 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.minike.top/Article/details/950449.shtml)

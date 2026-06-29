@@ -1,59 +1,58 @@
-# 2026企业家同心共融发展大会暨“百业连锁汇包头·赋能商业供给侧”嘉年华在我市召开
+# 西安奕材-U龙虎榜数据（6月17日）
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-6月17日，2026企业家同心共融发展大会暨“百业连锁汇包头·赋能商业供给侧”嘉年华在我市召开。大会由包头市工商联、包头市商务局、逸马连锁产业集团主办，以“聚连锁、优供给、拓渠道、促共赢”为核心，推动全国优质连锁品牌与包头本地产业深度对接，积极“请进来”优质连锁资源与前沿经营理念，为加快建设“1144”现代化产业体系建设、服务业提档升级注入新动能。大会现场，专家学者分别从宏观经
+6月17日西安奕材-U（688783）收盘价54.50元，收盘上涨15.96%，全天换手率30.20%，振幅20.98%，成交额27.98亿元。科创板交易公开信息显示，当日该股因日换手率达30%等上榜。证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交6.19亿元， 其中，买入成交额为3.28亿元，卖出成交额为2.91亿元，合计净买入3735.65万元。具体来看，今日上榜
 
 ## 正文
 
-6月17日，2026企业家同心共融发展大会暨“百业连锁汇包头·赋能商业供给侧”嘉年华在我市召开。
+6月17日西安奕材-U（688783）收盘价54.50元，收盘上涨15.96%，全天换手率30.20%，振幅20.98%，成交额27.98亿元。
 
-大会由包头市工商联、包头市商务局、逸马连锁产业集团主办，以“聚连锁、优供给、拓渠道、促共赢”为核心，推动全国优质连锁品牌与包头本地产业深度对接，积极“请进来”优质连锁资源与前沿经营理念，为加快建设“1144”现代化产业体系建设、服务业提档升级注入新动能。
+科创板交易公开信息显示，当日该股因日换手率达30%等上榜。
 
-大会现场，专家学者分别从宏观经济形势、产业科技创新、跨区域协作等维度发表致辞，为包头商业高质量发展把脉支招。
+证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交6.19亿元， 其中，买入成交额为3.28亿元，卖出成交额为2.91亿元，合计净买入3735.65万元。
 
-市招商投资促进局作了包头城市与产业宣介，向参会嘉宾发出“投资包头、共赢未来”的诚挚邀请。
+具体来看，今日上榜的前五大买入营业部中，有1家机构专用席位现身，即买五，买入金额分别为5567.36万元，营业部合计买入2.73亿元。
 
-在经贸合作签约环节，上海天强鲜品供应链科技有限公司与内蒙古圣洁环保科技有限公司、深圳百果园实业（集团）股份有限公司与内蒙古七篓供应链管理有限公司分别签订合作协议，各方立足包头、辐射周边，一批全国知名连锁品牌将先后落地包头。
+卖出营业部中，卖出金额居首的是中信证券股份有限公司上海分公司，卖出金额为9277.05万元。
 
-由逸马连锁产业集团牵头发起的“百业连锁汇包头”常态化对接平台同步启动，将精准推动品牌资源与本地企业对接，助力本土商业迈向品牌化、连锁化。
+买卖金额相抵，机构专用席位今日净买入该股5567.36万元。
 
-其间，与会专家学者分别围绕《包头连锁品牌全域运营与数字化智能营销》《本土企业的连锁化品牌化》作主题分享，为与会企业家带来前沿理念与实战干货。
+资金流向方面，该股今日全天主力资金净流入1.63亿元。
 
-记者了解到，在消费升级与实体商业加速转型背景下，本次大会通过政策解读、品牌分享、供需对接、主题演讲等多元形式，推动全国连锁品牌资源与包头区位优势、产业基础、消费潜力深度对接，为加快建设“1144”现代化产业体系、壮大现代服务业注入了务实动能。
+（数据宝）西安奕材-U6月17日龙虎榜注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 17:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 17:20 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 17:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 17:10 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 17:25 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 17:06 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 17:23 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 17:19 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 17:25 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 17:09 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 17:21 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 17:00 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 17:32 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 17:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 17:06 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 17:18 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 17:21 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 17:20 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 17:27 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 17:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 17:31 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 17:06 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 17:20 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 17:14 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/7080362.shtml)
-- 2026-06-29 17:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/47477.shtml)
-- 2026-06-29 17:06 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/6357199.shtml)
-- 2026-06-29 17:05 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/6886342.shtml)
-- 2026-06-29 17:10 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/699290014235.shtml)
-- 2026-06-29 17:06 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/918891041675.shtml)
-- 2026-06-29 17:28 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/869030084203.shtml)
-- 2026-06-29 17:11 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/222833.shtml)
-- 2026-06-29 17:25 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/77057947.shtml)
-- 2026-06-29 17:15 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/82122.shtml)
-- 2026-06-29 17:09 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/330993.shtml)
-- 2026-06-29 17:14 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/318724054446.shtml)
-- 2026-06-29 17:24 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/18590.shtml)
-- 2026-06-29 17:03 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/2200209286.shtml)
-- 2026-06-29 17:05 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/601407.shtml)
+- 2026-06-29 17:12 - [恋与深空 731](http://www.share.minike.top/Article/details/18817721508.shtml)
+- 2026-06-29 17:35 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/431026737846.shtml)
+- 2026-06-29 17:29 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/906877097297.shtml)
+- 2026-06-29 17:31 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/59896.shtml)
+- 2026-06-29 17:19 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/63410497.shtml)
+- 2026-06-29 17:34 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/19611480.shtml)
+- 2026-06-29 17:12 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/577522.shtml)
+- 2026-06-29 17:33 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/46325675.shtml)
+- 2026-06-29 17:18 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/64764929945.shtml)
+- 2026-06-29 17:30 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/0594103.shtml)
+- 2026-06-29 17:15 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/5519088.shtml)
+- 2026-06-29 17:22 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/9894103969.shtml)
+- 2026-06-29 17:24 - [流金岁月](https://www.share.kurohicncr.top/Article/details/887562653.shtml)
+- 2026-06-29 17:14 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/3506099985.shtml)
+- 2026-06-29 17:28 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/88128.shtml)

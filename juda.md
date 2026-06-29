@@ -1,52 +1,61 @@
-# 中国城市基础设施拟折让约14.29%配售3.7亿股 净筹约2210万港元
+# 首艘平陆运河智能船舶示范船建成试航
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中国城市基础设施（02349）发布公告，于2026年6月17日，公司与认购方（亚洲联合有限公司；邝美云；王玲；及高大勇）订立四份认购协议，据此，认购方有条件同意认购而公司有条件同意配发及发行合共3.7亿股股份，认购价为每股认购股份0.06港元。认购价每股认购股份0.06港元较股份于认购协议日期在联交所所报收市价每股0.07港元折让约14.29%；3.7亿股认购股份相当于公司经配
+中新网贵港6月17日电(黄艳梅 莫卫华 吴昊)由广西西江重工有限责任公司建造的首艘平陆运河5000吨级绿色智能示范船“北港运河002”，17日在广西贵港顺利完成试航，标志着平陆运河智能船舶正式从建造阶段迈向运营应用。 前述船舶集成智能航行、智能能效、船岸协同等先进技术，是广西航运智能化、绿色化转型的重要里程碑。 贵港海事局强化试航监管与服务保障，全力护航智能船舶安全试航。试航前
 
 ## 正文
 
-中国城市基础设施（02349）发布公告，于2026年6月17日，公司与认购方（亚洲联合有限公司；邝美云；王玲；及高大勇）订立四份认购协议，据此，认购方有条件同意认购而公司有条件同意配发及发行合共3.7亿股股份，认购价为每股认购股份0.06港元。
+中新网贵港6月17日电(黄艳梅 莫卫华 吴昊)由广西西江重工有限责任公司建造的首艘平陆运河5000吨级绿色智能示范船“北港运河002”，17日在广西贵港顺利完成试航，标志着平陆运河智能船舶正式从建造阶段迈向运营应用。
 
-认购价每股认购股份0.06港元较股份于认购协议日期在联交所所报收市价每股0.07港元折让约14.29%；3.7亿股认购股份相当于公司经配发及发行认购股份而扩大的已发行股本约10.58%。
+前述船舶集成智能航行、智能能效、船岸协同等先进技术，是广西航运智能化、绿色化转型的重要里程碑。
 
-认购事项所得款项总额及所得款项净额（经扣除所有相关成本及开支）将分别为约2220万港元及约2210万港元。
+贵港海事局强化试航监管与服务保障，全力护航智能船舶安全试航。
 
-公司拟用1700万港元于人工智能技术业务的发展与商业赋能业务、及探索其他新业务机会，余额510万港元将用于集团的一般营运资金，包括集团的薪金、租金及其他经营开支。
+试航前，该局第一时间对接船东、造船企业和试航团队，严格审查试航方案及安全保障措施，严格落实试航报备制度，联合相关单位同步开展船舶、船员试航前检查，重点审核智能船舶航行系统的内河适配性，同时实施试航分级分类风险管控，提前防范化解试航通航安全风险。
 
-责任编辑：卢昱君
+试航过程中，贵港海事局派出执法力量现场驻守监督检查、调度海巡船现场护航，疏导过往船舶，保障试航水域通航秩序稳定，并通过线上监控对该船进行全流程跟踪，“线上+线下”联动为船舶试航保驾护航。
+
+随着平陆运河等重大工程加速推进，西江干线航运向智能、绿色方向转型升级步伐持续加快。
+
+此次建成试航的智能船舶示范船，集成了四大核心智能系统：智能集成平台作为船舶“中枢大脑”，整合航行、能效、监测等核心数据，实现船岸一体化调度；智能航行系统融合多传感器与航道实时感知功能，具备障碍物预警、航线智能规划能力，有效降低碰撞、搁浅风险；智能能效系统动态监测燃料消耗并优化能耗，契合平陆运河省水船闸高效运行理念；监测报警系统对动力、应急、防污染等关键设备实现24小时全覆盖监控，异常响应不超过3秒，故障定位精度达95%，从源头防范安全隐患。
+
+该示范船的建成试航，不仅能够验证内河大型智能船舶的技术可行性，更推动传统运输工具向“航运数据节点”演进。
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 17:27 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 17:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 17:02 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 17:25 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 17:09 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 17:25 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 17:27 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 17:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 17:22 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 17:09 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 17:22 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 17:15 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 17:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 17:31 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 17:27 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 17:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 17:13 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 17:14 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 17:07 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 17:26 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 17:29 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 17:35 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 17:29 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 17:07 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 17:13 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 17:14 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:25 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/995260825.shtml)
-- 2026-06-29 17:19 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/8874845.shtml)
-- 2026-06-29 17:17 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/231738.shtml)
-- 2026-06-29 17:01 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/52097268.shtml)
-- 2026-06-29 17:03 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/5564847.shtml)
-- 2026-06-29 17:00 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/16158796.shtml)
-- 2026-06-29 17:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/633909544.shtml)
-- 2026-06-29 17:26 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/738511252652.shtml)
-- 2026-06-29 17:03 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/83515330.shtml)
-- 2026-06-29 17:01 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/288654.shtml)
-- 2026-06-29 17:02 - [流金岁月](https://www.blog.minike.top/Article/details/0128506.shtml)
-- 2026-06-29 17:03 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.kurohicncr.top/Article/details/368985886.shtml)
-- 2026-06-29 17:19 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/546254360.shtml)
-- 2026-06-29 17:06 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/0749489.shtml)
-- 2026-06-29 17:03 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/7686766.shtml)
+- 2026-06-29 17:12 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/266137901.shtml)
+- 2026-06-29 17:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/63488848.shtml)
+- 2026-06-29 17:12 - [沙丘](http://www.blog.kurohicncr.top/Article/details/21402665694.shtml)
+- 2026-06-29 17:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/75210911.shtml)
+- 2026-06-29 17:08 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.kurohicncr.top/Article/details/170872430.shtml)
+- 2026-06-29 17:22 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/300564941585.shtml)
+- 2026-06-29 17:21 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/1941705.shtml)
+- 2026-06-29 17:29 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.minike.top/Article/details/575212457.shtml)
+- 2026-06-29 17:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/6076617.shtml)
+- 2026-06-29 17:33 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/8289124.shtml)
+- 2026-06-29 17:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/927073.shtml)
+- 2026-06-29 17:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/71711.shtml)
+- 2026-06-29 17:10 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/21890859.shtml)
+- 2026-06-29 17:34 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/434276181165.shtml)
+- 2026-06-29 17:24 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/3054783937.shtml)

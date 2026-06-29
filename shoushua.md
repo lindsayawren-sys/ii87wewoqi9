@@ -1,57 +1,57 @@
-# 银行分红密集落地 16家银行6月份完成 金额435亿
+# 努力开创服务业高质量发展新局面
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-进入6月份，上市银行年度分红密集落地，有10家银行已经完成分红，加上5月份5家银行，一共有15家银行完成了分红。还有6家银行宣布将在6月完成分红。除了郑州银行，A股共有41家上市银行确定实施2025年度分红，全年累计派发现金红利 6456.37亿元 （含中期分红），较2024年增加约135亿元。6月8日，上海银行完成红利发放，根据分配方案每股分红现金0.22元，共计派发31.2
+努力开创服务业高质量发展新局面(深入学习贯彻习近平新时代中国特色社会主义思想) 国家发展改革委 党中央、国务院高度重视服务业工作。党的十八大以来，习近平总书记围绕服务业发展作出一系列重要指示批示，为做好服务业工作提供了根本遵循。今年4月，在全国服务业大会召开之际，习近平总书记再次就服务业发展作出重要指示。我们要认真学习领会、坚决贯彻落实，深入推进服务业扩能提质，培育更多“中国服
 
 ## 正文
 
-进入6月份，上市银行年度分红密集落地，有10家银行已经完成分红，加上5月份5家银行，一共有15家银行完成了分红。
+努力开创服务业高质量发展新局面(深入学习贯彻习近平新时代中国特色社会主义思想) 国家发展改革委 党中央、国务院高度重视服务业工作。
 
-还有6家银行宣布将在6月完成分红。
+党的十八大以来，习近平总书记围绕服务业发展作出一系列重要指示批示，为做好服务业工作提供了根本遵循。
 
-除了郑州银行，A股共有41家上市银行确定实施2025年度分红，全年累计派发现金红利 6456.37亿元 （含中期分红），较2024年增加约135亿元。
+今年4月，在全国服务业大会召开之际，习近平总书记再次就服务业发展作出重要指示。
 
-6月8日，上海银行完成红利发放，根据分配方案每股分红现金0.22元，共计派发31.26亿。
+我们要认真学习领会、坚决贯彻落实，深入推进服务业扩能提质，培育更多“中国服务”品牌，努力开创服务业高质量发展新局面。
 
-加上2025年中期的42.63亿，2025年合计派发73.89亿。
+深刻认识推动服务业高质量发展的重大意义 习近平总书记指出：“党的十八大以来，我国服务业规模稳步扩大，质效持续提升，在支撑产业升级、满足民生需要、带动就业扩容等方面发挥了重要作用。
 
-6月9日，常熟银行和紫金银行完成红利发放。
+”促进服务业优质高效发展，关系国计民生，是党中央立足发展阶段形势变化、顺应经济发展规律作出的重要战略部署。
 
-常熟银行每股发放现金0.12元，共计派发3.98亿，每股转增股份0.1股，共计转增3.32亿股。
+建设现代化产业体系的重要内容。
 
-加上2025年中期派发的4.97亿，合计派发8.95亿。
+习近平总书记强调：“着眼发展新质生产力，强化科技创新和产业创新深度融合，建设具有国际竞争力的现代化产业体系。
 
 ## 相关推荐
 
-- 2026-06-29 17:03 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 17:01 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 17:26 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 17:30 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 17:13 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 17:14 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 17:23 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 17:21 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 17:29 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 17:19 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 17:17 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 17:26 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 17:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 17:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 17:11 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 17:34 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 17:19 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 17:33 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 17:19 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 17:06 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 17:26 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 17:25 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:17 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/45327.shtml)
-- 2026-06-29 17:01 - [未成年少女长期吸毒导致卧床不起](http://www.blog.minike.top/Article/details/623471843696.shtml)
-- 2026-06-29 17:21 - [青春环游记第三季](https://www.blog.minike.top/Article/details/835429161147.shtml)
-- 2026-06-29 17:14 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/098986013.shtml)
-- 2026-06-29 17:27 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/626986.shtml)
-- 2026-06-29 17:08 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/039502649.shtml)
-- 2026-06-29 17:27 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/725753649301.shtml)
-- 2026-06-29 17:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/341777.shtml)
-- 2026-06-29 17:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/895583.shtml)
-- 2026-06-29 17:22 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/51007.shtml)
-- 2026-06-29 17:18 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/3365571.shtml)
-- 2026-06-29 17:26 - [斗破苍穹](https://www.blog.minike.top/Article/details/976677179.shtml)
-- 2026-06-29 17:15 - [爱很美味](http://www.share.minike.top/Article/details/024986.shtml)
-- 2026-06-29 17:13 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/747931.shtml)
-- 2026-06-29 17:05 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/811283999123.shtml)
+- 2026-06-29 17:19 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/55986.shtml)
+- 2026-06-29 17:29 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/87112833446.shtml)
+- 2026-06-29 17:12 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.kurohicncr.top/Article/details/538936.shtml)
+- 2026-06-29 17:19 - [第一炉香](https://www.share.minike.top/Article/details/8899720279.shtml)
+- 2026-06-29 17:13 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/4644647.shtml)
+- 2026-06-29 17:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/0347963845.shtml)
+- 2026-06-29 17:10 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/924130242033.shtml)
+- 2026-06-29 17:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/4233196.shtml)
+- 2026-06-29 17:08 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/4381996144.shtml)
+- 2026-06-29 17:08 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/32308233.shtml)
+- 2026-06-29 17:17 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/01840733921.shtml)
+- 2026-06-29 17:34 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/7390082.shtml)
+- 2026-06-29 17:11 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/09551859675.shtml)
+- 2026-06-29 17:08 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/397956.shtml)
+- 2026-06-29 17:26 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/8814156729.shtml)

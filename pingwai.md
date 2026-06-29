@@ -1,54 +1,47 @@
-# 长三角铁路部门预计端午节假期前后发送旅客1745万人次
+# 旭日企业获董事长杨振鑫增持4万股 每股作价约1.35港元
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网南京6月18日电 (胡晓炜)中国铁路上海局集团有限公司18日公布，今年铁路端午节假期运输期限自18日起至22日止，合计5天，长三角铁路部门预计发送旅客1745万人次，日均发送旅客达349万人次。 恰逢全国高考结束后，长三角铁路部门预测，端午节期间旅客出行需求旺盛，学生流、旅游客流有望成为拉动客流增长的核心增长点。此外，杭衢高铁、合新高铁合泗段、金建高铁兰建段等高铁新线引流
+香港联交所最新数据显示，6月16日，董事长杨振鑫增持旭日企业（00393）4万股，每股作价1.35港元，总金额约为5.4万港元。增持后最新持股数目约为9.61亿股，持股比例为64.03%。责任编辑：卢昱君
 
 ## 正文
 
-中新网南京6月18日电 (胡晓炜)中国铁路上海局集团有限公司18日公布，今年铁路端午节假期运输期限自18日起至22日止，合计5天，长三角铁路部门预计发送旅客1745万人次，日均发送旅客达349万人次。
+香港联交所最新数据显示，6月16日，董事长杨振鑫增持旭日企业（00393）4万股，每股作价1.35港元，总金额约为5.4万港元。
 
-恰逢全国高考结束后，长三角铁路部门预测，端午节期间旅客出行需求旺盛，学生流、旅游客流有望成为拉动客流增长的核心增长点。
+增持后最新持股数目约为9.61亿股，持股比例为64.03%。
 
-此外，杭衢高铁、合新高铁合泗段、金建高铁兰建段等高铁新线引流作用明显，新线、新站、新车等资源有望带来客流增量。
-
-从订票情况看，18日至19日，长三角多地去往武汉、长沙、福州、厦门、青岛等直通方向，浙江、上海去往徐州、蚌埠、阜阳、合肥、安庆方向，上海、南京去往盐城、淮安、扬州方向，上海、杭州去往宁波、台州、温州等管内方向车票较为紧张；20日至21日，长三角多地去往全国大多方向均有余票。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 17:19 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 17:11 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 17:04 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 17:26 - [医院大厅放钢琴是形式主义吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 17:14 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 17:15 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 17:18 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 17:23 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 17:25 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 17:20 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 17:01 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 17:23 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 17:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 17:17 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 17:07 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 17:22 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 17:11 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 17:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 17:28 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 17:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 17:31 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 17:13 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 17:31 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 17:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [工作靠AI算不算职场作弊](https://www.share.minike.top/Article/details/2781838298.shtml)
-- 2026-06-29 17:22 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/289501.shtml)
-- 2026-06-29 17:29 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/2242331.shtml)
-- 2026-06-29 17:25 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/1848061.shtml)
-- 2026-06-29 17:06 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/96907033.shtml)
-- 2026-06-29 17:23 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/178784894.shtml)
-- 2026-06-29 17:03 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/314404.shtml)
-- 2026-06-29 17:16 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/318994973931.shtml)
-- 2026-06-29 17:12 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.minike.top/Article/details/06526.shtml)
-- 2026-06-29 17:21 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/739421985.shtml)
-- 2026-06-29 17:07 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/535376120.shtml)
-- 2026-06-29 17:22 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/30998046.shtml)
-- 2026-06-29 17:06 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/83795398761.shtml)
-- 2026-06-29 17:26 - [T1 KC](http://www.blog.kurohicncr.top/Article/details/6888881.shtml)
-- 2026-06-29 17:18 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/6020658.shtml)
+- 2026-06-29 17:11 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/82568.shtml)
+- 2026-06-29 17:27 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/82134.shtml)
+- 2026-06-29 17:09 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/32139.shtml)
+- 2026-06-29 17:22 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/710025049.shtml)
+- 2026-06-29 17:08 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/532544.shtml)
+- 2026-06-29 17:13 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/439797221997.shtml)
+- 2026-06-29 17:31 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.minike.top/Article/details/9043316.shtml)
+- 2026-06-29 17:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/72261.shtml)
+- 2026-06-29 17:24 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/9011325.shtml)
+- 2026-06-29 17:22 - [恋与深空 731](https://www.share.minike.top/Article/details/445462.shtml)
+- 2026-06-29 17:22 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/3776606328.shtml)
+- 2026-06-29 17:35 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/83024.shtml)
+- 2026-06-29 17:06 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/28554678913.shtml)
+- 2026-06-29 17:21 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/160751495.shtml)
+- 2026-06-29 17:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/11945580313.shtml)

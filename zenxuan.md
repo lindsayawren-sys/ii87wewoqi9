@@ -1,56 +1,57 @@
-# 2026第十五届中原国际车展在郑州举行 多元出行场景集中展示
+# 端午假期上海邮轮口岸将有6艘次邮轮出入境 迎客流高峰
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？十届南博会，一叶清茶何以架起文明对话之桥？中国沙漠治理经验，如何与世界共享？人工智能如何向善而行？为什么不能总挖鼻孔？专家提醒淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护深化金融改革强监管 为全球注入更多确定性冲
+中新网上海6月18日电 (记者 陈静)上海边检总站浦江边检站(下称：浦江边检站)方面18日披露，今年端午假期(6月19日至21日)，上海邮轮口岸将有6艘次邮轮出入境，出入境旅客数1.9万人次，较去年同期分别增长50%和45%。单日客流最高峰预计出现在6月19日。据悉，相关邮轮推出品尝端午香粽、传统主题之夜派对等活动，让中外旅客在海上沉浸式感受中国传统节日氛围。 浦江边检站方面介
 
 ## 正文
 
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
+中新网上海6月18日电 (记者 陈静)上海边检总站浦江边检站(下称：浦江边检站)方面18日披露，今年端午假期(6月19日至21日)，上海邮轮口岸将有6艘次邮轮出入境，出入境旅客数1.9万人次，较去年同期分别增长50%和45%。
 
-十届南博会，一叶清茶何以架起文明对话之桥？
+单日客流最高峰预计出现在6月19日。
 
-中国沙漠治理经验，如何与世界共享？
+据悉，相关邮轮推出品尝端午香粽、传统主题之夜派对等活动，让中外旅客在海上沉浸式感受中国传统节日氛围。
 
-人工智能如何向善而行？
+浦江边检站方面介绍，今年以来，上海邮轮经济保持强劲复苏态势，截至6月18日，浦江边检站累计查验出入境船舶数280艘次，出入境旅客数超68万人次。
 
-为什么不能总挖鼻孔？
+其中，外籍旅客数超9万人次，占比提升至14%，创近5年同期新高。
 
-专家提醒淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护深化金融改革强监管 为全球注入更多确定性冲刺百万亿，服务业高质量发展提速用AI做旅游攻略：“被忽悠白花了1000块钱”“特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？
+暑期邮轮旺季即将来临，邮轮市场热度有望进一步攀升。
 
-斯坦利·约翰逊：为何要重走马可·波罗之路？
+据介绍，为应对瞬时大客流，上海边检机关提前研判、周密部署，全力保障旅客高效顺畅通关。
 
-多边主义保障世界人权面临何种挑战与机遇？
+节前，边检部门精准预测客流，提前发布“两公布一提示”，引导旅客错峰出行。
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 17:17 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 17:15 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 17:22 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 17:14 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 17:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 17:23 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 17:13 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 17:11 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 17:18 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 17:33 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 17:06 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 17:29 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 17:18 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 17:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 17:33 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 17:19 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 17:19 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 17:14 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 17:33 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 17:13 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/08383.shtml)
-- 2026-06-29 17:00 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/4792163876.shtml)
-- 2026-06-29 17:02 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/02308.shtml)
-- 2026-06-29 17:15 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/6735312169.shtml)
-- 2026-06-29 17:11 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/852298975128.shtml)
-- 2026-06-29 17:01 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/54859356.shtml)
-- 2026-06-29 17:11 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/50861691403.shtml)
-- 2026-06-29 17:11 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/04139193.shtml)
-- 2026-06-29 17:18 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/4768316.shtml)
-- 2026-06-29 17:19 - [女心理师](https://www.blog.kurohicncr.top/Article/details/086220119.shtml)
-- 2026-06-29 17:25 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/746704823286.shtml)
-- 2026-06-29 17:27 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/802680124.shtml)
-- 2026-06-29 17:01 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/07604.shtml)
-- 2026-06-29 17:21 - [高市早苗口齿不清被质疑醉酒](http://www.share.minike.top/Article/details/91597276398.shtml)
-- 2026-06-29 17:21 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/4078069.shtml)
+- 2026-06-29 17:15 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/96476694349.shtml)
+- 2026-06-29 17:14 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/97877081466.shtml)
+- 2026-06-29 17:24 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/580345.shtml)
+- 2026-06-29 17:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/390594619971.shtml)
+- 2026-06-29 17:34 - [评论员：日菲勾连各有盘算](https://www.blog.minike.top/Article/details/4078605438.shtml)
+- 2026-06-29 17:21 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/46625.shtml)
+- 2026-06-29 17:18 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/65884006293.shtml)
+- 2026-06-29 17:14 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/23818.shtml)
+- 2026-06-29 17:23 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/2242759.shtml)
+- 2026-06-29 17:07 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/67383.shtml)
+- 2026-06-29 17:26 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/91102782.shtml)
+- 2026-06-29 17:13 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/420014689592.shtml)
+- 2026-06-29 17:10 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/651411489.shtml)
+- 2026-06-29 17:29 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/310320212.shtml)
+- 2026-06-29 17:12 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/2559695.shtml)

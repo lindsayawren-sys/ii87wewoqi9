@@ -1,58 +1,57 @@
-# 震荡行情港股红利类资产获青睐，港股通红利ETF华泰柏瑞（513530）基金份额突破25亿份连续创历史新高！
+# 封关半年看海南：一批标杆性、引领性外资项目落地
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-进入6月，美联储释放偏鹰信号、加息预期升温，美伊冲突反复，全球资本市场风险偏好有所抬升。与此同时，近一个季度以来南向资金整体延续积极买入态势。其中金融业和能源业分别吸金303亿港元、205亿港元，均位居净买入行业前三，高分红行业依然是“南水”的青睐方向之一。在经济弱复苏、海外流动性与地缘政治变数交织的环境中，具备较高股息特征的港股红利类资产，正成为资金青睐的底仓配置方向之一。
+中新网海口6月17日电 (记者 王子谦)海南自贸港封关运作半年，正在成为全球企业布局中国市场的优选热土。海南省商务厅副厅长张春亘17日在海南自由贸易港封关半年新闻发布会上说，半年来一批标杆性、引领性外资项目落地，多条重点产业赛道靶向对接全球优质资源。 全岛封关运作作为海南自贸港更高水平、更深层次制度型开放的全新起点，为海南面向全球开展招商引资、集聚全球优质资源、链接国际国内双循
 
 ## 正文
 
-进入6月，美联储释放偏鹰信号、加息预期升温，美伊冲突反复，全球资本市场风险偏好有所抬升。
+中新网海口6月17日电 (记者 王子谦)海南自贸港封关运作半年，正在成为全球企业布局中国市场的优选热土。
 
-与此同时，近一个季度以来南向资金整体延续积极买入态势。
+海南省商务厅副厅长张春亘17日在海南自由贸易港封关半年新闻发布会上说，半年来一批标杆性、引领性外资项目落地，多条重点产业赛道靶向对接全球优质资源。
 
-其中金融业和能源业分别吸金303亿港元、205亿港元，均位居净买入行业前三，高分红行业依然是“南水”的青睐方向之一。
+全岛封关运作作为海南自贸港更高水平、更深层次制度型开放的全新起点，为海南面向全球开展招商引资、集聚全球优质资源、链接国际国内双循环带来了巨大的战略机遇。
 
-在经济弱复苏、海外流动性与地缘政治变数交织的环境中，具备较高股息特征的港股红利类资产，正成为资金青睐的底仓配置方向之一。
+张春亘表示，半年来，海南自贸港聚焦先进制造、绿色低碳、临空经济、医疗健康、文旅消费等重点赛道精准发力、靶向对接全球优质资源，为产业集聚、经济转型升级和高质量发展注入了强劲动能，进一步推动海南自贸港从“建制度”向“见实效”转变。
 
-Wind和交易所数据显示，全市场首只通过QDII模式投资港股通高股息（CNY）指数的ETF——港股通红利ETF华泰柏瑞（513530）上周以来连续7个交易日录得净申购，累计资金净流入达2.42亿元。
+在先进制造业领域，标杆外资项目实现重大突破。
 
-持续涌入的买盘推动该ETF基金规模突破40亿元，基金份额突破25亿份，双双刷新成立以来纪录，流动性与规模优势进一步巩固。
+封关后首个制造业标杆外资项目——世界500强西门子能源燃机总装基地及服务中心在洋浦经济开发区开工建设，同步设立西门子能源(海南)有限公司，打造国内燃机总装及服务核心基地。
 
-资金青睐的背后，是低利率环境下港股红利资产较为突出的股息率。
+该项目将有效补齐海南高端装备制造、清洁能源服务产业链短板。
 
-截至最新（26/6/16），港股通红利ETF华泰柏瑞（513530）跟踪的港股通高股息（CNY）指数近一年股息率来到4.79%，与同期1.73%的10年期国债收益率存在3.06%的利差。
+除西门子能源外，闵和儋州粮油综合加工产业园、海南太古可口可乐绿色智能生产基地等实体产业项目也陆续开工建设，不断夯实自贸港实体经济根基。
 
 ## 相关推荐
 
-- 2026-06-29 17:15 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 17:09 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 17:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 17:11 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 17:25 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 17:13 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 17:22 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 17:16 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 17:01 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 17:08 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 17:24 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 17:03 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 17:16 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 17:28 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 17:18 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 17:22 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 17:09 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 17:27 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 17:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 17:10 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 17:21 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 17:19 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 17:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:11 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/57538567227.shtml)
-- 2026-06-29 17:25 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/644571.shtml)
-- 2026-06-29 17:11 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/43906583.shtml)
-- 2026-06-29 17:02 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/208537.shtml)
-- 2026-06-29 17:11 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/01141.shtml)
-- 2026-06-29 17:21 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/874713.shtml)
-- 2026-06-29 17:09 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/4455137409.shtml)
-- 2026-06-29 17:11 - [千与千寻](http://www.share.kurohicncr.top/Article/details/530699.shtml)
-- 2026-06-29 17:04 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/6423786058.shtml)
-- 2026-06-29 17:03 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/52500.shtml)
-- 2026-06-29 17:22 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/89922334348.shtml)
-- 2026-06-29 17:11 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/722800.shtml)
-- 2026-06-29 17:17 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/39996596.shtml)
-- 2026-06-29 17:16 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/16028661.shtml)
-- 2026-06-29 17:21 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/37746165.shtml)
+- 2026-06-29 17:30 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/855546.shtml)
+- 2026-06-29 17:08 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/9283746.shtml)
+- 2026-06-29 17:25 - [工作靠AI算不算职场作弊](http://www.blog.minike.top/Article/details/19386798.shtml)
+- 2026-06-29 17:17 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/361543863.shtml)
+- 2026-06-29 17:11 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/324483931.shtml)
+- 2026-06-29 17:30 - [看大国重器“云端穿针引线”](http://www.blog.minike.top/Article/details/06094651.shtml)
+- 2026-06-29 17:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/15400330120.shtml)
+- 2026-06-29 17:33 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/3816170272.shtml)
+- 2026-06-29 17:31 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/857600251237.shtml)
+- 2026-06-29 17:30 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/16476857814.shtml)
+- 2026-06-29 17:10 - [美的空调 卡bug](http://www.share.minike.top/Article/details/91339486.shtml)
+- 2026-06-29 17:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/18884.shtml)
+- 2026-06-29 17:19 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/434827.shtml)
+- 2026-06-29 17:11 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/86008400278.shtml)
+- 2026-06-29 17:23 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/960980411.shtml)

@@ -1,58 +1,58 @@
-# 中国及东盟50余家企业亮相中国（郑州）—东盟风情美食节
+# 胜科纳米6月17日大宗交易成交264.60万元
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网郑州6月17日电 (王宇)中国(郑州)—东盟风情美食节17日在河南郑州启幕，吸引东盟及中国50余家企业参加。 马来西亚咖喱面、泰国柠檬炸鸡、菲律宾榴莲饼、越南燕窝……记者在现场看到，南洋美食与中原烧鸡、啤酒、大枣等特色风味精彩碰撞，引得众多游客驻足品尝。 当日，刚刚采摘的一千公斤猫山王榴莲，从马来西亚搭乘货运航班抵达郑州。活动现场，马来西亚参展商叶秋德不停招呼往来市民尝鲜
+胜科纳米6月17日大宗交易平台出现一笔成交，成交量4.50万股，成交金额264.60万元，大宗交易成交价为58.80元，相对今日收盘价折价1.51%。该笔交易的买方营业部为机构专用，卖方营业部为华泰证券股份有限公司南京浦口大道证券营业部。进一步统计，近3个月内该股累计发生28笔大宗交易，合计成交金额为4.73亿元。证券时报·数据宝统计显示，胜科纳米今日收盘价为59.70元，上涨
 
 ## 正文
 
-中新网郑州6月17日电 (王宇)中国(郑州)—东盟风情美食节17日在河南郑州启幕，吸引东盟及中国50余家企业参加。
+胜科纳米6月17日大宗交易平台出现一笔成交，成交量4.50万股，成交金额264.60万元，大宗交易成交价为58.80元，相对今日收盘价折价1.51%。
 
-马来西亚咖喱面、泰国柠檬炸鸡、菲律宾榴莲饼、越南燕窝……记者在现场看到，南洋美食与中原烧鸡、啤酒、大枣等特色风味精彩碰撞，引得众多游客驻足品尝。
+该笔交易的买方营业部为机构专用，卖方营业部为华泰证券股份有限公司南京浦口大道证券营业部。
 
-当日，刚刚采摘的一千公斤猫山王榴莲，从马来西亚搭乘货运航班抵达郑州。
+进一步统计，近3个月内该股累计发生28笔大宗交易，合计成交金额为4.73亿元。
 
-活动现场，马来西亚参展商叶秋德不停招呼往来市民尝鲜，他想借这次美食节的平台，深化和河南大市场的对接，把更多马来西亚特色优质农产品推介出去。
+证券时报·数据宝统计显示，胜科纳米今日收盘价为59.70元，上涨3.74%，日换手率为7.01%，成交额为7.34亿元，全天主力资金净流入1091.81万元，近5日该股累计上涨44.94%，近5日资金合计净流入6310.98万元。
 
-“这既是一场感官盛宴，也是一扇窗口，让河南乃至中国民众在家门口便能体验东盟风情、领略世界多彩。
+两融数据显示，该股最新融资余额为2.81亿元，近5日减少1.07亿元，降幅为27.51%。
 
-”中国—东盟中心特邀嘉宾史忠俊在现场表示，此次美食节有助于扩大中国与东盟间的农产品贸易与投资，同时通过展览展示深化双方人文交流，推动文化和旅游产业发展。
+据天眼查APP显示，胜科纳米(苏州)股份有限公司成立于2012年08月17日，注册资本40331.1486万人民币。
 
-与会的缅甸农业、畜牧和灌溉部副部长波波觉表示，文化与美食是促进各国人民相互理解、增进友谊与合作的重要途径。
+（数据宝）6月17日胜科纳米大宗交易一览注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
 
-本届美食节将作为重要交流平台，助力生产商、出口商、经营者及旅游从业者对接联系、促进互利合作。
+（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-29 17:17 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 17:23 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 17:01 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 17:22 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 17:07 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 17:01 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 17:03 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 17:04 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 17:04 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 17:19 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 17:16 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 17:21 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 17:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 17:35 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 17:31 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 17:25 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 17:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 17:19 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 17:17 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 17:14 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 17:19 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 17:13 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 17:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 17:07 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:14 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/484307264159.shtml)
-- 2026-06-29 17:17 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/5833926496.shtml)
-- 2026-06-29 17:14 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/515187405.shtml)
-- 2026-06-29 17:28 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/50618569855.shtml)
-- 2026-06-29 17:04 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/526788.shtml)
-- 2026-06-29 17:25 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/456234.shtml)
-- 2026-06-29 17:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/691277614737.shtml)
-- 2026-06-29 17:14 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/417475303.shtml)
-- 2026-06-29 17:19 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/56281971352.shtml)
-- 2026-06-29 17:28 - [四川达州发生一起交通事故致2死](http://www.blog.kurohicncr.top/Article/details/04758.shtml)
-- 2026-06-29 17:27 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/25316874.shtml)
-- 2026-06-29 17:17 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/147842770581.shtml)
-- 2026-06-29 17:21 - [女心理师](https://www.blog.minike.top/Article/details/177214688.shtml)
-- 2026-06-29 17:20 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/528728511155.shtml)
-- 2026-06-29 17:13 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/36891857.shtml)
+- 2026-06-29 17:26 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/590248.shtml)
+- 2026-06-29 17:25 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/08034969.shtml)
+- 2026-06-29 17:26 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/30241.shtml)
+- 2026-06-29 17:21 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/115560884.shtml)
+- 2026-06-29 17:07 - [天道](https://www.blog.minike.top/Article/details/9806439.shtml)
+- 2026-06-29 17:07 - [人形机器人](https://www.share.minike.top/Article/details/48077335015.shtml)
+- 2026-06-29 17:12 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/93857644921.shtml)
+- 2026-06-29 17:31 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/408358.shtml)
+- 2026-06-29 17:08 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.minike.top/Article/details/0354182335.shtml)
+- 2026-06-29 17:13 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/082023333.shtml)
+- 2026-06-29 17:28 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/438841372.shtml)
+- 2026-06-29 17:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/608855376.shtml)
+- 2026-06-29 17:07 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/75074.shtml)
+- 2026-06-29 17:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/83352925.shtml)
+- 2026-06-29 17:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/2218364479.shtml)

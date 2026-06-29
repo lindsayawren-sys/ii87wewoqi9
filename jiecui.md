@@ -1,55 +1,56 @@
-# 上海2026世界人工智能大会首设AI顶级学术会议
+# 159瓶茅台被跨省查扣，3年后多瓶茅台缺失，警方回应
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新社上海6月17日电 (记者 郑莹莹)记者从17日举办的2026世界人工智能大会暨人工智能全球治理高级别会议倒计时30天发布会上获悉，今年大会将首次举办高水平、国际化的AI顶级学术会议“WAIC-Academic”，这是中国举办人工智能顶级学术会议的重要探索。该学术会议由图灵奖得主、中国科学院院士姚期智担任大会主席，“强化学习之父”理查德·萨顿(Richard Sutton)
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 据大风新闻报道，四川宜宾珙县警方2023年赴沈阳查假五粮液（维权），扣走159瓶茅台酒，酒商今年查验发现被扣押的茅台酒多瓶缺失或出现空瓶。6月17日，宜宾市公安局督审支队回应澎湃新闻，正内部调查。 6月16日，辽宁沈阳的酒商何先生夫妻反映，2023年四川宜宾珙县警方前往沈阳查假五粮液，扣走其159瓶茅台，此后警方以何先生
 
 ## 正文
 
-中新社上海6月17日电 (记者 郑莹莹)记者从17日举办的2026世界人工智能大会暨人工智能全球治理高级别会议倒计时30天发布会上获悉，今年大会将首次举办高水平、国际化的AI顶级学术会议“WAIC-Academic”，这是中国举办人工智能顶级学术会议的重要探索。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 据大风新闻报道，四川宜宾珙县警方2023年赴沈阳查假五粮液（维权），扣走159瓶茅台酒，酒商今年查验发现被扣押的茅台酒多瓶缺失或出现空瓶。
 
-该学术会议由图灵奖得主、中国科学院院士姚期智担任大会主席，“强化学习之父”理查德·萨顿(Richard Sutton)担任国际联席主席，已收到有效投稿284篇，覆盖全球10多个国家和地区。
+6月17日，宜宾市公安局督审支队回应澎湃新闻，正内部调查。
 
-整体上，本次大会以“智能伙伴 共创未来”为主题，将于7月17日至20日在上海举办。
+6月16日，辽宁沈阳的酒商何先生夫妻反映，2023年四川宜宾珙县警方前往沈阳查假五粮液，扣走其159瓶茅台，此后警方以何先生涉嫌销售假酒移送检方起诉。
 
-据上海市经济和信息化委员会主任汤文侃介绍，今年大会共设置论坛会议、展览展示、评奖赛事、应用体验、创新孵化、招才引智六大核心板块，将集聚1400多位国际嘉宾。
+今年5月20日，何先生夫妻二人在代理律师的陪同下，前往珙县公安局食药环侦大队查验发现，多瓶高价茅台酒缺失，部分茅台酒已被开启变成空瓶。
 
-今年大会分设世博、张江及西岸三大片区，总展览面积超过10万平方米，将吸引1100多家企业的3000多项展品集中亮相。
+对于这一情况，现场民警未能给出合理解释。
 
-(完)
+对于珙县警方行为是否存在违规违纪情况，6月17日，宜宾市公安局督审支队工作人员回应澎湃新闻“正进行内部调查”。
+
+澎湃新闻记者拨打珙县公安局政工室电话，工作人员称“采访需经过省厅批准”。
+
+据大风新闻报道，该案历经8次庭审，目前仍在审理过程中，由于作为物证的茅台酒存在大量缺失，何先生曾申请对其真伪进行鉴定。
 
 ## 相关推荐
 
-- 2026-06-29 17:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 17:06 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 17:14 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 17:03 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 17:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 17:10 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 17:10 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 17:03 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 17:13 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 17:08 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 17:02 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 17:02 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 17:06 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 17:27 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 17:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 17:17 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 17:19 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 17:20 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 17:11 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 17:24 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 17:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 17:31 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 17:29 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:07 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/578200.shtml)
-- 2026-06-29 17:22 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/2160335.shtml)
-- 2026-06-29 17:00 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/957087798324.shtml)
-- 2026-06-29 17:11 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/753989536.shtml)
-- 2026-06-29 17:26 - [女心理师](http://www.blog.kurohicncr.top/Article/details/2805777870.shtml)
-- 2026-06-29 17:16 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/0454470.shtml)
-- 2026-06-29 17:03 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/167135.shtml)
-- 2026-06-29 17:07 - [挪威王储妃长子2次强奸被判4年](http://www.share.kurohicncr.top/Article/details/23230557400.shtml)
-- 2026-06-29 17:04 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/1266219.shtml)
-- 2026-06-29 17:12 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/568301168.shtml)
-- 2026-06-29 17:29 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/055709.shtml)
-- 2026-06-29 17:20 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/1775142197.shtml)
-- 2026-06-29 17:15 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/80276745900.shtml)
-- 2026-06-29 17:03 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/3519911712.shtml)
-- 2026-06-29 17:13 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/314908433.shtml)
+- 2026-06-29 17:24 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/57905324.shtml)
+- 2026-06-29 17:10 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/4254590291.shtml)
+- 2026-06-29 17:35 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/431544281839.shtml)
+- 2026-06-29 17:29 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/967750.shtml)
+- 2026-06-29 17:19 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/49136862.shtml)
+- 2026-06-29 17:30 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/81192.shtml)
+- 2026-06-29 17:23 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/45281979135.shtml)
+- 2026-06-29 17:12 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/71224296920.shtml)
+- 2026-06-29 17:12 - [T1 KC](http://www.blog.minike.top/Article/details/83308.shtml)
+- 2026-06-29 17:22 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/23468060514.shtml)
+- 2026-06-29 17:12 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/14650153886.shtml)
+- 2026-06-29 17:25 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/90245891.shtml)
+- 2026-06-29 17:11 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/816144709587.shtml)
+- 2026-06-29 17:06 - [速度与激情9](https://www.blog.minike.top/Article/details/1737553.shtml)
+- 2026-06-29 17:26 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/17151111.shtml)

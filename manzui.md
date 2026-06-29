@@ -1,58 +1,57 @@
-# 硝烟已起！微信支付宝打响AI支付战役，还有哪些巨头涌入？
+# 东风奕派 M8 汽车官宣搭载「全置换新风系统」，宣称有“诺贝尔奖级黑科技”加持
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 硝烟已起。 6月16日，支付宝迎来史上最大改版，AI版支付宝以邀测形式上线。17日，微信支付正式发布AI专属卡。 目前来看，两大平台的AI支付路径并不一致，但“对话式交易”均是核心所在，即通过对话生成对应订单，并支持支付。且两大平台均强调资金保障安全，在最终支付前均需要密码验证。 值得注意的是，入局AI支付的还有银联商务、京东，
+IT之家 6 月 17 日消息，东风奕派今日宣布，奕派 M8 汽车将搭载采用获得诺贝尔奖尖端滤材的「全置换新风系统」。东风奕派表示，奕派 M8 的全置换新风系统，是一套集温度调节、空气净化、通风换气、防潮抑菌于一体的综合性座舱空气解决方案，核心由两大模块协同组成：负责智能控温、全域空气循环、通风防潮的专属车载空调，以及获得诺贝尔奖技术加持的 MOFs 净化滤芯。据介绍，MOFs
 
 ## 正文
 
-界面新闻记者 | 何柳颖 界面新闻编辑 | 王姝 硝烟已起。
+IT之家 6 月 17 日消息，东风奕派今日宣布，奕派 M8 汽车将搭载采用获得诺贝尔奖尖端滤材的「全置换新风系统」。
 
-6月16日，支付宝迎来史上最大改版，AI版支付宝以邀测形式上线。
+东风奕派表示，奕派 M8 的全置换新风系统，是一套集温度调节、空气净化、通风换气、防潮抑菌于一体的综合性座舱空气解决方案，核心由两大模块协同组成：负责智能控温、全域空气循环、通风防潮的专属车载空调，以及获得诺贝尔奖技术加持的 MOFs 净化滤芯。
 
-17日，微信支付正式发布AI专属卡。
+据介绍，MOFs 空调净化滤芯材料为 2025 年诺贝尔化学奖核心成果，对车内各类持续挥发的污染物净化率最高接近 100%，有效使用寿命达 12-24 个月，超传统滤芯。
 
-目前来看，两大平台的AI支付路径并不一致，但“对话式交易”均是核心所在，即通过对话生成对应订单，并支持支付。
+MOFs 核心特性叫“吸附 — 释放”的可逆柔性 —— 它可以反复吸附污染物，再通过特定条件再生，恢复净化能力。
 
-且两大平台均强调资金保障安全，在最终支付前均需要密码验证。
+目前，国内已经实现 MOFs 的室温无溶剂化量产技术突破，具备了规模化民用落地的基础。
 
-值得注意的是，入局AI支付的还有银联商务、京东，两者均于近日发布重磅官宣消息。
-
-在AI浪潮下，围绕AI支付的巨头大战正式开启。
-
-AI版支付宝 VS AI专属卡 6月16日，支付宝官宣AI版支付宝开启邀测，用户右滑进入新版，即可看到一个清爽的新界面。
+据IT之家此前报道，东风奕派 M8 已于 5 月 23 日迎来全球首秀，拥有 5 米车长、超 3 米轴距，搭载同级唯一纯电、增程双动力，并满配华为乾崑技术 6 件套，包括华为乾崑智驾 ADS 5 Pro、鸿蒙座舱 HarmonySpace 5.2、乾崑车云、乾崑车控、鲸鳍通信和 HUAWEI SOUND 21 扬声器。
 
 ## 相关推荐
 
-- 2026-06-29 17:13 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 17:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 17:25 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 17:04 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 17:23 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 17:15 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 17:15 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 17:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 17:12 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 17:27 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 17:19 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 17:01 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 17:06 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 17:15 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 17:30 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 17:23 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 17:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 17:06 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 17:32 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 17:19 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 17:23 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 17:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 17:27 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 17:27 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 17:33 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 17:10 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 17:06 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/82106388971.shtml)
-- 2026-06-29 17:00 - [中国战机大片上新](https://www.share.minike.top/Article/details/84557167.shtml)
-- 2026-06-29 17:11 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/2635327.shtml)
-- 2026-06-29 17:04 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/313425708562.shtml)
-- 2026-06-29 17:12 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/3207186.shtml)
-- 2026-06-29 17:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/478888794.shtml)
-- 2026-06-29 17:03 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/2065312682.shtml)
-- 2026-06-29 17:26 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/46651706.shtml)
-- 2026-06-29 17:03 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/68347865651.shtml)
-- 2026-06-29 17:22 - [当我回母校教书](http://www.blog.minike.top/Article/details/2262624526.shtml)
-- 2026-06-29 17:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/9647455.shtml)
-- 2026-06-29 17:02 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/180760.shtml)
-- 2026-06-29 17:11 - [TFING全员黑西装](http://www.share.minike.top/Article/details/2851076540.shtml)
-- 2026-06-29 17:22 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/968133.shtml)
-- 2026-06-29 17:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/408659.shtml)
+- 2026-06-29 17:09 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/83013.shtml)
+- 2026-06-29 17:26 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/83149898526.shtml)
+- 2026-06-29 17:33 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/50919.shtml)
+- 2026-06-29 17:34 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/910008.shtml)
+- 2026-06-29 17:13 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/939159749858.shtml)
+- 2026-06-29 17:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/174661544.shtml)
+- 2026-06-29 17:30 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/92406.shtml)
+- 2026-06-29 17:31 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/41666064.shtml)
+- 2026-06-29 17:07 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/915738757280.shtml)
+- 2026-06-29 17:26 - [起风了](http://www.share.kurohicncr.top/Article/details/3871803669.shtml)
+- 2026-06-29 17:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/429450739646.shtml)
+- 2026-06-29 17:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/16262478898.shtml)
+- 2026-06-29 17:07 - [徐昕暂不参加NBA夏季联赛](https://www.blog.kurohicncr.top/Article/details/937490.shtml)
+- 2026-06-29 17:30 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/701051.shtml)
+- 2026-06-29 17:19 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/4219971.shtml)

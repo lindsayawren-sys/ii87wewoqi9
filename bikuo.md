@@ -1,55 +1,56 @@
-# 金融监管总局：严禁滥用人工智能技术生成虚假信息、操纵市场价格
+# 颠覆先进封装，帝尔激光、东威科技先吃肉！
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-6月18日金融一线消息，国家金融监督管理总局发布关于银行业保险业人工智能安全开发应用的指导意见。意见提到，健全风险治理体系。金融机构应将人工智能风险纳入全面风险管理体系，定期开展对人工智能应用风险及管理措施的评估审查。推动模型算法、数据资源、基础设施、应用系统等安全能力建设，完善业务及风险管理流程，防范模型生成结果不可靠风险，防止模型黑箱导致关键业务流程难落责问题。夯实数据安全
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：英才商业 为什么是玻璃基板？ 玻璃基板之所以被资本市场反复提及，本质上不是一个材料故事，而是一个先进封装故事。 01 为什么用玻璃基板？ 讲人话：未来芯片越来越大，互联越来越密，传统ABF载板开始接近物理极限，翘曲增加，信号损耗增加，散热压力增加，成本也越来越高，于是行业开始寻找新的载体，玻璃基板就在
 
 ## 正文
 
-6月18日金融一线消息，国家金融监督管理总局发布关于银行业保险业人工智能安全开发应用的指导意见。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-意见提到，健全风险治理体系。
+来源：英才商业 为什么是玻璃基板？
 
-金融机构应将人工智能风险纳入全面风险管理体系，定期开展对人工智能应用风险及管理措施的评估审查。
+玻璃基板之所以被资本市场反复提及，本质上不是一个材料故事，而是一个先进封装故事。
 
-推动模型算法、数据资源、基础设施、应用系统等安全能力建设，完善业务及风险管理流程，防范模型生成结果不可靠风险，防止模型黑箱导致关键业务流程难落责问题。
+01 为什么用玻璃基板？
 
-夯实数据安全、网络安全、个人信息与隐私保护和业务连续性基础。
+讲人话：未来芯片越来越大，互联越来越密，传统ABF载板开始接近物理极限，翘曲增加，信号损耗增加，散热压力增加，成本也越来越高，于是行业开始寻找新的载体，玻璃基板就在这个背景下出现； 专业点：从芯片封装尺寸演进看，算力芯片大型化趋势非常明确：从Hopper 55×58mm，到Blackwell 80×75mm，再到Rubin 90×100mm，封装面积、信号数和供电密度不断上升，意味着传统有机芯层在翘曲控制与布线密度上的压力只会越来越大。
 
-有效应对金融业务侧可能产生的投资策略趋同、放大市场波动风险，严禁滥用人工智能技术生成虚假信息、操纵市场价格。
+因为AI/HPC封装尺寸持续放大后，ABF/有机载板和硅中介层同时暴露出边界条件。
 
-责任编辑：王馨茹
+ABF载板的热膨胀系数失配导致翘曲、线宽线距逼近极限、高频损耗偏高；硅中介层的问题则是尺寸受晶圆与reticle限制、介电损耗偏高、成本高、晶圆厂资源占用重。
+
+这是玻璃基板被重新推到产业前端的根本原因，趋势已成。
 
 ## 相关推荐
 
-- 2026-06-29 17:16 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 17:03 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 17:06 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 17:19 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 17:25 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 17:22 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 17:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 17:29 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 17:07 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 17:13 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 17:02 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 17:32 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 17:17 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 17:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 17:22 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 17:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 17:07 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 17:34 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 17:13 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 17:09 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 17:28 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:20 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/78689733.shtml)
-- 2026-06-29 17:22 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/05738398442.shtml)
-- 2026-06-29 17:07 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/84362.shtml)
-- 2026-06-29 17:07 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/79627085.shtml)
-- 2026-06-29 17:24 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/6093330.shtml)
-- 2026-06-29 17:05 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/6528198849.shtml)
-- 2026-06-29 17:25 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/21488.shtml)
-- 2026-06-29 17:20 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/98401964733.shtml)
-- 2026-06-29 17:14 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/8153369.shtml)
-- 2026-06-29 17:12 - [《贺子珍》](http://www.blog.minike.top/Article/details/707328368.shtml)
-- 2026-06-29 17:24 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/288253153.shtml)
-- 2026-06-29 17:22 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/759311992147.shtml)
-- 2026-06-29 17:11 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/3396169829.shtml)
-- 2026-06-29 17:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/14138.shtml)
-- 2026-06-29 17:08 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/841962561810.shtml)
+- 2026-06-29 17:11 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/763437.shtml)
+- 2026-06-29 17:13 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/440549.shtml)
+- 2026-06-29 17:33 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/3931324.shtml)
+- 2026-06-29 17:17 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/70742832.shtml)
+- 2026-06-29 17:09 - [倪春青跨市履新苏州市委组织部部长](https://www.share.kurohicncr.top/Article/details/16514421697.shtml)
+- 2026-06-29 17:16 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/9551988698.shtml)
+- 2026-06-29 17:17 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/135902.shtml)
+- 2026-06-29 17:24 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/73833.shtml)
+- 2026-06-29 17:21 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/31197643.shtml)
+- 2026-06-29 17:13 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/8434825.shtml)
+- 2026-06-29 17:18 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/08580505.shtml)
+- 2026-06-29 17:23 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/568483.shtml)
+- 2026-06-29 17:30 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/32910183740.shtml)
+- 2026-06-29 17:26 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/23461816.shtml)
+- 2026-06-29 17:11 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/62324.shtml)

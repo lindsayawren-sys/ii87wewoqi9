@@ -1,56 +1,61 @@
-# 国台办：民进党当局对日菲严重侵权行径卑躬屈膝 已沦为民族败类
+# 广期所发布境外交易者参与碳酸锂期货和期权交易的公告
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-6月17日，国务院台办举行例行新闻发布会。有记者问：大陆在台湾东部海域开展海上交通专项执法行动，民进党当局称，大陆无权以任何理由对台湾东部海域主张执法权。请问发言人对此有何评论？ 发言人陈斌华表示，世界上只有一个中国，台湾是中国一部分，日菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。日菲绕开中国擅自启动所谓“划界谈判”严重违反国际法和国际关系基本准则，
+广期所公告〔2026〕36号 经中国证监会批准，广州期货交易所（以下简称广期所）碳酸锂期货及期权被确定为境内特定品种，现将境外交易者参与上述品种交易有关事项公告如下： 一、实施时间 自北京时间2026年7月3日起交易，08：55-09：00集合竞价，09：00开盘。 二、交易合约 LC2607和后续期货合约，以及以上述期货合约为标的的期权合约。 三、外汇资金作为保证金有关事项
 
 ## 正文
 
-6月17日，国务院台办举行例行新闻发布会。
+广期所公告〔2026〕36号 经中国证监会批准，广州期货交易所（以下简称广期所）碳酸锂期货及期权被确定为境内特定品种，现将境外交易者参与上述品种交易有关事项公告如下： 一、实施时间 自北京时间2026年7月3日起交易，08：55-09：00集合竞价，09：00开盘。
 
-有记者问：大陆在台湾东部海域开展海上交通专项执法行动，民进党当局称，大陆无权以任何理由对台湾东部海域主张执法权。
+二、交易合约 LC2607和后续期货合约，以及以上述期货合约为标的的期权合约。
 
-请问发言人对此有何评论？
+三、外汇资金作为保证金有关事项 境外交易者可以使用外汇资金作为保证金。
 
-发言人陈斌华表示，世界上只有一个中国，台湾是中国一部分，日菲宣布的拟划界海域位于台湾岛以东，中国在上述海域拥有专属经济区和大陆架。
+以外汇资金作为保证金的，以中国外汇交易中心公布的当日人民币汇率中间价作为其市值核定的基准价，目前广期所规定可用于作为保证金的外汇币种为美元，折扣率为0.95。
 
-日菲绕开中国擅自启动所谓“划界谈判”严重违反国际法和国际关系基本准则，严重侵害中国海洋权益，完全非法无效。
+当日闭市前外汇资金的市值先按照前一交易日中国外汇交易中心公布的当日人民币汇率中间价核算。
 
-大陆海警在台湾岛以东海域依法开展执法巡查，是针对日菲严重侵犯中国领土主权和海域权益采取的必要行动，并将继续加强对有关海域的管控。
+每日结算时按上述规定的方法重新确定外汇资金作为保证金使用的基准价并调整折后金额。
 
-民进党当局对日菲的严重侵权行径卑躬屈膝，出卖民族利益，沦为民族败类，已经遭到包括台湾同胞在内的两岸同胞的反对和唾弃，其企图升高两岸对立的做法说法，不过是在转移压力欺骗民众。
+自本公告发布之日起，开户机构应当按照我所《关于碳酸锂期货和期权合约交易权限管理相关事项的通知》等要求，在向境内外交易者充分揭示风险、严格履行交易者适当性管理义务、全面评估交易者风险承受能力的基础上，为境内外交易者办理账户开立等手续。
 
-(总台央视记者 张雪松 赵超逸)
+广州期货交易所 2026年6月18日责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 17:29 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 17:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 17:10 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 17:17 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 17:20 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 17:12 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 17:00 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 17:12 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 17:15 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 17:09 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 17:20 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 17:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 17:23 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 17:08 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 17:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 17:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 17:15 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 17:17 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 17:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 17:09 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 17:34 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 17:30 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 17:11 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 17:32 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:08 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/369305.shtml)
-- 2026-06-29 17:28 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/59985258680.shtml)
-- 2026-06-29 17:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/585176.shtml)
-- 2026-06-29 17:14 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/156532.shtml)
-- 2026-06-29 17:22 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/99468217473.shtml)
-- 2026-06-29 17:15 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/34081524.shtml)
-- 2026-06-29 17:11 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/144170678.shtml)
-- 2026-06-29 17:16 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/764152478.shtml)
-- 2026-06-29 17:08 - [扬名立万](https://www.blog.minike.top/Article/details/8550342.shtml)
-- 2026-06-29 17:08 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/023300.shtml)
-- 2026-06-29 17:12 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/301957333.shtml)
-- 2026-06-29 17:16 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/90575.shtml)
-- 2026-06-29 17:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/2596551.shtml)
-- 2026-06-29 17:23 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/520002825181.shtml)
-- 2026-06-29 17:27 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.kurohicncr.top/Article/details/823676.shtml)
+- 2026-06-29 17:12 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/868584231.shtml)
+- 2026-06-29 17:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/01538296.shtml)
+- 2026-06-29 17:18 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/671982329878.shtml)
+- 2026-06-29 17:16 - [12所大学更正招生目录](https://www.blog.minike.top/Article/details/114418.shtml)
+- 2026-06-29 17:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/7817626.shtml)
+- 2026-06-29 17:29 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/931570.shtml)
+- 2026-06-29 17:28 - [女心理师](https://www.blog.minike.top/Article/details/6300246.shtml)
+- 2026-06-29 17:29 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/65835390.shtml)
+- 2026-06-29 17:25 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/9379183.shtml)
+- 2026-06-29 17:12 - [金刚川](http://www.share.kurohicncr.top/Article/details/993395.shtml)
+- 2026-06-29 17:13 - [时光音乐会](http://www.blog.minike.top/Article/details/8115715701.shtml)
+- 2026-06-29 17:11 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/394682075585.shtml)
+- 2026-06-29 17:20 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/536377420.shtml)
+- 2026-06-29 17:31 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/4142882955.shtml)
+- 2026-06-29 17:10 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/02787072052.shtml)

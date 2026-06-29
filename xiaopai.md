@@ -1,56 +1,46 @@
-# 中国首条第8.6代线在成都量产：一张玻璃基板何以“定义赛道”？
+# 何超琼推荐澳门一日游路线
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网成都6月18日电(单鹏)中国首条第8.6代AMOLED生产线量产暨客户交付仪式日前在成都举行。作为中国首条、全球首批实现量产的第8.6代线，该产线是目前全球进度最快、技术最成熟的中尺寸高端OLED生产线之一，更在技术与产品性能方面位居全球第一阵营，构建起覆盖全产品周期的代际领先优势。 该产线由BOE(京东方)投建，在中尺寸高端OLED领域实现了从技术突破到规模化量产的跨越
+发布时间：2026年06月18日 18:44 来源：中国新闻网 6月17日，在“机遇澳门”主题采访活动中，全国政协常委、世界旅游经济研究中心主席何超琼分享了一条她设计的“澳门一日游路线”：从历史城区开始，看澳门如何在发展中守住初心。(记者 陈子彦 制作 侯诗蕊） 责任编辑：【李季】
 
 ## 正文
 
-中新网成都6月18日电(单鹏)中国首条第8.6代AMOLED生产线量产暨客户交付仪式日前在成都举行。
+发布时间：2026年06月18日 18:44 来源：中国新闻网 6月17日，在“机遇澳门”主题采访活动中，全国政协常委、世界旅游经济研究中心主席何超琼分享了一条她设计的“澳门一日游路线”：从历史城区开始，看澳门如何在发展中守住初心。
 
-作为中国首条、全球首批实现量产的第8.6代线，该产线是目前全球进度最快、技术最成熟的中尺寸高端OLED生产线之一，更在技术与产品性能方面位居全球第一阵营，构建起覆盖全产品周期的代际领先优势。
-
-该产线由BOE(京东方)投建，在中尺寸高端OLED领域实现了从技术突破到规模化量产的跨越式发展。
-
-“这条产线顺利量产，成功填补国内高世代AMOLED生产线的空白，并将推动中国OLED产业迈向‘技术引领’。
-
-”京东方科技集团董事长陈炎顺表示。
-
-一张玻璃基板如何带动产品升级 在新型显示产业，面板产线的“代”指的是玻璃基板的尺寸规格。
-
-代际越高，基板面积越大：6代线基板为1500mm×1850mm(约2.78㎡)，8.6代线则为2290mm×2620mm(约5.99㎡)，面积扩大超过一倍。
-
-据了解，过去全球中尺寸OLED面板(笔电、平板)主要依赖6代线切割。
+(记者 陈子彦 制作 侯诗蕊） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 17:10 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 17:29 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 17:17 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 17:09 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 17:29 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 17:12 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 17:18 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 17:08 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 17:13 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 17:07 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 17:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 17:29 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 17:24 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 17:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 17:13 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 17:07 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 17:32 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 17:21 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 17:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 17:17 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 17:20 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:15 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.kurohicncr.top/Article/details/3062313.shtml)
-- 2026-06-29 17:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/822064.shtml)
-- 2026-06-29 17:09 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/3927857298.shtml)
-- 2026-06-29 17:09 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/2142115773.shtml)
-- 2026-06-29 17:04 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/51691.shtml)
-- 2026-06-29 17:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/334200007.shtml)
-- 2026-06-29 17:29 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/509465009989.shtml)
-- 2026-06-29 17:00 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/1259548.shtml)
-- 2026-06-29 17:03 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/03931369115.shtml)
-- 2026-06-29 17:06 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/117872669.shtml)
-- 2026-06-29 17:23 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/67113.shtml)
-- 2026-06-29 17:00 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/8813280.shtml)
-- 2026-06-29 17:11 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/374589664308.shtml)
-- 2026-06-29 17:24 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/74478269.shtml)
-- 2026-06-29 17:01 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/959102.shtml)
+- 2026-06-29 17:08 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/21626229029.shtml)
+- 2026-06-29 17:19 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/679403194101.shtml)
+- 2026-06-29 17:20 - [女心理师](http://www.share.kurohicncr.top/Article/details/264271.shtml)
+- 2026-06-29 17:20 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/25932095591.shtml)
+- 2026-06-29 17:26 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/509473.shtml)
+- 2026-06-29 17:15 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/83449.shtml)
+- 2026-06-29 17:27 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/096438107461.shtml)
+- 2026-06-29 17:21 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/036205455137.shtml)
+- 2026-06-29 17:18 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/213791568598.shtml)
+- 2026-06-29 17:12 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/882213.shtml)
+- 2026-06-29 17:34 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/963113908522.shtml)
+- 2026-06-29 17:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/36730.shtml)
+- 2026-06-29 17:08 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/039827133690.shtml)
+- 2026-06-29 17:29 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/282870326.shtml)
+- 2026-06-29 17:17 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/06176446.shtml)

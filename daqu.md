@@ -1,59 +1,58 @@
-# 中国旅行社行业首份宣传负面清单发布
+# 利欧股份业绩变脸引发索赔，已收到数百位股民材料
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新社北京6月18日电 (记者 刘文文)中国旅行社协会18日发布《旅行社旅游招徕宣传负面清单》。该文件针对当前旅游市场招徕宣传中的突出问题，列明了“严禁”行为，剑指虚假宣传、不合理低价等行业乱象。这也是旅行社行业发布的首份宣传负面清单。 这份文件共十一条，从无证经营、不合理低价，到人工智能(AI)虚假宣传、老年人及未成年人特殊保护，几乎涵盖旅游招徕宣传的全链条。 其中，“不合理
+登录新浪财经APP 搜索【信披】查看更多考评等级 回溯本案，年报披露之际，利欧股份（维权）一纸公告将2025年全年净利润预期从此前的最高2.5亿元大幅下修至不足4500万元，下修幅度超过80%。直接导致公司股价连续多日承压，不少投资者遭受损失。 上海沪紫律师事务所刘鹏律师团队截止目前已收到数百位投资者的索赔报名，符合于‌2026年1月31日‌-2026年4月23日‌期间买入，并
 
 ## 正文
 
-中新社北京6月18日电 (记者 刘文文)中国旅行社协会18日发布《旅行社旅游招徕宣传负面清单》。
+登录新浪财经APP 搜索【信披】查看更多考评等级 回溯本案，年报披露之际，利欧股份（维权）一纸公告将2025年全年净利润预期从此前的最高2.5亿元大幅下修至不足4500万元，下修幅度超过80%。
 
-该文件针对当前旅游市场招徕宣传中的突出问题，列明了“严禁”行为，剑指虚假宣传、不合理低价等行业乱象。
+直接导致公司股价连续多日承压，不少投资者遭受损失。
 
-这也是旅行社行业发布的首份宣传负面清单。
+上海沪紫律师事务所刘鹏律师团队截止目前已收到数百位投资者的索赔报名，符合于‌2026年1月31日‌-2026年4月23日‌期间买入，并在2026年4月24日之后卖出或仍持有而亏损的即可登记索赔。
 
-这份文件共十一条，从无证经营、不合理低价，到人工智能(AI)虚假宣传、老年人及未成年人特殊保护，几乎涵盖旅游招徕宣传的全链条。
+（利欧股份维权入口） 2026年4月23日，利欧股份发布了《2025年度业绩预告修正公告》，根据公告，公司此前在2026年1月31日预测全年归母净利润为1.90亿元至2.50亿元。
 
-其中，“不合理低价宣传”被列为重点打击对象。
+但是修正公告中显示该数据被修正为仅3000万元至4500万元。
 
-文件明确严禁以“零团费”“负团费”“免费游”“零元购”为噱头诱骗旅游者，严禁通过虚标原价、虚假折扣、拆分核心服务项目隐藏费用等方式进行误导性价格宣传。
+依据《证券法》及最高人民法院相关司法解释，上市公司因信息披露违法违规导致投资者遭受损失的，应当承担民事赔偿责任。
 
-针对新兴营销手段，文件也给出了明确规定。
+投资者在参与索赔前，应准备好相关交易凭证，如交易记录、对账单等，以便律师团队审核是否符合索赔条件。
 
-使用AI生成技术制作的宣传内容，必须在显著位置标注“AI生成提示”，且不得有虚假、误导情节。
+律师团队将依据相关法律法规，为受损投资者提供法律援助，全力维护投资者的合法权益。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 17:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 17:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 17:27 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 17:28 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 17:30 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 17:06 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 17:14 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 17:21 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 17:28 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 17:06 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 17:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 17:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 17:16 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 17:07 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 17:08 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 17:28 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 17:09 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 17:35 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 17:10 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 17:25 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 17:29 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 17:06 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 17:21 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 17:25 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:12 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/92999267092.shtml)
-- 2026-06-29 17:15 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/96903716.shtml)
-- 2026-06-29 17:17 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/30284995.shtml)
-- 2026-06-29 17:25 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/262625754733.shtml)
-- 2026-06-29 17:05 - [请回答王牌2019](http://www.blog.minike.top/Article/details/954010.shtml)
-- 2026-06-29 17:17 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/0848869.shtml)
-- 2026-06-29 17:06 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/584959732.shtml)
-- 2026-06-29 17:12 - [《贺子珍》](http://www.share.minike.top/Article/details/187752381.shtml)
-- 2026-06-29 17:09 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/917500837867.shtml)
-- 2026-06-29 17:08 - [当我回母校教书](http://www.blog.minike.top/Article/details/59956582.shtml)
-- 2026-06-29 17:04 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/527473843413.shtml)
-- 2026-06-29 17:01 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/69462.shtml)
-- 2026-06-29 17:28 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/68011252.shtml)
-- 2026-06-29 17:28 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/279203102.shtml)
-- 2026-06-29 17:15 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/22086.shtml)
+- 2026-06-29 17:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/63164.shtml)
+- 2026-06-29 17:14 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/94927809.shtml)
+- 2026-06-29 17:12 - [爱很美味](http://www.blog.minike.top/Article/details/6911098.shtml)
+- 2026-06-29 17:09 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/5897858.shtml)
+- 2026-06-29 17:33 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/586740078175.shtml)
+- 2026-06-29 17:27 - [王曼昱被突如其来的话筒逗笑了](http://www.share.minike.top/Article/details/0869651777.shtml)
+- 2026-06-29 17:28 - [博主：黄金和原油回落不等于风险消失](https://www.blog.kurohicncr.top/Article/details/0975094767.shtml)
+- 2026-06-29 17:19 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/152387339.shtml)
+- 2026-06-29 17:17 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/126795.shtml)
+- 2026-06-29 17:08 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/3408355.shtml)
+- 2026-06-29 17:35 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/05556823415.shtml)
+- 2026-06-29 17:11 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/4611664.shtml)
+- 2026-06-29 17:08 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/34120528.shtml)
+- 2026-06-29 17:24 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/78264168.shtml)
+- 2026-06-29 17:25 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/308969608768.shtml)

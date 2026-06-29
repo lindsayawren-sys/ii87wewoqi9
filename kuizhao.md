@@ -1,49 +1,58 @@
-# 中通快递-W于6月17日耗资约499.55万美元回购约22.32万股
+# 以色列顶住美伊压力 拒绝从黎巴嫩南部撤军
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中通快递-W（02057）公布，2026年6月17日耗资约499.55万美元回购约22.32万股股份。责任编辑：卢昱君
+以色列拒绝美国关于从黎巴嫩南部撤军的要求，理由是真主党这一伊朗支持的武装组织仍然存在。美以的分歧可能使华盛顿与德黑兰推动达成更广泛和平协议的努力遭遇更多障碍。 以色列安全内阁成员Zev Elkin表示，伊朗官员推动在本周早些时候敲定的临时协议中加入一项条款，要求以色列撤出“黎巴嫩安全区”。 Elkin在接受采访时表示：“总理对美国总统说‘我们理解美方的关切，但这关系到我们的国家
 
 ## 正文
 
-中通快递-W（02057）公布，2026年6月17日耗资约499.55万美元回购约22.32万股股份。
+以色列拒绝美国关于从黎巴嫩南部撤军的要求，理由是真主党这一伊朗支持的武装组织仍然存在。
 
-责任编辑：卢昱君
+美以的分歧可能使华盛顿与德黑兰推动达成更广泛和平协议的努力遭遇更多障碍。
+
+以色列安全内阁成员Zev Elkin表示，伊朗官员推动在本周早些时候敲定的临时协议中加入一项条款，要求以色列撤出“黎巴嫩安全区”。
+
+Elkin在接受采访时表示：“总理对美国总统说‘我们理解美方的关切，但这关系到我们的国家安全，我们不会撤军。
+
+’” 美伊临时协议最终草案显示，协议规定所有战线上的敌对行动都必须停止，包括黎巴嫩。
+
+自2月底针对伊朗的军事行动开始以来，以色列一直同时与真主党作战。
+
+随着华盛顿越来越关注结束冲突，以色列官员考虑调整在黎巴嫩的战略。
+
+内塔尼亚胡不愿与特朗普发生正面冲突，以色列官员预计，随着与伊朗的谈判进入最后阶段，华盛顿对黎巴嫩战事的审视将进一步加强。
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 17:13 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 17:12 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 17:17 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 17:03 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 17:11 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 17:18 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 17:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 17:08 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 17:01 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 17:04 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 17:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 17:26 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 17:29 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 17:25 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 17:14 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 17:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 17:30 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 17:17 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 17:08 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 17:30 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 17:22 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 17:16 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 17:26 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 17:17 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 17:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 17:23 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [美人鱼](https://www.share.kurohicncr.top/Article/details/54390482590.shtml)
-- 2026-06-29 17:10 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/42189393544.shtml)
-- 2026-06-29 17:11 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/9255259.shtml)
-- 2026-06-29 17:27 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/78878911165.shtml)
-- 2026-06-29 17:28 - [中国空间站为什么要升级扩容](http://www.share.minike.top/Article/details/327993355.shtml)
-- 2026-06-29 17:06 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/373234.shtml)
-- 2026-06-29 17:27 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.kurohicncr.top/Article/details/71011.shtml)
-- 2026-06-29 17:26 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/97665383986.shtml)
-- 2026-06-29 17:29 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/0237023174.shtml)
-- 2026-06-29 17:02 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/956945.shtml)
-- 2026-06-29 17:00 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/7509870122.shtml)
-- 2026-06-29 17:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/11734192473.shtml)
-- 2026-06-29 17:12 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/46903.shtml)
-- 2026-06-29 17:01 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/17288402436.shtml)
-- 2026-06-29 17:22 - [普京承认俄出现燃料危机](https://www.blog.minike.top/Article/details/952830.shtml)
+- 2026-06-29 17:20 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/9912370.shtml)
+- 2026-06-29 17:10 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/3833369.shtml)
+- 2026-06-29 17:15 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/3869169.shtml)
+- 2026-06-29 17:31 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/53046644.shtml)
+- 2026-06-29 17:12 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/3424212.shtml)
+- 2026-06-29 17:22 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/925024789.shtml)
+- 2026-06-29 17:33 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/283274003.shtml)
+- 2026-06-29 17:24 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/997017172.shtml)
+- 2026-06-29 17:26 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/2701769.shtml)
+- 2026-06-29 17:11 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/47922839.shtml)
+- 2026-06-29 17:34 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/15181274667.shtml)
+- 2026-06-29 17:19 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/619572224235.shtml)
+- 2026-06-29 17:26 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/4066489723.shtml)
+- 2026-06-29 17:28 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/790251450011.shtml)
+- 2026-06-29 17:16 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/074131.shtml)

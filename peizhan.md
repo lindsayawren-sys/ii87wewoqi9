@@ -1,44 +1,47 @@
-# 直击武警抗洪抢险实战化演练
+# 国家发改委：全国统调电厂存煤达到2.1亿吨，平均可用天数超过34天
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 16:47 来源：中国新闻网 近日，武警广西总队北海支队在驻地水域组织抗洪抢险实战化演练，旨在提升部队应急响应与协同能力，为下步遂行防汛任务提供有力支撑。(作者：周巡、熊阳光、刘坚） 责任编辑：【魏聪聪】
+发布时间：2026年06月18日 17:07 来源：三里河 6月18日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上表示，截至6月16日，全国统调电厂存煤达到2.1亿吨，平均可用天数超过34天，安全稳定供应具备坚实基础。(黄蕾 陈庆洋 李金磊） 责任编辑：【程春雨】
 
 ## 正文
 
-发布时间：2026年06月17日 16:47 来源：中国新闻网 近日，武警广西总队北海支队在驻地水域组织抗洪抢险实战化演练，旨在提升部队应急响应与协同能力，为下步遂行防汛任务提供有力支撑。
+发布时间：2026年06月18日 17:07 来源：三里河 6月18日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上表示，截至6月16日，全国统调电厂存煤达到2.1亿吨，平均可用天数超过34天，安全稳定供应具备坚实基础。
 
-(作者：周巡、熊阳光、刘坚） 责任编辑：【魏聪聪】
+(黄蕾 陈庆洋 李金磊） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 17:22 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 17:25 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 17:28 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 17:00 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 17:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 17:11 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 17:18 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 17:09 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 17:13 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 17:24 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 17:17 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 17:19 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 17:33 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 17:25 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 17:20 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 17:08 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 17:28 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 17:20 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 17:27 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 17:30 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 17:31 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 17:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/28380.shtml)
-- 2026-06-29 17:00 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/57336772.shtml)
-- 2026-06-29 17:18 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/61445800857.shtml)
-- 2026-06-29 17:07 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/4906465424.shtml)
-- 2026-06-29 17:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/319223.shtml)
-- 2026-06-29 17:07 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/2347312506.shtml)
-- 2026-06-29 17:00 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/538104.shtml)
-- 2026-06-29 17:27 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/809341.shtml)
-- 2026-06-29 17:09 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/01162986.shtml)
-- 2026-06-29 17:28 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/00888.shtml)
-- 2026-06-29 17:22 - [我和我的家乡](https://www.blog.minike.top/Article/details/901396709.shtml)
-- 2026-06-29 17:25 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/97876796801.shtml)
-- 2026-06-29 17:05 - [斗破苍穹](https://www.share.minike.top/Article/details/89541196.shtml)
-- 2026-06-29 17:14 - [机器人学校开学了](http://www.blog.minike.top/Article/details/16207202964.shtml)
-- 2026-06-29 17:02 - [绘画区你赢了](https://www.share.minike.top/Article/details/968127.shtml)
+- 2026-06-29 17:35 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/708042375.shtml)
+- 2026-06-29 17:35 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/136125.shtml)
+- 2026-06-29 17:28 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/83992205950.shtml)
+- 2026-06-29 17:08 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/4931577035.shtml)
+- 2026-06-29 17:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/890296.shtml)
+- 2026-06-29 17:16 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/63307213336.shtml)
+- 2026-06-29 17:09 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/030872122.shtml)
+- 2026-06-29 17:21 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/9272121013.shtml)
+- 2026-06-29 17:22 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/1498614.shtml)
+- 2026-06-29 17:21 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/419675.shtml)
+- 2026-06-29 17:08 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/2324453809.shtml)
+- 2026-06-29 17:30 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/199433.shtml)
+- 2026-06-29 17:19 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.minike.top/Article/details/59660083.shtml)
+- 2026-06-29 17:07 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/008389.shtml)
+- 2026-06-29 17:15 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/94320324173.shtml)

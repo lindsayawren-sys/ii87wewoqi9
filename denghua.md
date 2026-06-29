@@ -1,60 +1,58 @@
-# 公安部交管局发布端午节假期道路交通安全提示
+# 山东举办“端午乡思 齐鲁有情”海外慰侨活动
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网6月17日电 据公安部交通管理局微信公众号消息，端午节假期，群众旅游观赛、返乡探亲出行集中，农村地区务农务工集体出行繁忙，南方强降雨、北方多阵雨，道路交通安全风险突出。公安部交通管理局结合近年来端午节假期交通事故规律特点，对今年端午节假期交通安全形势进行了分析研判，并发出交通安全提示。据研判，今年端午节假期道路交通安全主要存在以下突出风险： 一是旅游交通安全风险。假期群众
+中新网济南6月18日电 (记者 李欣)端午节前夕，山东省侨办、山东爱侨公益基金会联合举办“端午乡思 齐鲁有情”海外慰侨活动。活动覆盖韩国、英国、澳大利亚、埃及、巴西等五大洲的23个国家，向30家侨团赠送“大礼包”，进一步密切山东与海外侨团的联系。 据悉，端午“大礼包”印有“一山一水一圣人”图案，内含非遗香囊、艾草锤、艾草皂、五彩绳“端午四件套”以及《一封家信》，在海外侨界引起强
 
 ## 正文
 
-中新网6月17日电 据公安部交通管理局微信公众号消息，端午节假期，群众旅游观赛、返乡探亲出行集中，农村地区务农务工集体出行繁忙，南方强降雨、北方多阵雨，道路交通安全风险突出。
+中新网济南6月18日电 (记者 李欣)端午节前夕，山东省侨办、山东爱侨公益基金会联合举办“端午乡思 齐鲁有情”海外慰侨活动。
 
-公安部交通管理局结合近年来端午节假期交通事故规律特点，对今年端午节假期交通安全形势进行了分析研判，并发出交通安全提示。
+活动覆盖韩国、英国、澳大利亚、埃及、巴西等五大洲的23个国家，向30家侨团赠送“大礼包”，进一步密切山东与海外侨团的联系。
 
-据研判，今年端午节假期道路交通安全主要存在以下突出风险： 一是旅游交通安全风险。
+据悉，端午“大礼包”印有“一山一水一圣人”图案，内含非遗香囊、艾草锤、艾草皂、五彩绳“端午四件套”以及《一封家信》，在海外侨界引起强烈反响，受到广泛欢迎。
 
-假期群众旅游出行需求旺盛，高考结束、高校毕业，亲子游、家庭游出行增多，龙舟赛等大型民俗活动集中，足协杯、“城超”等体育赛事密集，旅游观赛、返乡探亲等出行叠加，超速超员、疲劳驾驶、非法营运等违法违规问题肇事易发多发。
+端午节期间，饱含齐鲁乡情的“大礼包”不仅在侨胞们的手中传递，一颗颗传统文化的种子在侨胞们的心中落地生根。
 
-二是酒驾醉驾肇事风险。
+西日本华侨华人社团联合会会长张永胜表示，端午节是中华民族重要传统节日，承载爱国、团圆、追思的文化内核，家乡以端午文创为载体，向海外侨胞普及端午民俗、齐鲁文化，守住了华侨华人共同的文化记忆。
 
-假期亲朋好友聚餐娱乐饮酒多，加上美加墨世界杯赛事多在下半夜，夜间聚集观赛饮酒，酒驾醉驾肇事风险上升。
+澳大利亚山东联谊会暨留学生关爱中心主任李复新表示，端午“大礼包”承载着传统文化、齐鲁风俗，帮助海外侨胞尤其是侨二代、侨三代更好地感知传统节日内涵，让端午文化、齐鲁文化代代传承。
 
-三是农村务农务工集体出行风险。
+随“大礼包”附赠的《一封家信》中提到，长期以来，广大海外侨胞发扬爱国爱乡的优良传统，为家乡的建设发展和祖(籍)国的繁荣富强作出了积极贡献。
 
-“三夏”时节农村地区务农务工出行通勤繁忙，轻型货车、三轮车、拖拉机违法载人以及面包车超员载客等严重交通违法导致群死群伤事故风险高。
+当前，山东正坚定扛牢“走在前、挑大梁”的使命担当，期盼各位乡亲能常回家看看，共享发展机遇，共叙桑梓情谊。
 
 ## 相关推荐
 
-- 2026-06-29 17:11 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 17:15 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 17:13 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 17:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 17:04 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 17:13 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 17:23 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 17:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 17:20 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 17:24 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 17:25 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 17:16 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 17:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 17:14 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 17:06 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 17:32 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 17:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 17:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 17:18 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 17:15 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 17:07 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 17:11 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 17:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 17:07 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 17:17 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 17:15 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:20 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/9282501.shtml)
-- 2026-06-29 17:21 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/053762.shtml)
-- 2026-06-29 17:01 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/7153650228.shtml)
-- 2026-06-29 17:24 - [爱很美味](http://www.blog.minike.top/Article/details/37929.shtml)
-- 2026-06-29 17:25 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/86545922044.shtml)
-- 2026-06-29 17:23 - [美国大满贯首日国乒主力均取胜](https://www.blog.minike.top/Article/details/024875535.shtml)
-- 2026-06-29 17:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/85419.shtml)
-- 2026-06-29 17:07 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/06362409.shtml)
-- 2026-06-29 17:00 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/5586752983.shtml)
-- 2026-06-29 17:10 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/267530828610.shtml)
-- 2026-06-29 17:11 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/400666933.shtml)
-- 2026-06-29 17:28 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/57938.shtml)
-- 2026-06-29 17:12 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/80729.shtml)
-- 2026-06-29 17:00 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/546321892.shtml)
-- 2026-06-29 17:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/2279862154.shtml)
+- 2026-06-29 17:17 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/33295735.shtml)
+- 2026-06-29 17:20 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/7059809.shtml)
+- 2026-06-29 17:34 - [重度抑郁女孩没钱去做心理咨询](http://www.share.kurohicncr.top/Article/details/0512931.shtml)
+- 2026-06-29 17:12 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/257485.shtml)
+- 2026-06-29 17:15 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/22837.shtml)
+- 2026-06-29 17:17 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/430725.shtml)
+- 2026-06-29 17:18 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/2629565026.shtml)
+- 2026-06-29 17:25 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/29054512.shtml)
+- 2026-06-29 17:31 - [毒液2](http://www.share.kurohicncr.top/Article/details/176346489.shtml)
+- 2026-06-29 17:26 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/4018678.shtml)
+- 2026-06-29 17:26 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/1238346.shtml)
+- 2026-06-29 17:25 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/517648675.shtml)
+- 2026-06-29 17:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/6916461189.shtml)
+- 2026-06-29 17:18 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/1000754.shtml)
+- 2026-06-29 17:31 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/4284631060.shtml)

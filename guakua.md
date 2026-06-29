@@ -1,61 +1,61 @@
-# 玻璃基板赛道升温 A股多家公司坦言量产收入尚需时日
+# 岭南股份（002717）、际华集团（601718）投资者索赔案均再提交法院立案
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-台积电抛出“CoWoS玻璃基板开发计划”，将本已升温的玻璃基板赛道进一步推向市场焦点。6月17日，玻璃基板概念股集体拉升，旗滨集团收获3连板，长信科技、美迪凯、沃格光电涨停。17日晚间，兴森科技、美迪凯、沃格光电、旗滨集团等上市公司密集发布公告，主动披露玻璃基板相关业务进展，表示当前仍处于技术储备或研发验证阶段，实质性量产收入尚需时日。热情高涨的资本面与尚未成熟的技术现实之间，
+2026年6月17日，上海久诚律师事务所股票索赔律师许峰代理的岭南股份（002717）虚假陈述引发的投资者索赔案再向广州市中级人民法院提交一次立案。（许峰律师专栏） 许峰律师代理的岭南股份投资者索赔案此前已多次向法院提交立案，目前正在等待法院的下一步安排。律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2026年6月3日，岭南股份公告公司及相关当事人
 
 ## 正文
 
-台积电抛出“CoWoS玻璃基板开发计划”，将本已升温的玻璃基板赛道进一步推向市场焦点。
+2026年6月17日，上海久诚律师事务所股票索赔律师许峰代理的岭南股份（002717）虚假陈述引发的投资者索赔案再向广州市中级人民法院提交一次立案。
 
-6月17日，玻璃基板概念股集体拉升，旗滨集团收获3连板，长信科技、美迪凯、沃格光电涨停。
+（许峰律师专栏） 许峰律师代理的岭南股份投资者索赔案此前已多次向法院提交立案，目前正在等待法院的下一步安排。
 
-17日晚间，兴森科技、美迪凯、沃格光电、旗滨集团等上市公司密集发布公告，主动披露玻璃基板相关业务进展，表示当前仍处于技术储备或研发验证阶段，实质性量产收入尚需时日。
+律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-热情高涨的资本面与尚未成熟的技术现实之间，仍存在相当距离。
+2026年6月3日，岭南股份公告公司及相关当事人收到广东证监局出具的《行政处罚事先告知书》，经查明，岭南股份、尹洪卫涉嫌存在以下违法事实： （一）岭南股份未按规定披露资金占用事项，2021年年度报告存在重大遗漏。
 
-多家机构研报指出，玻璃基板产业链从实验室走向规模量产，核心工艺瓶颈的突破与良率的持续提升仍是最关键变量，前瞻布局的厂商有望深度受益，但投资者须保持理性。
+（二）岭南股份虚构苗木采购业务，掩盖资金占用进行账务处理，2021年年度报告存在虚假记载。
 
-产业化时间轴逐步明朗这轮行情的直接催化剂，是台积电近期向供应链发布的“CoWoS玻璃基板开发计划”。
+（三）岭南股份未按规定及时披露公司涉嫌犯罪被立案调查、时任董事涉嫌犯罪被采取强制措施。
 
-台积电确定携手ABF载板厂商Ibiden与面板厂商群创，共同验证玻璃基板导入CoWoS先进封装的可行性，这被业界视为台积电首次公开玻璃基板技术应用进程，意味着玻璃基板正式跨入产业化验证阶段。
+许峰律师认为，在2022年4月30日到2025年4月29日之间买入岭南股份股票，并且在2025年4月29日后卖出或继续持有股票的投资者，以及在2024年12月25日到到2025年11月5日之间买入岭南股份股票，并且在2025年11月5日后卖出或继续持有股票的投资者，目前还可发起索赔。
 
-TrendForce最新报告指出，台积电目前聚焦CoPoS（基于玻璃基板的面板级封装技术），并锁定310×310毫米基板尺寸，预计2026年是相关设备与材料商的关键验证期，2027年进入试产，2028年下半年正式量产。
+（STl岭南维权入口） 除了岭南股份投资者索赔案再次提交法院立案，2026年6月17日，许峰律师代理的际华集团（601718）投资者索赔案也再提交法院立案。
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 17:18 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 17:24 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 17:18 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 17:03 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 17:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 17:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 17:09 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 17:23 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 17:26 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 17:00 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 17:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 17:21 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 17:16 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 17:02 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 17:31 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 17:35 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 17:22 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 17:29 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 17:25 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 17:21 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 17:19 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 17:13 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 17:08 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 17:27 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 17:12 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 17:16 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 17:22 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 17:26 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 17:21 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:09 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/15915981.shtml)
-- 2026-06-29 17:21 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/57521.shtml)
-- 2026-06-29 17:24 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/36691.shtml)
-- 2026-06-29 17:02 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/71537717877.shtml)
-- 2026-06-29 17:23 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/7585853.shtml)
-- 2026-06-29 17:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/6902231125.shtml)
-- 2026-06-29 17:10 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/114893060.shtml)
-- 2026-06-29 17:18 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/11147833869.shtml)
-- 2026-06-29 17:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/24336265812.shtml)
-- 2026-06-29 17:02 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/57054260317.shtml)
-- 2026-06-29 17:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/39063.shtml)
-- 2026-06-29 17:28 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/16826.shtml)
-- 2026-06-29 17:14 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/80400.shtml)
-- 2026-06-29 17:15 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/11728132748.shtml)
-- 2026-06-29 17:28 - [四川达州发生一起交通事故致2死](http://www.share.minike.top/Article/details/725446526056.shtml)
+- 2026-06-29 17:08 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/10752.shtml)
+- 2026-06-29 17:07 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/69059412.shtml)
+- 2026-06-29 17:10 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/1931388280.shtml)
+- 2026-06-29 17:22 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/72616656568.shtml)
+- 2026-06-29 17:33 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/429276903269.shtml)
+- 2026-06-29 17:19 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/008901.shtml)
+- 2026-06-29 17:27 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/70328865.shtml)
+- 2026-06-29 17:06 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.kurohicncr.top/Article/details/81185896.shtml)
+- 2026-06-29 17:15 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/43084.shtml)
+- 2026-06-29 17:35 - [存储三巨头被告了](http://www.share.minike.top/Article/details/2412778576.shtml)
+- 2026-06-29 17:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/335714.shtml)
+- 2026-06-29 17:33 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/62470887563.shtml)
+- 2026-06-29 17:17 - [女心理师](http://www.blog.minike.top/Article/details/4270956066.shtml)
+- 2026-06-29 17:32 - [极限挑战第一季](http://www.share.minike.top/Article/details/50287.shtml)
+- 2026-06-29 17:26 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/4690562474.shtml)

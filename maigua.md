@@ -1,56 +1,47 @@
-# 密集公告！PCB、电子布牛股，股价重挫
+# 澳门大学横琴校区2029年全面建成 迎接澳门回归三十周年
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-专题：市场虽有短期反复，但中长期向上趋势未改 今天早盘，多只来自PCB（印制电路板）、玻璃基板、MLCC（多层陶瓷电容器）、电子布等板块的大牛股集合竞价大跌，凌玮科技集合竞价一度跌超8%。截至9：57，山东玻纤跌停，旗滨集团、泰坦股份等个股大跌。 图片来源：同花顺 Wind数据显示，6月17日晚（截至23点），77家A股上市公司发布股票交易异常波动或股票交易风险提示公告。 具体
+发布时间：2026年06月17日 21:09 来源：中国新闻网 6月17日，在“机遇澳门”主题采访活动中，澳门大学校长宋永华受访时透露，新校区将于2029年全面建成，届时横琴校区在校生规模将从目前的900多人增至4000人左右，打造全新的科技创新人才培养基地，迎接澳门回归祖国三十周年。(记者 陈子彦） 责任编辑：【李季】
 
 ## 正文
 
-专题：市场虽有短期反复，但中长期向上趋势未改 今天早盘，多只来自PCB（印制电路板）、玻璃基板、MLCC（多层陶瓷电容器）、电子布等板块的大牛股集合竞价大跌，凌玮科技集合竞价一度跌超8%。
+发布时间：2026年06月17日 21:09 来源：中国新闻网 6月17日，在“机遇澳门”主题采访活动中，澳门大学校长宋永华受访时透露，新校区将于2029年全面建成，届时横琴校区在校生规模将从目前的900多人增至4000人左右，打造全新的科技创新人才培养基地，迎接澳门回归祖国三十周年。
 
-截至9：57，山东玻纤跌停，旗滨集团、泰坦股份等个股大跌。
-
-图片来源：同花顺 Wind数据显示，6月17日晚（截至23点），77家A股上市公司发布股票交易异常波动或股票交易风险提示公告。
-
-具体看，宏和科技公告称，公司经营业绩受宏观经济周期、产业政策、下游应用领域需求波动、竞争格局、原材料价格波动、产能扩建进展等多方面因素的影响，且电子布行业持续在进行技术的更新迭代，公司需持续保持产品的核心竞争力并满足客户需求，若下游应用领域需求增长放缓或公司产品竞争力不及预期，公司可能会出现销售增幅放缓、市场份额提升不及预期的情形；公司目前正在积极进行产能扩建以满足客户需求，但若产线建设进度及产能释放不及预期，则会对公司盈利能力的提升产生不利影响。
-
-公告还表示，公司子公司黄石宏和电子材料科技有限公司（简称“黄石子公司”）产线扩建、产能投放以及最终实施落地需要时间，并且产能建设需要投入较大的资金，实际产线扩建、产能投放节奏以及最终是否可以实施落地仍存在较大的不确定性。
-
-且黄石子公司扩产计划与公司本次发行H股并上市的进度、银行融资等资本需求相关，前述融资事项的申请及审批进度及最终是否可以实施仍存在较大的不确定性，敬请各位投资者注意公司扩产及落地风险。
-
-山东玻纤公告称，公司股价短期涨幅较大，显著高于上证指数涨幅，存在市场情绪过热、非理性炒作风险，后续可能存在快速下跌的风险。
-
-当前公司生产经营正常，公司暂没有电子布产品，敬请广大投资者注意投资风险。
+(记者 陈子彦） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 17:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 17:28 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 17:08 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 17:29 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 17:05 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 17:03 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 17:03 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 17:26 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 17:15 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 17:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 17:22 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 17:30 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 17:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 17:31 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 17:32 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 17:13 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 17:10 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 17:10 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 17:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 17:23 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 17:21 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 17:07 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 17:26 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:22 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/24458616102.shtml)
-- 2026-06-29 17:02 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/40697922.shtml)
-- 2026-06-29 17:22 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/8498840160.shtml)
-- 2026-06-29 17:27 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/08608907.shtml)
-- 2026-06-29 17:09 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/951942.shtml)
-- 2026-06-29 17:04 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/831396535.shtml)
-- 2026-06-29 17:01 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/725027612.shtml)
-- 2026-06-29 17:28 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/0852315.shtml)
-- 2026-06-29 17:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/150500307.shtml)
-- 2026-06-29 17:02 - [网友飞机上偶遇肖战](http://www.blog.minike.top/Article/details/0642340.shtml)
-- 2026-06-29 17:10 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/56007787.shtml)
-- 2026-06-29 17:10 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/701122.shtml)
-- 2026-06-29 17:29 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/882114246137.shtml)
-- 2026-06-29 17:26 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/5617679843.shtml)
-- 2026-06-29 17:22 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/5781361.shtml)
+- 2026-06-29 17:06 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/16931872849.shtml)
+- 2026-06-29 17:17 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/4692458730.shtml)
+- 2026-06-29 17:21 - [存储三巨头被告了](http://www.share.minike.top/Article/details/57760.shtml)
+- 2026-06-29 17:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/1196523417.shtml)
+- 2026-06-29 17:25 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/15610827.shtml)
+- 2026-06-29 17:08 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/273120323.shtml)
+- 2026-06-29 17:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/22431.shtml)
+- 2026-06-29 17:09 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/3501440.shtml)
+- 2026-06-29 17:13 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/88672190642.shtml)
+- 2026-06-29 17:28 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/5328498927.shtml)
+- 2026-06-29 17:11 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/222506884032.shtml)
+- 2026-06-29 17:06 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/48290967610.shtml)
+- 2026-06-29 17:07 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/83577.shtml)
+- 2026-06-29 17:12 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/920066048978.shtml)
+- 2026-06-29 17:10 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/77446026.shtml)

@@ -1,56 +1,56 @@
-# 从东南亚走向非洲 长沙工程机械展全球化布局再提速
+# 伊方消息人士：彭博社所刊美伊备忘录内容不准确
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月18日电 (易丹)继深耕东南亚市场后，长沙国际工程机械展海外版图再向非洲大陆延伸。17日，2026长沙国际工程机械展览会非洲分展在肯尼亚内罗毕启幕。 据了解，本次展会斩获丰硕经贸成果，签约总金额达1.894亿美元，合作领域覆盖工程机械采购、新能源车辆推广、智能设备协作等多个赛道，助力湘企工程机械产业深度扎根非洲新兴市场。 本届非洲分展展览面积达1.5万平方米，设立
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月17日电伊朗塔斯尼姆通讯社17日援引一名接近伊朗谈判团队消息人士的话报道称，彭博社此前发布的美伊谅解备忘录全文“并不准确”，存在“诸多缺陷”。 这名消息人士说，谅解备忘录包含14点内容，媒体此前已多次就此进行了报道，但彭博社对每点内容具体细节的描述“相当不完整”。他以备忘录第一点及涉及霍尔木
 
 ## 正文
 
-中新网长沙6月18日电 (易丹)继深耕东南亚市场后，长沙国际工程机械展海外版图再向非洲大陆延伸。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-17日，2026长沙国际工程机械展览会非洲分展在肯尼亚内罗毕启幕。
+新华社德黑兰6月17日电伊朗塔斯尼姆通讯社17日援引一名接近伊朗谈判团队消息人士的话报道称，彭博社此前发布的美伊谅解备忘录全文“并不准确”，存在“诸多缺陷”。
 
-据了解，本次展会斩获丰硕经贸成果，签约总金额达1.894亿美元，合作领域覆盖工程机械采购、新能源车辆推广、智能设备协作等多个赛道，助力湘企工程机械产业深度扎根非洲新兴市场。
+这名消息人士说，谅解备忘录包含14点内容，媒体此前已多次就此进行了报道，但彭博社对每点内容具体细节的描述“相当不完整”。
 
-本届非洲分展展览面积达1.5万平方米，设立多个专业化细分展区，吸引海内外300余家企业集中参展。
+他以备忘录第一点及涉及霍尔木兹海峡的相关内容为例，指称彭博社的报道明显不准确，且其中遗漏了一些重要的关键词。
 
-徐工、三一重工、中联重科等中国工程机械龙头企业悉数亮相，结合非洲本土化使用场景带来定制化升级产品，精准匹配当地基建发展需求。
+该消息人士还说，伊美双方约定，谅解备忘录文本将在19日正式签署后公布。
 
-针对非洲高温、高沙尘、复杂路况及特殊燃油条件等地域特点，参展企业对展品性能进行专项优化升级。
-
-其中，徐工携7台主力设备参展，重点强化设备防尘、散热与动力性能，适配非洲野外复杂作业环境；三一重工展出4款核心装备，在作业效率、节能降耗、长时间连续运转等方面优势突出；中联重科推出10款定制化产品，覆盖土方、起重、农机等多个品类，依托一机多用的灵活特性，适配非洲不同规模工程施工与农业生产场景。
-
-长沙国际工程机械展自2023年启动海外布局以来，持续践行“深耕周边、辐射全球”的拓展路径，此前已在马来西亚吉隆坡连续举办三届东南亚分展，累计展览面积超3万平方米，吸引360余家企业参展，拉动销售额突破20亿元，成为中国工程机械企业开拓东南亚市场的重要桥梁。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 17:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 17:27 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 17:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 17:22 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 17:00 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 17:15 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 17:16 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 17:22 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 17:14 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 17:09 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 17:18 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 17:19 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 17:06 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 17:23 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 17:33 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 17:09 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 17:21 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 17:16 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 17:10 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 17:19 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 17:18 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 17:31 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 17:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 17:17 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:20 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/297997942.shtml)
-- 2026-06-29 17:14 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/31640896.shtml)
-- 2026-06-29 17:21 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/883264933265.shtml)
-- 2026-06-29 17:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/25047117080.shtml)
-- 2026-06-29 17:11 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/57086330530.shtml)
-- 2026-06-29 17:14 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/18872168.shtml)
-- 2026-06-29 17:14 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/01110209395.shtml)
-- 2026-06-29 17:01 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/88920457398.shtml)
-- 2026-06-29 17:13 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/845799673.shtml)
-- 2026-06-29 17:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/947698.shtml)
-- 2026-06-29 17:19 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/9674561.shtml)
-- 2026-06-29 17:09 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/50176689.shtml)
-- 2026-06-29 17:00 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/706947.shtml)
-- 2026-06-29 17:05 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/443800.shtml)
-- 2026-06-29 17:16 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/81962.shtml)
+- 2026-06-29 17:08 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/9642028882.shtml)
+- 2026-06-29 17:28 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/751806245.shtml)
+- 2026-06-29 17:09 - [看大国重器“云端穿针引线”](http://www.blog.kurohicncr.top/Article/details/707530.shtml)
+- 2026-06-29 17:23 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/427658350.shtml)
+- 2026-06-29 17:07 - [恋与深空失控领地](http://www.share.minike.top/Article/details/871035.shtml)
+- 2026-06-29 17:21 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/62962.shtml)
+- 2026-06-29 17:34 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/894685.shtml)
+- 2026-06-29 17:20 - [绘画区你赢了](https://www.share.minike.top/Article/details/3627653.shtml)
+- 2026-06-29 17:14 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/8080249645.shtml)
+- 2026-06-29 17:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/247125082188.shtml)
+- 2026-06-29 17:10 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.kurohicncr.top/Article/details/28327197803.shtml)
+- 2026-06-29 17:08 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/533176.shtml)
+- 2026-06-29 17:32 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/353901878.shtml)
+- 2026-06-29 17:13 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/75881429.shtml)
+- 2026-06-29 17:23 - [挪威王储妃长子2次强奸被判4年](https://www.blog.minike.top/Article/details/81949.shtml)

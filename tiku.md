@@ -1,57 +1,50 @@
-# 长江有色：多空博弈加剧，18日碳酸锂或小跌
+# 浙商银行发布2025年年度权益分派实施公告：每股派利0.131元
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 【盘面速递】 2026年6月18日09：02，广期所碳酸锂期货主力合约（LC_ZL）早盘延续弱势震荡。主力合约开盘报 172，020元/吨，随后空头增仓施压，盘中最低下探至 170，120元/吨。临近09：02，盘面空头获利了结迹象显现，期价小幅回升，最新价报 171，380元/吨，较前一交易日结算价下跌 420元/吨，跌幅 0.24%。日内交投情绪尚可，成交量
+6月18日金融一线消息，浙商银行发布2025年年度权益分派实施公告，本次利润分配以方案实施前的公司总股本27，464，635，963股为基数，每股派发现金红利0.131元（含税），共计派发现金红利3，597，867，311.15元。其中A股股本为21，544，435，963股，派发A股现金红利2，822，321，111.15元（含税）。 本次权益分派股权登记日为：2026年6月
 
 ## 正文
 
-长江有色金属网 【盘面速递】 2026年6月18日09：02，广期所碳酸锂期货主力合约（LC_ZL）早盘延续弱势震荡。
+6月18日金融一线消息，浙商银行发布2025年年度权益分派实施公告，本次利润分配以方案实施前的公司总股本27，464，635，963股为基数，每股派发现金红利0.131元（含税），共计派发现金红利3，597，867，311.15元。
 
-主力合约开盘报 172，020元/吨，随后空头增仓施压，盘中最低下探至 170，120元/吨。
+其中A股股本为21，544，435，963股，派发A股现金红利2，822，321，111.15元（含税）。
 
-临近09：02，盘面空头获利了结迹象显现，期价小幅回升，最新价报 171，380元/吨，较前一交易日结算价下跌 420元/吨，跌幅 0.24%。
+本次权益分派股权登记日为：2026年6月25日，除权除息日为：2026年6月26日。
 
-日内交投情绪尚可，成交量已突破 7000手，显示多空双方在17万关口附近分歧较大，博弈进入白热化阶段。
-
-【基本面透视】 早盘的窄幅震荡未能打破碳酸锂市场“上有顶、下有底”的纠结格局，基本面呈现出明显的多空交织特征： • 供应端压力犹存，压制价格反弹：随着江西等主产区锂云母提锂产能的持续爬坡，以及青海盐湖季节性产能的释放，国内碳酸锂现货供应量保持充裕。
-
-此外，非洲和南美进口矿石到港量增加，港口库存高企，原料端成本支撑力度有限，使得期价上方承压明显。
-
-• 需求端正负反馈显现，抑制采购积极性：下游三元材料和磷酸铁锂正极厂在高成品库存的压力下，排产预期有所下调。
-
-电芯厂多以刚需采购为主，对原料碳酸锂的压价意愿强烈，导致现货市场成交清淡，缺乏持续放量动力。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 17:04 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 17:03 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 17:01 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 17:20 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 17:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 17:16 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 17:14 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 17:23 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 17:24 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 17:10 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 17:22 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 17:30 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 17:12 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 17:12 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 17:16 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 17:24 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 17:18 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 17:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 17:09 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 17:29 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 17:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 17:35 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 17:27 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/710430164.shtml)
-- 2026-06-29 17:08 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/11376543.shtml)
-- 2026-06-29 17:24 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/19761631.shtml)
-- 2026-06-29 17:05 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/5717158.shtml)
-- 2026-06-29 17:29 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/2446093593.shtml)
-- 2026-06-29 17:24 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/804324289.shtml)
-- 2026-06-29 17:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/58060.shtml)
-- 2026-06-29 17:21 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/23170162.shtml)
-- 2026-06-29 17:29 - [机器人学校开学了](http://www.share.minike.top/Article/details/587815882.shtml)
-- 2026-06-29 17:15 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/15118622.shtml)
-- 2026-06-29 17:14 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/77673.shtml)
-- 2026-06-29 17:05 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/263410.shtml)
-- 2026-06-29 17:17 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/694714027297.shtml)
-- 2026-06-29 17:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/047076.shtml)
-- 2026-06-29 17:13 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/0140664061.shtml)
+- 2026-06-29 17:30 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/78868.shtml)
+- 2026-06-29 17:13 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/934573797.shtml)
+- 2026-06-29 17:27 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/261477.shtml)
+- 2026-06-29 17:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/209605839.shtml)
+- 2026-06-29 17:24 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/19962370.shtml)
+- 2026-06-29 17:25 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/63314611.shtml)
+- 2026-06-29 17:16 - [机器人学校开学了](https://www.blog.kurohicncr.top/Article/details/49947108722.shtml)
+- 2026-06-29 17:26 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/74456470.shtml)
+- 2026-06-29 17:27 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/86765729280.shtml)
+- 2026-06-29 17:20 - [女心理师](https://www.share.kurohicncr.top/Article/details/17128336276.shtml)
+- 2026-06-29 17:19 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/4148703957.shtml)
+- 2026-06-29 17:26 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/096421607837.shtml)
+- 2026-06-29 17:25 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/846423052777.shtml)
+- 2026-06-29 17:20 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/895264956995.shtml)
+- 2026-06-29 17:10 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/47542043559.shtml)

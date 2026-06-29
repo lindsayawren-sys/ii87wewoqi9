@@ -1,57 +1,50 @@
-# 美联储鹰派立场支撑美元，美元兑日元突破密集压力区间
+# 国家发改委：推动物流网补短板、畅联通、提能级
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周四亚洲交易时段，美元兑日元维持在160.50附近震荡整理。在连续四个交易日上涨后，汇价已升至2024年7月以来最高水平。虽然美元指数在美联储利率决议后出现部分获利了结，但整体走势依然受到美国利率优势支撑。 美国总统唐纳德·特朗普与伊朗总统马苏德·佩泽希齐扬已经签署结束冲突的谅解备忘录，双方将启动为期60天的最终协议谈判，并推动霍尔木兹海峡恢复正常通航。特朗
+发布时间：2026年06月18日 17:07 来源：三里河 6月18日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上表示，推动物流网补短板、畅联通、提能级，实现从“有”到“好”、从“通”到“畅”的系统转变。目标是到2030年，基本建成枢纽与产业和消费紧密协同、通道与网络内外联通、设施与装备绿色智能、规则与信息全域互通的物流网，更好服务实体经济高质量发展。(陈庆洋
 
 ## 正文
 
-汇通财经APP讯——周四亚洲交易时段，美元兑日元维持在160.50附近震荡整理。
+发布时间：2026年06月18日 17:07 来源：三里河 6月18日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上表示，推动物流网补短板、畅联通、提能级，实现从“有”到“好”、从“通”到“畅”的系统转变。
 
-在连续四个交易日上涨后，汇价已升至2024年7月以来最高水平。
+目标是到2030年，基本建成枢纽与产业和消费紧密协同、通道与网络内外联通、设施与装备绿色智能、规则与信息全域互通的物流网，更好服务实体经济高质量发展。
 
-虽然美元指数在美联储利率决议后出现部分获利了结，但整体走势依然受到美国利率优势支撑。
-
-美国总统唐纳德·特朗普与伊朗总统马苏德·佩泽希齐扬已经签署结束冲突的谅解备忘录，双方将启动为期60天的最终协议谈判，并推动霍尔木兹海峡恢复正常通航。
-
-特朗普同时表示，针对伊朗核问题的谈判期限并非绝对限制，这进一步提升了市场对和平协议最终落地的信心。
-
-受此影响，全球风险偏好明显改善，部分资金从美元避险资产中流出，导致美元指数在触及3月底以来高位后出现技术性回调。
-
-不过，由于美联储最新政策立场依旧偏向鹰派，美元整体仍保持强势格局。
-
-美联储周三一致决定将联邦基金利率维持在3.50%-3.75%区间不变。
+(陈庆洋 李金磊） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-29 17:07 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 17:08 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 17:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 17:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 17:10 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 17:10 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 17:20 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 17:07 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 17:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 17:11 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 17:19 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 17:12 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 17:10 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 17:13 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 17:13 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 17:11 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 17:35 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 17:34 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 17:25 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 17:22 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 17:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 17:13 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 17:34 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 17:35 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 17:09 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/6204202461.shtml)
-- 2026-06-29 17:01 - [送你一朵小红花](https://www.share.minike.top/Article/details/21739115327.shtml)
-- 2026-06-29 17:24 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/49518.shtml)
-- 2026-06-29 17:15 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/293223860.shtml)
-- 2026-06-29 17:28 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.minike.top/Article/details/5870152339.shtml)
-- 2026-06-29 17:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/88079.shtml)
-- 2026-06-29 17:23 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/2348676325.shtml)
-- 2026-06-29 17:14 - [一生一世](https://www.share.kurohicncr.top/Article/details/2562933432.shtml)
-- 2026-06-29 17:01 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/4637137031.shtml)
-- 2026-06-29 17:07 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/19436842.shtml)
-- 2026-06-29 17:06 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/93183.shtml)
-- 2026-06-29 17:14 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/849394.shtml)
-- 2026-06-29 17:20 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/33737032.shtml)
-- 2026-06-29 17:07 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/28656744260.shtml)
-- 2026-06-29 17:09 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/33616.shtml)
+- 2026-06-29 17:32 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/750218242.shtml)
+- 2026-06-29 17:11 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/6651056250.shtml)
+- 2026-06-29 17:17 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/4145146.shtml)
+- 2026-06-29 17:17 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/0603645.shtml)
+- 2026-06-29 17:15 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/85431.shtml)
+- 2026-06-29 17:24 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/9808302.shtml)
+- 2026-06-29 17:06 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/306655571767.shtml)
+- 2026-06-29 17:08 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/313490398.shtml)
+- 2026-06-29 17:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/73962925291.shtml)
+- 2026-06-29 17:19 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/72803260517.shtml)
+- 2026-06-29 17:17 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/26751.shtml)
+- 2026-06-29 17:13 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/3523027.shtml)
+- 2026-06-29 17:31 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/82207700249.shtml)
+- 2026-06-29 17:31 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/3927946.shtml)
+- 2026-06-29 17:30 - [起风了](https://www.share.minike.top/Article/details/703914903299.shtml)

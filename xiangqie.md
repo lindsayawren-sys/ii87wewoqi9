@@ -1,59 +1,57 @@
-# 普华永道将亮相第四届链博会 聚焦AI赋能供应链新生态
+# 碳酸锂期货及期权将迎境外交易者 7月3日起正式交易
 
-> 更新时间：2026-06-29 17:30:03 UTC+8
+> 更新时间：2026-06-29 17:36:02 UTC+8
 
 ## 摘要
 
-北京，2026年6月18日——第四届中国国际供应链促进博览会(链博会)将于6月22日在北京盛大开幕。作为连续两年参展的“链博老友”，普华永道今年将以“AI加速赛道”为核心展示主题，全面呈现如何通过人工智能技术，破解供应链协同效率不足、技术转化难等核心痛点，助力全球供应链迈向智能经济新形态。普华永道中国主席兼首席执行官何睦宁(Hemione Hudson)表示：“我们感到非常荣幸
+6月18日，广州期货交易所（以下简称广期所）公告显示，将于北京时间7月3日9时起正式引入境外交易者参与碳酸锂期货及期权交易，这是该品种继引入合格境外投资者（QFI）后国际化的又一重要举措，标志着我国在全球新能源材料领域的价格影响力将进一步增强。 碳酸锂作为锂电池核心原材料，是新能源产业链上游的战略性资源，也是我国锂电产业竞争优势的重要支撑。自2023年7月上市以来，碳酸锂期货市
 
 ## 正文
 
-北京，2026年6月18日——第四届中国国际供应链促进博览会(链博会)将于6月22日在北京盛大开幕。
+6月18日，广州期货交易所（以下简称广期所）公告显示，将于北京时间7月3日9时起正式引入境外交易者参与碳酸锂期货及期权交易，这是该品种继引入合格境外投资者（QFI）后国际化的又一重要举措，标志着我国在全球新能源材料领域的价格影响力将进一步增强。
 
-作为连续两年参展的“链博老友”，普华永道今年将以“AI加速赛道”为核心展示主题，全面呈现如何通过人工智能技术，破解供应链协同效率不足、技术转化难等核心痛点，助力全球供应链迈向智能经济新形态。
+碳酸锂作为锂电池核心原材料，是新能源产业链上游的战略性资源，也是我国锂电产业竞争优势的重要支撑。
 
-普华永道中国主席兼首席执行官何睦宁(Hemione Hudson)表示：“我们感到非常荣幸再次参加链博会。
+自2023年7月上市以来，碳酸锂期货市场运行平稳，功能有效发挥，期现紧密联动，已成为国内现货贸易中的重要定价参考。
 
-链博会不仅是展示前沿成果的窗口，更是推动全球产业链深度合作的催化剂。
+此次引入境外交易者，既是我国期货市场顺应全球锂电产业发展趋势、服务实体经济高质量发展的务实举措，也是提升我国锂资源全球定价影响力的关键一步。
 
-今年，我们聚焦AI，展示普华永道如何通过专业服务，将人工智能从概念转化为驱动供应链韧性、效率与可持续发展的核心引擎。
+经中国证监会批准，2026年1月23日，碳酸锂期货、期权获批以特定品种的方式引入境外交易者。
 
-我们期待与全球伙伴共同探索智能经济下的无限可能。
+据广期所有关业务负责人介绍，碳酸锂期货及期权是广期所首个以特定品种方式对外开放的品种，参与主体方面，新增境外中介机构和境外客户两类主体，境外客户既可通过境内期货公司直接开户，也可通过境外中介机构转委托的方式参与交易。
 
-” 本届链博会上，普华永道将打造“智能经济新形态= f(生态×认知×应用)”的方程式展台，以“AI加速赛道”为核心场景，按产业进化逻辑分为“强健发展底座”、“扩大AI市场应用”和“深化人机协同”三大赛段，全面展示从AI基础设施到行业应用，再到人机共生的完整创新链条。
+适当性管理方面，实行灵活务实的制度安排，设置了过渡方案和豁免情形，例如已取得碳酸锂期货及期权交易权限的境内客户无需重新评估，已开通其他实行适当性制度品种交易权限的可豁免知识测试和交易经历要求，已具备相同或较高资金门槛品种权限的可豁免可用资金余额要求，既有效防控风险，又降低了市场参与成本。
 
-展会期间，普华永道将重磅发布《乘智而上，向新而行：普华永道全球人工智能效能研究中国报告》。
+结算方面，境外交易者可以使用外汇资金作为保证金。
 
 ## 相关推荐
 
-- 2026-06-29 17:07 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 17:13 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 17:05 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 17:16 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 17:06 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 17:00 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 17:15 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 17:06 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 17:17 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 17:14 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 17:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 17:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 17:27 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 17:30 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 17:16 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 17:18 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 17:10 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 17:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 17:16 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 17:35 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 17:34 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 17:27 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 17:33 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 17:27 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/49222406790.shtml)
-- 2026-06-29 17:11 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/4280357747.shtml)
-- 2026-06-29 17:26 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/09708400097.shtml)
-- 2026-06-29 17:12 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/29101849293.shtml)
-- 2026-06-29 17:19 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/75721907793.shtml)
-- 2026-06-29 17:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/32967520180.shtml)
-- 2026-06-29 17:13 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/7951836.shtml)
-- 2026-06-29 17:19 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/717679274504.shtml)
-- 2026-06-29 17:18 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/704737443161.shtml)
-- 2026-06-29 17:13 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/7754130064.shtml)
-- 2026-06-29 17:12 - [TTG KSG](http://www.share.minike.top/Article/details/599476244773.shtml)
-- 2026-06-29 17:29 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/693272068.shtml)
-- 2026-06-29 17:10 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/3527174.shtml)
-- 2026-06-29 17:00 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/9169357787.shtml)
-- 2026-06-29 17:14 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/2431837.shtml)
+- 2026-06-29 17:07 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/638378632796.shtml)
+- 2026-06-29 17:30 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/249026126.shtml)
+- 2026-06-29 17:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/960550.shtml)
+- 2026-06-29 17:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/3356927500.shtml)
+- 2026-06-29 17:25 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/4739251360.shtml)
+- 2026-06-29 17:10 - [业内：全球市场迎来结构性投资窗口](https://www.blog.kurohicncr.top/Article/details/048768042755.shtml)
+- 2026-06-29 17:07 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/293079824.shtml)
+- 2026-06-29 17:23 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/999879684065.shtml)
+- 2026-06-29 17:21 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/070044126.shtml)
+- 2026-06-29 17:30 - [扫黑风暴](http://www.blog.minike.top/Article/details/45903.shtml)
+- 2026-06-29 17:17 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/369537.shtml)
+- 2026-06-29 17:15 - [T1 KC](http://www.blog.minike.top/Article/details/2257152.shtml)
+- 2026-06-29 17:27 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.minike.top/Article/details/740446.shtml)
+- 2026-06-29 17:32 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/49828939.shtml)
+- 2026-06-29 17:18 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/356680.shtml)
