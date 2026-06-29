@@ -1,56 +1,56 @@
-# 雅高中国：第一季度入境预订量增长25%
+# 中国银行董事长葛海蛟出席2026中韩工商领导人经济会议系列活动并在上海开展工作调研
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-雅高集团大中华区首席执行官表示，今年第一季度入境预订量增长25%，这一增长是在2025年入境预订量增长36%之后实现的。 他表示，该公司制定了一项“战略”，即进一步向中国西部地区扩张，并加速向这些新市场投入资源。 雅高中国计划在未来五到六年内再新建800家酒店。 雅高集团在中国的业绩未受中东冲突影响。 中国豪华和高端酒店市场表现强劲，每间可供出租客房收入（RevPAR）较去年第
+来源：中国银行 5月7日至8日，2026中韩工商领导人经济会议系列活动在沪举行。作为中方主席单位代表，中国银行董事长葛海蛟致会议开幕词，同时围绕“中韩经济的现状及新兴产业合作”作主题发言，并参加上海市市长龚正与中韩企业代表团会见活动。韩国经营者总协会会长、希杰集团董事长孙京植等20余家韩国企业代表参加。 葛海蛟表示，去年底今年初，习近平主席同李在明总统在两个多月内实现互访，引领
 
 ## 正文
 
-雅高集团大中华区首席执行官表示，今年第一季度入境预订量增长25%，这一增长是在2025年入境预订量增长36%之后实现的。
+来源：中国银行 5月7日至8日，2026中韩工商领导人经济会议系列活动在沪举行。
 
-他表示，该公司制定了一项“战略”，即进一步向中国西部地区扩张，并加速向这些新市场投入资源。
+作为中方主席单位代表，中国银行董事长葛海蛟致会议开幕词，同时围绕“中韩经济的现状及新兴产业合作”作主题发言，并参加上海市市长龚正与中韩企业代表团会见活动。
 
-雅高中国计划在未来五到六年内再新建800家酒店。
+韩国经营者总协会会长、希杰集团董事长孙京植等20余家韩国企业代表参加。
 
-雅高集团在中国的业绩未受中东冲突影响。
+葛海蛟表示，去年底今年初，习近平主席同李在明总统在两个多月内实现互访，引领中韩关系开辟新局面。
 
-中国豪华和高端酒店市场表现强劲，每间可供出租客房收入（RevPAR）较去年第三季度增长超过8%，而中档和经济型酒店表现则较为疲软。
+近年来，两国积极推进各领域交流合作，实现了相互成就、共同繁荣。
 
-责任编辑：于健 SF069
+中国银行是最早进入韩国市场的中资银行，始终以金融力量链接两国市场、服务两国企业，对韩国世界500强企业实现服务全覆盖，邀请超400家韩国企业来华参加进博会、消博会等中国国家级展会，共享超大规模市场发展机遇。
+
+葛海蛟表示，中国银行将坚定落实两国元首重要共识，发挥全球化优势、综合化特色，坚持向“新”发力，依托上海科创中心优势与长三角产业生态基础，聚焦半导体、高端装备、人工智能、新能源汽车等重点领域，加速推动中韩经贸关系向高附加值、创新驱动型合作升级；坚持向“绿”前行，围绕绿色技术转化、绿色项目落地、绿色装备出海等重点领域，持续扩大绿色信贷、债券、租赁等产品供给，助力两国拓展绿色经济等新兴领域合作增长点；坚持向“深”挖潜，支持韩国企业在华增加投资、扩大布局，更好把握中国“十五五”发展机遇。
+
+中国银行愿继续加大资源投入、提升服务质效，与中韩各界携手推动经贸合作迈向更高水平。
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [盘前：纳指期货涨0.8% 油价下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 13:10 - [原油：脆弱停火得以维持 油价下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 13:06 - [粤港湾控股午后涨幅扩大逾23% 公司受益AI产业高增长红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 13:08 - [NTSB与FAA联合调查美联航飞波音767碰撞事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 13:09 - [日本干预预期与日银鹰派立场支撑日元，美元兑日元受压徘徊156关口附近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 13:08 - [马斯克就推特持股披露案与SEC达成和解 支付150万美元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:53 - [山城夜色引客来 重庆夜间经济点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:00 - [7个项目停6个？部分城市“智慧城市”项目为啥“投入即浪费”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 13:05 - [假日经济观察：流量变“留量” 浙江湖州千年农遗焕新记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 13:04 - [中国海外发展早盘涨超5% 花旗现予目标价14.20港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:59 - [霍尔木兹海峡激战升级，美军打击伊朗快艇，阿联酋遭袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:59 - [摩根大通牵头财团或因Qualtrics债务面临5亿美元损失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:55 - [美国宣布对伊军事行动结束，分析担忧战事远未终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:11 - [万成集团股份复牌一度飙升91% 获执董钟国强折让约34.96%提全购要约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 13:13 - [AWS数据中心突发宕机 冲击FanDuel、Coinbase交易业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 13:08 - [大美边疆看我家丨黑龙江饶河：夕阳西下 水田如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:48 - [以军对黎巴嫩南部9个村庄发布撤离警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:57 - [nLIGHT一季度业绩超预期，国防需求强劲推动股价大涨22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 13:00 - [中方：希欧方全面、客观、积极看待中欧经贸关系，停止损人不利己的做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 13:00 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:50 - [华尔街新型NACHO 交易押注石油冲击将长期持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 13:07 - [专家解读：日本想借“肩并肩”联合军演兴起什么“风浪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:50 - [普京：收到泽连斯基希望会晤的口信 不反对在第三国会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 13:11 - [从乳业到稀土 内蒙古以产业计量嵌入全国产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [心动公司于5月4日斥资761.31万港元回购12万股](http://www.share.kurohicncr.top/Article/details/3331287688.shtml)
-- 2026-06-29 12:52 - [FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益](http://www.blog.minike.top/Article/details/576608.shtml)
-- 2026-06-29 12:43 - [中国市场缘何被喻为“健身房”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [汉堡王母公司RBI季度业绩超预期，价值套餐需求推动增长](http://www.share.kurohicncr.top/Article/details/73032558529.shtml)
-- 2026-06-29 13:07 - [广州楼市新政发力 “五一”假期一二手住宅市场同步向好](http://www.blog.kurohicncr.top/Article/details/551725.shtml)
-- 2026-06-29 12:42 - [空客计划2020年以来首次发债 应对供应链中断](http://www.blog.kurohicncr.top/Article/details/50620884.shtml)
-- 2026-06-29 12:43 - [韩国称将确保每年从加拿大进口至多3300万桶原油](http://www.blog.minike.top/Article/details/43899.shtml)
-- 2026-06-29 12:54 - [营收成本攀升，Shopify下调第二季度盈利预期 股价大跌13.28%](http://www.share.minike.top/Article/details/70391525545.shtml)
-- 2026-06-29 12:57 - [AMD CEO苏姿丰：智能体正引爆人工智能周期巨大需求](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [唯一！连续19年不良率低于1%，宁波银行凭什么被大摩列为“中国核心资产”？](http://www.blog.minike.top/Article/details/043259706.shtml)
-- 2026-06-29 13:08 - [假期最后一天铁路迎返京高峰 受大风影响部分列车晚点](http://www.share.minike.top/Article/details/8541355.shtml)
-- 2026-06-29 13:02 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](http://www.blog.minike.top/Article/details/26799295362.shtml)
-- 2026-06-29 13:02 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [年轻人假期热衷贵阳“寻咖”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](http://www.blog.kurohicncr.top/Article/details/90551.shtml)
+- 2026-06-29 13:06 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](http://www.blog.minike.top/Article/details/7991951.shtml)
+- 2026-06-29 12:55 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](http://www.blog.kurohicncr.top/Article/details/85499655687.shtml)
+- 2026-06-29 13:02 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](http://www.blog.minike.top/Article/details/2477871.shtml)
+- 2026-06-29 13:10 - [日经指数下跌0.8% 受科技股和金融股拖累](http://www.share.minike.top/Article/details/2492068.shtml)
+- 2026-06-29 12:57 - [预防心梗，这些不良习惯需警惕](http://www.share.minike.top/Article/details/3698466.shtml)
+- 2026-06-29 12:52 - [青藏高原生物种质资源库构建全球高寒种质保护网](http://www.share.kurohicncr.top/Article/details/18735360464.shtml)
+- 2026-06-29 13:05 - [四部门发文促进人工智能与能源双向赋能](http://www.share.kurohicncr.top/Article/details/27032930.shtml)
+- 2026-06-29 13:04 - [妈妈，我想对你说](http://www.blog.minike.top/Article/details/9561111.shtml)
+- 2026-06-29 12:48 - [通胀侵蚀消费支出 英国到店客流下滑](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:16 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](http://www.blog.minike.top/Article/details/7312971.shtml)
+- 2026-06-29 13:10 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](http://www.share.kurohicncr.top/Article/details/00282410759.shtml)
+- 2026-06-29 13:10 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](http://www.blog.minike.top/Article/details/46374.shtml)

@@ -1,53 +1,57 @@
-# 国资委：将组织开展新一轮数智化转型专项行动
+# 像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-中新网5月6日电 据国资委网站消息，2026年4月29日，在第九届数字中国建设峰会期间，国务院国资委在福州成功举办以“数字赋能央企 创新引领未来”为主题的企业数字化转型分论坛。国务院国资委党委委员、副主任李镇在论坛上表示，国务院国资委坚持政策驱动、组织推动、示范带动、协同联动，纵深推进中央企业数字化转型，在推动中央企业产业数字化、数字产业化等方面取得积极进展。李镇称，未来，国务
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。像素绽放PixelBloom（AiPPT.com）联合创始人蒲世林出席并以《重塑表达，完善企业AI基础设施的标准件》为题发表演讲。 以下为演讲实录： 大家好，我是像素绽放的联合创始人蒲世林。 可能在座很多朋友对像素绽放这家公司并不熟悉，但我相信，我们的产品一定有不少人正在
 
 ## 正文
 
-中新网5月6日电 据国资委网站消息，2026年4月29日，在第九届数字中国建设峰会期间，国务院国资委在福州成功举办以“数字赋能央企 创新引领未来”为主题的企业数字化转型分论坛。
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
 
-国务院国资委党委委员、副主任李镇在论坛上表示，国务院国资委坚持政策驱动、组织推动、示范带动、协同联动，纵深推进中央企业数字化转型，在推动中央企业产业数字化、数字产业化等方面取得积极进展。
+像素绽放PixelBloom（AiPPT.com）联合创始人蒲世林出席并以《重塑表达，完善企业AI基础设施的标准件》为题发表演讲。
 
-李镇称，未来，国务院国资委将组织开展新一轮数智化转型专项行动，指导中央企业开展智能工厂梯度培育，强化数字技术自主创新，深化数字经济与实体经济融合，推动传统产业转型升级，加快发展新质生产力。
+以下为演讲实录： 大家好，我是像素绽放的联合创始人蒲世林。
 
-论坛邀请院士专家及中央企业代表围绕企业数字化转型开展实践经验交流，发布中央企业十大数字技术成果以及以“数智赋能未来产业 创新引领产业变革”为主题的倡议书。
+可能在座很多朋友对像素绽放这家公司并不熟悉，但我相信，我们的产品一定有不少人正在使用，它就是AiPPT.cn 。
+
+这款产品我们在三年前正式推向市场，截至目前，全球用户规模已突破3000万，数据稳居国内AI PPT赛道市场占有率第一，全球排名第二，也是全球增速最快的AI办公应用企业之一。
+
+今天，我想和大家分享过去两三年，我们在这个赛道上的实践与思考。
+
+我们的核心定位，始终聚焦在“表达”这件事上。
+
+PPT的本质，从来不是一份简单的演示文档，而是一套标准化的表达工具——无论是内部的述职汇报、战略规划、经营复盘，还是对外的品牌宣讲、业务推介、合作沟通，核心都是高效、清晰地传递信息与价值。
 
 ## 相关推荐
 
-- 2026-06-29 12:57 - [轰动一时的“臭氧层空洞”，正在自己悄悄长好，原因竟然是这个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:48 - [云南各机场“五一”迎客超百万 民族风情圈粉八方来客](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:54 - [“五一”假期 重庆无人机灯光秀绘就夜空光影画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 13:11 - [购房新政叠加“五一”假期 多地楼市升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 13:05 - [滴普科技午前大涨逾21% 机构看好其营收高增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:45 - [韩股飙涨6.45%首次突破7300点，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 13:05 - [酒价内参5月7日价格发布：青花郎领跌 总价创5天以来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:58 - [百亿明星私募被曝光“打新内幕”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:58 - [被特朗普痛批后，美国食药局首次批准调味电子烟上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:44 - [体验式消费、IP联名活动 “五一”假期消费市场持续上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:54 - [Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:54 - [情感赛道变形记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:49 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 13:00 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 13:06 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 13:15 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 13:00 - [汉坦病毒如何让Moderna重成“必持”股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 13:12 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 13:12 - [英伟达重金押注光连接，AI的下一战场或在光纤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 13:16 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:49 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 13:15 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 13:13 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:12 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 13:16 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 13:11 - [社评：中国的“Country Walk”何以吸引西方年轻人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:00 - [博物馆“镇馆之宝”排队热 文博游何以持续火热？](http://www.blog.minike.top/Article/details/52532347794.shtml)
-- 2026-06-29 12:52 - [特朗普预计一周内可以解决伊朗问题](http://www.share.minike.top/Article/details/1777743.shtml)
-- 2026-06-29 13:02 - [伊朗官方媒体IRIB：伊朗向霍尔木兹海峡的商船发布指引](http://www.blog.minike.top/Article/details/236240.shtml)
-- 2026-06-29 12:48 - [玉林师范学院原党委副书记、 院长王卓华被开除党籍](http://www.blog.kurohicncr.top/Article/details/21737.shtml)
-- 2026-06-29 12:55 - [司法部组织开展行政处罚公示信息集中清理工作](http://www.blog.minike.top/Article/details/30379265.shtml)
-- 2026-06-29 12:52 - [华宝基金科创人工智能ETF (589520)量价齐升！](http://www.share.minike.top/Article/details/314300.shtml)
-- 2026-06-29 12:51 - [地缘紧张局势缓和 墨西哥比索与股市双双走高](http://www.blog.minike.top/Article/details/757409846925.shtml)
-- 2026-06-29 12:54 - [日产全球大重组：欧洲裁员10%，桑德兰工厂合并生产线](http://www.blog.kurohicncr.top/Article/details/531331087.shtml)
-- 2026-06-29 12:55 - [花旗：中煤能源维持“买入”评级 目标价降至16.6港元](http://www.share.kurohicncr.top/Article/details/27408.shtml)
-- 2026-06-29 12:47 - [有线耳机翻红 意外逆袭带来什么启发？](http://www.share.kurohicncr.top/Article/details/835933.shtml)
-- 2026-06-29 12:44 - [以旧换新政策，今年力度降了吗](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [广发银行深耕科技金融 科技贷款余额超4000亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [英飞凌展望超预期，AI热潮提振功率芯片业务](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [迪士尼超预期财报助推相关ETF，个股年内仍跌12%](http://www.share.kurohicncr.top/Article/details/2403380.shtml)
-- 2026-06-29 13:00 - [InflaRx完成1.5亿美元普通股发行定价](http://www.share.kurohicncr.top/Article/details/3679529.shtml)
+- 2026-06-29 12:57 - [一季度广州海关关区出口锂电池52.2亿元 同比增长超2倍](http://www.share.kurohicncr.top/Article/details/42504337.shtml)
+- 2026-06-29 12:52 - [CoreWeave二季度营收指引不及预期，周五盘前下跌6.5%](http://www.share.minike.top/Article/details/1563377.shtml)
+- 2026-06-29 12:56 - [培育消费新场景新业态 激发消费新动能](http://www.blog.kurohicncr.top/Article/details/904417740.shtml)
+- 2026-06-29 12:56 - [文莱王储比拉将访华](http://www.share.minike.top/Article/details/48285.shtml)
+- 2026-06-29 13:17 - [Insight续押日元还会再跌 干预只能短暂止血](http://www.share.kurohicncr.top/Article/details/2313353.shtml)
+- 2026-06-29 13:00 - [资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元](http://www.share.kurohicncr.top/Article/details/651263167006.shtml)
+- 2026-06-29 13:04 - [一双跑鞋炒至5000美元，12000件夹克27分钟抢空：阿迪达斯股东大会传递了什么？](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:06 - [酒价内参5月8日价格发布：五粮液1618上涨2元/瓶](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [“情书”里的爆款创作密码](http://www.share.kurohicncr.top/Article/details/299914.shtml)
+- 2026-06-29 13:16 - [下周A股还能涨吗？这两件事，请股民重点关注](http://www.blog.minike.top/Article/details/804807174367.shtml)
+- 2026-06-29 13:15 - [金风科技截至4月末累计回购1万股H股](http://www.share.minike.top/Article/details/876072.shtml)
+- 2026-06-29 12:55 - [今年开分最高的国产电影，每一件道具都是华侨的情书](http://www.share.minike.top/Article/details/6724216528.shtml)
+- 2026-06-29 12:53 - [海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来](http://www.share.minike.top/Article/details/515171237683.shtml)
+- 2026-06-29 13:04 - [市场监管总局：4792.24万户经营主体获信用修复](http://www.blog.kurohicncr.top/Article/details/863542199.shtml)
+- 2026-06-29 12:52 - [泰柬领导人在菲律宾讨论两国边境局势](http://www.blog.minike.top/Article/details/488790.shtml)

@@ -1,45 +1,60 @@
-# FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益
+# 以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-美国联邦通信委员会（FCC）委员Anna Gomez在声明中表示，FCC应对拟议中的派拉蒙-华纳兄弟探索合并案背后的外国利益进行审查。 声明称，根据联邦法律，外国政府及其代表不得持有派拉蒙子公司CBS所拥有的、受FCC监管的广播牌照． “任何超过25%的间接外资持股，都需要委员会批准，并需经过严格审查，以判断该安排是否符合美国公众利益并保障国家安全，”她还表示．责任编辑：李桐
+中新网重庆5月10日电 (钟旖 陈佳欣)9日晚，国内首部长江题材大型幻境杂技剧《长江》在重庆国际马戏城进行常态化驻演。 作为重庆杂技艺术团历经两年打磨推出的全新剧目，《长江》以20世纪90年代至今的长江流域生态蝶变为叙事底色，聚焦江畔百姓守护一江碧水的动人故事，以全新艺术意象奏响长江经济带绿色发展的时代强音。 全剧突破传统杂技边界，创新性融合杂技、舞蹈、魔术等艺术形态，以极限技
 
 ## 正文
 
-美国联邦通信委员会（FCC）委员Anna Gomez在声明中表示，FCC应对拟议中的派拉蒙-华纳兄弟探索合并案背后的外国利益进行审查。
+中新网重庆5月10日电 (钟旖 陈佳欣)9日晚，国内首部长江题材大型幻境杂技剧《长江》在重庆国际马戏城进行常态化驻演。
 
-声明称，根据联邦法律，外国政府及其代表不得持有派拉蒙子公司CBS所拥有的、受FCC监管的广播牌照． “任何超过25%的间接外资持股，都需要委员会批准，并需经过严格审查，以判断该安排是否符合美国公众利益并保障国家安全，”她还表示．责任编辑：李桐
+作为重庆杂技艺术团历经两年打磨推出的全新剧目，《长江》以20世纪90年代至今的长江流域生态蝶变为叙事底色，聚焦江畔百姓守护一江碧水的动人故事，以全新艺术意象奏响长江经济带绿色发展的时代强音。
+
+全剧突破传统杂技边界，创新性融合杂技、舞蹈、魔术等艺术形态，以极限技艺搭配现代科技的创新叙事，为观众带来视觉盛宴。
+
+在舞美设计上，剧目极具创新，不仅展现重庆山水地貌特色，还精准还原吊脚楼等标志性场景。
+
+值得一提的是，白鹤梁的水下石碑也被“复刻”呈现于舞台之上。
+
+重庆杂技艺术团有关负责人介绍，剧目借助先进投影设备，搭配特效镜片的矩阵反光效果，打造“全景式”幻境空间，让传统美学搭载现代科技，共同演绎长江文明。
+
+技术革新方面，2024年在央视春晚中惊艳亮相的《跃龙门》在剧中完成难度升级，20多位“空中飞人”联袂演绎连续空翻两周等动作，展现高超技艺；摘得中国杂技最高奖“金菊奖”金奖的节目《天女散花》，也升级为在5米高空演绎。
+
+该负责人表示，《长江》不仅是重庆文化品牌的创新表达，更是向世界展现长江风华、讲好中国故事的艺术桥梁。
 
 ## 相关推荐
 
-- 2026-06-29 13:11 - [AMD CEO苏姿丰：智能体正引爆人工智能周期巨大需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:52 - [唯一！连续19年不良率低于1%，宁波银行凭什么被大摩列为“中国核心资产”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:59 - [假期最后一天铁路迎返京高峰 受大风影响部分列车晚点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:43 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:44 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:56 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 13:10 - [年轻人假期热衷贵阳“寻咖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:54 - [富通科技公布于5月6日下午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 13:11 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 13:03 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:51 - [追光的你｜青春的颜色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 13:06 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 13:04 - [妈妈，我想对你说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:58 - [通胀侵蚀消费支出 英国到店客流下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 13:11 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:59 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 13:15 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 13:11 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 13:12 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 13:04 - [AI时代，全球教育正面临三层重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:49 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 13:08 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 13:04 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:54 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 13:16 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:45 - [际华集团（601718）收到处罚事先告知书，投资者索赔多次提交立案](http://www.blog.kurohicncr.top/Article/details/388311.shtml)
-- 2026-06-29 12:50 - [福特秘密电动车部门浮出水面 市场放缓背景下仍看好全新电动皮卡](http://www.blog.minike.top/Article/details/26313722628.shtml)
-- 2026-06-29 13:04 - [伊朗：尚未回应美国对伊方14点提议的看法](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体](http://www.blog.minike.top/Article/details/02812.shtml)
-- 2026-06-29 12:55 - [生猪板块升温，期股共振释放什么信号？](http://www.blog.minike.top/Article/details/028464883.shtml)
-- 2026-06-29 12:50 - [美国股市：标普500指数续创新高 AMD大涨与中东和平预期提振市场](http://www.share.kurohicncr.top/Article/details/213737211.shtml)
-- 2026-06-29 12:49 - [午盘：美股继续上扬 纳指创盘中新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [路易丝·阿伯将出任第31任加拿大总督](http://www.blog.kurohicncr.top/Article/details/9994782.shtml)
-- 2026-06-29 13:04 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](http://www.blog.kurohicncr.top/Article/details/1966502123.shtml)
-- 2026-06-29 12:46 - [离境退税“即买即退”跨省互认进一步扩围](http://www.blog.minike.top/Article/details/52370815610.shtml)
-- 2026-06-29 12:43 - [哈塞特：没有参与私募信贷的人不必担心](http://www.share.minike.top/Article/details/862498524.shtml)
-- 2026-06-29 12:56 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](http://www.blog.kurohicncr.top/Article/details/46867758.shtml)
-- 2026-06-29 12:48 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [黄金突破4700美元，分析师警示风险犹存](http://www.share.kurohicncr.top/Article/details/029457521626.shtml)
-- 2026-06-29 12:54 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](http://www.share.kurohicncr.top/Article/details/867121126305.shtml)
+- 2026-06-29 13:15 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](http://www.blog.kurohicncr.top/Article/details/88881075.shtml)
+- 2026-06-29 13:05 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](http://www.share.minike.top/Article/details/81209235.shtml)
+- 2026-06-29 13:17 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](http://www.blog.kurohicncr.top/Article/details/74040263.shtml)
+- 2026-06-29 13:00 - [高开低走，油脂后市何去何从？](http://www.blog.kurohicncr.top/Article/details/48283.shtml)
+- 2026-06-29 12:57 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](http://www.blog.kurohicncr.top/Article/details/12561.shtml)
+- 2026-06-29 13:12 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](http://www.blog.minike.top/Article/details/9441656.shtml)
+- 2026-06-29 13:08 - [享界S9零重力座椅事件，给车企和用户都提了个醒](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:14 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](http://www.blog.minike.top/Article/details/252017.shtml)
+- 2026-06-29 12:55 - [湖北武汉：初夏时节 花田花海美不胜收](http://www.blog.minike.top/Article/details/5521866713.shtml)
+- 2026-06-29 13:13 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:01 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](http://www.blog.minike.top/Article/details/524810.shtml)
+- 2026-06-29 13:17 - [A股1300亿算力巨头协创数据，净利润猛增343%](http://www.blog.kurohicncr.top/Article/details/72646.shtml)
+- 2026-06-29 13:07 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](http://www.blog.kurohicncr.top/Article/details/5727979.shtml)
+- 2026-06-29 13:04 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](http://www.share.kurohicncr.top/Article/details/73519789.shtml)
+- 2026-06-29 12:55 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](http://www.share.kurohicncr.top/Article/details/56083684394.shtml)

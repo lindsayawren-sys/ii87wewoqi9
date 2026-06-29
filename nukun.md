@@ -1,57 +1,57 @@
-# 第139届广交会广州交易团收获东盟意向订单同比增23.3%
+# RBC Capital上调标普500年终目标至7900点，看好后市上涨空间
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-中新社广州5月6日电 (王华 秦小雅)广州市商务局6日通报，第139届广交会期间，广州交易团订单收获丰硕，其中对东盟市场意向成交表现尤为亮眼，涉及交易额同比增长23.3%。 作为中国外贸的“风向标”和“晴雨表”，本届广交会吸引超3.2万家参展企业和来自220个国家和地区的约31.4万名境外采购商参加。其中，东南亚客商俨然主力军，越南、马来西亚、泰国等国家采购商扎堆进场，成为广州
+RBC Capital Markets将标普500指数2026年底目标价从7200点上调至7900点，较当前水平隐含约7%的上行空间，理由是盈利增长预期改善和地缘政治风险缓解。 上调理由 以Lori Calvasina为首的分析师团队表示，此次上调主要基于三点：首先，一季度财报季表现强劲，超过80%的公司利润超预期，且AI相关资本支出指引持续上调。其次，油价回落和劳动力市场降温
 
 ## 正文
 
-中新社广州5月6日电 (王华 秦小雅)广州市商务局6日通报，第139届广交会期间，广州交易团订单收获丰硕，其中对东盟市场意向成交表现尤为亮眼，涉及交易额同比增长23.3%。
+RBC Capital Markets将标普500指数2026年底目标价从7200点上调至7900点，较当前水平隐含约7%的上行空间，理由是盈利增长预期改善和地缘政治风险缓解。
 
-作为中国外贸的“风向标”和“晴雨表”，本届广交会吸引超3.2万家参展企业和来自220个国家和地区的约31.4万名境外采购商参加。
+上调理由 以Lori Calvasina为首的分析师团队表示，此次上调主要基于三点：首先，一季度财报季表现强劲，超过80%的公司利润超预期，且AI相关资本支出指引持续上调。
 
-其中，东南亚客商俨然主力军，越南、马来西亚、泰国等国家采购商扎堆进场，成为广州企业收获订单的核心客源。
+其次，油价回落和劳动力市场降温有望缓解通胀压力，为美联储在年底前降息创造条件。
 
-来自广州市商务局的信息显示，2025年，广州与东盟进出口贸易规模首次突破2000亿元(人民币，下同)，同比增长28%。
+第三，美伊和平谈判的进展降低了石油供应中断的风险，缓解了市场对能源价格冲击的担忧。
 
-今年一季度，广州与东盟10国进出口贸易规模达474.7亿元。
+市场广度担忧 尽管上调了目标价，RBC也承认市场广度仍然偏窄，涨势高度集中在少数AI受益股。
 
-从贸易结构来看，今年一季度，广州对东盟主要出口商品为机电产品、劳动密集型产品和高新技术产品，重点进口商品为消费品、农产品和机电产品，贸易往来的广度与深度持续拓展。
+该行建议投资者考虑增持等权重标普500指数ETF，以分散风险。
 
-本届广交会期间，广州企业聚焦东南亚市场消费升级和基建需求，从高端智造到非遗文创，从新能源产品到民生用品，全方位展现穗企的创新实力和产品竞争力。
+此外，该行预测，如果下半年通胀数据超出预期或中东冲突再度升级，市场可能面临5%至8%的回调，低点可能出现在第三季度末。
 
-广州三晶电气股份有限公司是一家新能源企业，八成以上营收来自海外，已在全球设立66家全资子公司。
+分析师建议投资者在回调时增加周期性板块的配置。
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [中东紧张局势冲击全球旅游业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:56 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:45 - [国乒女团3比0瑞典 晋级世乒赛8强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:55 - [小摩：民生银行给予“中性”评级 目标价3.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:45 - [山东省枣庄市青檀学校：榴乡厚土育同心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 13:09 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 13:02 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 13:10 - [成本压力持续传导 全球消费品企业竞相涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:46 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:46 - [穿越百年航海史 “时光邮轮”驶入吉林长春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:51 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 13:01 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 13:11 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:52 - [光大证券，离头部券商越来越远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:52 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 13:09 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:48 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 13:09 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:49 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:55 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 13:13 - [工信部启动人工智能科技伦理审查与服务先导计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 13:07 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:46 - [央行公告这一名单更新！哪些机构新进，哪些退出？](http://www.blog.kurohicncr.top/Article/details/327450022.shtml)
-- 2026-06-29 13:10 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](http://www.share.minike.top/Article/details/36360799840.shtml)
-- 2026-06-29 13:07 - [心动公司于5月6日斥资282.29万港元回购4.5万股](http://www.share.kurohicncr.top/Article/details/13374.shtml)
-- 2026-06-29 12:55 - [平安人寿保险增持农业银行4747.4万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [巴西贝洛奥里藏特小型飞机撞楼事故致3人遇难](http://www.share.minike.top/Article/details/1090289.shtml)
-- 2026-06-29 13:09 - [涉疫邮轮将停靠西班牙 世卫组织称或出现人际传播](http://www.blog.kurohicncr.top/Article/details/241838821034.shtml)
-- 2026-06-29 12:54 - [国资委：将组织开展新一轮数智化转型专项行动](http://www.blog.kurohicncr.top/Article/details/26808599.shtml)
-- 2026-06-29 13:10 - [长沙市委市政府：极为痛心、无比自责！全市所有烟花爆竹生产企业，全面停产整顿！](http://www.share.kurohicncr.top/Article/details/1741636.shtml)
-- 2026-06-29 13:02 - [“五一”假期盘点 假期接待游客总量超1800万人次](http://www.blog.minike.top/Article/details/711091737.shtml)
-- 2026-06-29 12:58 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](http://www.share.kurohicncr.top/Article/details/4370696.shtml)
-- 2026-06-29 13:11 - [消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司](http://www.blog.minike.top/Article/details/670264809.shtml)
-- 2026-06-29 13:10 - [宁夏“五一”网络零售额突破9亿元 服务消费领跑假日经济](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [轰动一时的“臭氧层空洞”，正在自己悄悄长好，原因竟然是这个](http://www.share.kurohicncr.top/Article/details/73620.shtml)
-- 2026-06-29 13:04 - [云南各机场“五一”迎客超百万 民族风情圈粉八方来客](http://www.blog.minike.top/Article/details/802556.shtml)
+- 2026-06-29 13:11 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](http://www.share.minike.top/Article/details/643934905.shtml)
+- 2026-06-29 12:48 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](http://www.blog.minike.top/Article/details/17032496013.shtml)
+- 2026-06-29 13:13 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](http://www.blog.kurohicncr.top/Article/details/19693562.shtml)
+- 2026-06-29 12:53 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](http://www.blog.minike.top/Article/details/509765414063.shtml)
+- 2026-06-29 12:57 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.share.kurohicncr.top/Article/details/12871.shtml)
+- 2026-06-29 13:06 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](http://www.share.minike.top/Article/details/403566712.shtml)
+- 2026-06-29 12:53 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:10 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](http://www.share.minike.top/Article/details/90261972876.shtml)
+- 2026-06-29 12:52 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](http://www.blog.kurohicncr.top/Article/details/123753.shtml)
+- 2026-06-29 12:52 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](http://www.blog.minike.top/Article/details/80183193669.shtml)
+- 2026-06-29 12:50 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](http://www.share.minike.top/Article/details/352614.shtml)
+- 2026-06-29 13:15 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](http://www.blog.minike.top/Article/details/04881.shtml)
+- 2026-06-29 13:17 - [汉坦病毒如何让Moderna重成“必持”股票](https://github.com/lisacumin64-arch)

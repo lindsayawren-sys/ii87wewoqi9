@@ -1,56 +1,59 @@
-# 宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济
+# 红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-中新网银川5月6日电(记者 于晶)5月5日，记者从宁夏回族自治区商务厅获悉，今年“五一”假期，宁夏消费市场活力迸发、热度高涨，呈现商旅文体农深度融合、政策与场景双轮驱动的火热态势。监测数据显示，宁夏重点监测的201家商贸企业累计实现零售总额6.83亿元，其中餐饮销售额5460.38万元，同比增长6.4%，消费市场运行平稳、亮点纷呈。假日期间，宁夏统筹常态化促消费与特色举措，创新
+2026年5月6日，Astrocade正式对外披露了一笔引人注目的A轮和B轮合并融资——总计5600万美元（约4亿元人民币）。融资结构安排极为清晰：由红杉资本领投B轮，而A轮则由总部位于新加坡的Sea Limited控股实体Sea Capital领投。B轮领投方红杉资本主要押注平台规模化潜力，A轮领投方Sea Capital则将东南亚“以游戏作为娱乐基础设施”的运营经验带入董事
 
 ## 正文
 
-中新网银川5月6日电(记者 于晶)5月5日，记者从宁夏回族自治区商务厅获悉，今年“五一”假期，宁夏消费市场活力迸发、热度高涨，呈现商旅文体农深度融合、政策与场景双轮驱动的火热态势。
+2026年5月6日，Astrocade正式对外披露了一笔引人注目的A轮和B轮合并融资——总计5600万美元（约4亿元人民币）。
 
-监测数据显示，宁夏重点监测的201家商贸企业累计实现零售总额6.83亿元，其中餐饮销售额5460.38万元，同比增长6.4%，消费市场运行平稳、亮点纷呈。
+融资结构安排极为清晰：由红杉资本领投B轮，而A轮则由总部位于新加坡的Sea Limited控股实体Sea Capital领投。
 
-假日期间，宁夏统筹常态化促消费与特色举措，创新推出“票根经济”，将交通票、赛事票等变为“消费通行证”，让游客一路游玩一路省钱。
+B轮领投方红杉资本主要押注平台规模化潜力，A轮领投方Sea Capital则将东南亚“以游戏作为娱乐基础设施”的运营经验带入董事会。
 
-来自福建的李先生一家落地银川后，上传机票票根即领取百元消费券，餐饮、住宿、购物均可抵扣。
+A轮B轮合并披露，“用一轮的钱告诉市场价值已经翻了不止一轮” 值得注意的是，博满资本投资报告以2025年行业风口期的参考基准判断，此规模单轮融资已属顶配。
 
-银川“银票有礼”、吴忠票根联动全链条、中卫525万元专项资金加持，通过小程序实现一站式领券核销，有效将过境客流转化为消费流量。
+但Astrocade选择将A、B两轮融资合并披露，意味着A轮和B轮之间的估值差距已被投资方以合并口径默许，团队“用一轮融资公告，让市场同步知道A轮到B轮的进步，不用分两次传播”的意图十分明显。
 
-同步推进的以旧换新政策同样受到欢迎：智能家居享受15%补贴、最高1500元，适老化产品补贴20%、最高2000元，真金白银激活家居消费潜力。
+据公开信息，Astrocade此前于2024年6月完成1200万美元种子轮融资，投资方包括AME Cloud Ventures和英伟达旗下的NVIDIA Ventures，早期便已进入顶级资本火力范围内。
 
-假期期间，成品油、食品、金银珠宝零售额分别达1.9亿元、6980.3万元、2609万元，同比分别增长3.2%、6.1%、10.4%，大宗商品消费稳步增长。
+Astrocade的团队结构，在AI游戏赛道的创业公司中形成了十分特别的布局。
 
-各大商业综合体瞄准假日需求，将亲子、文体、潮流等元素搬进商场。
+公司的核心创始人包括CEO Amir Sadeghian和CTO Ali Sadeghian两兄弟。
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [优步CEO谈Q1业绩：我们着眼于长期布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:50 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 13:05 - [【新思想引领新征程】“五一”假期消费市场活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:44 - [九方智投控股于5月5日斥资403.74万港元回购12.03万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 13:11 - [五一档总票房7.58亿元！它凭什么刷新今年最高分纪录？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:51 - [在SpaceX上市前夕 贝索斯对蓝色起源的员工激励机制进行了调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:59 - [承诺“增高”构成欺诈 商家被判退一赔三](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:53 - [以色列停火期间突袭贝鲁特 或炸死真主党一指挥官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:51 - [快讯：WTI原油失守93美元/桶，日内跌9.15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 13:03 - [心动公司于5月4日斥资761.31万港元回购12万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 13:15 - [两岸一家亲！台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:48 - [AI数字人“邓丽君”在河南郑州“登台”表演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:48 - [英国首相斯塔默遭遇地方选举惨败，仍计划留任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 13:00 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 13:01 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 13:05 - [“AI+影视”找准发展平衡点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 13:16 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 13:10 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:50 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 13:08 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 13:03 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:51 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 13:10 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:09 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.share.kurohicncr.top/Article/details/2387298801.shtml)
-- 2026-06-29 12:51 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.blog.minike.top/Article/details/812883847.shtml)
-- 2026-06-29 12:44 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](http://www.share.kurohicncr.top/Article/details/67811076.shtml)
-- 2026-06-29 13:09 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](http://www.share.kurohicncr.top/Article/details/650720237.shtml)
-- 2026-06-29 12:53 - [酒价内参5月6日价格发布：古井贡古20上涨2元](http://www.blog.kurohicncr.top/Article/details/5916224483.shtml)
-- 2026-06-29 13:01 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](http://www.share.kurohicncr.top/Article/details/657237.shtml)
-- 2026-06-29 13:09 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](http://www.share.minike.top/Article/details/5918032.shtml)
-- 2026-06-29 13:05 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](http://www.share.minike.top/Article/details/21603.shtml)
-- 2026-06-29 13:03 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](http://www.blog.kurohicncr.top/Article/details/374971998825.shtml)
-- 2026-06-29 12:47 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](http://www.blog.minike.top/Article/details/9597429415.shtml)
-- 2026-06-29 13:07 - [南京银行：印建军担任业务总监的任职资格获监管核准](http://www.blog.minike.top/Article/details/78817.shtml)
-- 2026-06-29 13:08 - [房产租赁毛利率下滑，汇通能源经营遇考](http://www.share.minike.top/Article/details/2855736040.shtml)
+- 2026-06-29 12:59 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](http://www.share.kurohicncr.top/Article/details/8135631.shtml)
+- 2026-06-29 13:09 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](http://www.share.kurohicncr.top/Article/details/3747984818.shtml)
+- 2026-06-29 12:52 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](http://www.share.minike.top/Article/details/7361491912.shtml)
+- 2026-06-29 13:09 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](http://www.share.kurohicncr.top/Article/details/6492185.shtml)
+- 2026-06-29 12:50 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](http://www.share.minike.top/Article/details/79116200.shtml)
+- 2026-06-29 13:07 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](http://www.blog.minike.top/Article/details/72612368839.shtml)
+- 2026-06-29 13:15 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](http://www.blog.minike.top/Article/details/4004472227.shtml)
+- 2026-06-29 12:56 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](http://www.blog.minike.top/Article/details/31520169478.shtml)
+- 2026-06-29 13:11 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [第四届西藏自治区数字教育发展大会在拉萨举办](http://www.share.kurohicncr.top/Article/details/50172.shtml)
+- 2026-06-29 12:51 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](http://www.share.kurohicncr.top/Article/details/8602795.shtml)
+- 2026-06-29 13:17 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:06 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](http://www.blog.kurohicncr.top/Article/details/306542327440.shtml)
+- 2026-06-29 13:00 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.kurohicncr.top/Article/details/49627993964.shtml)

@@ -1,61 +1,61 @@
-# 美国股市：标普500指数续创新高 AMD大涨与中东和平预期提振市场
+# 同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-标普500指数连续第二个交易日触及纪录高位，受益于对伊朗战争接近结束的乐观预期以及芯片制造商AMD的强劲业绩。 AMD股价大涨19%，创下去年10月以来最大涨幅，得益于人工智能需求推动销售展望强于预期。 在Axios报道称，美国认为接近与伊朗达成止战备忘录后，油价下挫。 标普500指数上涨1.5%，11个板块中有9个上涨，工业和科技板块领涨。 由于油价下跌，能源股表现落后。 纳
+光明日报记者 李丹阳 江水浩荡，昼夜不息。长江一路东流，见证着一场持续推进的绿色转型。 2021年起，受中共中央委托，民革中央对口湖北省开展为期五年的长江生态环境保护民主监督。 5年来，民革中央以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平生态文明思想和习近平总书记关于坚持好、发展好、完善好中国新型政党制度的重要论述，在中央统战部和国务院有关部委统筹谋划和指导协调
 
 ## 正文
 
-标普500指数连续第二个交易日触及纪录高位，受益于对伊朗战争接近结束的乐观预期以及芯片制造商AMD的强劲业绩。
+光明日报记者 李丹阳 江水浩荡，昼夜不息。
 
-AMD股价大涨19%，创下去年10月以来最大涨幅，得益于人工智能需求推动销售展望强于预期。
+长江一路东流，见证着一场持续推进的绿色转型。
 
-在Axios报道称，美国认为接近与伊朗达成止战备忘录后，油价下挫。
+2021年起，受中共中央委托，民革中央对口湖北省开展为期五年的长江生态环境保护民主监督。
 
-标普500指数上涨1.5%，11个板块中有9个上涨，工业和科技板块领涨。
+5年来，民革中央以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平生态文明思想和习近平总书记关于坚持好、发展好、完善好中国新型政党制度的重要论述，在中央统战部和国务院有关部委统筹谋划和指导协调下，与湖北省密切配合，高质量完成长江生态环境保护民主监督各项任务，工作取得良好成效。
 
-由于油价下跌，能源股表现落后。
+把脚步踏到江岸线上 长江保护，首先要看见真实的长江。
 
-纳斯达克100指数上涨2.1%，也创下新高。
+2023年5月，武汉余家头江滩。
 
-有关美国和伊朗正在就一项结束战争的新方案进行磋商的消息提振了市场情绪。
+民革中央调研组走进水厂，围着取水口反复询问水质变化、处理能力等细节问题，一边看、一边问，甚至凑近水面观察水体状态。
 
-美国总统特朗普在接受PBS采访时表示，伊朗战争“很有可能”结束，而且“有可能”在他下周访华之前就结束。
+这样的场景，在5年的调研中并不鲜见。
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:48 - [黄金突破4700美元，分析师警示风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 13:05 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 13:02 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:44 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:49 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:58 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:52 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:59 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:55 - [菲律宾失业率连续两个月回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 13:01 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:49 - [经纬线·青年习近平的“人生课堂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:49 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 13:06 - [S佳通涉信息披露违法违规，受损投资者可维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:51 - [2026年“香港高考”收官 文凭试加速迈向国际化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 13:03 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:50 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 13:10 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 13:03 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:54 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:54 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:55 - [唱响中国之声：中央音乐学院合唱团在俄演出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:55 - [永升服务于5月8日斥资41.04万港元回购20万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 13:14 - [祁连山 “生命方舟” 累计救助收容259只野生动物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 13:11 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 13:16 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 13:12 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:57 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 13:15 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 13:17 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:54 - [哮喘控制不好？快看看吸入剂你用对了吗？](http://www.share.kurohicncr.top/Article/details/6349260238.shtml)
-- 2026-06-29 12:48 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](http://www.share.kurohicncr.top/Article/details/370639275269.shtml)
-- 2026-06-29 12:44 - [成都铁路迎“五一”假期客流返程高峰](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](http://www.blog.minike.top/Article/details/371590491757.shtml)
-- 2026-06-29 12:58 - [特朗普威胁伊朗不要向美国船开火](http://www.blog.minike.top/Article/details/766101552.shtml)
-- 2026-06-29 13:04 - [广东建成内地规模最大欧标充电服务网络](http://www.blog.minike.top/Article/details/661446.shtml)
-- 2026-06-29 12:56 - [AI、国防与气候：重塑全球增长格局的三大支柱](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [全球政府债券延续涨势 受美伊进展报道影响](http://www.share.minike.top/Article/details/10164097351.shtml)
-- 2026-06-29 12:55 - [重庆市酉阳县委书记杨通胜接受审查调查](http://www.blog.kurohicncr.top/Article/details/060676.shtml)
-- 2026-06-29 13:09 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](http://www.blog.minike.top/Article/details/893287282146.shtml)
-- 2026-06-29 13:00 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](http://www.blog.minike.top/Article/details/397694825977.shtml)
-- 2026-06-29 12:57 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](http://www.blog.minike.top/Article/details/36645199.shtml)
-- 2026-06-29 13:05 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [美伊停火暂时维持 华尔街股市强劲反弹](http://www.blog.kurohicncr.top/Article/details/95991729.shtml)
-- 2026-06-29 13:06 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](http://www.blog.minike.top/Article/details/800453019763.shtml)
+- 2026-06-29 12:59 - [2026世界杯美加墨三国将分别举办开幕式](http://www.share.minike.top/Article/details/86163.shtml)
+- 2026-06-29 13:17 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](http://www.share.minike.top/Article/details/38790562.shtml)
+- 2026-06-29 12:48 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](http://www.blog.kurohicncr.top/Article/details/63026280.shtml)
+- 2026-06-29 12:52 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](http://www.blog.minike.top/Article/details/031001725.shtml)
+- 2026-06-29 13:16 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](http://www.blog.minike.top/Article/details/133601.shtml)
+- 2026-06-29 12:59 - [新疆加快打造全国优质农牧产品重要供给基地](http://www.share.kurohicncr.top/Article/details/881625254.shtml)
+- 2026-06-29 12:53 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](http://www.share.minike.top/Article/details/458273940.shtml)
+- 2026-06-29 13:08 - [黄金周线有望录得上涨，或将突破箱体压力？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](http://www.blog.kurohicncr.top/Article/details/8233613.shtml)
+- 2026-06-29 13:16 - [第48届东盟峰会在菲律宾举行](http://www.share.minike.top/Article/details/274583.shtml)
+- 2026-06-29 13:08 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](http://www.share.kurohicncr.top/Article/details/45082139949.shtml)
+- 2026-06-29 12:50 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.blog.minike.top/Article/details/1028438876.shtml)
+- 2026-06-29 13:10 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](http://www.blog.minike.top/Article/details/858160763110.shtml)

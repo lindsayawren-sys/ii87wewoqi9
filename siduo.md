@@ -1,61 +1,61 @@
-# 伊朗议长：“敌人”施加经济压力 企图破坏国家团结
+# 515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-中新网5月7日电 据伊朗媒体7日报道，伊朗伊斯兰议会议长卡利巴夫在面向全国的音频讲话中表示，“敌人”正试图通过海上封锁施加经济压力并进行舆论操纵，企图破坏伊朗国家团结，迫使伊朗投降。 据报道，卡利巴夫说，伊朗不会低估军事袭击、尤其是恐怖袭击的可能性，但“敌人”计划从内部削弱伊朗。 他指出，“敌人”正密切监视伊朗，因此“我们不应泄露任何可能被敌人利用或滥用的信息”。议会一直都在通
+专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。“长情相伴，共赴财富远方”国泰基金投资者教育工作实践参选“投教项目优秀实践奖”类别。>>活动详情 据悉，面对行业发展新阶段与投资者多样化投教需求，国泰基金始终坚守“金融为民”的初心使命，以提升国民金融素养、保护投资者合法权益为核心，立足行业发展趋势，
 
 ## 正文
 
-中新网5月7日电 据伊朗媒体7日报道，伊朗伊斯兰议会议长卡利巴夫在面向全国的音频讲话中表示，“敌人”正试图通过海上封锁施加经济压力并进行舆论操纵，企图破坏伊朗国家团结，迫使伊朗投降。
+专题：515投资者保护！
 
-据报道，卡利巴夫说，伊朗不会低估军事袭击、尤其是恐怖袭击的可能性，但“敌人”计划从内部削弱伊朗。
+新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
 
-他指出，“敌人”正密切监视伊朗，因此“我们不应泄露任何可能被敌人利用或滥用的信息”。
+“长情相伴，共赴财富远方”国泰基金投资者教育工作实践参选“投教项目优秀实践奖”类别。
 
-议会一直都在通过没有媒体参与的非公开会议讨论如何协助政府，持续跟进包括通货膨胀在内的经济问题。
+>>活动详情 据悉，面对行业发展新阶段与投资者多样化投教需求，国泰基金始终坚守“金融为民”的初心使命，以提升国民金融素养、保护投资者合法权益为核心，立足行业发展趋势，精准对接投资者需求，系统构建多元化、场景化、常态化的投教生态，用专业力量护航投资者财富成长，以实际行动践行金融机构服务国家大局、守护民生财富的责任担当。
 
-卡利巴夫说，伊朗各级官员都要共同努力减轻经济压力给民众带来的影响，民众同时也需采取行动。
+1、打造“国泰基金99养老周”，推动养老投教向年轻圈层破圈 针对年轻群体养老规划意识薄弱、认知存在偏差的问题，2025年9月，国泰基金创新打造“99养老周”主题投教活动，活动为期六天，设置“衰老实验室”“时光长廊”“未来养老生活模拟”“养老知识互动区”四大核心板块，通过互动游戏让年轻人沉浸式体验银发生活，正视养老规划的重要性。
 
-他表示，每个人能为国家提供的最有效帮助，便是“节俭”。
+活动期间线下累计接待观展群众超1400人次，同步在小红书平台发起#聊聊你的养老计划#互动话题，吸引大量年轻用户参与分享，话题标签“基金行业话养老”“国泰基金99养老周”合计获得5.5w次浏览，2300余人讨论，助力养老投教向年轻圈层破圈，让“早规划、早受益”的养老理念深入人心。
 
-他表示，民兵武装“动员穷人组织”能够发挥独特作用，有效解决社区层面的难题，应在民众、政府官员和捐助者之间发挥桥梁作用。
+2、开展社区助老防骗课堂，守护银发群体财产安全 聚焦老年群体金融知识薄弱、易遭受诈骗的痛点，国泰基金联合蓝马甲公益组织，深入上海、杭州两地老龄化程度较高的社区，围绕金融防骗进行系列课程宣讲。
 
-政府和国家机构也应充分利用“动员穷人组织”的能力。
+宣讲以真实养老诈骗案例为切入点，用通俗易懂的语言拆解“虚假养老投资”“非法集资”“AI仿冒客服”等常见骗局套路，手把手指导老年人识别诈骗陷阱、守护个人财产安全。
 
 ## 相关推荐
 
-- 2026-06-29 12:57 - [心动公司于5月6日斥资282.29万港元回购4.5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 13:06 - [平安人寿保险增持农业银行4747.4万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:46 - [巴西贝洛奥里藏特小型飞机撞楼事故致3人遇难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 13:03 - [涉疫邮轮将停靠西班牙 世卫组织称或出现人际传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:47 - [国资委：将组织开展新一轮数智化转型专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:56 - [长沙市委市政府：极为痛心、无比自责！全市所有烟花爆竹生产企业，全面停产整顿！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:45 - [“五一”假期盘点 假期接待游客总量超1800万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 13:08 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:55 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 13:00 - [消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:57 - [宁夏“五一”网络零售额突破9亿元 服务消费领跑假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:11 - [轰动一时的“臭氧层空洞”，正在自己悄悄长好，原因竟然是这个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:42 - [云南各机场“五一”迎客超百万 民族风情圈粉八方来客](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:59 - [“五一”假期 重庆无人机灯光秀绘就夜空光影画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:50 - [购房新政叠加“五一”假期 多地楼市升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:55 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 13:05 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:57 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 13:04 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 13:05 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 13:02 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:51 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 13:14 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 13:13 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 13:09 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 13:17 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:53 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 13:05 - [汉坦病毒如何让Moderna重成“必持”股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 13:04 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 13:14 - [英伟达重金押注光连接，AI的下一战场或在光纤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:49 - [浙江温岭：民间资金建造“海鹰加科”号科考船下水](http://www.share.minike.top/Article/details/54311966788.shtml)
-- 2026-06-29 13:04 - [逆市下跌，港股医药现低吸机遇？520880、159137溢价飙升！创新药产业链普跌，后续仍有催化](http://www.blog.minike.top/Article/details/03116727.shtml)
-- 2026-06-29 13:04 - [著名文艺理论家王先霈因病逝世](http://www.share.minike.top/Article/details/173665115.shtml)
-- 2026-06-29 12:53 - [精神航空为何倒闭？太多乘客对其飞行体验极度不满](http://www.share.kurohicncr.top/Article/details/418579.shtml)
-- 2026-06-29 12:55 - [AMD飙涨近19%带飞AI芯片板块！规模最大港股通信息技术ETF华宝（159131）续涨2.55%冲击连阳](http://www.share.minike.top/Article/details/321184142.shtml)
-- 2026-06-29 12:55 - [芯成科技今早一度翻倍 两个交易日股价累计涨幅高达400%](http://www.blog.minike.top/Article/details/11918675072.shtml)
-- 2026-06-29 12:47 - [西渝高铁樊哙隧道顺利贯通](http://www.blog.kurohicncr.top/Article/details/82516063.shtml)
-- 2026-06-29 12:56 - [国富氢能附属拟向九疆电力建设(陕西)提供300MW新能源耦合绿色电力项目的全套设备](http://www.blog.minike.top/Article/details/73617584656.shtml)
-- 2026-06-29 12:51 - [“美军随时准备好恢复对伊朗大规模作战，只待指令下达”](http://www.blog.kurohicncr.top/Article/details/86856672930.shtml)
-- 2026-06-29 13:11 - [权威快报|税收发票数据显示：“五一”假期消费相关行业销售收入同比增长14.3%](http://www.share.kurohicncr.top/Article/details/9599332.shtml)
-- 2026-06-29 12:44 - [“五一”假期铁路运输结束 重庆火车站累计发送旅客246万人次](http://www.blog.kurohicncr.top/Article/details/85885383.shtml)
-- 2026-06-29 12:42 - [博物馆“镇馆之宝”排队热 文博游何以持续火热？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [特朗普预计一周内可以解决伊朗问题](http://www.blog.minike.top/Article/details/132527973.shtml)
-- 2026-06-29 13:10 - [伊朗官方媒体IRIB：伊朗向霍尔木兹海峡的商船发布指引](http://www.share.minike.top/Article/details/107088723360.shtml)
-- 2026-06-29 13:05 - [玉林师范学院原党委副书记、 院长王卓华被开除党籍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.share.minike.top/Article/details/562223838861.shtml)
+- 2026-06-29 13:13 - [全线上涨，近8万人爆仓！美国炼油厂，突发爆炸！](http://www.blog.minike.top/Article/details/9784170481.shtml)
+- 2026-06-29 12:54 - [任天堂将上调Switch 2价格 预计其销量将下滑](http://www.share.minike.top/Article/details/176745.shtml)
+- 2026-06-29 12:57 - [陕西宝鸡：江海之上造 “宝桥”](http://www.blog.minike.top/Article/details/8019312.shtml)
+- 2026-06-29 13:03 - [以“无我”境界成“有我”之业](http://www.share.minike.top/Article/details/0672970.shtml)
+- 2026-06-29 13:10 - [李强主持召开国务院常务会议](http://www.share.minike.top/Article/details/243385419.shtml)
+- 2026-06-29 13:15 - [探访全球首座储能电池"灯塔工厂" 揭秘一颗电芯的诞生](http://www.share.minike.top/Article/details/552890.shtml)
+- 2026-06-29 13:16 - [35家保险资管2025年业绩透视：华安资产、合众资产、华夏久盈等8家营收、净利“双降”](http://www.share.kurohicncr.top/Article/details/83862.shtml)
+- 2026-06-29 13:11 - [*ST天喻领正式被罚，已有案件递交立案](http://www.share.kurohicncr.top/Article/details/886901794003.shtml)
+- 2026-06-29 13:02 - [长三角初夏“热情”高涨 多地最高温冲刺35℃](http://www.blog.minike.top/Article/details/330347999.shtml)
+- 2026-06-29 13:01 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.blog.kurohicncr.top/Article/details/29555.shtml)
+- 2026-06-29 13:10 - [一季度广州海关关区出口锂电池52.2亿元 同比增长超2倍](http://www.blog.minike.top/Article/details/5591052837.shtml)
+- 2026-06-29 13:10 - [CoreWeave二季度营收指引不及预期，周五盘前下跌6.5%](http://www.share.minike.top/Article/details/6552163.shtml)
+- 2026-06-29 13:03 - [培育消费新场景新业态 激发消费新动能](http://www.share.minike.top/Article/details/5822879504.shtml)
+- 2026-06-29 13:14 - [文莱王储比拉将访华](https://github.com/lisacumin64-arch)

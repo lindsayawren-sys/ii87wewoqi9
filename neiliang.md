@@ -1,59 +1,56 @@
-# 利好突袭，中概狂飙！港股互联网共振向上，百亿513770涨近2%，阿里巴巴涨超3%，机构：5月互联网赔率最高
+# 东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-外围利好突袭，纳指大涨超2%，连续第2个交易日创出历史新高，中国资产集体爆发，纳斯达克中国金龙指数大涨超3%，阿里巴巴涨超6%。5月7日早盘，港股明显高开，互联网龙头普涨，截至发稿，快手-W涨超6%，阿里巴巴-W涨超3%，腾讯控股、美团-W涨超2%，小米集团-W跟涨。 港股AI核心工具——港股互联网ETF华宝（513770）场内价格现涨1.9%，站上10日、20日线。 消息面上
+中新网济南5月10日电 (李欣 王采怡 谢婷婷)《文史哲》杂志与《中华读书报》5月9日在山东大学联合发布2025年度“中国人文学术十大热点”。 这是第十一次进行“中国人文学术十大热点”评选，评选旨在及时总结人文学术领域的新现象、新进展、新趋势，推动人文学术研究的繁荣与进步，提升公众对人文学术的认知度和关注度。 2025年度“中国人文学术十大热点”为： 一，多点发力、全面推进、协
 
 ## 正文
 
-外围利好突袭，纳指大涨超2%，连续第2个交易日创出历史新高，中国资产集体爆发，纳斯达克中国金龙指数大涨超3%，阿里巴巴涨超6%。
+中新网济南5月10日电 (李欣 王采怡 谢婷婷)《文史哲》杂志与《中华读书报》5月9日在山东大学联合发布2025年度“中国人文学术十大热点”。
 
-5月7日早盘，港股明显高开，互联网龙头普涨，截至发稿，快手-W涨超6%，阿里巴巴-W涨超3%，腾讯控股、美团-W涨超2%，小米集团-W跟涨。
+这是第十一次进行“中国人文学术十大热点”评选，评选旨在及时总结人文学术领域的新现象、新进展、新趋势，推动人文学术研究的繁荣与进步，提升公众对人文学术的认知度和关注度。
 
-港股AI核心工具——港股互联网ETF华宝（513770）场内价格现涨1.9%，站上10日、20日线。
+2025年度“中国人文学术十大热点”为： 一，多点发力、全面推进、协同突破，中国自主知识体系构建向纵深发展。
 
-消息面上，美国总统特朗普表示，美国和伊朗过去24小时内进行了“非常富有成效”的对话，“很有可能”最终会达成协议。
+以2016年“五·一七”讲话为关键节点，十年来，“加快构建中国哲学社会科学自主知识体系”这一被上升到国家战略的时代命题，得到了人文社科界的热烈响应。
 
-市场情绪受到提振。
+阐释和探索各学科自主知识体系实现路径的主题研究指数级上涨，呈现出多点发力、全面推进、协同突破的强劲态势。
 
-交银国际指出，进入5月，港股估值修复窗口有望再度开启，科技互联网是当月赔率最高的方向。
+二，学界共同纪念抗战胜利80周年，东方主战场历史叙事得到彰显。
 
-港股科技估值仍处于历史中低位，头部平台回购持续护盘，中美会晤若落地正面成果，板块均值回归空间可观，重点关注AI应用商业化等产业催化主线。
+2025年是中国人民抗日战争暨世界反法西斯战争胜利80周年。
 
-* 把握2026 AI商业化元年，关注港股AI核心工具。
+坚持正确抗战史观、二战史观，将中国人民抗日战争置于世界反法西斯战争的整体框架下进行系统性研究，扭转中国抗战贡献在国际主流叙事中被忽视甚至被否认的状况，成为学界的自觉追求。
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 13:09 - [哮喘控制不好？快看看吸入剂你用对了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:54 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 13:05 - [成都铁路迎“五一”假期客流返程高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:50 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:50 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:49 - [广东建成内地规模最大欧标充电服务网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 13:10 - [AI、国防与气候：重塑全球增长格局的三大支柱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 13:06 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 13:05 - [重庆市酉阳县委书记杨通胜接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 13:08 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:45 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:46 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:16 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 13:02 - [2026世界杯美加墨三国将分别举办开幕式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 13:11 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:57 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 13:15 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:49 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:56 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:56 - [新疆加快打造全国优质农牧产品重要供给基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 13:11 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 13:16 - [黄金周线有望录得上涨，或将突破箱体压力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:57 - [被特朗普痛批后，美国食药局首次批准调味电子烟上市](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [体验式消费、IP联名活动 “五一”假期消费市场持续上新](http://www.blog.kurohicncr.top/Article/details/35469569.shtml)
-- 2026-06-29 13:10 - [Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元](http://www.blog.minike.top/Article/details/564661.shtml)
-- 2026-06-29 13:09 - [情感赛道变形记](http://www.share.minike.top/Article/details/5243894790.shtml)
-- 2026-06-29 12:48 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](http://www.share.minike.top/Article/details/37439205410.shtml)
-- 2026-06-29 13:07 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](http://www.blog.minike.top/Article/details/22357456.shtml)
-- 2026-06-29 13:02 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](http://www.blog.minike.top/Article/details/735404.shtml)
-- 2026-06-29 12:43 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [“五一”假期浙江口岸出入境人员超10万人次](http://www.blog.kurohicncr.top/Article/details/3735867507.shtml)
-- 2026-06-29 12:52 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](http://www.blog.minike.top/Article/details/37148.shtml)
-- 2026-06-29 13:01 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](http://www.blog.minike.top/Article/details/75260020973.shtml)
-- 2026-06-29 13:02 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](http://www.share.minike.top/Article/details/12783017522.shtml)
+- 2026-06-29 13:00 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [社评：中国的“Country Walk”何以吸引西方年轻人](http://www.blog.kurohicncr.top/Article/details/14463280.shtml)
+- 2026-06-29 13:12 - [Stifel在近期抛售后上调Shake Shack评级](http://www.blog.kurohicncr.top/Article/details/665070866.shtml)
+- 2026-06-29 13:06 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](http://www.blog.minike.top/Article/details/135708919831.shtml)
+- 2026-06-29 13:10 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](http://www.blog.minike.top/Article/details/28780214836.shtml)
+- 2026-06-29 13:00 - [10万立方米超大型乙烷运输船从江苏出江试航](http://www.blog.minike.top/Article/details/203135089119.shtml)
+- 2026-06-29 13:15 - [德银高管：美伊停战情境下 油价或下探每桶85美元](http://www.blog.minike.top/Article/details/734156357.shtml)
+- 2026-06-29 13:05 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:14 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](http://www.share.minike.top/Article/details/87317477.shtml)
+- 2026-06-29 12:50 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](http://www.share.kurohicncr.top/Article/details/107588795839.shtml)
+- 2026-06-29 12:49 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](http://www.share.minike.top/Article/details/9309823.shtml)
+- 2026-06-29 13:08 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](http://www.blog.kurohicncr.top/Article/details/650555180295.shtml)
+- 2026-06-29 13:05 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](http://www.blog.kurohicncr.top/Article/details/65529955256.shtml)
+- 2026-06-29 12:53 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](http://www.blog.kurohicncr.top/Article/details/886969550476.shtml)

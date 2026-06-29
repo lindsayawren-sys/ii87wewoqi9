@@ -1,53 +1,54 @@
-# 川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量
+# 第48届东盟峰会在菲律宾举行
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 08:12 来源：中国新闻网 川陕哲罗鲑子二代异地繁育规模近日首次突破万尾。5月6日，在四川省农业科学院水产研究所位于成都崇州鸡冠山的冷水鱼科研基地内，万尾以上的川陕哲罗鲑子二代鱼苗在平列槽中游动。这些微小生命的顺利繁育，标志着中国对这一珍稀极危鱼类的保护，迈入了异地规模化稳定繁育的新阶段。 作为国家一级重点保护野生动物，川陕哲罗鲑体型较大、性
+新华社马尼拉5月8日电(记者赵晨捷 郭依格)第48届东盟峰会8日在菲律宾宿务省举行，会议聚焦能源安全、粮食安全、世界各地东盟民众的安全、经济合作等议题。 东盟轮值主席国菲律宾总统马科斯称，中东局势日益动荡冲击了东盟国家，民众的生活方式、生计和生命受到威胁，此次峰会在一个充满挑战的时刻举行。 峰会期间，与会东盟国家领导人围绕海事合作、灾害应对、支持东帝汶全面融入东盟等议题进行了磋
 
 ## 正文
 
-发布时间：2026年05月07日 08:12 来源：中国新闻网 川陕哲罗鲑子二代异地繁育规模近日首次突破万尾。
+新华社马尼拉5月8日电(记者赵晨捷 郭依格)第48届东盟峰会8日在菲律宾宿务省举行，会议聚焦能源安全、粮食安全、世界各地东盟民众的安全、经济合作等议题。
 
-5月6日，在四川省农业科学院水产研究所位于成都崇州鸡冠山的冷水鱼科研基地内，万尾以上的川陕哲罗鲑子二代鱼苗在平列槽中游动。
+东盟轮值主席国菲律宾总统马科斯称，中东局势日益动荡冲击了东盟国家，民众的生活方式、生计和生命受到威胁，此次峰会在一个充满挑战的时刻举行。
 
-这些微小生命的顺利繁育，标志着中国对这一珍稀极危鱼类的保护，迈入了异地规模化稳定繁育的新阶段。
+峰会期间，与会东盟国家领导人围绕海事合作、灾害应对、支持东帝汶全面融入东盟等议题进行了磋商，并通过了相关文件。
 
-作为国家一级重点保护野生动物，川陕哲罗鲑体型较大、性情凶猛，被称为“水中老虎”。
+东盟峰会一般每年召开两次，上半年和下半年各一次。
 
-受栖息地萎缩、人类活动干扰等因素影响，其野外种群数量锐减，分布范围大幅退缩，被世界自然保护联盟列为极危物种，全人工繁育成为守护该物种的关键。
+东盟成立于1967年，现成员国包括印度尼西亚、泰国、新加坡、菲律宾、文莱、马来西亚、越南、老挝、柬埔寨、缅甸和东帝汶11国。
 
-(陈选斌 四川成都报道) 责任编辑：【张燕玲】
+在2025年10月举办的第47届东盟峰会上，东帝汶正式成为东盟成员国。
 
 ## 相关推荐
 
-- 2026-06-29 12:48 - [央行公告这一名单更新！哪些机构新进，哪些退出？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:05 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:50 - [心动公司于5月6日斥资282.29万港元回购4.5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:02 - [平安人寿保险增持农业银行4747.4万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:49 - [巴西贝洛奥里藏特小型飞机撞楼事故致3人遇难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 13:02 - [涉疫邮轮将停靠西班牙 世卫组织称或出现人际传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 13:06 - [国资委：将组织开展新一轮数智化转型专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 13:09 - [长沙市委市政府：极为痛心、无比自责！全市所有烟花爆竹生产企业，全面停产整顿！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:49 - [“五一”假期盘点 假期接待游客总量超1800万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:47 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 13:05 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 13:07 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 13:11 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:59 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 13:05 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 13:05 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 13:09 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:58 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:50 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 13:12 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:53 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 13:07 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 13:02 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:02 - [追光的你｜明天的中国，希望寄予青年](http://www.share.minike.top/Article/details/570538.shtml)
-- 2026-06-29 13:06 - [阿根廷将在涉疫邮轮出发地开展啮齿动物捕捉与检测工作](http://www.share.kurohicncr.top/Article/details/41730450.shtml)
-- 2026-06-29 12:59 - [浙江温岭：民间资金建造“海鹰加科”号科考船下水](http://www.share.minike.top/Article/details/694811326.shtml)
-- 2026-06-29 12:51 - [逆市下跌，港股医药现低吸机遇？520880、159137溢价飙升！创新药产业链普跌，后续仍有催化](http://www.blog.minike.top/Article/details/95319.shtml)
-- 2026-06-29 12:48 - [著名文艺理论家王先霈因病逝世](http://www.blog.minike.top/Article/details/242501190033.shtml)
-- 2026-06-29 13:02 - [精神航空为何倒闭？太多乘客对其飞行体验极度不满](http://www.share.kurohicncr.top/Article/details/3213799.shtml)
-- 2026-06-29 13:07 - [AMD飙涨近19%带飞AI芯片板块！规模最大港股通信息技术ETF华宝（159131）续涨2.55%冲击连阳](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [芯成科技今早一度翻倍 两个交易日股价累计涨幅高达400%](http://www.blog.kurohicncr.top/Article/details/916620772.shtml)
-- 2026-06-29 13:04 - [西渝高铁樊哙隧道顺利贯通](http://www.blog.minike.top/Article/details/44001703.shtml)
-- 2026-06-29 13:07 - [国富氢能附属拟向九疆电力建设(陕西)提供300MW新能源耦合绿色电力项目的全套设备](http://www.blog.kurohicncr.top/Article/details/9160056808.shtml)
-- 2026-06-29 12:56 - [“美军随时准备好恢复对伊朗大规模作战，只待指令下达”](http://www.blog.minike.top/Article/details/418613.shtml)
-- 2026-06-29 13:02 - [权威快报|税收发票数据显示：“五一”假期消费相关行业销售收入同比增长14.3%](http://www.share.minike.top/Article/details/35162557157.shtml)
-- 2026-06-29 13:06 - [“五一”假期铁路运输结束 重庆火车站累计发送旅客246万人次](http://www.blog.kurohicncr.top/Article/details/32847.shtml)
-- 2026-06-29 13:03 - [博物馆“镇馆之宝”排队热 文博游何以持续火热？](http://www.share.minike.top/Article/details/049989418649.shtml)
-- 2026-06-29 12:54 - [特朗普预计一周内可以解决伊朗问题](http://www.blog.kurohicncr.top/Article/details/8931984.shtml)
+- 2026-06-29 12:50 - [普京发表阅兵演讲：俄正基于实战经验研制现代化武器](http://www.blog.minike.top/Article/details/97884.shtml)
+- 2026-06-29 13:06 - [强军思想育新人丨“翀”上云霄](http://www.blog.kurohicncr.top/Article/details/86498.shtml)
+- 2026-06-29 13:05 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.blog.kurohicncr.top/Article/details/64364.shtml)
+- 2026-06-29 13:14 - [全线上涨，近8万人爆仓！美国炼油厂，突发爆炸！](http://www.share.kurohicncr.top/Article/details/91354018058.shtml)
+- 2026-06-29 13:10 - [任天堂将上调Switch 2价格 预计其销量将下滑](http://www.blog.kurohicncr.top/Article/details/246274614706.shtml)
+- 2026-06-29 13:11 - [陕西宝鸡：江海之上造 “宝桥”](http://www.blog.kurohicncr.top/Article/details/368166.shtml)
+- 2026-06-29 13:17 - [以“无我”境界成“有我”之业](http://www.blog.kurohicncr.top/Article/details/87064173.shtml)
+- 2026-06-29 13:16 - [李强主持召开国务院常务会议](http://www.share.minike.top/Article/details/422407071.shtml)
+- 2026-06-29 13:16 - [探访全球首座储能电池"灯塔工厂" 揭秘一颗电芯的诞生](http://www.share.kurohicncr.top/Article/details/964517225.shtml)
+- 2026-06-29 12:58 - [35家保险资管2025年业绩透视：华安资产、合众资产、华夏久盈等8家营收、净利“双降”](http://www.share.minike.top/Article/details/278689592151.shtml)
+- 2026-06-29 13:05 - [*ST天喻领正式被罚，已有案件递交立案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [长三角初夏“热情”高涨 多地最高温冲刺35℃](http://www.blog.minike.top/Article/details/507930968.shtml)
+- 2026-06-29 13:05 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.blog.minike.top/Article/details/237244944.shtml)
+- 2026-06-29 12:51 - [一季度广州海关关区出口锂电池52.2亿元 同比增长超2倍](http://www.blog.minike.top/Article/details/08899260798.shtml)
+- 2026-06-29 13:07 - [CoreWeave二季度营收指引不及预期，周五盘前下跌6.5%](http://www.blog.kurohicncr.top/Article/details/545193637.shtml)

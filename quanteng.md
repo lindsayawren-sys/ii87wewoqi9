@@ -1,50 +1,57 @@
-# 快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%
+# AI数字人“邓丽君”在河南郑州“登台”表演
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-美股周三大幅上升，报道指美伊将达成结束战争协议，刺激大市气氛向上，道指突破50，000点关口，标普500指数及纳指则创出历史新高。美元走势回落，美国十年期债息下滑至4.35厘水平，金价大幅上升，油价则显著回落。 今日港股三大指数集体高开，恒指开盘涨1.21%，报26531.35点，恒科指涨2.41%，国企指数涨1.3%。盘面上，科网股普涨，快手涨超5%，百度涨超4%，网易、阿里
+今年开分最高的国产电影，每一件道具都是华侨的情书一年填上百张表？部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？它们又是如何做到的？友情提醒！最近真的不要穿这种颜色的衣服出门卖家因恶意退货多“拉黑”整个街道 律师：商家不能歧视性拒售人这一辈子，一定要去一趟万里茶道第一关！美科技巨头集体投身AI军备竞赛海底电缆成
 
 ## 正文
 
-美股周三大幅上升，报道指美伊将达成结束战争协议，刺激大市气氛向上，道指突破50，000点关口，标普500指数及纳指则创出历史新高。
+今年开分最高的国产电影，每一件道具都是华侨的情书一年填上百张表？
 
-美元走势回落，美国十年期债息下滑至4.35厘水平，金价大幅上升，油价则显著回落。
+部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？
 
-今日港股三大指数集体高开，恒指开盘涨1.21%，报26531.35点，恒科指涨2.41%，国企指数涨1.3%。
+它们又是如何做到的？
 
-盘面上，科网股普涨，快手涨超5%，百度涨超4%，网易、阿里巴巴、哔哩哔哩涨超3%；芯片股延续涨势，华虹半导体涨超2%；创新药概念回暖，百济神州涨超4%；黄金股普遍上涨，紫金黄金国际涨超5%。
+友情提醒！
 
-责任编辑：郝欣煜
+最近真的不要穿这种颜色的衣服出门卖家因恶意退货多“拉黑”整个街道 律师：商家不能歧视性拒售人这一辈子，一定要去一趟万里茶道第一关！
+
+美科技巨头集体投身AI军备竞赛海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小学春秋假夹娃娃成瘾？
+
+香港拟修订《赌博条例》！
+
+美国博主带老外组团“朝圣”中国电车，在车展集体破防：凭什么？
 
 ## 相关推荐
 
-- 2026-06-29 12:58 - [快讯：WTI原油失守93美元/桶，日内跌9.15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 13:05 - [心动公司于5月4日斥资761.31万港元回购12万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 13:10 - [FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:51 - [中国市场缘何被喻为“健身房”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:43 - [汉堡王母公司RBI季度业绩超预期，价值套餐需求推动增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 13:06 - [广州楼市新政发力 “五一”假期一二手住宅市场同步向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:53 - [空客计划2020年以来首次发债 应对供应链中断](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:46 - [韩国称将确保每年从加拿大进口至多3300万桶原油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:45 - [营收成本攀升，Shopify下调第二季度盈利预期 股价大跌13.28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:59 - [AMD CEO苏姿丰：智能体正引爆人工智能周期巨大需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 13:11 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 13:11 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 13:12 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:56 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:59 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 13:12 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 13:13 - [日经指数下跌0.8% 受科技股和金融股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:57 - [预防心梗，这些不良习惯需警惕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:54 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:54 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 13:12 - [妈妈，我想对你说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:58 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](http://www.blog.minike.top/Article/details/92384.shtml)
-- 2026-06-29 13:01 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](http://www.share.minike.top/Article/details/09383395.shtml)
-- 2026-06-29 13:11 - [CVS业绩亮眼 助力医保行业整体向好](http://www.blog.minike.top/Article/details/45913658.shtml)
-- 2026-06-29 13:06 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](http://www.share.minike.top/Article/details/969408964565.shtml)
-- 2026-06-29 12:50 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [南京银行：印建军担任业务总监的任职资格获监管核准](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [房产租赁毛利率下滑，汇通能源经营遇考](http://www.blog.kurohicncr.top/Article/details/88215819554.shtml)
-- 2026-06-29 12:56 - [美国陆军要求导弹制造商提升自家武器兼容性](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [以共赢促共富 民企精准帮扶常态化](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [际华集团（601718）收到处罚事先告知书，投资者索赔多次提交立案](http://www.share.minike.top/Article/details/4527299114.shtml)
-- 2026-06-29 13:08 - [福特秘密电动车部门浮出水面 市场放缓背景下仍看好全新电动皮卡](http://www.blog.kurohicncr.top/Article/details/7994064539.shtml)
-- 2026-06-29 12:43 - [伊朗：尚未回应美国对伊方14点提议的看法](http://www.share.kurohicncr.top/Article/details/008456029.shtml)
-- 2026-06-29 12:54 - [5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体](http://www.share.minike.top/Article/details/97826493.shtml)
-- 2026-06-29 13:10 - [生猪板块升温，期股共振释放什么信号？](http://www.blog.kurohicncr.top/Article/details/0684335.shtml)
-- 2026-06-29 12:59 - [美国股市：标普500指数续创新高 AMD大涨与中东和平预期提振市场](http://www.share.kurohicncr.top/Article/details/5199257984.shtml)
+- 2026-06-29 13:05 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:14 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](http://www.blog.minike.top/Article/details/87056565322.shtml)
+- 2026-06-29 13:10 - [第四届西藏自治区数字教育发展大会在拉萨举办](http://www.blog.kurohicncr.top/Article/details/879016179178.shtml)
+- 2026-06-29 13:06 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](http://www.share.minike.top/Article/details/2345464.shtml)
+- 2026-06-29 13:13 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](http://www.blog.kurohicncr.top/Article/details/0051694.shtml)
+- 2026-06-29 13:10 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](http://www.share.kurohicncr.top/Article/details/322095115506.shtml)
+- 2026-06-29 12:58 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:01 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](http://www.share.minike.top/Article/details/4162216.shtml)
+- 2026-06-29 12:54 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](http://www.blog.minike.top/Article/details/10279.shtml)
+- 2026-06-29 13:07 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](http://www.share.minike.top/Article/details/41081689662.shtml)
+- 2026-06-29 13:10 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [高开低走，油脂后市何去何从？](http://www.blog.minike.top/Article/details/30447042.shtml)
+- 2026-06-29 12:58 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:13 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](https://github.com/lisacumin64-arch)

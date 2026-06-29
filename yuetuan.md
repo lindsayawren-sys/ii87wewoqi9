@@ -1,60 +1,60 @@
-# 科蓝软件、S佳通遭证监会立案 投资者或可索赔
+# 北京曲剧《雷雨》观摩研讨会在京举办
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月30日晚间，科蓝软件（维权）、S佳通（维权）均发布《关于收到中国证券监督管理委员会立案告知书的公告》。两家上市公司均表示，因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司进行立案。 科蓝软件在公告证监会立案的同时，还发布了《关于收到北京证监局行政监管措
+中新网北京5月9日电 (记者 高凯)由中国文艺评论家协会、中国文联文艺评论中心主办，北京市曲剧团承办的北京曲剧《雷雨》观摩研讨会日前在京举办。 据悉，北京曲剧《雷雨》系2025年度国家艺术基金资助项目，2026年1月在京首演，并于5月1日至3日在北京天桥艺术中心再度上演，以京腔京韵重构曹禺经典悲剧，引发广泛关注与好评。 研讨会上，包括中国戏剧家协会分党组副书记、秘书长傅亦轩，中
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月30日晚间，科蓝软件（维权）、S佳通（维权）均发布《关于收到中国证券监督管理委员会立案告知书的公告》。
+中新网北京5月9日电 (记者 高凯)由中国文艺评论家协会、中国文联文艺评论中心主办，北京市曲剧团承办的北京曲剧《雷雨》观摩研讨会日前在京举办。
 
-两家上市公司均表示，因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司进行立案。
+据悉，北京曲剧《雷雨》系2025年度国家艺术基金资助项目，2026年1月在京首演，并于5月1日至3日在北京天桥艺术中心再度上演，以京腔京韵重构曹禺经典悲剧，引发广泛关注与好评。
 
-科蓝软件在公告证监会立案的同时，还发布了《关于收到北京证监局行政监管措施决定书的公告》。
+研讨会上，包括中国戏剧家协会分党组副书记、秘书长傅亦轩，中国评协第一、二届副主席、中国文化国际传播研究院执行院长向云驹，中国评协理事、中央音乐学院教授黄宗权，中国评协会员、北京大学艺术学院教授顾春芳，中国评协会员、中央戏剧学院戏剧文学系主任麻文琦等在内的专家学者立足专业视角，围绕剧目创作、思想内涵、艺术表达、剧种发展等方面深入评议。
 
-北京证监会查明，科蓝软件存在以下违规：一是收入核算不规范；二是存在非经营性资金往来；三是其他会计核算不规范；四是公司治理及内部控制不规范。
+与会专家充分肯定该剧已然具备成为精品的扎实基础，同时分析该剧仍有进一步打磨提升、臻于至善的空间，并提出中肯意见，为主创团队后续打磨精进提供重要参考。
 
-S佳通近期并未曝光存在信披违规的情况，具体遭证监会立案的原因要等证监会行政处罚下达后才能确定。
+中国文艺评论家协会副主席兼秘书长、中国文联文艺评论中心主任徐粤春当日指出，随着《戏剧振兴三年行动计划》全面实施，中国戏剧事业迎来了振兴发展的黄金机遇期，对戏剧创作与评论工作提出新的更高要求。
 
-业绩方面，2025年，S佳通实现营业总收入48.45亿元，同比增长3.78%；归母净利润1.97亿元，同比增长13.08%；扣非净利润1.96亿元，同比增长11.78%；经营活动产生的现金流量净额为4.98亿元，同比下降13.09%；报告期内，S佳通基本每股收益为0.5797元，加权平均净资产收益率为16.59%。
+北京曲剧《雷雨》的创作实践，是经典文本与地方剧种的一场双向奔赴，也是传承根基与创新表达的一次有益尝试，为新时代戏剧创作积累了宝贵经验。
 
-（S佳通维权入口） 江苏振泽律师事务所合伙人张云律师表示，科蓝软件、S佳通遭证监会立案，投资者或可索赔。
+北京曲剧《雷雨》以独特的舞台语汇，实现了经典的审美再造与精神赓续，面对经典改编的现实困境，给出了一份有分量、有新意、有深度的回应。
 
-暂定：于2026年4月30日之前买入科蓝软件、S佳通，且在2026年5月1日之后卖出或持有科蓝软件、S佳通的亏损投资者符合索赔条件。
+一是开掘人性深度，回归诗学本真。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [伊朗查封并没收22名与美以有关联人员财产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:55 - [俄美外长通话讨论国际局势和双边关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 13:07 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:55 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 13:08 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:55 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 13:00 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:45 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 13:07 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 13:04 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:43 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 13:04 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 13:08 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:54 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:48 - [A股再现国资“A吃A”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:50 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:55 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:52 - [个人办事，不只“能办”还要“好办、易办”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 13:17 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 13:17 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 13:17 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 13:10 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 13:16 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:54 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 13:01 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:51 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 13:02 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:59 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:09 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](http://www.share.kurohicncr.top/Article/details/31900650.shtml)
-- 2026-06-29 12:54 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](http://www.share.minike.top/Article/details/20010.shtml)
-- 2026-06-29 12:54 - [菲律宾失业率连续两个月回落](http://www.share.kurohicncr.top/Article/details/38490020.shtml)
-- 2026-06-29 13:04 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](http://www.share.kurohicncr.top/Article/details/84881594.shtml)
-- 2026-06-29 12:50 - [经纬线·青年习近平的“人生课堂”](http://www.blog.minike.top/Article/details/04146734.shtml)
-- 2026-06-29 12:47 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](http://www.blog.kurohicncr.top/Article/details/19168.shtml)
-- 2026-06-29 12:56 - [S佳通涉信息披露违法违规，受损投资者可维权](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [2026年“香港高考”收官 文凭试加速迈向国际化](http://www.blog.kurohicncr.top/Article/details/27808604707.shtml)
-- 2026-06-29 13:07 - [2026年全国残疾人足球公开赛在京举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [原油期货上涨 或因技术性反弹](http://www.share.kurohicncr.top/Article/details/4805654998.shtml)
-- 2026-06-29 12:53 - [中东紧张局势冲击全球旅游业](http://www.share.kurohicncr.top/Article/details/46009784.shtml)
-- 2026-06-29 13:11 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](http://www.blog.kurohicncr.top/Article/details/7753634499.shtml)
-- 2026-06-29 12:45 - [国乒女团3比0瑞典 晋级世乒赛8强](http://www.share.minike.top/Article/details/91583.shtml)
-- 2026-06-29 12:57 - [小摩：民生银行给予“中性”评级 目标价3.90港元](http://www.share.kurohicncr.top/Article/details/317255590.shtml)
+- 2026-06-29 12:52 - [唱响中国之声：中央音乐学院合唱团在俄演出](http://www.blog.kurohicncr.top/Article/details/6350074858.shtml)
+- 2026-06-29 12:52 - [永升服务于5月8日斥资41.04万港元回购20万股](http://www.share.minike.top/Article/details/712260.shtml)
+- 2026-06-29 12:56 - [祁连山 “生命方舟” 累计救助收容259只野生动物](http://www.blog.minike.top/Article/details/39570840.shtml)
+- 2026-06-29 12:54 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](http://www.blog.minike.top/Article/details/56077400.shtml)
+- 2026-06-29 12:54 - [离岸人民币汇率升破6.8，创三年多新高](http://www.blog.minike.top/Article/details/68213.shtml)
+- 2026-06-29 12:57 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:06 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](http://www.share.minike.top/Article/details/378451901.shtml)
+- 2026-06-29 12:56 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](http://www.blog.minike.top/Article/details/2440964.shtml)
+- 2026-06-29 12:54 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](http://www.blog.kurohicncr.top/Article/details/1907003.shtml)
+- 2026-06-29 13:12 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](http://www.share.kurohicncr.top/Article/details/543632.shtml)
+- 2026-06-29 13:03 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](http://www.share.minike.top/Article/details/461446332.shtml)
+- 2026-06-29 12:51 - [光大证券，离头部券商越来越远](http://www.share.minike.top/Article/details/065438.shtml)
+- 2026-06-29 12:50 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.share.kurohicncr.top/Article/details/812012206807.shtml)

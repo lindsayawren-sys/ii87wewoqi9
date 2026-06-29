@@ -1,53 +1,60 @@
-# 锦欣生殖前4个月不孕初诊数同比增长7.5% 取卵周期数同比增长5.2%
+# （乡村行·看振兴）山西忻州荒坡上的“酸枣经”
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-锦欣生殖（01951）公布，透过持续推行营运优化措施，该集团维持了强劲的增长动能。截至2026年4月30日止四个月，不孕症新患者就诊人次达 16，525人次，较2025年同期增长7.5%。截至2026年4月30日止四个月，取卵周期数为9，010次，较同期增长5.2%。 其中，大湾区不孕初诊数较去年同期增长17.7%，海外取卵周期数较去年同期增长37.3%，成都地区不孕初诊数及取
+中新网忻州5月8日电 (杨佩佩 刘璐)初夏时节，走进山西省忻州市忻府区刘家山村，这片曾经被视为“乱石滩、土石堆”的荒坡，如今已变成远近闻名的特色酸枣产业带。 过去，刘家山村由于地形崎岖、土地零碎，大面积种植传统作物不仅费时费力，收益也不高。山上野生酸枣树，曾因满身尖刺、果实瘦小，被村民视为开荒的阻碍。“以前这树长得乱七八糟，路都过不去，除了砍了烧火没别的用。”正在林间翻土的一名
 
 ## 正文
 
-锦欣生殖（01951）公布，透过持续推行营运优化措施，该集团维持了强劲的增长动能。
+中新网忻州5月8日电 (杨佩佩 刘璐)初夏时节，走进山西省忻州市忻府区刘家山村，这片曾经被视为“乱石滩、土石堆”的荒坡，如今已变成远近闻名的特色酸枣产业带。
 
-截至2026年4月30日止四个月，不孕症新患者就诊人次达 16，525人次，较2025年同期增长7.5%。
+过去，刘家山村由于地形崎岖、土地零碎，大面积种植传统作物不仅费时费力，收益也不高。
 
-截至2026年4月30日止四个月，取卵周期数为9，010次，较同期增长5.2%。
+山上野生酸枣树，曾因满身尖刺、果实瘦小，被村民视为开荒的阻碍。
 
-其中，大湾区不孕初诊数较去年同期增长17.7%，海外取卵周期数较去年同期增长37.3%，成都地区不孕初诊数及取卵周期数均取得个位数下跌，昆明及武汉地区取卵周期数较2025年同期增长 15.5%，保持稳步增长。
+“以前这树长得乱七八糟，路都过不去，除了砍了烧火没别的用。
 
-责任编辑：卢昱君
+”正在林间翻土的一名村民感慨道。
+
+转变发生于村“两委”班子对市场规律的敏锐捕捉。
+
+通过实地考察，他们发现酸枣仁作为传统中药材，市场需求量极大且价格稳步攀升，而刘家山村的土壤环境与气候光照，恰恰能孕育出品质极佳的酸枣。
+
+于是，村民们对酸枣有了全新的认识。
 
 ## 相关推荐
 
-- 2026-06-29 13:05 - [“五一”假期江苏接待国内游客3758.98万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 13:00 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:53 - [宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 13:02 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:42 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 13:05 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:49 - [成本高企挤压利润，印度苏拉酒业Q4净利下滑34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 13:00 - [烧烤摊主为救3岁宝宝停业10天，归来后生意“爆棚”！市委书记也穿着简装来“打卡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 13:04 - [金建希股价操纵案法官遗书内容公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 13:05 - [优步CEO谈Q1业绩：我们着眼于长期布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:55 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:56 - [【新思想引领新征程】“五一”假期消费市场活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:46 - [九方智投控股于5月5日斥资403.74万港元回购12.03万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:59 - [大美边疆看我家丨黑龙江牡丹江：熔岩台地杏花如雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:57 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 13:10 - [红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 13:10 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 13:05 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 13:03 - [万份收益不足3毛，天弘余额宝连续6天“七日年化收益率”低于1％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:55 - [四川探路跨境电商 巴蜀生活美学走向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 13:09 - [塔吉克斯坦总统拉赫蒙将对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 13:10 - [四川野生大熊猫情侣在竹林中谈恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:51 - [两岸一家亲！台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 13:11 - [AI数字人“邓丽君”在河南郑州“登台”表演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 13:00 - [英国首相斯塔默遭遇地方选举惨败，仍计划留任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:55 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:48 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:54 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](http://www.blog.minike.top/Article/details/168516532.shtml)
-- 2026-06-29 12:56 - [特朗普称将暂停自由计划“一小段时间”](http://www.blog.minike.top/Article/details/394492647136.shtml)
-- 2026-06-29 13:11 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.share.minike.top/Article/details/06880049375.shtml)
-- 2026-06-29 13:08 - [青春之喻，奋斗之帆](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.blog.kurohicncr.top/Article/details/758703918.shtml)
-- 2026-06-29 12:58 - [伊朗查封并没收22名与美以有关联人员财产](http://www.blog.kurohicncr.top/Article/details/511134560489.shtml)
-- 2026-06-29 12:48 - [俄美外长通话讨论国际局势和双边关系](http://www.blog.minike.top/Article/details/615154784.shtml)
-- 2026-06-29 12:47 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](http://www.share.minike.top/Article/details/70234277965.shtml)
-- 2026-06-29 12:45 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](http://www.share.kurohicncr.top/Article/details/3049603982.shtml)
-- 2026-06-29 12:47 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.share.minike.top/Article/details/22371.shtml)
-- 2026-06-29 12:56 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.blog.kurohicncr.top/Article/details/2509257878.shtml)
-- 2026-06-29 13:10 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](http://www.share.kurohicncr.top/Article/details/666581393.shtml)
-- 2026-06-29 13:11 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](http://www.share.kurohicncr.top/Article/details/53660637.shtml)
-- 2026-06-29 12:52 - [酒价内参5月6日价格发布：古井贡古20上涨2元](http://www.share.minike.top/Article/details/702452174352.shtml)
-- 2026-06-29 13:01 - [广东广州以“微改革”推动营商环境系统提升](http://www.share.kurohicncr.top/Article/details/760635406.shtml)
+- 2026-06-29 13:03 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](http://www.blog.minike.top/Article/details/407075.shtml)
+- 2026-06-29 13:11 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.share.minike.top/Article/details/30335155.shtml)
+- 2026-06-29 13:08 - [坚持有腐必反、有贪必肃](http://www.share.kurohicncr.top/Article/details/757374610.shtml)
+- 2026-06-29 13:14 - [信利国际于5月8日耗资103万港元回购100万股](http://www.blog.kurohicncr.top/Article/details/83261805.shtml)
+- 2026-06-29 12:50 - [中欧班列开行突破13万列](http://www.share.minike.top/Article/details/326093.shtml)
+- 2026-06-29 13:11 - [A股再现国资“A吃A”！](http://www.share.kurohicncr.top/Article/details/1536977551.shtml)
+- 2026-06-29 12:57 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.share.kurohicncr.top/Article/details/846108839.shtml)
+- 2026-06-29 12:52 - [个人办事，不只“能办”还要“好办、易办”](http://www.share.kurohicncr.top/Article/details/7092139.shtml)
+- 2026-06-29 12:55 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:15 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](http://www.share.kurohicncr.top/Article/details/28556.shtml)
+- 2026-06-29 13:13 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:16 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](http://www.share.minike.top/Article/details/330200.shtml)
+- 2026-06-29 12:49 - [三部门联合印发《智能体规范应用与创新发展实施意见》](http://www.share.minike.top/Article/details/71022437907.shtml)

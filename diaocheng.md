@@ -1,57 +1,59 @@
-# 燃油价格飙升，韩国4月通胀率创21个月新高
+# 纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-韩国政府周三公布的数据显示，受燃油价格飙升的影响，韩国4月份消费者价格指数（CPI）涨幅创21个月以来新高。 韩国数据和统计部的数据显示，作为衡量通胀的关键指标，4月份CPI同比上涨2.6%，创下自2024年7月以来的最大同比涨幅，当时CPI的涨幅也为2.6%。 此次CPI上涨主要受石油产品价格飙升的推动，4月份石油产品价格同比上涨21.9%，创下自2022年7月以来的最大涨幅
+纽约房地产大亨、Related Companies创始人斯蒂芬·罗斯周四将纽约州民主党众议员泽兰·马姆达尼倡导的“向富人征税”口号比作“令人作呕的种族辱骂”，引发激烈争论。 罗斯在接受采访时表示，此类言论创造了一种不受欢迎的环境。他指出，纽约对财富的“敌视态度”正迫使企业及其领导人加倍押注阳光地带。罗斯的公司已将其总部从纽约迁至佛罗里达州西棕榈滩。“言论会产生后果，”罗斯说，“
 
 ## 正文
 
-韩国政府周三公布的数据显示，受燃油价格飙升的影响，韩国4月份消费者价格指数（CPI）涨幅创21个月以来新高。
+纽约房地产大亨、Related Companies创始人斯蒂芬·罗斯周四将纽约州民主党众议员泽兰·马姆达尼倡导的“向富人征税”口号比作“令人作呕的种族辱骂”，引发激烈争论。
 
-韩国数据和统计部的数据显示，作为衡量通胀的关键指标，4月份CPI同比上涨2.6%，创下自2024年7月以来的最大同比涨幅，当时CPI的涨幅也为2.6%。
+罗斯在接受采访时表示，此类言论创造了一种不受欢迎的环境。
 
-此次CPI上涨主要受石油产品价格飙升的推动，4月份石油产品价格同比上涨21.9%，创下自2022年7月以来的最大涨幅。
+他指出，纽约对财富的“敌视态度”正迫使企业及其领导人加倍押注阳光地带。
 
-自2月底美以对伊朗发动空袭以来，霍尔木兹海峡实际上已被封锁，导致全球石油供应中断，全球油价因此大幅上涨。
+罗斯的公司已将其总部从纽约迁至佛罗里达州西棕榈滩。
 
-韩国严重依赖进口来满足其能源需求。
+“言论会产生后果，”罗斯说，“当你说‘向富人征税’和指责时，会产生令人不寒而栗的效果。
 
-责任编辑：于健 SF069
+” 马姆达尼是一名民主社会主义者，在2025年纽约市市长竞选中以微弱劣势落败。
+
+他一直在推动对纽约市价值500万美元及以上的第二套住房征收新附加税，以及提高高收入者的所得税税率。
+
+他在社交媒体上回击罗斯称：“如果你拥有近40亿美元的财富，你会没事的。
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [哮喘控制不好？快看看吸入剂你用对了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 13:08 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 13:12 - [成都铁路迎“五一”假期客流返程高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:52 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 13:12 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:42 - [广东建成内地规模最大欧标充电服务网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:48 - [AI、国防与气候：重塑全球增长格局的三大支柱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:52 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 13:08 - [重庆市酉阳县委书记杨通胜接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:48 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:55 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:54 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 13:06 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:49 - [美伊停火暂时维持 华尔街股市强劲反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:59 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 13:04 - [2026世界杯美加墨三国将分别举办开幕式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 13:14 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 13:10 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 13:02 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 13:16 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 13:08 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 13:14 - [新疆加快打造全国优质农牧产品重要供给基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:53 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 13:10 - [黄金周线有望录得上涨，或将突破箱体压力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:51 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:58 - [第48届东盟峰会在菲律宾举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 13:05 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:58 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [体验式消费、IP联名活动 “五一”假期消费市场持续上新](http://www.share.minike.top/Article/details/4729051.shtml)
-- 2026-06-29 12:43 - [Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元](http://www.blog.kurohicncr.top/Article/details/849219705465.shtml)
-- 2026-06-29 12:43 - [情感赛道变形记](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](http://www.share.minike.top/Article/details/716409031.shtml)
-- 2026-06-29 13:10 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](http://www.blog.minike.top/Article/details/578928677.shtml)
-- 2026-06-29 12:42 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](http://www.blog.kurohicncr.top/Article/details/4627174.shtml)
-- 2026-06-29 12:45 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:11 - [紫元元公布于5月7日上午起短暂停牌](http://www.share.kurohicncr.top/Article/details/475933.shtml)
-- 2026-06-29 12:53 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/851753.shtml)
-- 2026-06-29 12:51 - [“五一”假期浙江口岸出入境人员超10万人次](http://www.share.kurohicncr.top/Article/details/295139790.shtml)
-- 2026-06-29 12:47 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](http://www.blog.minike.top/Article/details/515600054018.shtml)
-- 2026-06-29 12:45 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](http://www.share.minike.top/Article/details/41747380420.shtml)
-- 2026-06-29 12:48 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](http://www.share.kurohicncr.top/Article/details/21111478100.shtml)
-- 2026-06-29 13:03 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](http://www.blog.kurohicncr.top/Article/details/1548518666.shtml)
+- 2026-06-29 13:07 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.blog.kurohicncr.top/Article/details/98781472769.shtml)
+- 2026-06-29 13:12 - [社评：中国的“Country Walk”何以吸引西方年轻人](http://www.blog.minike.top/Article/details/73415.shtml)
+- 2026-06-29 13:11 - [Stifel在近期抛售后上调Shake Shack评级](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:17 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:14 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](http://www.share.kurohicncr.top/Article/details/702492.shtml)
+- 2026-06-29 12:49 - [10万立方米超大型乙烷运输船从江苏出江试航](http://www.share.minike.top/Article/details/7185309531.shtml)
+- 2026-06-29 12:55 - [德银高管：美伊停战情境下 油价或下探每桶85美元](http://www.blog.kurohicncr.top/Article/details/655003778.shtml)
+- 2026-06-29 12:52 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](http://www.share.kurohicncr.top/Article/details/121596.shtml)
+- 2026-06-29 12:55 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](http://www.share.kurohicncr.top/Article/details/1425061945.shtml)
+- 2026-06-29 13:10 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](http://www.blog.minike.top/Article/details/367752.shtml)
+- 2026-06-29 12:57 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](http://www.blog.kurohicncr.top/Article/details/92096388010.shtml)
+- 2026-06-29 12:48 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](http://www.share.minike.top/Article/details/63229474.shtml)
+- 2026-06-29 13:11 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](http://www.blog.minike.top/Article/details/43398844110.shtml)

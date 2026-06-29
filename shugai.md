@@ -1,60 +1,52 @@
-# 转型金融破局：货币政策如何发力？
+# 高盛：美图公司维持“买入”评级 目标价14.30港元
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：IMI财经观察 导读 十五五规划明确将“加快经济社会发展全面绿色转型”列为发展重点，并提出“丰富绿色金融产品和服务，有序推进碳金融产品和衍生工具创新”。2026年1月，中国人民银行将“节能改造、绿色升级、能源绿色低碳转型”等具有直接碳减排效应的项目正式纳入碳减排支持工具支持范围，标志着该工具从聚焦特定绿色产业延伸至覆盖全社
+高盛发布研报称，美图公司（01357）公布影像与设计产品收入，同比升34%至8.52亿元人民币。首季生产力工具收入同比增长45%，休闲工具收入同比增长36%。该行认为，付费订户数量的增长是关键驱动因素。截至2026年3月底，付费订户总数达1，790万户，去年同期为1，690万户。该行指，美图受惠于AI功能提升及AI代理的整合，对付费用户数量及每用户平均收入的增长均持正面看法；
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：IMI财经观察 导读 十五五规划明确将“加快经济社会发展全面绿色转型”列为发展重点，并提出“丰富绿色金融产品和服务，有序推进碳金融产品和衍生工具创新”。
+高盛发布研报称，美图公司（01357）公布影像与设计产品收入，同比升34%至8.52亿元人民币。
 
-2026年1月，中国人民银行将“节能改造、绿色升级、能源绿色低碳转型”等具有直接碳减排效应的项目正式纳入碳减排支持工具支持范围，标志着该工具从聚焦特定绿色产业延伸至覆盖全社会高碳行业转型活动。
+首季生产力工具收入同比增长45%，休闲工具收入同比增长36%。
 
-我国绿色发展的融资路径正由以绿色产业为主的“绿色金融”阶段，迈向支持传统产业技术改造与结构调整的“转型金融”阶段。
+该行认为，付费订户数量的增长是关键驱动因素。
 
-与此同时，全球地缘冲突引发的能源危机打破了传统能源供需平衡与供应链格局，倒逼各国将低碳转型与能源安全保障深度绑定。
+截至2026年3月底，付费订户总数达1，790万户，去年同期为1，690万户。
 
-2026年，欧盟碳边境调节机制（CBAM）正式进入全面实施阶段。
+该行指，美图受惠于AI功能提升及AI代理的整合，对付费用户数量及每用户平均收入的增长均持正面看法； 维持对公司“买入”评级； 目标价维持14.3港元。
 
-在此格局下，金融体系已不再仅是环境治理的配套部门，更成为推动经济结构调整和宏观稳定的的重要调控渠道。
-
-本文旨在梳理政策演进、核心机制与央行职能，结合最新数据与案例，分析央行如何助力低碳转型。
-
-01 中国转型金融发展的核心堵点与挑战 经合组织（OECD）在2019年提出“转型金融”（Transition Finance）概念，即指在经济主体向可持续发展目标转型的进程中，为它们提供融资以帮助其转型的金融活动。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [开盘：美股周二高开 油价回落与强劲财报提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 13:00 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 13:09 - [哮喘控制不好？快看看吸入剂你用对了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 13:08 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:10 - [成都铁路迎“五一”假期客流返程高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:58 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 13:09 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 13:08 - [广东建成内地规模最大欧标充电服务网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:55 - [AI、国防与气候：重塑全球增长格局的三大支柱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 13:00 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:53 - [重庆市酉阳县委书记杨通胜接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:53 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 13:01 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:42 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 13:00 - [加州新计划：新生儿家庭将获数百片免费尿布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:48 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 13:10 - [2026世界杯美加墨三国将分别举办开幕式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:59 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 13:17 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 13:16 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:55 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 13:00 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:53 - [新疆加快打造全国优质农牧产品重要供给基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:57 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:59 - [百亿明星私募被曝光“打新内幕”](http://www.blog.kurohicncr.top/Article/details/43691.shtml)
-- 2026-06-29 13:09 - [被特朗普痛批后，美国食药局首次批准调味电子烟上市](http://www.blog.minike.top/Article/details/96202.shtml)
-- 2026-06-29 12:57 - [体验式消费、IP联名活动 “五一”假期消费市场持续上新](http://www.share.minike.top/Article/details/42592502298.shtml)
-- 2026-06-29 12:55 - [Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [情感赛道变形记](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](http://www.blog.minike.top/Article/details/707642.shtml)
-- 2026-06-29 12:57 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](http://www.share.kurohicncr.top/Article/details/388087.shtml)
-- 2026-06-29 12:56 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](http://www.share.kurohicncr.top/Article/details/626336974.shtml)
-- 2026-06-29 12:44 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](http://www.blog.minike.top/Article/details/40187719.shtml)
-- 2026-06-29 12:57 - [“五一”假期浙江口岸出入境人员超10万人次](http://www.blog.minike.top/Article/details/169471718.shtml)
-- 2026-06-29 12:56 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](http://www.blog.minike.top/Article/details/44812.shtml)
-- 2026-06-29 13:12 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](http://www.blog.minike.top/Article/details/86401237605.shtml)
+- 2026-06-29 13:13 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:14 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](http://www.blog.kurohicncr.top/Article/details/06718316270.shtml)
+- 2026-06-29 13:01 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.blog.minike.top/Article/details/7069493065.shtml)
+- 2026-06-29 13:07 - [社评：中国的“Country Walk”何以吸引西方年轻人](http://www.blog.minike.top/Article/details/3399504.shtml)
+- 2026-06-29 12:59 - [Stifel在近期抛售后上调Shake Shack评级](http://www.blog.minike.top/Article/details/70426894.shtml)
+- 2026-06-29 12:49 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](http://www.share.kurohicncr.top/Article/details/54414144684.shtml)
+- 2026-06-29 12:58 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](http://www.blog.kurohicncr.top/Article/details/6996034023.shtml)
+- 2026-06-29 12:53 - [10万立方米超大型乙烷运输船从江苏出江试航](http://www.share.minike.top/Article/details/70521334226.shtml)
+- 2026-06-29 13:12 - [德银高管：美伊停战情境下 油价或下探每桶85美元](http://www.blog.minike.top/Article/details/048716261440.shtml)
+- 2026-06-29 13:14 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](http://www.share.minike.top/Article/details/4117665934.shtml)
+- 2026-06-29 13:14 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](http://www.blog.minike.top/Article/details/40936415926.shtml)
+- 2026-06-29 12:58 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](http://www.share.minike.top/Article/details/248239437.shtml)
+- 2026-06-29 12:58 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](http://www.share.minike.top/Article/details/77960673.shtml)
+- 2026-06-29 13:04 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](http://www.blog.minike.top/Article/details/76192.shtml)
+- 2026-06-29 13:16 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](http://www.blog.kurohicncr.top/Article/details/36755535.shtml)

@@ -1,61 +1,57 @@
-# 大国之大利天下——2026年春季中国元首外交纪事
+# 冰雪为媒携手四十载 中加双城合作续新章
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-“很高兴结识查波总统先生。欢迎你对中国进行国事访问，也欢迎你带来的代表团和各位部长。你就任总统以来，莫桑比克经济社会发展取得新成就，我向你表示祝贺。” 四月北京，春和景明。21日下午，人民大会堂华灯璀璨，国家主席习近平热情欢迎今年首位访华的非洲国家元首莫桑比克总统查波。这是一周多来，习近平主席在北京会晤的第六位外国客人。 这个春天，来自世界各地的领导人密集访华，习近平主席通过多
+中新网哈尔滨5月9日电 题：冰雪为媒携手四十载 中加双城合作续新章 中新网记者 王妮娜 2026年，加拿大埃德蒙顿市市长安德鲁·纳克在“世界市长对话”现场，面对台下数百位中外嘉宾，用“感恩”与“愿景”两个词，凝练出两座北方城市跨越四十年的深厚情谊。 “我们共同见证了一个意义非凡的里程碑——埃德蒙顿与哈尔滨缔结友好城市40周年。”纳克动情地说。 1985年，时任埃德蒙顿市市长劳伦
 
 ## 正文
 
-“很高兴结识查波总统先生。
+中新网哈尔滨5月9日电 题：冰雪为媒携手四十载 中加双城合作续新章 中新网记者 王妮娜 2026年，加拿大埃德蒙顿市市长安德鲁·纳克在“世界市长对话”现场，面对台下数百位中外嘉宾，用“感恩”与“愿景”两个词，凝练出两座北方城市跨越四十年的深厚情谊。
 
-欢迎你对中国进行国事访问，也欢迎你带来的代表团和各位部长。
+“我们共同见证了一个意义非凡的里程碑——埃德蒙顿与哈尔滨缔结友好城市40周年。
 
-你就任总统以来，莫桑比克经济社会发展取得新成就，我向你表示祝贺。
+”纳克动情地说。
 
-” 四月北京，春和景明。
+1985年，时任埃德蒙顿市市长劳伦斯·迪考与时任哈尔滨市市长宫本言播下了友谊种子。
 
-21日下午，人民大会堂华灯璀璨，国家主席习近平热情欢迎今年首位访华的非洲国家元首莫桑比克总统查波。
+“四十年来，在两座城市市民、政府官员、艺术家和商界领袖的悉心浇灌下，这颗种子已茁壮成长。
 
-这是一周多来，习近平主席在北京会晤的第六位外国客人。
+”纳克说，两城在经贸、教育、科技、文旅、体育、城市规划、公共卫生等领域的合作结出累累硕果。
 
-这个春天，来自世界各地的领导人密集访华，习近平主席通过多种方式同各国各界深入交流，中国迎来繁忙“外交季”。
+在哈尔滨，“埃德蒙顿路”横贯城市东西；在埃德蒙顿，“哈尔滨路”静卧于河谷之畔。
 
-大变局中的世界，见证着日益凸显的中国作用，“向东看”成为浩浩荡荡的时代潮流。
+哈尔滨冰雪经济博览会曾设埃德蒙顿城市图片展，埃德蒙顿的“深冬狂欢节”上则活跃着华人社团的身影。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [马斯克就推特持股披露案与SEC达成和解 支付150万美元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 13:09 - [山城夜色引客来 重庆夜间经济点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 13:11 - [7个项目停6个？部分城市“智慧城市”项目为啥“投入即浪费”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 13:02 - [假日经济观察：流量变“留量” 浙江湖州千年农遗焕新记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:53 - [中国海外发展早盘涨超5% 花旗现予目标价14.20港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:59 - [霍尔木兹海峡激战升级，美军打击伊朗快艇，阿联酋遭袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:42 - [摩根大通牵头财团或因Qualtrics债务面临5亿美元损失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 13:03 - [美国宣布对伊军事行动结束，分析担忧战事远未终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:51 - [万成集团股份复牌一度飙升91% 获执董钟国强折让约34.96%提全购要约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:52 - [锦欣生殖前4个月不孕初诊数同比增长7.5% 取卵周期数同比增长5.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:42 - [2026年“香港高考”收官：逾5.85万考生报考 内地试点考场持续优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:55 - [苹果因Mac需求强劲面临供应压力 旺盛需求超出芯片供应能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:53 - [维格维口服减肥药销量大幅超预期，诺和诺德股价大涨7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:57 - [AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 13:05 - [外媒：伊朗已启动霍尔木兹海峡通行管理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 13:15 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:10 - [华尔街新型NACHO 交易押注石油冲击将长期持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 13:04 - [专家解读：日本想借“肩并肩”联合军演兴起什么“风浪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:58 - [普京：收到泽连斯基希望会晤的口信 不反对在第三国会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:48 - [从乳业到稀土 内蒙古以产业计量嵌入全国产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 13:12 - [美国联邦政府4月再减9000个岗位，特朗普政府裁员计划持续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:50 - [福建“十五五”聚焦数智赋能 打造“四区一标杆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:54 - [欧阳光：四川银行中小银行IT体系企业级重构建设实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 13:10 - [直击徐州非法排污事件现场：清淤仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:59 - [（乡村行·看振兴）山西忻州荒坡上的“酸枣经”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 13:06 - [台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [空客计划2020年以来首次发债 应对供应链中断](http://www.blog.minike.top/Article/details/013565.shtml)
-- 2026-06-29 12:50 - [韩国称将确保每年从加拿大进口至多3300万桶原油](http://www.share.minike.top/Article/details/53606381.shtml)
-- 2026-06-29 12:48 - [营收成本攀升，Shopify下调第二季度盈利预期 股价大跌13.28%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [AMD CEO苏姿丰：智能体正引爆人工智能周期巨大需求](http://www.blog.kurohicncr.top/Article/details/759650.shtml)
-- 2026-06-29 12:58 - [唯一！连续19年不良率低于1%，宁波银行凭什么被大摩列为“中国核心资产”？](http://www.blog.minike.top/Article/details/6084739.shtml)
-- 2026-06-29 12:59 - [假期最后一天铁路迎返京高峰 受大风影响部分列车晚点](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [年轻人假期热衷贵阳“寻咖”](http://www.blog.kurohicncr.top/Article/details/89687.shtml)
-- 2026-06-29 12:45 - [富通科技公布于5月6日下午起复牌](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](http://www.blog.kurohicncr.top/Article/details/483276481774.shtml)
-- 2026-06-29 12:55 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](http://www.share.minike.top/Article/details/747471195319.shtml)
-- 2026-06-29 12:48 - [追光的你｜青春的颜色](http://www.share.minike.top/Article/details/57389511.shtml)
-- 2026-06-29 12:48 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [日经指数下跌0.8% 受科技股和金融股拖累](http://www.share.kurohicncr.top/Article/details/456988276744.shtml)
+- 2026-06-29 12:55 - [预防心梗，这些不良习惯需警惕](http://www.share.kurohicncr.top/Article/details/52525732.shtml)
+- 2026-06-29 13:00 - [青藏高原生物种质资源库构建全球高寒种质保护网](http://www.share.minike.top/Article/details/45656237121.shtml)
+- 2026-06-29 13:12 - [四部门发文促进人工智能与能源双向赋能](http://www.share.kurohicncr.top/Article/details/123770166509.shtml)
+- 2026-06-29 13:00 - [妈妈，我想对你说](http://www.blog.minike.top/Article/details/8024160.shtml)
+- 2026-06-29 13:17 - [通胀侵蚀消费支出 英国到店客流下滑](http://www.blog.kurohicncr.top/Article/details/378134327455.shtml)
+- 2026-06-29 13:14 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](http://www.share.kurohicncr.top/Article/details/77662.shtml)
+- 2026-06-29 13:01 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](http://www.share.minike.top/Article/details/201320809074.shtml)
+- 2026-06-29 13:09 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](http://www.blog.kurohicncr.top/Article/details/127366783.shtml)
+- 2026-06-29 13:01 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](http://www.share.minike.top/Article/details/18407.shtml)
+- 2026-06-29 13:12 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [AI时代，全球教育正面临三层重塑](http://www.share.minike.top/Article/details/1992796.shtml)
+- 2026-06-29 13:03 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](http://www.blog.minike.top/Article/details/37918931543.shtml)
+- 2026-06-29 12:58 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [北京曲剧《雷雨》观摩研讨会在京举办](http://www.blog.minike.top/Article/details/83148066.shtml)

@@ -1,60 +1,55 @@
-# 以共赢促共富 民企精准帮扶常态化
+# 重庆最大液化天然气单一燃料江海直达散货船首航
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-广大民企正依托长期扎根乡村积累下的产业基础，持续利用技术优势，挖掘乡村禀赋，以共赢促共富。 今年中央一号文件提出，实施常态化精准帮扶。这是中央一号文件首次对这一重大举措进行系统性部署。2026年统一战线助力乡村全面振兴联席会议提出，要精准开展常态化帮扶，助力帮扶地区夯实发展基础。 当前，乡村产业蓬勃发展，新兴业态不断涌现，广大民企正依托长期扎根乡村积累下的产业基础，持续利用技术
+发布时间：2026年05月08日 11:31 来源：中国新闻网 5月7日，重庆最大液化天然气单一燃料江海直达散货船——“圣通2016”轮开启首航，将驶往浙江舟山港。 “圣通2016”轮由重庆市万州区圣发船务有限公司投建，长140.4米，载重2.2万吨，是目前重庆最大的液化天然气单一燃料江海直达散货船。 该船采用液化天然气单一燃料动力，其二氧化碳排放量较普通燃油船舶可降低20%以
 
 ## 正文
 
-广大民企正依托长期扎根乡村积累下的产业基础，持续利用技术优势，挖掘乡村禀赋，以共赢促共富。
+发布时间：2026年05月08日 11:31 来源：中国新闻网 5月7日，重庆最大液化天然气单一燃料江海直达散货船——“圣通2016”轮开启首航，将驶往浙江舟山港。
 
-今年中央一号文件提出，实施常态化精准帮扶。
+“圣通2016”轮由重庆市万州区圣发船务有限公司投建，长140.4米，载重2.2万吨，是目前重庆最大的液化天然气单一燃料江海直达散货船。
 
-这是中央一号文件首次对这一重大举措进行系统性部署。
+该船采用液化天然气单一燃料动力，其二氧化碳排放量较普通燃油船舶可降低20%以上，能耗成本可降低约15%，兼具环保效益与经济效益。
 
-2026年统一战线助力乡村全面振兴联席会议提出，要精准开展常态化帮扶，助力帮扶地区夯实发展基础。
+首航之后，“圣通2016”轮先行运行“浙江舟山—江苏江阴”航线。
 
-当前，乡村产业蓬勃发展，新兴业态不断涌现，广大民企正依托长期扎根乡村积累下的产业基础，持续利用技术优势，挖掘乡村禀赋，以共赢促共富，探索常态化精准帮扶实践路径，为加快农业农村现代化贡献民企力量。
-
-技术精准下沉织密“民生网” 在偏远地区，民企瞄准民生痛点推动技术落地，让帮扶成效更加精准持久。
-
-内蒙古大草原上，牧户居住分散，水质难以保障。
-
-北京科泰兴达高新技术有限公司长期深耕水处理领域，依托京蒙协作机制在内蒙古多地投资建厂，一扎根就是十多年。
+(肖江川 蒲佳乐 钟伟) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [午盘：美股继续上扬 纳指创盘中新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:50 - [路易丝·阿伯将出任第31任加拿大总督](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:47 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 13:10 - [离境退税“即买即退”跨省互认进一步扩围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 13:00 - [哈塞特：没有参与私募信贷的人不必担心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 13:06 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:52 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 13:05 - [黄金突破4700美元，分析师警示风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:44 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 13:05 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:49 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:55 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 13:11 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:58 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:53 - [享界S9零重力座椅事件，给车企和用户都提了个醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:58 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:56 - [湖北武汉：初夏时节 花田花海美不胜收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:54 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 13:08 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 13:03 - [A股1300亿算力巨头协创数据，净利润猛增343%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:51 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 13:07 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 13:09 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 13:02 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:50 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:52 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:51 - [唱响中国之声：中央音乐学院合唱团在俄演出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 13:09 - [永升服务于5月8日斥资41.04万港元回购20万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:49 - [祁连山 “生命方舟” 累计救助收容259只野生动物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [投资逾百亿港元 港莞共建大湾区可持续航空燃料产业链](http://www.blog.minike.top/Article/details/868199893.shtml)
-- 2026-06-29 12:56 - [Coinbase首席执行官称公司将裁员约14%](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [Anthropic“杀”进金融圈，联创称2028年底AI能自我进化](http://www.blog.minike.top/Article/details/827338371554.shtml)
-- 2026-06-29 12:49 - [全国大部降水增多 冷空气将自北向南制造降温](http://www.blog.kurohicncr.top/Article/details/625019.shtml)
-- 2026-06-29 12:45 - [开盘：美股周二高开 油价回落与强劲财报提振](http://www.blog.kurohicncr.top/Article/details/112721.shtml)
-- 2026-06-29 12:55 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](http://www.blog.kurohicncr.top/Article/details/650390801173.shtml)
-- 2026-06-29 13:04 - [哮喘控制不好？快看看吸入剂你用对了吗？](http://www.blog.minike.top/Article/details/521805.shtml)
-- 2026-06-29 12:48 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](http://www.share.kurohicncr.top/Article/details/091410687257.shtml)
-- 2026-06-29 13:09 - [成都铁路迎“五一”假期客流返程高峰](http://www.share.kurohicncr.top/Article/details/47344.shtml)
-- 2026-06-29 12:51 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](http://www.share.minike.top/Article/details/37897603022.shtml)
-- 2026-06-29 12:56 - [特朗普威胁伊朗不要向美国船开火](http://www.share.minike.top/Article/details/3075547002.shtml)
-- 2026-06-29 12:57 - [广东建成内地规模最大欧标充电服务网络](http://www.blog.minike.top/Article/details/44307936421.shtml)
-- 2026-06-29 13:06 - [AI、国防与气候：重塑全球增长格局的三大支柱](http://www.share.kurohicncr.top/Article/details/800462780877.shtml)
-- 2026-06-29 12:45 - [全球政府债券延续涨势 受美伊进展报道影响](http://www.share.minike.top/Article/details/625257026.shtml)
-- 2026-06-29 12:45 - [重庆市酉阳县委书记杨通胜接受审查调查](http://www.blog.minike.top/Article/details/5559132036.shtml)
+- 2026-06-29 13:09 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](http://www.blog.minike.top/Article/details/8149678802.shtml)
+- 2026-06-29 13:01 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](http://www.blog.minike.top/Article/details/27983680653.shtml)
+- 2026-06-29 12:54 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](http://www.blog.minike.top/Article/details/721510.shtml)
+- 2026-06-29 12:55 - [加州新计划：新生儿家庭将获数百片免费尿布](http://www.share.kurohicncr.top/Article/details/8352160575.shtml)
+- 2026-06-29 12:55 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](http://www.share.kurohicncr.top/Article/details/8826538.shtml)
+- 2026-06-29 12:57 - [2026世界杯美加墨三国将分别举办开幕式](http://www.share.kurohicncr.top/Article/details/08977.shtml)
+- 2026-06-29 13:08 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:12 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](http://www.blog.kurohicncr.top/Article/details/09730651.shtml)
+- 2026-06-29 13:04 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](http://www.share.kurohicncr.top/Article/details/06536493023.shtml)
+- 2026-06-29 13:04 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](http://www.share.minike.top/Article/details/91983.shtml)
+- 2026-06-29 13:02 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](http://www.blog.minike.top/Article/details/61387612909.shtml)
+- 2026-06-29 13:08 - [新疆加快打造全国优质农牧产品重要供给基地](http://www.share.minike.top/Article/details/31877.shtml)
+- 2026-06-29 12:56 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [黄金周线有望录得上涨，或将突破箱体压力？](http://www.share.minike.top/Article/details/894877542670.shtml)

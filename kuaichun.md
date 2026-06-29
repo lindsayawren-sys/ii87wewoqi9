@@ -1,60 +1,48 @@
-# 维格维口服减肥药销量大幅超预期，诺和诺德股价大涨7%
+# 外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 诺和诺德周三上调全年盈利指引。公司表示，旗下维格维口服减肥药今年一季度销售表现远超市场预期，带动股价大幅走高。 鉴于 GLP-1 系列药品销售前景向好，诺和诺德上调 2026 全年业绩预期：经汇率调整后，调整后营收与利润预计下滑4%—12%，好于此前预估的 5%—13% 降幅。 该股哥本哈根早盘一度涨幅超 8%，随后回落至6.7%
+发布时间：2026年05月09日 11:28 来源：中国新闻网 外商来华参展 盛赞中国是非常强大的国家：“我们很放心！” 责任编辑：【李光伟】
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 诺和诺德周三上调全年盈利指引。
+发布时间：2026年05月09日 11:28 来源：中国新闻网 外商来华参展 盛赞中国是非常强大的国家：“我们很放心！
 
-公司表示，旗下维格维口服减肥药今年一季度销售表现远超市场预期，带动股价大幅走高。
-
-鉴于 GLP-1 系列药品销售前景向好，诺和诺德上调 2026 全年业绩预期：经汇率调整后，调整后营收与利润预计下滑4%—12%，好于此前预估的 5%—13% 降幅。
-
-该股哥本哈根早盘一度涨幅超 8%，随后回落至6.7%。
-
-公司披露，一季度固定汇率口径销售额大涨 32%，财报口径营收达 968 亿丹麦克朗（152 亿美元）；营业利润大增 65%，至 596 亿丹麦克朗。
-
-若按调整后口径，营收同比下滑 4%、利润下滑 6%。
-
-诺和诺德解释，调整后数据剔除了美国 340B 药品定价计划相关准备金转回带来的42 亿美元一次性损益影响。
-
-本季度是维格维口服减肥药在美国上市后的首个完整销售季度，销售额达 22.6 亿丹麦克朗，远高于路透汇总分析师预期的 11.6 亿丹麦克朗。
+” 责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-29 12:46 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 13:05 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:59 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:56 - [成本高企挤压利润，印度苏拉酒业Q4净利下滑34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 13:08 - [烧烤摊主为救3岁宝宝停业10天，归来后生意“爆棚”！市委书记也穿着简装来“打卡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:44 - [金建希股价操纵案法官遗书内容公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:50 - [优步CEO谈Q1业绩：我们着眼于长期布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:57 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:49 - [【新思想引领新征程】“五一”假期消费市场活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:44 - [九方智投控股于5月5日斥资403.74万港元回购12.03万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:03 - [五一档总票房7.58亿元！它凭什么刷新今年最高分纪录？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:51 - [在SpaceX上市前夕 贝索斯对蓝色起源的员工激励机制进行了调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 13:07 - [承诺“增高”构成欺诈 商家被判退一赔三](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:50 - [以色列停火期间突袭贝鲁特 或炸死真主党一指挥官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 13:14 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 13:09 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:51 - [万份收益不足3毛，天弘余额宝连续6天“七日年化收益率”低于1％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 13:14 - [四川探路跨境电商 巴蜀生活美学走向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:54 - [塔吉克斯坦总统拉赫蒙将对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 13:08 - [四川野生大熊猫情侣在竹林中谈恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 13:06 - [两岸一家亲！台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 13:09 - [AI数字人“邓丽君”在河南郑州“登台”表演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 13:04 - [英国首相斯塔默遭遇地方选举惨败，仍计划留任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 13:04 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 13:01 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:52 - [“AI+影视”找准发展平衡点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 13:11 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:54 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [青春之喻，奋斗之帆](http://www.blog.kurohicncr.top/Article/details/02580.shtml)
-- 2026-06-29 12:55 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.share.kurohicncr.top/Article/details/83126196212.shtml)
-- 2026-06-29 13:01 - [伊朗查封并没收22名与美以有关联人员财产](http://www.share.minike.top/Article/details/90833.shtml)
-- 2026-06-29 12:50 - [俄美外长通话讨论国际局势和双边关系](http://www.share.minike.top/Article/details/97336.shtml)
-- 2026-06-29 13:01 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](http://www.blog.kurohicncr.top/Article/details/23721066067.shtml)
-- 2026-06-29 12:46 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.blog.minike.top/Article/details/15714956824.shtml)
-- 2026-06-29 12:49 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.blog.minike.top/Article/details/93910112136.shtml)
-- 2026-06-29 12:43 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](http://www.share.kurohicncr.top/Article/details/59792491.shtml)
-- 2026-06-29 12:56 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](http://www.blog.kurohicncr.top/Article/details/48869541902.shtml)
-- 2026-06-29 13:11 - [酒价内参5月6日价格发布：古井贡古20上涨2元](http://www.blog.minike.top/Article/details/9497123.shtml)
-- 2026-06-29 13:09 - [广东广州以“微改革”推动营商环境系统提升](http://www.blog.minike.top/Article/details/84346823.shtml)
-- 2026-06-29 12:50 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](http://www.blog.kurohicncr.top/Article/details/8333525.shtml)
-- 2026-06-29 13:12 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](http://www.blog.kurohicncr.top/Article/details/90213750.shtml)
-- 2026-06-29 13:04 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](http://www.blog.kurohicncr.top/Article/details/73537534.shtml)
+- 2026-06-29 12:59 - [信利国际于5月8日耗资103万港元回购100万股](http://www.blog.kurohicncr.top/Article/details/23890628.shtml)
+- 2026-06-29 12:49 - [中欧班列开行突破13万列](http://www.blog.minike.top/Article/details/18859.shtml)
+- 2026-06-29 13:01 - [A股再现国资“A吃A”！](http://www.share.minike.top/Article/details/24548895266.shtml)
+- 2026-06-29 13:14 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.share.kurohicncr.top/Article/details/80643842713.shtml)
+- 2026-06-29 13:07 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.share.minike.top/Article/details/73337399042.shtml)
+- 2026-06-29 13:10 - [个人办事，不只“能办”还要“好办、易办”](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](http://www.blog.kurohicncr.top/Article/details/56847117298.shtml)
+- 2026-06-29 13:14 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](http://www.blog.minike.top/Article/details/9174642719.shtml)
+- 2026-06-29 13:00 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](http://www.share.minike.top/Article/details/483048.shtml)
+- 2026-06-29 12:55 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](http://www.blog.kurohicncr.top/Article/details/1089620.shtml)
+- 2026-06-29 13:09 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:14 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](http://www.share.minike.top/Article/details/67256169471.shtml)
+- 2026-06-29 12:50 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](http://www.share.minike.top/Article/details/824763809.shtml)
+- 2026-06-29 12:54 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](http://www.blog.kurohicncr.top/Article/details/0424492.shtml)

@@ -1,46 +1,59 @@
-# 环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍
+# AI时代，全球教育正面临三层重塑
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-环球华商俱乐部（01757）发布公告，集团预料截至2026年3月31日止年度取得公司拥有人应占综合溢利介于约800万港元至1200万港元，较截至2025年3月31日止财政年度取得的公司拥有人应占综合溢利约110万港元增加约六至九倍。有关期间纯利预期较截至2025年3月31日止财政年度增加，主要由于有关期间的建筑收入增加约4.32亿港元，且利润率亦有所提高。责任编辑：卢昱君
+AI时代，全球教育正面临三层重塑 ——来自亚太经合组织研究中心联席会议青年学者论坛的声音 5月7日，在香港中文大学(深圳)举行的2026年亚太经合组织(APEC)研究中心联席会议青年学者论坛第三场圆桌论坛上，香港教育大学助理副校长李辉用一个具体的数字让在场的人停顿了片刻。2019至2020年间，李辉的团队想在广东深圳找一组从未接触过电子设备的5岁儿童作为对照组。“只找到8个小朋
 
 ## 正文
 
-环球华商俱乐部（01757）发布公告，集团预料截至2026年3月31日止年度取得公司拥有人应占综合溢利介于约800万港元至1200万港元，较截至2025年3月31日止财政年度取得的公司拥有人应占综合溢利约110万港元增加约六至九倍。
+AI时代，全球教育正面临三层重塑 ——来自亚太经合组织研究中心联席会议青年学者论坛的声音 5月7日，在香港中文大学(深圳)举行的2026年亚太经合组织(APEC)研究中心联席会议青年学者论坛第三场圆桌论坛上，香港教育大学助理副校长李辉用一个具体的数字让在场的人停顿了片刻。
 
-有关期间纯利预期较截至2025年3月31日止财政年度增加，主要由于有关期间的建筑收入增加约4.32亿港元，且利润率亦有所提高。
+2019至2020年间，李辉的团队想在广东深圳找一组从未接触过电子设备的5岁儿童作为对照组。
 
-责任编辑：卢昱君
+“只找到8个小朋友。
+
+”他说，“现在可能已经找不着了。
+
+” 这场以“被打破的围墙：AI时代的教育重塑与代际冲突”为题的讨论，汇聚了来自中国以及澳大利亚、智利、巴布亚新几内亚、秘鲁等经济体的学者。
+
+他们分别从大脑、师生关系和教育制度三个层面切入讨论，最终都指向同一个命题：当AI深度介入时，我们究竟是在谈一种新的工具，还是一种新的教育？
+
+大脑：被悄悄重塑的“前额叶” 李辉的实验室过去几年系统梳理了全球已有的脑科学证据。
+
+“AI和数码经验会对儿童大脑造成结构和功能上的改变。
 
 ## 相关推荐
 
-- 2026-06-29 13:00 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:59 - [青春之喻，奋斗之帆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 13:05 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:42 - [伊朗查封并没收22名与美以有关联人员财产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:48 - [俄美外长通话讨论国际局势和双边关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 13:08 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:48 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:58 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:55 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:48 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 13:08 - [坚持有腐必反、有贪必肃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 13:11 - [信利国际于5月8日耗资103万港元回购100万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 13:03 - [中欧班列开行突破13万列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 13:00 - [A股再现国资“A吃A”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:52 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 13:09 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 13:07 - [个人办事，不只“能办”还要“好办、易办”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 13:07 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:57 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 13:03 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 13:05 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 13:00 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 13:00 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:00 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](http://www.share.kurohicncr.top/Article/details/23772658.shtml)
-- 2026-06-29 12:45 - [“市场依然可为！”基金经理看好节后三大主线](http://www.blog.minike.top/Article/details/174004187.shtml)
-- 2026-06-29 12:58 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](http://www.share.kurohicncr.top/Article/details/6967490.shtml)
-- 2026-06-29 13:06 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](http://www.blog.kurohicncr.top/Article/details/704796170.shtml)
-- 2026-06-29 13:00 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](http://www.share.minike.top/Article/details/23648728051.shtml)
-- 2026-06-29 13:07 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](http://www.blog.minike.top/Article/details/33407.shtml)
-- 2026-06-29 13:02 - [菲律宾失业率连续两个月回落](http://www.share.minike.top/Article/details/552347524.shtml)
-- 2026-06-29 13:08 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](http://www.blog.minike.top/Article/details/94658900.shtml)
-- 2026-06-29 12:56 - [经纬线·青年习近平的“人生课堂”](http://www.blog.kurohicncr.top/Article/details/966898402726.shtml)
-- 2026-06-29 12:45 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](http://www.share.kurohicncr.top/Article/details/5284997660.shtml)
-- 2026-06-29 12:59 - [S佳通涉信息披露违法违规，受损投资者可维权](http://www.share.minike.top/Article/details/674497145474.shtml)
-- 2026-06-29 13:04 - [2026年“香港高考”收官 文凭试加速迈向国际化](http://www.blog.kurohicncr.top/Article/details/13794.shtml)
-- 2026-06-29 12:43 - [2026年全国残疾人足球公开赛在京举行](http://www.blog.kurohicncr.top/Article/details/9026219000.shtml)
-- 2026-06-29 12:50 - [原油期货上涨 或因技术性反弹](http://www.share.minike.top/Article/details/11367.shtml)
-- 2026-06-29 12:51 - [中东紧张局势冲击全球旅游业](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](http://www.blog.kurohicncr.top/Article/details/806535.shtml)
+- 2026-06-29 13:02 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](http://www.share.minike.top/Article/details/066722.shtml)
+- 2026-06-29 12:54 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](http://www.share.minike.top/Article/details/35340.shtml)
+- 2026-06-29 12:49 - [唱响中国之声：中央音乐学院合唱团在俄演出](http://www.share.kurohicncr.top/Article/details/4639915371.shtml)
+- 2026-06-29 13:02 - [永升服务于5月8日斥资41.04万港元回购20万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [祁连山 “生命方舟” 累计救助收容259只野生动物](http://www.blog.kurohicncr.top/Article/details/760491.shtml)
+- 2026-06-29 13:15 - [早盘：标普500指数和纳斯达克综合再创历史新高](http://www.blog.minike.top/Article/details/2511680244.shtml)
+- 2026-06-29 13:05 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](http://www.blog.minike.top/Article/details/58455.shtml)
+- 2026-06-29 13:05 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:16 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](http://www.blog.minike.top/Article/details/8989073.shtml)
+- 2026-06-29 12:59 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](http://www.blog.kurohicncr.top/Article/details/4729814.shtml)
+- 2026-06-29 12:51 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](http://www.blog.kurohicncr.top/Article/details/2748833.shtml)
+- 2026-06-29 13:07 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](http://www.share.minike.top/Article/details/40923449309.shtml)
+- 2026-06-29 12:56 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:18 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](http://www.blog.minike.top/Article/details/9289501340.shtml)

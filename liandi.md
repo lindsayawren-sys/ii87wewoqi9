@@ -1,43 +1,56 @@
-# 追光的你｜青春的颜色
+# 俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月05日 21:00 来源：南方网·粤学习 责任编辑：【李骏】
+中新网大连5月8日电 (记者 杨毅)俄罗斯远东国立渔业技术大学“帕拉达”号风帆训练舰7日靠泊大连港，舰上157名实习学员抵达大连，开启为期四天的中俄航海科教互通、海事文化联谊交流活动。 “帕拉达”号是全球大型三桅钢制风帆训练舰，1989年于波兰建成服役，隶属于俄罗斯远东国立渔业技术大学。该舰总长108.6米，排水量约2300吨，配备26面风帆，最大航速18.8节，主要承担俄罗斯
 
 ## 正文
 
-发布时间：2026年05月05日 21:00 来源：南方网·粤学习 责任编辑：【李骏】
+中新网大连5月8日电 (记者 杨毅)俄罗斯远东国立渔业技术大学“帕拉达”号风帆训练舰7日靠泊大连港，舰上157名实习学员抵达大连，开启为期四天的中俄航海科教互通、海事文化联谊交流活动。
+
+“帕拉达”号是全球大型三桅钢制风帆训练舰，1989年于波兰建成服役，隶属于俄罗斯远东国立渔业技术大学。
+
+该舰总长108.6米，排水量约2300吨，配备26面风帆，最大航速18.8节，主要承担俄罗斯海事专业学员远洋实训任务。
+
+本次到访大连，是该舰第三次驶入中国口岸开展友好交流，是中俄海事科教双向互通的重要契机。
+
+在为期四天的访港期间，“帕拉达”号实习学员将与大连海洋大学、大连东软信息学院师生开展系列研学互动与文化交流活动，进一步深化中俄海事科教合作，增进两国青年海事人才的文化互通与友谊联结。
+
+舰船抵港后，大连出入境边防检查站即刻启动快捷通关勤务模式，实现船舶“靠港即办、即办即通”，大幅压缩通关时长，高效便捷的边检服务，为中俄院校研学交流、舰船开放参观、文化联谊等系列活动预留充足时间，全力赋能涉外海事文化交流。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:58 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:48 - [伊朗查封并没收22名与美以有关联人员财产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:46 - [俄美外长通话讨论国际局势和双边关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:51 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 13:11 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 13:03 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 13:11 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 13:07 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:49 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:50 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:53 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 13:10 - [中欧班列开行突破13万列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 13:08 - [A股再现国资“A吃A”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:50 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:50 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 13:17 - [个人办事，不只“能办”还要“好办、易办”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 13:08 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:57 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 13:05 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:56 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 13:14 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:52 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 13:06 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](http://www.blog.kurohicncr.top/Article/details/63948.shtml)
-- 2026-06-29 13:10 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](http://www.share.kurohicncr.top/Article/details/157606988.shtml)
-- 2026-06-29 13:01 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](http://www.share.minike.top/Article/details/549041881.shtml)
-- 2026-06-29 12:47 - [菲律宾失业率连续两个月回落](http://www.share.kurohicncr.top/Article/details/1506820546.shtml)
-- 2026-06-29 13:00 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](http://www.share.minike.top/Article/details/430610599397.shtml)
-- 2026-06-29 13:10 - [经纬线·青年习近平的“人生课堂”](http://www.blog.kurohicncr.top/Article/details/01845729.shtml)
-- 2026-06-29 12:43 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [S佳通涉信息披露违法违规，受损投资者可维权](http://www.share.minike.top/Article/details/34864972501.shtml)
-- 2026-06-29 12:58 - [2026年“香港高考”收官 文凭试加速迈向国际化](http://www.blog.minike.top/Article/details/7133973.shtml)
-- 2026-06-29 12:45 - [2026年全国残疾人足球公开赛在京举行](http://www.blog.kurohicncr.top/Article/details/11512138.shtml)
-- 2026-06-29 12:57 - [原油期货上涨 或因技术性反弹](http://www.blog.minike.top/Article/details/2485709876.shtml)
-- 2026-06-29 13:05 - [中东紧张局势冲击全球旅游业](http://www.share.minike.top/Article/details/5421384585.shtml)
-- 2026-06-29 13:03 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [国乒女团3比0瑞典 晋级世乒赛8强](http://www.blog.kurohicncr.top/Article/details/691784116168.shtml)
+- 2026-06-29 13:01 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](http://www.blog.minike.top/Article/details/090738553719.shtml)
+- 2026-06-29 12:58 - [唱响中国之声：中央音乐学院合唱团在俄演出](http://www.blog.minike.top/Article/details/1673130263.shtml)
+- 2026-06-29 12:54 - [永升服务于5月8日斥资41.04万港元回购20万股](http://www.share.kurohicncr.top/Article/details/41073134879.shtml)
+- 2026-06-29 13:16 - [祁连山 “生命方舟” 累计救助收容259只野生动物](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [早盘：标普500指数和纳斯达克综合再创历史新高](http://www.share.minike.top/Article/details/843276056.shtml)
+- 2026-06-29 13:17 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [离岸人民币汇率升破6.8，创三年多新高](http://www.share.kurohicncr.top/Article/details/38039.shtml)
+- 2026-06-29 13:10 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](http://www.blog.minike.top/Article/details/966311.shtml)
+- 2026-06-29 12:59 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](http://www.blog.minike.top/Article/details/195749.shtml)
+- 2026-06-29 12:58 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](http://www.share.minike.top/Article/details/4304099379.shtml)
+- 2026-06-29 12:49 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](http://www.blog.minike.top/Article/details/44809.shtml)
+- 2026-06-29 13:11 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](http://www.blog.minike.top/Article/details/2992943237.shtml)
+- 2026-06-29 13:08 - [光大证券，离头部券商越来越远](http://www.blog.minike.top/Article/details/78837186601.shtml)

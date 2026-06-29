@@ -1,52 +1,50 @@
-# 小摩：民生银行给予“中性”评级 目标价3.90港元
+# 收评|国内期货主力合约跌多涨少 多晶硅等跌超4%
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，给予民生银行（01988）“中性”评级，目标价3.90港元。该行认为，民生银行的减值支出超出预期，以及持续的资产质量忧虑，可能对盈利前景构成压力，另预期股价将面临轻微的负面反应。 报告中称，民生银行今年首季业绩逊预期，收入同比增3%，纯利同比倒退10%，主要因减值拨备较预期高出13%，抵销净息差按季反弹及手续费收入稳健增长等正面营运趋势。非手续费收入亦较预期
+2026年5月8日，国内期货主力合约跌多涨少，多晶硅、PX0>对二甲苯、纯苯跌超4%，乙二醇、PTA、BR橡胶、瓶片、低硫燃料油跌超3%。涨幅方面，集运欧线、沪银涨超3%，国际铜、沪铜、沪锡涨超1%。 责任编辑：赵思远
 
 ## 正文
 
-摩根大通发布研报称，给予民生银行（01988）“中性”评级，目标价3.90港元。
+2026年5月8日，国内期货主力合约跌多涨少，多晶硅、PX0>对二甲苯、纯苯跌超4%，乙二醇、PTA、BR橡胶、瓶片、低硫燃料油跌超3%。
 
-该行认为，民生银行的减值支出超出预期，以及持续的资产质量忧虑，可能对盈利前景构成压力，另预期股价将面临轻微的负面反应。
+涨幅方面，集运欧线、沪银涨超3%，国际铜、沪铜、沪锡涨超1%。
 
-报告中称，民生银行今年首季业绩逊预期，收入同比增3%，纯利同比倒退10%，主要因减值拨备较预期高出13%，抵销净息差按季反弹及手续费收入稳健增长等正面营运趋势。
-
-非手续费收入亦较预期疲弱，拖累总非利息收入较该行预期低2%。
-
-责任编辑：卢昱君
+责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-29 12:43 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 13:01 - [大摩：中国软件国际降至“减持”评级 目标价大削至2.6港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:59 - [文旅观察：浙南海岛褪去“看海”标签 业态焕新引热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 13:09 - [转型金融破局：货币政策如何发力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 13:11 - [利好突袭，中概狂飙！港股互联网共振向上，百亿513770涨近2%，阿里巴巴涨超3%，机构：5月互联网赔率最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:42 - [燃油价格飙升，韩国4月通胀率创21个月新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 13:00 - [投资逾百亿港元 港莞共建大湾区可持续航空燃料产业链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:47 - [Coinbase首席执行官称公司将裁员约14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:48 - [Anthropic“杀”进金融圈，联创称2028年底AI能自我进化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:43 - [全国大部降水增多 冷空气将自北向南制造降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:45 - [开盘：美股周二高开 油价回落与强劲财报提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:46 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 13:17 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:52 - [财税专家：教育培训等行业应全额一次性申报纳税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 13:07 - [《智能体规范应用与创新发展实施意见》答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:52 - [高盛：美图公司维持“买入”评级 目标价14.30港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:55 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:57 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 13:07 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:54 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 13:15 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:52 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:50 - [加州新计划：新生儿家庭将获数百片免费尿布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 13:02 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:54 - [2026世界杯美加墨三国将分别举办开幕式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:55 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:43 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](http://www.blog.minike.top/Article/details/862895832.shtml)
-- 2026-06-29 12:45 - [消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司](http://www.share.minike.top/Article/details/80745.shtml)
-- 2026-06-29 12:43 - [宁夏“五一”网络零售额突破9亿元 服务消费领跑假日经济](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [轰动一时的“臭氧层空洞”，正在自己悄悄长好，原因竟然是这个](http://www.blog.kurohicncr.top/Article/details/34415487.shtml)
-- 2026-06-29 13:10 - [云南各机场“五一”迎客超百万 民族风情圈粉八方来客](http://www.blog.minike.top/Article/details/74847275.shtml)
-- 2026-06-29 12:47 - [“五一”假期 重庆无人机灯光秀绘就夜空光影画卷](http://www.blog.minike.top/Article/details/4042819426.shtml)
-- 2026-06-29 13:03 - [购房新政叠加“五一”假期 多地楼市升温](http://www.blog.minike.top/Article/details/613569761.shtml)
-- 2026-06-29 12:59 - [滴普科技午前大涨逾21% 机构看好其营收高增](http://www.blog.minike.top/Article/details/82566418.shtml)
-- 2026-06-29 13:00 - [韩股飙涨6.45%首次突破7300点，创历史新高](http://www.share.kurohicncr.top/Article/details/69844520821.shtml)
-- 2026-06-29 13:00 - [酒价内参5月7日价格发布：青花郎领跌 总价创5天以来新低](http://www.share.kurohicncr.top/Article/details/57039137.shtml)
-- 2026-06-29 12:51 - [百亿明星私募被曝光“打新内幕”](http://www.blog.minike.top/Article/details/56276173.shtml)
-- 2026-06-29 12:53 - [被特朗普痛批后，美国食药局首次批准调味电子烟上市](http://www.blog.minike.top/Article/details/677964907.shtml)
-- 2026-06-29 12:45 - [体验式消费、IP联名活动 “五一”假期消费市场持续上新](http://www.share.minike.top/Article/details/3566697588.shtml)
-- 2026-06-29 12:48 - [Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元](http://www.blog.minike.top/Article/details/100589502.shtml)
-- 2026-06-29 13:04 - [情感赛道变形记](http://www.share.minike.top/Article/details/70636.shtml)
+- 2026-06-29 13:05 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](http://www.blog.kurohicncr.top/Article/details/955309322.shtml)
+- 2026-06-29 12:55 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](http://www.blog.minike.top/Article/details/0208256.shtml)
+- 2026-06-29 13:06 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](http://www.blog.minike.top/Article/details/07259808.shtml)
+- 2026-06-29 13:08 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](http://www.share.kurohicncr.top/Article/details/22182148.shtml)
+- 2026-06-29 13:03 - [汉坦病毒如何让Moderna重成“必持”股票](http://www.share.kurohicncr.top/Article/details/0910704492.shtml)
+- 2026-06-29 13:03 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](http://www.blog.minike.top/Article/details/4087870447.shtml)
+- 2026-06-29 13:09 - [英伟达重金押注光连接，AI的下一战场或在光纤](http://www.share.minike.top/Article/details/950703417474.shtml)
+- 2026-06-29 12:50 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](http://www.share.minike.top/Article/details/81202110.shtml)
+- 2026-06-29 12:53 - [习言道｜父母是孩子的第一任老师](http://www.share.minike.top/Article/details/886680162761.shtml)
+- 2026-06-29 12:59 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.blog.minike.top/Article/details/306300733.shtml)
+- 2026-06-29 12:50 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](http://www.share.minike.top/Article/details/3862534351.shtml)
+- 2026-06-29 13:02 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.blog.minike.top/Article/details/65102956.shtml)
+- 2026-06-29 12:53 - [社评：中国的“Country Walk”何以吸引西方年轻人](http://www.share.kurohicncr.top/Article/details/7770924.shtml)
+- 2026-06-29 12:58 - [Stifel在近期抛售后上调Shake Shack评级](http://www.share.minike.top/Article/details/57971.shtml)

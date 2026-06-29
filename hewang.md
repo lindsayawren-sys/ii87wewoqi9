@@ -1,59 +1,49 @@
-# 首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿
+# 中欧班列开行突破13万列
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-5.9%！今年一季度，甘肃经济增速高出全国平均水平0.9个百分点，连续第17个季度跑在全国平均线之上；全省工业增长贡献率达42%，规上工业战略性新兴产业增速达9.2%。 稳步攀升的曲线，展现发展的韧性活力。“十五五”首季，甘肃的亮眼答卷背后，是增长底盘愈发稳固，发展质效愈发凸显。 深居西北内陆，甘肃经济增长何以动能充沛？ 作为国家在西部地区布局的重要老工业基地，甘肃石油化工、有
+发布时间：2026年05月09日 16:38 来源：中国新闻网 记者从国铁集团获悉，2026年5月9日10时，随着开往德国汉堡的X8037次中欧班列从中国郑州圃田站发车，中欧班列历年累计开行突破13万列，发送货值超5200亿美元。 据介绍，目前，中国境内已有129个城市开通了中欧班列，通达欧洲26个国家235个城市以及11个亚洲国家超过100个城市，服务范围基本覆盖亚欧全境。
 
 ## 正文
 
-5.9%！
+发布时间：2026年05月09日 16:38 来源：中国新闻网 记者从国铁集团获悉，2026年5月9日10时，随着开往德国汉堡的X8037次中欧班列从中国郑州圃田站发车，中欧班列历年累计开行突破13万列，发送货值超5200亿美元。
 
-今年一季度，甘肃经济增速高出全国平均水平0.9个百分点，连续第17个季度跑在全国平均线之上；全省工业增长贡献率达42%，规上工业战略性新兴产业增速达9.2%。
+据介绍，目前，中国境内已有129个城市开通了中欧班列，通达欧洲26个国家235个城市以及11个亚洲国家超过100个城市，服务范围基本覆盖亚欧全境。
 
-稳步攀升的曲线，展现发展的韧性活力。
+随着中欧班列高质量发展，中欧班列境内外运输价格较开行初期降低40%以上，运送的货物达53个门类、5万多种商品，汽车汽配、机械设备、电子电气等高附加值货物成为中欧班列出口的主要货源，欧洲的木材、纸浆、特色农副产品和日常消费品也通过班列进入中国市场。
 
-“十五五”首季，甘肃的亮眼答卷背后，是增长底盘愈发稳固，发展质效愈发凸显。
-
-深居西北内陆，甘肃经济增长何以动能充沛？
-
-作为国家在西部地区布局的重要老工业基地，甘肃石油化工、有色冶金、装备制造等产业底蕴厚重，但也曾长期依赖传统路径，产业结构偏重、产业链条偏短、产品附加值不高，一度步履沉重。
-
-当东部地区抢抓低空经济、智能科技、前沿通信等新质生产力赛道竞相起跑时，甘肃该如何追赶进位？
-
-探索和思考中，全省上下形成清醒共识：培育发展新质生产力，不能简单“喜新厌旧”、摒弃传统产业，把“老家底”一概视作落后产能。
+(记者 刘超 视频来源 国铁郑州局） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:03 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:50 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 13:11 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 13:03 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:54 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:43 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 13:06 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:50 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:56 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:47 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 13:11 - [南京银行：印建军担任业务总监的任职资格获监管核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:59 - [房产租赁毛利率下滑，汇通能源经营遇考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:17 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:54 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 13:04 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 13:06 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 13:00 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:53 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 13:15 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 13:10 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 13:14 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:56 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 13:06 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [S佳通涉信息披露违法违规，受损投资者可维权](http://www.blog.minike.top/Article/details/96124.shtml)
-- 2026-06-29 13:08 - [2026年“香港高考”收官 文凭试加速迈向国际化](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [2026年全国残疾人足球公开赛在京举行](http://www.share.kurohicncr.top/Article/details/655351899.shtml)
-- 2026-06-29 13:08 - [原油期货上涨 或因技术性反弹](http://www.share.kurohicncr.top/Article/details/440111544.shtml)
-- 2026-06-29 12:58 - [中东紧张局势冲击全球旅游业](http://www.share.kurohicncr.top/Article/details/28451412.shtml)
-- 2026-06-29 13:09 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](http://www.blog.minike.top/Article/details/3656427.shtml)
-- 2026-06-29 12:54 - [国乒女团3比0瑞典 晋级世乒赛8强](http://www.blog.minike.top/Article/details/180017536.shtml)
-- 2026-06-29 13:07 - [小摩：民生银行给予“中性”评级 目标价3.90港元](http://www.blog.kurohicncr.top/Article/details/2613343.shtml)
-- 2026-06-29 13:01 - [山东省枣庄市青檀学校：榴乡厚土育同心](http://www.blog.minike.top/Article/details/447512373.shtml)
-- 2026-06-29 13:09 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](http://www.blog.minike.top/Article/details/0903817099.shtml)
-- 2026-06-29 12:49 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](http://www.blog.kurohicncr.top/Article/details/657565.shtml)
-- 2026-06-29 12:42 - [成本压力持续传导 全球消费品企业竞相涨价](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](http://www.share.kurohicncr.top/Article/details/678915.shtml)
-- 2026-06-29 12:52 - [穿越百年航海史 “时光邮轮”驶入吉林长春](http://www.share.kurohicncr.top/Article/details/73618659.shtml)
+- 2026-06-29 13:09 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](http://www.share.kurohicncr.top/Article/details/9260322513.shtml)
+- 2026-06-29 13:09 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](http://www.share.kurohicncr.top/Article/details/61822.shtml)
+- 2026-06-29 13:05 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](http://www.blog.minike.top/Article/details/03176.shtml)
+- 2026-06-29 12:59 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](http://www.share.kurohicncr.top/Article/details/93827766.shtml)
+- 2026-06-29 12:54 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](http://www.share.kurohicncr.top/Article/details/57510026.shtml)
+- 2026-06-29 13:09 - [光大证券，离头部券商越来越远](http://www.blog.minike.top/Article/details/666722748.shtml)
+- 2026-06-29 13:11 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.share.minike.top/Article/details/385665353532.shtml)
+- 2026-06-29 12:48 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](http://www.blog.minike.top/Article/details/71306407022.shtml)
+- 2026-06-29 13:07 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.share.kurohicncr.top/Article/details/0031383363.shtml)
+- 2026-06-29 13:12 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.blog.kurohicncr.top/Article/details/757675349587.shtml)
+- 2026-06-29 12:55 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.blog.minike.top/Article/details/05850.shtml)
+- 2026-06-29 13:16 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](http://www.blog.minike.top/Article/details/5220057.shtml)
+- 2026-06-29 12:50 - [工信部启动人工智能科技伦理审查与服务先导计划](http://www.blog.kurohicncr.top/Article/details/601807444.shtml)

@@ -1,45 +1,61 @@
-# Coinbase首席执行官称公司将裁员约14%
+# 在华庆祝“欧洲日” 欧盟强调持续对话与合作
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-Coinbase首席执行官Brian Armstrong在X平台的一篇帖子中表示，公司将裁员约14%，并转而专注于具备人工智能专业背景的人才。责任编辑：陈钰嘉
+发布时间：2026年05月09日 10:37 来源：中国新闻网 欧盟驻华代表团5月8日在欧盟驻华使馆举办2026年“欧洲日”庆祝活动。 中欧逾千名各界人士齐聚交流。欧盟27个成员国“摆摊儿”展示欧洲多元文化和共同价值理念。现场音乐表演和“承古启今”欧洲遗产摄影展也为庆祝活动增添互动体验。 欧盟驻华代表团团长庹尧诲(Jorge Toledo)发表致辞时强调，在不断演变的全球格局中
 
 ## 正文
 
-Coinbase首席执行官Brian Armstrong在X平台的一篇帖子中表示，公司将裁员约14%，并转而专注于具备人工智能专业背景的人才。
+发布时间：2026年05月09日 10:37 来源：中国新闻网 欧盟驻华代表团5月8日在欧盟驻华使馆举办2026年“欧洲日”庆祝活动。
 
-责任编辑：陈钰嘉
+中欧逾千名各界人士齐聚交流。
+
+欧盟27个成员国“摆摊儿”展示欧洲多元文化和共同价值理念。
+
+现场音乐表演和“承古启今”欧洲遗产摄影展也为庆祝活动增添互动体验。
+
+欧盟驻华代表团团长庹尧诲(Jorge Toledo)发表致辞时强调，在不断演变的全球格局中，欧中持续对话与深化合作具有重要意义。
+
+“庆祝‘欧洲日’提醒人们，和平、繁荣和团结不是必然，而是通过努力、合作和共同目标一步一个脚印地实现的”，他指出，“在当今复杂而充满不确定性的世界里，这比以往任何时候都更重要。
+
+” 他表示，欧盟始终愿与中国接触，以明确的、相互尊重的方式解决分歧并深化合作。
+
+在相互依存共同塑造的世界中，欧中未来始终紧密相连。
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [成都铁路迎“五一”假期客流返程高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:54 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:53 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 13:00 - [广东建成内地规模最大欧标充电服务网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 13:08 - [AI、国防与气候：重塑全球增长格局的三大支柱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 13:07 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:56 - [重庆市酉阳县委书记杨通胜接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:42 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:47 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:44 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:51 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:51 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 13:03 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 13:08 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 13:10 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 13:04 - [新疆加快打造全国优质农牧产品重要供给基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:53 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 13:00 - [黄金周线有望录得上涨，或将突破箱体压力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 13:15 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 13:00 - [第48届东盟峰会在菲律宾举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 13:02 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 13:14 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:59 - [普京谈与泽连斯基会面：不主动 不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 13:08 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 13:04 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:55 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:49 - [情感赛道变形记](http://www.blog.minike.top/Article/details/50276.shtml)
-- 2026-06-29 12:51 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](http://www.blog.minike.top/Article/details/48563078.shtml)
-- 2026-06-29 12:49 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](http://www.blog.minike.top/Article/details/790627.shtml)
-- 2026-06-29 13:03 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](http://www.blog.minike.top/Article/details/372288.shtml)
-- 2026-06-29 12:57 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](http://www.blog.minike.top/Article/details/650673583.shtml)
-- 2026-06-29 12:58 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [今天全国铁路预计发送旅客2300万人次](http://www.share.minike.top/Article/details/303178279539.shtml)
-- 2026-06-29 12:55 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/2206793.shtml)
-- 2026-06-29 12:53 - [“五一”假期浙江口岸出入境人员超10万人次](http://www.blog.minike.top/Article/details/89499287.shtml)
-- 2026-06-29 12:51 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](http://www.blog.minike.top/Article/details/94677681.shtml)
-- 2026-06-29 12:55 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](http://www.share.minike.top/Article/details/1273577943.shtml)
-- 2026-06-29 12:46 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](http://www.blog.minike.top/Article/details/08328134.shtml)
-- 2026-06-29 13:05 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](http://www.blog.minike.top/Article/details/3262770259.shtml)
-- 2026-06-29 12:56 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](http://www.share.kurohicncr.top/Article/details/261829927005.shtml)
-- 2026-06-29 13:10 - [93.59万人次“五一”打卡太原文博 门票收入破千万](http://www.share.minike.top/Article/details/03319.shtml)
+- 2026-06-29 12:53 - [Stifel在近期抛售后上调Shake Shack评级](http://www.share.kurohicncr.top/Article/details/4233101.shtml)
+- 2026-06-29 13:02 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](http://www.blog.minike.top/Article/details/8181412495.shtml)
+- 2026-06-29 13:11 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [德银高管：美伊停战情境下 油价或下探每桶85美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](http://www.blog.kurohicncr.top/Article/details/827869696603.shtml)
+- 2026-06-29 13:00 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](http://www.blog.kurohicncr.top/Article/details/3545760994.shtml)
+- 2026-06-29 13:07 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](http://www.share.kurohicncr.top/Article/details/439133573.shtml)
+- 2026-06-29 13:00 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](http://www.blog.minike.top/Article/details/37227012788.shtml)
+- 2026-06-29 12:54 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](http://www.blog.minike.top/Article/details/72984786.shtml)
+- 2026-06-29 12:49 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](http://www.share.minike.top/Article/details/9513730.shtml)
+- 2026-06-29 13:11 - [特朗普称俄罗斯和乌克兰将在5月9日至11日期间停火三天](http://www.share.kurohicncr.top/Article/details/975704384.shtml)

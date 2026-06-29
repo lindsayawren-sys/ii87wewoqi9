@@ -1,61 +1,58 @@
-# 汉堡王母公司RBI季度业绩超预期，价值套餐需求推动增长
+# 10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-Restaurant Brands International公布的第一季度财报显示，其营收和利润均超出华尔街预期，主要得益于消费者对价值套餐的强劲需求以及汉堡王品牌的成功转型。 财报数据显示，公司第一季度营收为22.6亿美元，同比增长7%，高于市场预期的22.4亿美元；调整后每股收益为86美分，超过分析师预期的82-83美分。净利润从去年同期的1.59亿美元大幅增至3.38亿
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：南方财经 记者 翁榕涛 广州报道 随着去年以来A股市场交投火热，证券行业整体迎来业绩修复周期，广东作为国内资本市场的核心腹地，辖内16家持牌证券公司的经营表现备受市场关注。 南方财经全媒体记者梳理Wind数据及上市公司公告发现，2025年广东16家券商合计实现营业收入2070.54亿元，同比增长近20
 
 ## 正文
 
-Restaurant Brands International公布的第一季度财报显示，其营收和利润均超出华尔街预期，主要得益于消费者对价值套餐的强劲需求以及汉堡王品牌的成功转型。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-财报数据显示，公司第一季度营收为22.6亿美元，同比增长7%，高于市场预期的22.4亿美元；调整后每股收益为86美分，超过分析师预期的82-83美分。
+来源：南方财经 记者 翁榕涛 广州报道 随着去年以来A股市场交投火热，证券行业整体迎来业绩修复周期，广东作为国内资本市场的核心腹地，辖内16家持牌证券公司的经营表现备受市场关注。
 
-净利润从去年同期的1.59亿美元大幅增至3.38亿美元。
+南方财经全媒体记者梳理Wind数据及上市公司公告发现，2025年广东16家券商合计实现营业收入2070.54亿元，同比增长近20%，合计实现净利润845.25亿元，同比增长超39%，行业整体盈利水平显著回升。
 
-期内全球系统销售额增长6.2%，同店销售增长3.2%。
+若以中国证券业协会提供的数据计算，广东16家券商虽然数量仅占全行业的10%左右，但累计营收占整个证券行业总营收的38.26%，净利润占全行业比重为38.51%，是国内当之无愧的“资本高地”。
 
-各品牌表现分化明显。
+不过，亮眼数据背后是行业内愈发显著的业绩分化：头部券商凭借规模优势与多元业务布局持续巩固龙头地位，中小券商则呈现出盈亏两极分化的格局，部分机构净利润增速超100%，也有机构净利润同比下滑近九成。
 
-核心增长引擎汉堡王美国市场同店销售增长5.8%，大幅超出市场预期的3.5%。
+与此同时，以AI战略为核心的数字化转型、财富管理升级、深耕特色赛道，正成为广东券商战略布局的核心方向，行业竞争格局正在迎来新一轮重塑。
 
-汉堡王“重燃火焰”计划的成效持续显现，公司对皇堡进行了原料升级，并推出3.99美元儿童套餐等价值产品，有效提升了客流量和复购率。
+业绩分化加剧 自营业务成关键变量 随着2026年4月底A股上市公司一季报披露收官，广东已披露一季报的6家券商，交出了“温差”显著的业绩答卷，也折射出行业马太效应持续强化的发展现状。
 
-此外，Tim Hortons和国际业务均实现了连续第20个季度的同店销售正增长，其中加拿大市场增长1.5%，国际业务增长5.7%。
+从两家头部券商表现来看，营收与净利润均实现两位数以上的稳健高增。
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [假期最后一天铁路迎返京高峰 受大风影响部分列车晚点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 13:03 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:56 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:47 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 13:00 - [年轻人假期热衷贵阳“寻咖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 13:10 - [富通科技公布于5月6日下午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:59 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:05 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 13:05 - [追光的你｜青春的颜色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 13:05 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:58 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:57 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:47 - [特朗普称将暂停自由计划“一小段时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:52 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 13:01 - [青春之喻，奋斗之帆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:50 - [通胀侵蚀消费支出 英国到店客流下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:53 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 13:01 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:51 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 13:14 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:48 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 13:10 - [AI时代，全球教育正面临三层重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 13:04 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:49 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:58 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 13:06 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 13:05 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:48 - [伊朗：尚未回应美国对伊方14点提议的看法](http://www.share.kurohicncr.top/Article/details/28687583.shtml)
-- 2026-06-29 13:10 - [5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体](http://www.blog.kurohicncr.top/Article/details/84909.shtml)
-- 2026-06-29 13:00 - [生猪板块升温，期股共振释放什么信号？](http://www.blog.kurohicncr.top/Article/details/6665017.shtml)
-- 2026-06-29 12:45 - [美国股市：标普500指数续创新高 AMD大涨与中东和平预期提振市场](http://www.blog.minike.top/Article/details/11912882042.shtml)
-- 2026-06-29 12:50 - [午盘：美股继续上扬 纳指创盘中新高](http://www.share.minike.top/Article/details/909321.shtml)
-- 2026-06-29 12:55 - [路易丝·阿伯将出任第31任加拿大总督](http://www.blog.kurohicncr.top/Article/details/274269.shtml)
-- 2026-06-29 13:04 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](http://www.blog.minike.top/Article/details/12823913.shtml)
-- 2026-06-29 12:50 - [离境退税“即买即退”跨省互认进一步扩围](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [哈塞特：没有参与私募信贷的人不必担心](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](http://www.blog.kurohicncr.top/Article/details/5410695.shtml)
-- 2026-06-29 12:51 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](http://www.blog.minike.top/Article/details/565584825001.shtml)
-- 2026-06-29 12:58 - [黄金突破4700美元，分析师警示风险犹存](http://www.blog.minike.top/Article/details/260262.shtml)
-- 2026-06-29 12:53 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](http://www.blog.kurohicncr.top/Article/details/755073497487.shtml)
-- 2026-06-29 13:02 - [“市场依然可为！”基金经理看好节后三大主线](http://www.blog.minike.top/Article/details/596276720056.shtml)
+- 2026-06-29 13:14 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](http://www.share.kurohicncr.top/Article/details/38799166677.shtml)
+- 2026-06-29 13:16 - [高开低走，油脂后市何去何从？](http://www.share.minike.top/Article/details/22033076.shtml)
+- 2026-06-29 13:15 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:08 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](http://www.blog.minike.top/Article/details/27867.shtml)
+- 2026-06-29 12:57 - [享界S9零重力座椅事件，给车企和用户都提了个醒](http://www.blog.minike.top/Article/details/840548488837.shtml)
+- 2026-06-29 13:01 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](http://www.share.minike.top/Article/details/10989734.shtml)
+- 2026-06-29 13:15 - [湖北武汉：初夏时节 花田花海美不胜收](http://www.share.kurohicncr.top/Article/details/1840126017.shtml)
+- 2026-06-29 13:17 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](http://www.blog.minike.top/Article/details/825825.shtml)
+- 2026-06-29 12:58 - [A股1300亿算力巨头协创数据，净利润猛增343%](http://www.blog.minike.top/Article/details/00715.shtml)
+- 2026-06-29 13:17 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](http://www.blog.minike.top/Article/details/54589536.shtml)
+- 2026-06-29 13:09 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](http://www.blog.minike.top/Article/details/84957024244.shtml)
+- 2026-06-29 12:48 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](http://www.share.minike.top/Article/details/72635730053.shtml)
+- 2026-06-29 12:54 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:12 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](http://www.share.kurohicncr.top/Article/details/36556232137.shtml)

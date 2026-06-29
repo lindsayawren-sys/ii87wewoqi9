@@ -1,56 +1,56 @@
-# 霍尔木兹海峡激战升级，美军打击伊朗快艇，阿联酋遭袭
+# 美国联邦政府4月再减9000个岗位，特朗普政府裁员计划持续推进
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-随着美国正式启动名为“自由计划”的军事行动以强行打通霍尔木兹海峡，美伊之间的脆弱停火在周一宣告破裂。双方爆发了自4月初停火以来最激烈的冲突，美军在护送被困船只通过时与伊朗伊斯兰革命卫队海军直接交火，伊朗则首次将战火蔓延至阿联酋本土。 美军中央司令部证实，在护送两艘悬挂美国国旗的商船通过海峡时，遭到了伊朗无人机、导弹及大量快速攻击艇的围攻。作为回应，美军动用直升机摧毁了7艘伊朗快
+美国劳工统计局周五公布的数据显示，4月份联邦政府就业人数减少9000人，这是继3月份减少3000人之后的进一步收缩。这一裁员趋势与特朗普政府通过“政府效率部”推动的联邦 workforce 精简计划直接相关。 裁员背景 自今年1月特朗普正式启动第二任期以来，由马斯克和拉马斯瓦米共同领导的“政府效率部”已推动多项行政命令，要求各联邦机构实施“ attrition-based re
 
 ## 正文
 
-随着美国正式启动名为“自由计划”的军事行动以强行打通霍尔木兹海峡，美伊之间的脆弱停火在周一宣告破裂。
+美国劳工统计局周五公布的数据显示，4月份联邦政府就业人数减少9000人，这是继3月份减少3000人之后的进一步收缩。
 
-双方爆发了自4月初停火以来最激烈的冲突，美军在护送被困船只通过时与伊朗伊斯兰革命卫队海军直接交火，伊朗则首次将战火蔓延至阿联酋本土。
+这一裁员趋势与特朗普政府通过“政府效率部”推动的联邦 workforce 精简计划直接相关。
 
-美军中央司令部证实，在护送两艘悬挂美国国旗的商船通过海峡时，遭到了伊朗无人机、导弹及大量快速攻击艇的围攻。
+裁员背景 自今年1月特朗普正式启动第二任期以来，由马斯克和拉马斯瓦米共同领导的“政府效率部”已推动多项行政命令，要求各联邦机构实施“ attrition-based reductions”和“自愿离职激励计划”。
 
-作为回应，美军动用直升机摧毁了7艘伊朗快艇，并拦截了多枚来袭导弹。
+4月份的裁员涉及多个部门，包括内政部、教育部和住房与城市发展部，其中部分员工接受了一次性买断方案主动离职，另有一部分岗位因招聘冻结而自然减员。
 
-指挥官库珀称，“自由计划”已成功在霍尔木兹海峡开辟出一条无雷的安全通道。
+与此同时，美国人事管理办公室曾于今年2月向全体联邦雇员发送邮件，要求他们在“ deferred resignation program”中做出选择，该计划在上个月结束。
 
-伊朗方面否认有任何舰艇被美军击中，坚称美方关于击沉快艇的说法是“毫无根据的谎言”，并宣布已扩大其在霍尔木兹海峡的实际控制海域。
+与私营部门就业对比 值得注意的是，4月份整体非农就业新增11.5万个岗位，远超经济学家预期。
 
-与此同时，冲突范围急剧扩大——阿联酋防空系统当天拦截了约20枚从伊朗发射的弹道导弹、巡航导弹和无人机。
+这意味着联邦政府的裁员被私营部门和服务业的强劲招聘所抵消。
 
-但其东部富查伊拉港的石油工业区仍被一架无人机击中，引发大火并导致3名印度籍员工受伤。
+休闲酒店业、医疗保健和建筑行业是就业增长的主要驱动力。
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [维格维口服减肥药销量大幅超预期，诺和诺德股价大涨7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:48 - [AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:50 - [外媒：伊朗已启动霍尔木兹海峡通行管理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:49 - [潍柴动力午后涨逾4%再创新高 小摩维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 13:11 - [“五一”假期江苏接待国内游客3758.98万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:57 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:59 - [宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:46 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 13:04 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:55 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 13:08 - [外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:58 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 13:13 - [李成钢：积极推动APEC贸易部长会议围绕两方面议题达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 13:01 - [被拖欠片酬，演员喊话要求《平乐赋》下架，爱奇艺回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:52 - [大美边疆看我家丨黑龙江牡丹江：熔岩台地杏花如雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:56 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 13:10 - [红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 13:11 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 13:09 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:52 - [万份收益不足3毛，天弘余额宝连续6天“七日年化收益率”低于1％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:00 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [追光的你｜青春的颜色](http://www.share.minike.top/Article/details/81839615312.shtml)
-- 2026-06-29 12:56 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](http://www.blog.minike.top/Article/details/189820451.shtml)
-- 2026-06-29 13:04 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](http://www.blog.minike.top/Article/details/057626826001.shtml)
-- 2026-06-29 12:42 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](http://www.blog.kurohicncr.top/Article/details/417571291870.shtml)
-- 2026-06-29 12:42 - [特朗普称将暂停自由计划“一小段时间”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.share.kurohicncr.top/Article/details/720579.shtml)
-- 2026-06-29 12:54 - [青春之喻，奋斗之帆](http://www.blog.kurohicncr.top/Article/details/4373134.shtml)
-- 2026-06-29 12:48 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.share.minike.top/Article/details/9070017644.shtml)
-- 2026-06-29 13:10 - [伊朗查封并没收22名与美以有关联人员财产](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [俄美外长通话讨论国际局势和双边关系](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](http://www.share.kurohicncr.top/Article/details/264614274221.shtml)
-- 2026-06-29 12:48 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](http://www.blog.minike.top/Article/details/0450505449.shtml)
-- 2026-06-29 12:59 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.share.minike.top/Article/details/572721370.shtml)
-- 2026-06-29 13:09 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.blog.kurohicncr.top/Article/details/830376438355.shtml)
+- 2026-06-29 13:15 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](http://www.share.minike.top/Article/details/246726905.shtml)
+- 2026-06-29 13:03 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.blog.kurohicncr.top/Article/details/210647577.shtml)
+- 2026-06-29 13:08 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:08 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](http://www.blog.minike.top/Article/details/97700642.shtml)
+- 2026-06-29 12:56 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](http://www.share.kurohicncr.top/Article/details/5282074.shtml)
+- 2026-06-29 12:49 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [坚持有腐必反、有贪必肃](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:10 - [信利国际于5月8日耗资103万港元回购100万股](http://www.blog.kurohicncr.top/Article/details/907871620.shtml)
+- 2026-06-29 12:58 - [中欧班列开行突破13万列](http://www.share.minike.top/Article/details/901452.shtml)
+- 2026-06-29 13:03 - [A股再现国资“A吃A”！](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:12 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.share.kurohicncr.top/Article/details/9973466426.shtml)
+- 2026-06-29 12:52 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.share.kurohicncr.top/Article/details/2695902.shtml)
+- 2026-06-29 13:02 - [个人办事，不只“能办”还要“好办、易办”](http://www.blog.kurohicncr.top/Article/details/6983707506.shtml)
+- 2026-06-29 13:07 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](http://www.blog.kurohicncr.top/Article/details/596592310.shtml)
+- 2026-06-29 12:54 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lisacumin64-arch)

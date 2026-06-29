@@ -1,57 +1,57 @@
-# 百亿明星私募被曝光“打新内幕”
+# 宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资事堂 作者 |郑孝杰 编辑 | 袁畅 在A股市场的网下打新舞台上，百亿规模的主观多头私募一直是不可或缺的重要角色。 但这套规则清晰、看似收益稳定的“打新”操作中，私募机构们的每一次报价与申购的背后，是如何完成内部协作、信息传递与投资觉得，外界掌握的并不清楚。 近日，随着中国证券业协会一纸自律决定书的
+中新网固原5月9日电 (记者 李佩珊)5月9日，宁夏固原市2026年“乡村振兴杯”市级农民篮球赛(村BA)收官，这场接地气的群众体育活动，丰富了基层群众文体生活，以体育赋能乡村发展，绘就和美乡村崭新画卷。 此次“村BA”赛事规模盛大，汇聚固原市各地19支参赛队伍踊跃参赛，参赛人员来自普通农民、基层务工人员、乡村青年、个体经营者等各行各业，群众参与热情高涨。本届赛事新增女子参赛组
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网固原5月9日电 (记者 李佩珊)5月9日，宁夏固原市2026年“乡村振兴杯”市级农民篮球赛(村BA)收官，这场接地气的群众体育活动，丰富了基层群众文体生活，以体育赋能乡村发展，绘就和美乡村崭新画卷。
 
-来源：资事堂 作者 |郑孝杰 编辑 | 袁畅 在A股市场的网下打新舞台上，百亿规模的主观多头私募一直是不可或缺的重要角色。
+此次“村BA”赛事规模盛大，汇聚固原市各地19支参赛队伍踊跃参赛，参赛人员来自普通农民、基层务工人员、乡村青年、个体经营者等各行各业，群众参与热情高涨。
 
-但这套规则清晰、看似收益稳定的“打新”操作中，私募机构们的每一次报价与申购的背后，是如何完成内部协作、信息传递与投资觉得，外界掌握的并不清楚。
+本届赛事新增女子参赛组别，打破以往单一男子竞技模式，成为本次赛事一大亮眼特色。
 
-近日，随着中国证券业协会一纸自律决定书的披露，一家知名百亿私募机构们的打新操作系统中的“真实齿轮”与“运作痕迹”，得以曝光。
+当天的总决赛赛场氛围热烈，座无虚席，阵阵助威呐喊声此起彼伏。
 
-这份文件不仅指向一家明星机构的操作瑕疵，更如同为外界提供了一幅审视行业潜在漏洞的“全景切片”，将那些长期被忽视的内部环节和投研逻辑，清晰地呈现出来…．． 01 一份自律措施决定书揭开“内幕” 近日，中国证券业协会网站发布《关于对深圳市林园投资管理有限责任公司采取责令改正以及要求参加合规教育的自律措施决定》。
+女子组比拼紧张焦灼，双方队员奋勇争先，灵活跑位、精准传球、果断投篮，每一次攻防都引得现场观众阵阵欢呼。
 
-而这份自律措施决定书，首次将这家百亿主观多头私募的网下“打新”的“内幕”完整揭示。
+最终，原州区一队凭借扎实功底与默契配合，斩获女子组总冠军。
 
-所谓“打新”，指投资者参与上市公司首次公开发行证券的投资行为。
+男子组决赛上演强强对决，两支西吉县本土队伍同台竞技，比分你追我赶、交替攀升，对抗节奏紧凑激烈。
 
-而网下询价作为新股发行的重要环节，因其拥有较高中签率及较高专业度而备受关注。
+经过全程奋力比拼，西吉县兴隆镇代表队摘得男子组桂冠。
 
 ## 相关推荐
 
-- 2026-06-29 12:42 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 13:08 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:55 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 13:03 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 13:06 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:43 - [“五一”假期浙江口岸出入境人员超10万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 13:09 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:59 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:42 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 13:02 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 13:00 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 13:07 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:57 - [德银高管：美伊停战情境下 油价或下探每桶85美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:53 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 13:09 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:59 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 13:11 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 13:16 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:50 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:56 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:48 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:54 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [InflaRx完成1.5亿美元普通股发行定价](http://www.share.kurohicncr.top/Article/details/0800498728.shtml)
-- 2026-06-29 12:51 - [Alphabet发行欧元和加元债券 合计融资近170亿美元](http://www.blog.minike.top/Article/details/4738313579.shtml)
-- 2026-06-29 13:05 - [美官员透露：美伊拟达成一页纸备忘录以结束战事](http://www.blog.kurohicncr.top/Article/details/986016.shtml)
-- 2026-06-29 12:48 - [AMD营收及业绩指引均超预期，股价暴涨16%](http://www.blog.minike.top/Article/details/32458537465.shtml)
-- 2026-06-29 12:50 - [皇朝家居就清远市的生产厂房订立租赁协议](http://www.share.minike.top/Article/details/52745.shtml)
-- 2026-06-29 13:05 - [中信证券：银行板块投资风格仍将延续，全年绝对收益可期](http://www.blog.kurohicncr.top/Article/details/811622328.shtml)
-- 2026-06-29 12:50 - [书香伴假日 奋斗自芳华](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [以色列自停火以来首次袭击贝鲁特 称旨在清除真主党精锐部队指挥官](http://www.share.minike.top/Article/details/4705744.shtml)
-- 2026-06-29 12:53 - [广西开展专题调研——探寻八桂大地上的团结密码](http://www.blog.minike.top/Article/details/954467873.shtml)
-- 2026-06-29 13:05 - [2026年“五一”假期宁夏刑事、治安警情同比“双下降”](http://www.share.minike.top/Article/details/873900404.shtml)
-- 2026-06-29 12:59 - [中国车企“扫货”海外闲置产能](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [重组完成28个月后，中国奥园为何再陷境外债违约？](http://www.share.kurohicncr.top/Article/details/858563438047.shtml)
-- 2026-06-29 12:59 - [越疆午前涨超5% 越疆创业板IPO申请获深交所受理](http://www.share.minike.top/Article/details/0274075031.shtml)
-- 2026-06-29 13:08 - [谨记骑乘电动车戴牢头盔 北京明日各主要路口路段将增设执勤警力](http://www.blog.minike.top/Article/details/93583.shtml)
-- 2026-06-29 12:50 - [惠誉将阿根廷信用评级上调至B- 展望稳定](http://www.blog.minike.top/Article/details/5861302574.shtml)
+- 2026-06-29 13:11 - [泰柬领导人在菲律宾讨论两国边境局势](http://www.share.kurohicncr.top/Article/details/4626324.shtml)
+- 2026-06-29 13:09 - [中国国防部：“航母五件套”是人民海军加速转型建设重要成果](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [福建省“环戴云山”OPC联盟在德化成立](http://www.share.kurohicncr.top/Article/details/169455041111.shtml)
+- 2026-06-29 13:10 - [香港漫游记：冠冕与胸针的自如切换 来看看维多利亚时期珠宝设计的智慧](http://www.blog.kurohicncr.top/Article/details/59627702454.shtml)
+- 2026-06-29 13:07 - [白帆竞展吴淞口 上海宝山邮轮港打造水上运动高地](http://www.blog.kurohicncr.top/Article/details/88288690877.shtml)
+- 2026-06-29 12:48 - [《主角》从文坛到荧屏：一曲秦腔半生沉浮](http://www.blog.kurohicncr.top/Article/details/2297700185.shtml)
+- 2026-06-29 12:59 - [天津皇会踩街巡游 两岸信众共迎妈祖诞辰](http://www.blog.kurohicncr.top/Article/details/04757302.shtml)
+- 2026-06-29 12:57 - [中远海发于5月8日斥资408.85万元回购150万股A股](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:14 - [中国空天领域百余家单位联合倡议 共建千星规模“太空云”生态](http://www.blog.minike.top/Article/details/2571500.shtml)
+- 2026-06-29 13:04 - [赖清德跪拜日本人被批“无耻无骨无格”](http://www.blog.minike.top/Article/details/5542346.shtml)
+- 2026-06-29 13:14 - [华尔街收低，芯片股回吐涨幅](http://www.blog.kurohicncr.top/Article/details/846734.shtml)
+- 2026-06-29 13:05 - [江西省人大常委会委员喻晓社接受审查调查](http://www.share.minike.top/Article/details/5828336.shtml)
+- 2026-06-29 12:55 - [外交部：希望欧方全面客观积极看待中欧经贸关系](http://www.blog.minike.top/Article/details/242831737197.shtml)
+- 2026-06-29 13:02 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.share.kurohicncr.top/Article/details/434805711.shtml)
+- 2026-06-29 13:03 - [美国非农数据公布前市场情绪趋于谨慎，黄金维持小幅震荡](http://www.blog.kurohicncr.top/Article/details/024762862.shtml)

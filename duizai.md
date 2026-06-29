@@ -1,57 +1,56 @@
-# 被特朗普痛批后，美国食药局首次批准调味电子烟上市
+# 美国债市：非农就业数据以及油价持稳推动国债小幅上涨
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-美国食品药品管理局（FDA）于当地时间周二批准了水果口味电子烟的上市，这是该机构首次批准非烟草口味的电子烟产品上市。此举正值FDA面临越来越大的政治压力之际。 FDA表示，此次获批的电子烟烟弹来自洛杉矶的Glas公司，该公司是一家小型电子烟制造商，采用技术手段来限制其设备的使用年龄。获批的口味包括经典薄荷、清新薄荷、黄金和蓝宝石。 美国食品药品管理局表示：“FDA对这些产品进行
+由于非农就业报告喜忧参半，周五美国国债价格受限于窄幅区间，不过油价持稳使整个收益率曲线相较周四收盘水平小幅收低。 纽约时间下午3点刚过不久，整个收益率曲线下降1个基点至3个基点，曲线中段债券领涨，使2s5s30s蝶式利差当天收窄近2个基点。 10年期国债收益率收于4.365%左右，处于当周4.314%至4.462%区间的中部附近。 美国上午时段，4月份非农就业报告公布后，美国国
 
 ## 正文
 
-美国食品药品管理局（FDA）于当地时间周二批准了水果口味电子烟的上市，这是该机构首次批准非烟草口味的电子烟产品上市。
+由于非农就业报告喜忧参半，周五美国国债价格受限于窄幅区间，不过油价持稳使整个收益率曲线相较周四收盘水平小幅收低。
 
-此举正值FDA面临越来越大的政治压力之际。
+纽约时间下午3点刚过不久，整个收益率曲线下降1个基点至3个基点，曲线中段债券领涨，使2s5s30s蝶式利差当天收窄近2个基点。
 
-FDA表示，此次获批的电子烟烟弹来自洛杉矶的Glas公司，该公司是一家小型电子烟制造商，采用技术手段来限制其设备的使用年龄。
+10年期国债收益率收于4.365%左右，处于当周4.314%至4.462%区间的中部附近。
 
-获批的口味包括经典薄荷、清新薄荷、黄金和蓝宝石。
+美国上午时段，4月份非农就业报告公布后，美国国债走高。
 
-美国食品药品管理局表示：“FDA对这些产品进行了严格的科学审查，结果表明申请人已充分证明，Glas的设备访问限制技术，结合FDA要求的市场限制，有望有效降低青少年使用该产品的可能性。
+该报告显示薪资数据略低于预期，失业率维持在4.3%不变。
 
-” 当天早些时候有报道称，美国总统特朗普上周末曾斥责FDA局长马蒂·马卡里，指责其批准调味电子烟和尼古丁产品的速度不够快。
+截至当天收盘，与美联储会议日期挂钩的隔夜指数掉期显示，12月合约仍计入约3个基点的加息溢价，周四收盘时为5个基点。
 
-美国监管机构一直避免向电子烟发放许可证，FDA也表示，对于水果或糖果等对青少年极具吸引力的口味，仍将要求提供大量证据证明其对吸烟者有益。
+尾盘时WTI期货上涨0.6%，对美国和伊朗之间的新一轮冲突以及脆弱停火可能破裂的风险反应温和。
 
-然而，今年早些时候，FDA调整了其对调味电子烟的严格监管政策。
+美国2年期国债收益率下跌1.6个基点，报3.895%； 美国5年期国债收益率下跌2.6个基点，报4.0147%； 美国10年期国债收益率下跌2个基点，报4.3662%； 美国30年期国债收益率下跌1.2个基点，报4.9482%； 美国5年和30年期国债收益率差上升约1.2个基点，报93.17个基点； 美国2年和10年期国债收益率差下降约0.4个基点，报46.91个基点。
 
 ## 相关推荐
 
-- 2026-06-29 13:01 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:44 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:54 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:59 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:51 - [“五一”假期浙江口岸出入境人员超10万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:44 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 13:05 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:45 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 13:05 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 13:01 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 13:04 - [93.59万人次“五一”打卡太原文博 门票收入破千万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 13:06 - [德银高管：美伊停战情境下 油价或下探每桶85美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:48 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 13:14 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 13:05 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:50 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 13:12 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:48 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:56 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 13:11 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 13:12 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [Alphabet发行欧元和加元债券 合计融资近170亿美元](http://www.blog.kurohicncr.top/Article/details/0570828423.shtml)
-- 2026-06-29 12:56 - [美官员透露：美伊拟达成一页纸备忘录以结束战事](http://www.share.minike.top/Article/details/5862803.shtml)
-- 2026-06-29 13:07 - [AMD营收及业绩指引均超预期，股价暴涨16%](http://www.blog.kurohicncr.top/Article/details/5213077827.shtml)
-- 2026-06-29 13:01 - [皇朝家居就清远市的生产厂房订立租赁协议](http://www.share.minike.top/Article/details/9134038.shtml)
-- 2026-06-29 13:02 - [中信证券：银行板块投资风格仍将延续，全年绝对收益可期](http://www.blog.kurohicncr.top/Article/details/63514125.shtml)
-- 2026-06-29 13:09 - [书香伴假日 奋斗自芳华](http://www.blog.kurohicncr.top/Article/details/141257616613.shtml)
-- 2026-06-29 13:01 - [以色列自停火以来首次袭击贝鲁特 称旨在清除真主党精锐部队指挥官](http://www.share.minike.top/Article/details/202036049052.shtml)
-- 2026-06-29 13:09 - [广西开展专题调研——探寻八桂大地上的团结密码](http://www.share.kurohicncr.top/Article/details/2160776570.shtml)
-- 2026-06-29 12:54 - [2026年“五一”假期宁夏刑事、治安警情同比“双下降”](http://www.share.minike.top/Article/details/5460904460.shtml)
-- 2026-06-29 12:42 - [中国车企“扫货”海外闲置产能](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [重组完成28个月后，中国奥园为何再陷境外债违约？](http://www.blog.kurohicncr.top/Article/details/540173.shtml)
-- 2026-06-29 12:45 - [越疆午前涨超5% 越疆创业板IPO申请获深交所受理](http://www.blog.minike.top/Article/details/973451.shtml)
-- 2026-06-29 12:56 - [谨记骑乘电动车戴牢头盔 北京明日各主要路口路段将增设执勤警力](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [惠誉将阿根廷信用评级上调至B- 展望稳定](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [Coinbase裁员14% 转向“AI优先”运营模式](http://www.blog.minike.top/Article/details/489053936762.shtml)
+- 2026-06-29 13:06 - [中国国防部：“航母五件套”是人民海军加速转型建设重要成果](http://www.blog.minike.top/Article/details/576966821.shtml)
+- 2026-06-29 12:56 - [福建省“环戴云山”OPC联盟在德化成立](http://www.blog.minike.top/Article/details/7480469859.shtml)
+- 2026-06-29 13:07 - [香港漫游记：冠冕与胸针的自如切换 来看看维多利亚时期珠宝设计的智慧](http://www.share.kurohicncr.top/Article/details/688811911758.shtml)
+- 2026-06-29 13:06 - [白帆竞展吴淞口 上海宝山邮轮港打造水上运动高地](http://www.blog.kurohicncr.top/Article/details/021949814.shtml)
+- 2026-06-29 13:10 - [《主角》从文坛到荧屏：一曲秦腔半生沉浮](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [天津皇会踩街巡游 两岸信众共迎妈祖诞辰](http://www.share.minike.top/Article/details/61955726.shtml)
+- 2026-06-29 13:01 - [中远海发于5月8日斥资408.85万元回购150万股A股](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [中国空天领域百余家单位联合倡议 共建千星规模“太空云”生态](http://www.blog.kurohicncr.top/Article/details/90845349.shtml)
+- 2026-06-29 13:14 - [赖清德跪拜日本人被批“无耻无骨无格”](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:08 - [华尔街收低，芯片股回吐涨幅](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [江西省人大常委会委员喻晓社接受审查调查](http://www.share.kurohicncr.top/Article/details/796664920824.shtml)
+- 2026-06-29 13:13 - [外交部：希望欧方全面客观积极看待中欧经贸关系](http://www.share.minike.top/Article/details/36119826.shtml)
+- 2026-06-29 12:59 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.blog.kurohicncr.top/Article/details/312389927.shtml)
+- 2026-06-29 12:59 - [美国非农数据公布前市场情绪趋于谨慎，黄金维持小幅震荡](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [市场监管总局完成企业变更登记等五项“一件事”政务服务改革](http://www.share.kurohicncr.top/Article/details/90678260158.shtml)

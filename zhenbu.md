@@ -1,43 +1,56 @@
-# 【新思想引领新征程】“五一”假期消费市场活力迸发
+# 英国首相斯塔默遭遇地方选举惨败，仍计划留任
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月07日 09:39 来源：央视网 责任编辑：【杨彦宇】
+英国首相斯塔默于周六重申，尽管执政党工党遭遇数十年来最惨重的地方选举失利之一，他仍将继续留任。 斯塔默在接受英国广播公司采访时表示：“我不会一走了之，让国家陷入混乱。我认为当下正确的做法是重整旗鼓，为国家指明前行方向。” 主张反移民政策的英国改革党在英格兰地方议会席位中大举斩获，主要蚕食了工党的席位；主张威尔士独立的威尔士党拿下威尔士议会最多席位，终结了工党在威尔士数十年的执政
 
 ## 正文
 
-发布时间：2026年05月07日 09:39 来源：央视网 责任编辑：【杨彦宇】
+英国首相斯塔默于周六重申，尽管执政党工党遭遇数十年来最惨重的地方选举失利之一，他仍将继续留任。
+
+斯塔默在接受英国广播公司采访时表示：“我不会一走了之，让国家陷入混乱。
+
+我认为当下正确的做法是重整旗鼓，为国家指明前行方向。
+
+” 主张反移民政策的英国改革党在英格兰地方议会席位中大举斩获，主要蚕食了工党的席位；主张威尔士独立的威尔士党拿下威尔士议会最多席位，终结了工党在威尔士数十年的执政地位。
+
+苏格兰民族党则成为苏格兰地方议会第一大党。
+
+近年来英国经济增长停滞、民众生活水平止步不前，经济改革进展迟缓也让民众对工党的不满情绪日渐高涨。
+
+周六，工党内部要求斯塔默辞职下台的呼声愈发高涨。
+
+前内阁大臣凯瑟琳·韦斯特在社交平台上发文称：“不止我一人，众多工党成员都希望他辞去党首一职。
 
 ## 相关推荐
 
-- 2026-06-29 13:11 - [心动公司于5月4日斥资761.31万港元回购12万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 13:07 - [FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 13:00 - [中国市场缘何被喻为“健身房”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:06 - [汉堡王母公司RBI季度业绩超预期，价值套餐需求推动增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:45 - [广州楼市新政发力 “五一”假期一二手住宅市场同步向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:59 - [空客计划2020年以来首次发债 应对供应链中断](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 13:09 - [韩国称将确保每年从加拿大进口至多3300万桶原油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:46 - [营收成本攀升，Shopify下调第二季度盈利预期 股价大跌13.28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:50 - [AMD CEO苏姿丰：智能体正引爆人工智能周期巨大需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:01 - [唯一！连续19年不良率低于1%，宁波银行凭什么被大摩列为“中国核心资产”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:48 - [假期最后一天铁路迎返京高峰 受大风影响部分列车晚点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:51 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 13:08 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:54 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:58 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:52 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:58 - [日经指数下跌0.8% 受科技股和金融股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 13:10 - [预防心梗，这些不良习惯需警惕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:51 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:55 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 13:05 - [妈妈，我想对你说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](http://www.share.minike.top/Article/details/418480074199.shtml)
-- 2026-06-29 13:02 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](http://www.blog.minike.top/Article/details/160457.shtml)
-- 2026-06-29 12:49 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](http://www.share.minike.top/Article/details/90181028.shtml)
-- 2026-06-29 13:07 - [南京银行：印建军担任业务总监的任职资格获监管核准](http://www.share.minike.top/Article/details/08713548.shtml)
-- 2026-06-29 13:07 - [房产租赁毛利率下滑，汇通能源经营遇考](http://www.blog.minike.top/Article/details/0317164324.shtml)
-- 2026-06-29 12:54 - [美国陆军要求导弹制造商提升自家武器兼容性](http://www.blog.minike.top/Article/details/95318824.shtml)
-- 2026-06-29 13:11 - [以共赢促共富 民企精准帮扶常态化](http://www.share.minike.top/Article/details/82181.shtml)
-- 2026-06-29 13:02 - [际华集团（601718）收到处罚事先告知书，投资者索赔多次提交立案](http://www.blog.kurohicncr.top/Article/details/8613806570.shtml)
-- 2026-06-29 12:55 - [福特秘密电动车部门浮出水面 市场放缓背景下仍看好全新电动皮卡](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [伊朗：尚未回应美国对伊方14点提议的看法](http://www.share.minike.top/Article/details/43386688.shtml)
-- 2026-06-29 12:46 - [5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [生猪板块升温，期股共振释放什么信号？](http://www.blog.minike.top/Article/details/2380986736.shtml)
-- 2026-06-29 12:55 - [美国股市：标普500指数续创新高 AMD大涨与中东和平预期提振市场](http://www.blog.kurohicncr.top/Article/details/37652009.shtml)
-- 2026-06-29 13:04 - [午盘：美股继续上扬 纳指创盘中新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:13 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](http://www.blog.minike.top/Article/details/130887225.shtml)
+- 2026-06-29 13:01 - [第四届西藏自治区数字教育发展大会在拉萨举办](http://www.share.minike.top/Article/details/652203860.shtml)
+- 2026-06-29 12:53 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](http://www.share.minike.top/Article/details/047050740.shtml)
+- 2026-06-29 12:48 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.minike.top/Article/details/420768.shtml)
+- 2026-06-29 13:09 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](http://www.share.kurohicncr.top/Article/details/5970399.shtml)
+- 2026-06-29 13:09 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](http://www.blog.minike.top/Article/details/26085451589.shtml)
+- 2026-06-29 13:14 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [高开低走，油脂后市何去何从？](http://www.share.minike.top/Article/details/27673.shtml)
+- 2026-06-29 13:03 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](http://www.share.minike.top/Article/details/5293094.shtml)
+- 2026-06-29 13:09 - [享界S9零重力座椅事件，给车企和用户都提了个醒](http://www.share.minike.top/Article/details/820866.shtml)

@@ -1,59 +1,59 @@
-# L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息
+# A股1300亿算力巨头协创数据，净利润猛增343%
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-印度工程巨头拉森特博罗公司（Larsen & Toubro，简称L&T）周二公布2025-26财年第四季度及全年财报，季度净利润同比小幅下滑，但全年订单流入和营收均实现两位数增长。公司同时宣布创纪录的每股38卢比末期股息。 财报显示，该公司第四季度合并净利润为532.6亿卢比，同比下降3%，主要受去年同期475亿卢比异常收益的高基数影响。剔除该因素后的经常性利润为528.9亿卢
+记者丨雷晨 编辑丨李新江 朱益民 江佩霞 2026年一季度，人工智能商业化落地全面提速，生成式AI、AI智能体、多模态应用、智能驾驶与工业大模型等场景快速扩容，全社会对算力的需求呈现指数级爆发态势。与此同时，高端GPU芯片全球供给持续偏紧，国内外算力缺口持续扩大，国内算力租赁行业迎来量价齐升、利润集中兑现的黄金发展周期。 从宏观数据看，市场增长势头强劲。中国信通院数据显示，20
 
 ## 正文
 
-印度工程巨头拉森特博罗公司（Larsen & Toubro，简称L&T）周二公布2025-26财年第四季度及全年财报，季度净利润同比小幅下滑，但全年订单流入和营收均实现两位数增长。
+记者丨雷晨 编辑丨李新江 朱益民 江佩霞 2026年一季度，人工智能商业化落地全面提速，生成式AI、AI智能体、多模态应用、智能驾驶与工业大模型等场景快速扩容，全社会对算力的需求呈现指数级爆发态势。
 
-公司同时宣布创纪录的每股38卢比末期股息。
+与此同时，高端GPU芯片全球供给持续偏紧，国内外算力缺口持续扩大，国内算力租赁行业迎来量价齐升、利润集中兑现的黄金发展周期。
 
-财报显示，该公司第四季度合并净利润为532.6亿卢比，同比下降3%，主要受去年同期475亿卢比异常收益的高基数影响。
+从宏观数据看，市场增长势头强劲。
 
-剔除该因素后的经常性利润为528.9亿卢比，同比增长5%。
+中国信通院数据显示，2026年一季度国内算力租赁市场规模达680亿元，同比增长62%。
 
-季度营收同比增长11%至8276.2亿卢比，符合预期。
+据IDC预测，2026年全球算力租赁市场规模将突破800亿美元。
 
-季度订单流入达897.7亿卢比，国际订单占比高达67%。
+行业盈利水平同步走高。
 
-截至3月底，公司合并订单积压量达创纪录的7.4万亿卢比，同比增长28%，为未来增长提供了强劲能见度。
+星宇智算调研数据显示，一季度行业平均毛利率维持在35%至45%区间，头部企业毛利率可达55%至60%。
 
-全年订单流入增长22%至4.36万亿卢比，全年营收增长12%至2.86万亿卢比。
+A股市场上，以算力租赁为主业的上市公司业绩集体爆发。
 
 ## 相关推荐
 
-- 2026-06-29 12:52 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:51 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 13:10 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:42 - [菲律宾失业率连续两个月回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:45 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 13:02 - [经纬线·青年习近平的“人生课堂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:56 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:07 - [S佳通涉信息披露违法违规，受损投资者可维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:49 - [2026年“香港高考”收官 文凭试加速迈向国际化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:43 - [2026年全国残疾人足球公开赛在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 13:11 - [原油期货上涨 或因技术性反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:43 - [中东紧张局势冲击全球旅游业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:43 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:50 - [唱响中国之声：中央音乐学院合唱团在俄演出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 13:13 - [永升服务于5月8日斥资41.04万港元回购20万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 13:14 - [祁连山 “生命方舟” 累计救助收容259只野生动物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:50 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 13:17 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 13:12 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 13:00 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 13:16 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:57 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 13:10 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:59 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 13:03 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 13:07 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [AI、国防与气候：重塑全球增长格局的三大支柱](http://www.share.minike.top/Article/details/804831781.shtml)
-- 2026-06-29 13:05 - [全球政府债券延续涨势 受美伊进展报道影响](http://www.blog.kurohicncr.top/Article/details/06990545.shtml)
-- 2026-06-29 12:58 - [重庆市酉阳县委书记杨通胜接受审查调查](http://www.blog.minike.top/Article/details/09375.shtml)
-- 2026-06-29 13:03 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](http://www.blog.kurohicncr.top/Article/details/179240711780.shtml)
-- 2026-06-29 12:58 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](http://www.blog.kurohicncr.top/Article/details/47244688330.shtml)
-- 2026-06-29 13:07 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](http://www.blog.minike.top/Article/details/586489814.shtml)
-- 2026-06-29 13:10 - [美伊停火暂时维持 华尔街股市强劲反弹](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](http://www.blog.kurohicncr.top/Article/details/88464333.shtml)
-- 2026-06-29 12:43 - [英皇群星演唱会香港开唱勾起观众青春回忆](http://www.blog.kurohicncr.top/Article/details/5346056019.shtml)
-- 2026-06-29 12:55 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](http://www.share.minike.top/Article/details/340329180.shtml)
-- 2026-06-29 12:46 - [央行公告这一名单更新！哪些机构新进，哪些退出？](http://www.share.minike.top/Article/details/324036926.shtml)
-- 2026-06-29 13:05 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](http://www.share.minike.top/Article/details/6366050.shtml)
-- 2026-06-29 12:48 - [心动公司于5月6日斥资282.29万港元回购4.5万股](http://www.blog.minike.top/Article/details/2761468.shtml)
-- 2026-06-29 13:06 - [平安人寿保险增持农业银行4747.4万股](http://www.blog.minike.top/Article/details/761807365929.shtml)
+- 2026-06-29 13:07 - [新疆加快打造全国优质农牧产品重要供给基地](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:01 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](http://www.blog.kurohicncr.top/Article/details/654360083031.shtml)
+- 2026-06-29 13:17 - [黄金周线有望录得上涨，或将突破箱体压力？](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:12 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](http://www.blog.kurohicncr.top/Article/details/264019913.shtml)
+- 2026-06-29 12:50 - [第48届东盟峰会在菲律宾举行](http://www.blog.kurohicncr.top/Article/details/19535022.shtml)
+- 2026-06-29 13:07 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](http://www.blog.minike.top/Article/details/740399.shtml)
+- 2026-06-29 12:50 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](http://www.blog.minike.top/Article/details/84260124.shtml)
+- 2026-06-29 13:17 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.blog.minike.top/Article/details/066683498.shtml)
+- 2026-06-29 13:05 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](http://www.blog.kurohicncr.top/Article/details/047094.shtml)
+- 2026-06-29 13:05 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](http://www.blog.minike.top/Article/details/68403407.shtml)
+- 2026-06-29 13:08 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:13 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](http://www.share.kurohicncr.top/Article/details/793710245234.shtml)

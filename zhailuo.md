@@ -1,56 +1,54 @@
-# 韩股飙涨6.45%首次突破7300点，创历史新高
+# 习言道｜父母是孩子的第一任老师
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-韩国股市周三飙升近6.5%，延续了此前的涨势，首次突破7300点大关。半导体行业的强劲上涨以及市场对中东和平协议的乐观预期是推动股市走强的主要因素。韩元兑美元汇率也走强。 韩国综合股价指数（KOSPI）当天上涨447.57点，涨幅6.45%，创下7384.56点的历史新高。 美国总统特朗普隔夜宣布，为促成与伊朗达成最终协议，他将暂停护送船只通过霍尔木兹海峡的行动。 韩国综合股价
+发布时间：2026年05月10日 07:30 来源：中国新闻网 “只要你把工作做好了，就是对爸爸妈妈最大的孝心。”母亲的言传身教让习近平受用一生。多年来，习近平总书记谨记母亲的教诲，夙夜在公、勤勉工作。一起重温总书记和母亲的暖心瞬间。 责任编辑：【任帅】
 
 ## 正文
 
-韩国股市周三飙升近6.5%，延续了此前的涨势，首次突破7300点大关。
+发布时间：2026年05月10日 07:30 来源：中国新闻网 “只要你把工作做好了，就是对爸爸妈妈最大的孝心。
 
-半导体行业的强劲上涨以及市场对中东和平协议的乐观预期是推动股市走强的主要因素。
+”母亲的言传身教让习近平受用一生。
 
-韩元兑美元汇率也走强。
+多年来，习近平总书记谨记母亲的教诲，夙夜在公、勤勉工作。
 
-韩国综合股价指数（KOSPI）当天上涨447.57点，涨幅6.45%，创下7384.56点的历史新高。
+一起重温总书记和母亲的暖心瞬间。
 
-美国总统特朗普隔夜宣布，为促成与伊朗达成最终协议，他将暂停护送船只通过霍尔木兹海峡的行动。
-
-韩国综合股价指数（KOSPI）开盘上涨2.25%，首次突破7000点大关，并在交易时段内延续涨势。
-
-近几个月来，该基准股指持续上涨，在1月底突破5000点大关，2月突破6000点大关。
-
-在2月底美伊冲突爆发后，该指数一度大幅下跌，但后来收回了全部跌幅，并在人工智能热潮持续升温以及对重要航道重新开放的预期推动下，一举突破7000点大关。
+责任编辑：【任帅】
 
 ## 相关推荐
 
-- 2026-06-29 12:52 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 13:00 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:47 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:46 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:50 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:45 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:50 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 13:08 - [“五一”假期浙江口岸出入境人员超10万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 13:01 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:57 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 13:04 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 13:07 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 13:04 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 13:16 - [德银高管：美伊停战情境下 油价或下探每桶85美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 13:01 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:57 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 13:08 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 13:11 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:49 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:59 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:48 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:49 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 13:12 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 13:17 - [特朗普称俄罗斯和乌克兰将在5月9日至11日期间停火三天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [英飞凌展望超预期，AI热潮提振功率芯片业务](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [迪士尼超预期财报助推相关ETF，个股年内仍跌12%](http://www.share.minike.top/Article/details/37862100.shtml)
-- 2026-06-29 13:04 - [InflaRx完成1.5亿美元普通股发行定价](http://www.blog.minike.top/Article/details/0850149533.shtml)
-- 2026-06-29 13:08 - [Alphabet发行欧元和加元债券 合计融资近170亿美元](http://www.blog.kurohicncr.top/Article/details/80286345.shtml)
-- 2026-06-29 12:48 - [美官员透露：美伊拟达成一页纸备忘录以结束战事](http://www.share.kurohicncr.top/Article/details/41983.shtml)
-- 2026-06-29 13:02 - [AMD营收及业绩指引均超预期，股价暴涨16%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [皇朝家居就清远市的生产厂房订立租赁协议](http://www.share.kurohicncr.top/Article/details/59854.shtml)
-- 2026-06-29 13:08 - [中信证券：银行板块投资风格仍将延续，全年绝对收益可期](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [书香伴假日 奋斗自芳华](http://www.share.minike.top/Article/details/753307529.shtml)
-- 2026-06-29 12:56 - [以色列自停火以来首次袭击贝鲁特 称旨在清除真主党精锐部队指挥官](http://www.blog.minike.top/Article/details/29498701.shtml)
-- 2026-06-29 12:54 - [广西开展专题调研——探寻八桂大地上的团结密码](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [2026年“五一”假期宁夏刑事、治安警情同比“双下降”](http://www.share.kurohicncr.top/Article/details/994869.shtml)
-- 2026-06-29 13:08 - [中国车企“扫货”海外闲置产能](http://www.blog.kurohicncr.top/Article/details/014874540865.shtml)
-- 2026-06-29 13:08 - [重组完成28个月后，中国奥园为何再陷境外债违约？](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [越疆午前涨超5% 越疆创业板IPO申请获深交所受理](http://www.share.minike.top/Article/details/183622.shtml)
+- 2026-06-29 12:58 - [海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [市场监管总局：4792.24万户经营主体获信用修复](http://www.blog.kurohicncr.top/Article/details/193000714.shtml)
+- 2026-06-29 13:07 - [泰柬领导人在菲律宾讨论两国边境局势](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [中国国防部：“航母五件套”是人民海军加速转型建设重要成果](http://www.blog.minike.top/Article/details/248407946749.shtml)
+- 2026-06-29 13:06 - [福建省“环戴云山”OPC联盟在德化成立](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:01 - [香港漫游记：冠冕与胸针的自如切换 来看看维多利亚时期珠宝设计的智慧](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [白帆竞展吴淞口 上海宝山邮轮港打造水上运动高地](http://www.blog.minike.top/Article/details/88202.shtml)
+- 2026-06-29 13:06 - [《主角》从文坛到荧屏：一曲秦腔半生沉浮](http://www.blog.kurohicncr.top/Article/details/625507.shtml)
+- 2026-06-29 12:53 - [天津皇会踩街巡游 两岸信众共迎妈祖诞辰](http://www.share.kurohicncr.top/Article/details/965581392.shtml)
+- 2026-06-29 13:07 - [中远海发于5月8日斥资408.85万元回购150万股A股](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [中国空天领域百余家单位联合倡议 共建千星规模“太空云”生态](http://www.blog.minike.top/Article/details/04880.shtml)
+- 2026-06-29 13:10 - [赖清德跪拜日本人被批“无耻无骨无格”](http://www.share.kurohicncr.top/Article/details/45300557.shtml)
+- 2026-06-29 13:12 - [华尔街收低，芯片股回吐涨幅](http://www.blog.kurohicncr.top/Article/details/935389810.shtml)
+- 2026-06-29 12:50 - [江西省人大常委会委员喻晓社接受审查调查](http://www.blog.kurohicncr.top/Article/details/11162.shtml)
+- 2026-06-29 13:11 - [外交部：希望欧方全面客观积极看待中欧经贸关系](http://www.blog.minike.top/Article/details/308141708886.shtml)

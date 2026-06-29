@@ -1,58 +1,56 @@
-# 摩根大通牵头财团或因Qualtrics债务面临5亿美元损失
+# 福建“十五五”聚焦数智赋能 打造“四区一标杆”
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-去年，由摩根大通牵头、涵盖花旗、德银、高盛、瑞银等十余家银行的财团，承诺为软件公司Qualtrics提供一笔约53亿美元的债务融资，以支持其收购数据分析公司Press Ganey Forsta。然而，由于投资者对人工智能可能颠覆传统软件行业的担忧日益加深，该债务在市场上遭遇冷遇，摩根大通被迫于3月暂停了这笔债券的销售。 银行的困境在于，作为承销商，它们此前已承诺为这笔交易提供过
+中新网福州5月8日电 (叶秋云)推动人工智能和实体经济深度融合，不断壮大数智领域新质生产力，力争数字经济核心产业增加值年均增长8%以上…… 8日，“开局起步‘十五五’——奋勇争先、再上台阶，奋力开创中国式现代化福建实践新局面”专场新闻发布会在福州举行。新闻发布会上，中共福建省委副书记、省人民政府省长赵龙介绍《福建省国民经济和社会发展第十五个五年(2026—2030年)规划纲要》
 
 ## 正文
 
-去年，由摩根大通牵头、涵盖花旗、德银、高盛、瑞银等十余家银行的财团，承诺为软件公司Qualtrics提供一笔约53亿美元的债务融资，以支持其收购数据分析公司Press Ganey Forsta。
+中新网福州5月8日电 (叶秋云)推动人工智能和实体经济深度融合，不断壮大数智领域新质生产力，力争数字经济核心产业增加值年均增长8%以上…… 8日，“开局起步‘十五五’——奋勇争先、再上台阶，奋力开创中国式现代化福建实践新局面”专场新闻发布会在福州举行。
 
-然而，由于投资者对人工智能可能颠覆传统软件行业的担忧日益加深，该债务在市场上遭遇冷遇，摩根大通被迫于3月暂停了这笔债券的销售。
+新闻发布会上，中共福建省委副书记、省人民政府省长赵龙介绍《福建省国民经济和社会发展第十五个五年(2026—2030年)规划纲要》(以下简称《纲要》)有关情况时披露上述数据。
 
-银行的困境在于，作为承销商，它们此前已承诺为这笔交易提供过桥贷款。
+赵龙指出，在这一轮数智化变革浪潮中，谁觉悟得早、下手得快，谁就能抢占先机、赢得主动，在区域竞争中形成新优势。
 
-如果无法将债务顺利分销给外部投资者，银行将不得不将这些债券留在自己的资产负债表上。
+《纲要》专设篇章，共六章内容，全面部署推进数智赋能千行百业。
 
-为了止损，银行可能被迫以大幅折让价出售这批债务。
+总的目标可以用“四区一标杆”来概括，“四区”即打造数据要素市场化配置改革先行区、实体经济和数字经济深度融合示范区、数字政府改革建设引领区、数智化发展环境样板区；“一标杆”是打造新时代数字中国建设标杆。
 
-据最新报道，就在本周，Qualtrics自身的债务在二级市场上的交易价格已跌至面值的约86美分。
+而围绕数智赋能核心任务，福建将聚焦三大重点领域精准发力，推动数智技术与经济社会发展深度融合。
 
-业内人士估计，如果银行财团最终以当前市场价抛售这批债务，总损失可能高达约5亿美元。
+一是赋能产业发展。
 
-这笔一度被暂停的交易如今成为华尔街的沉重负担，事件也凸显了AI浪潮正在深刻重塑信贷市场的风险定价逻辑。
+推动人工智能和实体经济深度融合，一方面抓智能产业化，实施人工智能企业梯次培育计划，加快数智技术创新，发展智能经济新形态，计划用五年时间，培育出1500多家人工智能企业，打造出50个行业垂直模型和300个典型应用场景；另一方面抓产业智能化，就是要坚定不移推动传统产业“智改数转”。
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:53 - [外媒：伊朗已启动霍尔木兹海峡通行管理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:59 - [潍柴动力午后涨逾4%再创新高 小摩维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 13:07 - [“五一”假期江苏接待国内游客3758.98万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:56 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 13:01 - [宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:42 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:59 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 13:07 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 13:11 - [成本高企挤压利润，印度苏拉酒业Q4净利下滑34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:56 - [烧烤摊主为救3岁宝宝停业10天，归来后生意“爆棚”！市委书记也穿着简装来“打卡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 13:10 - [金建希股价操纵案法官遗书内容公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 13:01 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:58 - [李成钢：积极推动APEC贸易部长会议围绕两方面议题达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:48 - [被拖欠片酬，演员喊话要求《平乐赋》下架，爱奇艺回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:54 - [大美边疆看我家丨黑龙江牡丹江：熔岩台地杏花如雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 13:15 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:50 - [红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 13:09 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 13:16 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:54 - [万份收益不足3毛，天弘余额宝连续6天“七日年化收益率”低于1％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 13:10 - [四川探路跨境电商 巴蜀生活美学走向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:48 - [追光的你｜青春的颜色](http://www.blog.minike.top/Article/details/29300.shtml)
-- 2026-06-29 12:50 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](http://www.blog.kurohicncr.top/Article/details/54557191.shtml)
-- 2026-06-29 12:43 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](http://www.share.minike.top/Article/details/91534.shtml)
-- 2026-06-29 12:59 - [特朗普称将暂停自由计划“一小段时间”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.share.kurohicncr.top/Article/details/315717434.shtml)
-- 2026-06-29 12:56 - [青春之喻，奋斗之帆](http://www.blog.minike.top/Article/details/0954020.shtml)
-- 2026-06-29 12:47 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.share.kurohicncr.top/Article/details/508344149.shtml)
-- 2026-06-29 12:43 - [伊朗查封并没收22名与美以有关联人员财产](http://www.blog.kurohicncr.top/Article/details/05114764.shtml)
-- 2026-06-29 13:00 - [俄美外长通话讨论国际局势和双边关系](http://www.share.minike.top/Article/details/2246750.shtml)
-- 2026-06-29 12:45 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](http://www.blog.minike.top/Article/details/00819.shtml)
-- 2026-06-29 12:59 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](http://www.blog.kurohicncr.top/Article/details/46036580189.shtml)
-- 2026-06-29 12:45 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.share.kurohicncr.top/Article/details/808029.shtml)
-- 2026-06-29 13:08 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.share.minike.top/Article/details/6642817.shtml)
-- 2026-06-29 13:05 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](http://www.share.kurohicncr.top/Article/details/970171469.shtml)
+- 2026-06-29 12:54 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.share.minike.top/Article/details/17960828665.shtml)
+- 2026-06-29 13:14 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](http://www.share.minike.top/Article/details/040804.shtml)
+- 2026-06-29 12:50 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](http://www.share.minike.top/Article/details/922830.shtml)
+- 2026-06-29 13:16 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.blog.kurohicncr.top/Article/details/117478712.shtml)
+- 2026-06-29 13:05 - [坚持有腐必反、有贪必肃](http://www.blog.minike.top/Article/details/699870183.shtml)
+- 2026-06-29 12:58 - [信利国际于5月8日耗资103万港元回购100万股](http://www.share.kurohicncr.top/Article/details/623655229.shtml)
+- 2026-06-29 13:10 - [中欧班列开行突破13万列](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [A股再现国资“A吃A”！](http://www.share.kurohicncr.top/Article/details/33779090271.shtml)
+- 2026-06-29 13:16 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.blog.minike.top/Article/details/908472659605.shtml)
+- 2026-06-29 13:10 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.blog.kurohicncr.top/Article/details/150026.shtml)
+- 2026-06-29 12:48 - [个人办事，不只“能办”还要“好办、易办”](http://www.share.kurohicncr.top/Article/details/51266424270.shtml)
+- 2026-06-29 13:08 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](http://www.share.minike.top/Article/details/3489853.shtml)
+- 2026-06-29 13:09 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](http://www.share.kurohicncr.top/Article/details/3425084.shtml)

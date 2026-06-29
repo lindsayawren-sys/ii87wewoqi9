@@ -1,54 +1,53 @@
-# 2026年“香港高考”收官：逾5.85万考生报考 内地试点考场持续优化
+# 台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月06日 15:28 来源：中国新闻网 持续近一个月的2026年香港中学文凭考试(简称“文凭试”)各科笔试，于5月5日正式结束。该考试是香港学生完成全日制高中课程后，可参加的大学入学公开考试，有“香港高考”之称。 据介绍，文凭试成绩不仅是本地大学联招的主要依据，也广受内地及海外高校认可。随着粤港澳大湾区融合发展持续深化，考评局于2024年首次在内地城市试
+发布时间：2026年05月08日 16:25 来源：中国新闻网 近期，美日菲等国在菲律宾及南海周边投入1.7万兵力，举行史上最大规模的“肩并肩”联合军事演习。日本为何要深度参与此次军演？台湾军事评论员吕礼诗表示，日本所谓的武器出口，其实我们可以看到第一个(买方)就在于菲律宾，他们将菲律宾以往买不到的武器统统输出给菲律宾，或者是他们除役(退役)的潜舰提供给菲律宾，然后在南海创造中
 
 ## 正文
 
-发布时间：2026年05月06日 15:28 来源：中国新闻网 持续近一个月的2026年香港中学文凭考试(简称“文凭试”)各科笔试，于5月5日正式结束。
+发布时间：2026年05月08日 16:25 来源：中国新闻网 近期，美日菲等国在菲律宾及南海周边投入1.7万兵力，举行史上最大规模的“肩并肩”联合军事演习。
 
-该考试是香港学生完成全日制高中课程后，可参加的大学入学公开考试，有“香港高考”之称。
+日本为何要深度参与此次军演？
 
-据介绍，文凭试成绩不仅是本地大学联招的主要依据，也广受内地及海外高校认可。
+台湾军事评论员吕礼诗表示，日本所谓的武器出口，其实我们可以看到第一个(买方)就在于菲律宾，他们将菲律宾以往买不到的武器统统输出给菲律宾，或者是他们除役(退役)的潜舰提供给菲律宾，然后在南海创造中国的另外一个敌人，也就是日本想要透过这些军工出口赚得更多的外汇。
 
-随着粤港澳大湾区融合发展持续深化，考评局于2024年首次在内地城市试点举办文凭试，让符合资格的港澳籍学生无需跨境来港，即可参加考试。
-
-近年来，文凭试已成为港生入读内地高校的重要通道，不少符合条件的内地学生，也能以自修生身份参加考试，借此拓宽国际视野。
-
-香港考试及评核局相关负责人表示，要充分发挥香港作为国际教育枢纽的优势，持续推广文凭试的国际认可，更好为国家输送高质量人才与教育资源。
-
-记者 程宇 香港报道 责任编辑：【罗攀】
+(记者 卢晓娜 刘世炯 制作 王嘉怡） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 12:46 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:01 - [宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:53 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:44 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:51 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:45 - [成本高企挤压利润，印度苏拉酒业Q4净利下滑34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 13:00 - [烧烤摊主为救3岁宝宝停业10天，归来后生意“爆棚”！市委书记也穿着简装来“打卡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:48 - [金建希股价操纵案法官遗书内容公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:55 - [优步CEO谈Q1业绩：我们着眼于长期布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 13:05 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 13:01 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 13:04 - [红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:55 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 13:10 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:48 - [万份收益不足3毛，天弘余额宝连续6天“七日年化收益率”低于1％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:57 - [四川探路跨境电商 巴蜀生活美学走向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 13:10 - [塔吉克斯坦总统拉赫蒙将对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 13:15 - [四川野生大熊猫情侣在竹林中谈恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:59 - [两岸一家亲！台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 13:17 - [AI数字人“邓丽君”在河南郑州“登台”表演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:54 - [英国首相斯塔默遭遇地方选举惨败，仍计划留任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:54 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 13:04 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:48 - [“AI+影视”找准发展平衡点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 13:17 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [特朗普称将暂停自由计划“一小段时间”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.share.minike.top/Article/details/052719.shtml)
-- 2026-06-29 12:52 - [青春之喻，奋斗之帆](http://www.share.kurohicncr.top/Article/details/0986862.shtml)
-- 2026-06-29 13:03 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.share.minike.top/Article/details/656510582199.shtml)
-- 2026-06-29 12:54 - [伊朗查封并没收22名与美以有关联人员财产](http://www.blog.kurohicncr.top/Article/details/52893501894.shtml)
-- 2026-06-29 12:58 - [俄美外长通话讨论国际局势和双边关系](http://www.blog.kurohicncr.top/Article/details/4317556.shtml)
-- 2026-06-29 13:09 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](http://www.blog.kurohicncr.top/Article/details/64065583.shtml)
-- 2026-06-29 12:45 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](http://www.blog.minike.top/Article/details/839886455.shtml)
-- 2026-06-29 12:59 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.blog.kurohicncr.top/Article/details/4346962042.shtml)
-- 2026-06-29 13:05 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](http://www.blog.kurohicncr.top/Article/details/284120229.shtml)
-- 2026-06-29 12:54 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [广东广州以“微改革”推动营商环境系统提升](http://www.share.minike.top/Article/details/4521470689.shtml)
-- 2026-06-29 12:53 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](http://www.blog.minike.top/Article/details/0959724247.shtml)
+- 2026-06-29 13:10 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.share.kurohicncr.top/Article/details/36991940.shtml)
+- 2026-06-29 12:51 - [坚持有腐必反、有贪必肃](http://www.share.kurohicncr.top/Article/details/56433000072.shtml)
+- 2026-06-29 12:54 - [信利国际于5月8日耗资103万港元回购100万股](http://www.blog.minike.top/Article/details/399918205.shtml)
+- 2026-06-29 13:08 - [中欧班列开行突破13万列](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [A股再现国资“A吃A”！](http://www.share.kurohicncr.top/Article/details/061433.shtml)
+- 2026-06-29 12:49 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.share.kurohicncr.top/Article/details/291261118106.shtml)
+- 2026-06-29 13:01 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.blog.minike.top/Article/details/6854740.shtml)
+- 2026-06-29 13:15 - [个人办事，不只“能办”还要“好办、易办”](http://www.blog.kurohicncr.top/Article/details/220662776822.shtml)
+- 2026-06-29 12:59 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](http://www.blog.minike.top/Article/details/382777613802.shtml)
+- 2026-06-29 12:51 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](http://www.share.minike.top/Article/details/8476596.shtml)
+- 2026-06-29 13:00 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](http://www.share.minike.top/Article/details/577196653882.shtml)
+- 2026-06-29 12:58 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](http://www.blog.minike.top/Article/details/02268326.shtml)
+- 2026-06-29 13:12 - [三部门联合印发《智能体规范应用与创新发展实施意见》](http://www.blog.minike.top/Article/details/81539654.shtml)
+- 2026-06-29 13:03 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](http://www.blog.kurohicncr.top/Article/details/15092.shtml)

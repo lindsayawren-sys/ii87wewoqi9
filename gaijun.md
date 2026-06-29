@@ -1,59 +1,57 @@
-# 黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸
+# 坚持有腐必反、有贪必肃
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-来源：汇通财经 近期国际黄金市场走势震荡，尽管价格持续承压，投资者热情也有所降温，但美国独立研究机构 Ned Davis Research（NDR）的首席替代策略师 John LaForge 却发出了明确的看多信号。在他看来，当前金价的调整与横盘整理，恰恰为投资者提供了建立长期战略配置的珍贵窗口。他直言，黄金不仅是传统的避险资产，更在现代投资组合中扮演着不可替代的“分散器”与“
+军事审判机关对魏凤和案件、李尚福案件进行了依法审理，作出一审判决，充分体现了党中央全面从严治党、全面从严治军的坚定决心，表明了党中央、中央军委坚定不移惩治腐败的决心意志，对于震慑腐败分子、提振军心士气，对于捍卫人民军队政治本色、保持人民军队纯洁光荣，具有重要意义。军队是拿枪杆子的，军中绝不能有对党怀有二心之人，绝不能有腐败分子藏身之地。魏凤和、李尚福身为党和军队高级领导干部，信
 
 ## 正文
 
-来源：汇通财经 近期国际黄金市场走势震荡，尽管价格持续承压，投资者热情也有所降温，但美国独立研究机构 Ned Davis Research（NDR）的首席替代策略师 John LaForge 却发出了明确的看多信号。
+军事审判机关对魏凤和案件、李尚福案件进行了依法审理，作出一审判决，充分体现了党中央全面从严治党、全面从严治军的坚定决心，表明了党中央、中央军委坚定不移惩治腐败的决心意志，对于震慑腐败分子、提振军心士气，对于捍卫人民军队政治本色、保持人民军队纯洁光荣，具有重要意义。
 
-在他看来，当前金价的调整与横盘整理，恰恰为投资者提供了建立长期战略配置的珍贵窗口。
+军队是拿枪杆子的，军中绝不能有对党怀有二心之人，绝不能有腐败分子藏身之地。
 
-他直言，黄金不仅是传统的避险资产，更在现代投资组合中扮演着不可替代的“分散器”与“货币锚”角色。
+魏凤和、李尚福身为党和军队高级领导干部，信仰坍塌、忠诚失节，背弃初心使命、丧失党性原则，其行为辜负党中央、中央军委信任重托，严重污染部队政治生态，给党的事业、国防和军队建设，以及高级领导干部形象造成极大损害，性质极其严重，影响极为恶劣，危害特别巨大。
 
-悲观情绪释放，买入信号浮现 LaForge 指出，近期市场对黄金的悲观情绪已明显积聚，与此同时，美元再度显现疲态，这两大因素共同触发了新的买入信号。
+他们受到法律制裁，完全是作茧自缚、咎由自取、自作自受。
 
-他强调，NDR 的美元趋势模型已经全面转为做多黄金的信号，而另一个关键指标——黄金情绪指数——也已跌入极度悲观区间。
+党有党规，国有国法。
 
-从历史经验看，这种极端的悲观情绪往往预示着价格底部的临近，因此投资者不应再观望等待。
+对党员干部而言，遵守党的纪律是本分，遵守国家法律是义务。
 
-建议配置比例：3%至8%的战略头寸 在具体操作层面，LaForge 建议投资者将总资产中的 3% 至 8% 配置于黄金，并同时将黄金纳入大宗商品组合的一部分。
+任何党的组织和个人都没有超越党纪国法的特权，都必须维护党纪国法权威，都必须在党纪国法范围内活动，都必须依照党纪国法行使权力、履行职责。
 
-他特别指出，对于那些当前黄金配置不足甚至完全没有持仓的投资者而言，目前正是开始建立战略头寸的合适时机，而不必刻意等待价格进一步回调再入场。
+“法不阿贵，绳不挠曲。
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 13:08 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 13:02 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 13:10 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 13:00 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:50 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:48 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:45 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:57 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:54 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 13:00 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:58 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:44 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:54 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:52 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 13:16 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 13:13 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 13:06 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:59 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:52 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 13:16 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:50 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 13:09 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 13:01 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:48 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](http://www.share.kurohicncr.top/Article/details/12514215.shtml)
-- 2026-06-29 12:45 - [经纬线·青年习近平的“人生课堂”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](http://www.blog.minike.top/Article/details/034917812.shtml)
-- 2026-06-29 13:11 - [S佳通涉信息披露违法违规，受损投资者可维权](http://www.share.minike.top/Article/details/86871604.shtml)
-- 2026-06-29 12:44 - [2026年“香港高考”收官 文凭试加速迈向国际化](http://www.blog.minike.top/Article/details/803453.shtml)
-- 2026-06-29 12:50 - [2026年全国残疾人足球公开赛在京举行](http://www.blog.minike.top/Article/details/116480338588.shtml)
-- 2026-06-29 12:58 - [原油期货上涨 或因技术性反弹](http://www.blog.kurohicncr.top/Article/details/38406.shtml)
-- 2026-06-29 13:11 - [中东紧张局势冲击全球旅游业](http://www.share.kurohicncr.top/Article/details/45169.shtml)
-- 2026-06-29 12:43 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](http://www.blog.kurohicncr.top/Article/details/817936.shtml)
-- 2026-06-29 13:10 - [国乒女团3比0瑞典 晋级世乒赛8强](http://www.share.minike.top/Article/details/1668285.shtml)
-- 2026-06-29 13:08 - [小摩：民生银行给予“中性”评级 目标价3.90港元](http://www.blog.minike.top/Article/details/16570368.shtml)
-- 2026-06-29 12:45 - [山东省枣庄市青檀学校：榴乡厚土育同心](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](http://www.blog.kurohicncr.top/Article/details/05099.shtml)
-- 2026-06-29 12:42 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](http://www.blog.minike.top/Article/details/312157244516.shtml)
-- 2026-06-29 12:48 - [成本压力持续传导 全球消费品企业竞相涨价](http://www.blog.kurohicncr.top/Article/details/4249144.shtml)
+- 2026-06-29 13:15 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](http://www.blog.minike.top/Article/details/84639046886.shtml)
+- 2026-06-29 13:05 - [离岸人民币汇率升破6.8，创三年多新高](http://www.blog.kurohicncr.top/Article/details/906459.shtml)
+- 2026-06-29 13:02 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](http://www.share.kurohicncr.top/Article/details/13807915160.shtml)
+- 2026-06-29 12:51 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](http://www.blog.minike.top/Article/details/09562892.shtml)
+- 2026-06-29 13:00 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](http://www.blog.kurohicncr.top/Article/details/92361576607.shtml)
+- 2026-06-29 13:09 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](http://www.share.minike.top/Article/details/01541606027.shtml)
+- 2026-06-29 12:48 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [光大证券，离头部券商越来越远](http://www.share.minike.top/Article/details/9224571.shtml)
+- 2026-06-29 12:48 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.blog.kurohicncr.top/Article/details/53200367.shtml)
+- 2026-06-29 12:52 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](http://www.blog.kurohicncr.top/Article/details/690749.shtml)
+- 2026-06-29 13:01 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.blog.minike.top/Article/details/695548.shtml)
+- 2026-06-29 13:05 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.share.minike.top/Article/details/060875.shtml)
+- 2026-06-29 13:12 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.blog.minike.top/Article/details/795416.shtml)

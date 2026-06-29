@@ -1,56 +1,60 @@
-# 基金降费“三步走”成效显著 以实际行动提高投资者获得感
+# 吉林首个省级专业游泳训练基地启用 省游泳队正式建队
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-● 本报记者 王鹤静 《推动公募基金高质量发展行动方案》要求稳步降低基金投资者成本。近年来，公募行业陆续推动从管理费、托管费到股票交易佣金，再到认购费、赎回费、销售服务费、客户维护费等三阶段基金费率改革工作的落地，并取得实质性进展。2022年至2025年，非货公募基金规模加权平均综合费率由1.41%降低至0.93%，切实让利投资者。 同时，公募降费带来的收入端压力也在倒逼行业转
+中新网长春5月9日电 (谭伟旗 金乔)9日，吉林省游泳训练基地授牌暨吉林省游泳队建队仪式在长春举行。这标志着吉林省首个省级专业游泳训练基地正式启用，同时实现了省级专业游泳队伍“从无到有”的历史性突破，为该省游泳人才培养、竞技水平提升搭建起专业化发展平台。 现场，吉林省体育局副局长贾宁代表省体育局，向长春市工人文化宫及市职工体育活动中心正式授予“吉林省游泳训练基地”牌匾。作为全省
 
 ## 正文
 
-● 本报记者 王鹤静 《推动公募基金高质量发展行动方案》要求稳步降低基金投资者成本。
+中新网长春5月9日电 (谭伟旗 金乔)9日，吉林省游泳训练基地授牌暨吉林省游泳队建队仪式在长春举行。
 
-近年来，公募行业陆续推动从管理费、托管费到股票交易佣金，再到认购费、赎回费、销售服务费、客户维护费等三阶段基金费率改革工作的落地，并取得实质性进展。
+这标志着吉林省首个省级专业游泳训练基地正式启用，同时实现了省级专业游泳队伍“从无到有”的历史性突破，为该省游泳人才培养、竞技水平提升搭建起专业化发展平台。
 
-2022年至2025年，非货公募基金规模加权平均综合费率由1.41%降低至0.93%，切实让利投资者。
+现场，吉林省体育局副局长贾宁代表省体育局，向长春市工人文化宫及市职工体育活动中心正式授予“吉林省游泳训练基地”牌匾。
 
-同时，公募降费带来的收入端压力也在倒逼行业转型发展，近来公募机构在考核体系、销售模式、经营模式、收费模式等多个维度全面改革，部分头部机构在浮动费率产品创新和基金投顾方面取得了可借鉴的经验。
+作为全省首个聚焦游泳项目的专业训练载体，该基地将为运动员提供标准化训练场馆与配套设施。
 
-展望未来，业内人士认为，指数化投资将向纵深发展，低利率环境下产品设计将呈现全球化、多元化、工具化趋势，基金销售将从销售驱动转向服务与业绩驱动，以实际行动提高投资者获得感。
+吉林省体育局副局长宫金杰表示，专业游泳队伍的组建与训练基地的启用，打通了从人才选拔、科学训练到赛事备战的全链条体系。
 
-降费切实让利投资者 晨星数据显示，2022年公募基金费率改革启动前，国内非货币基金规模加权平均综合费率为1.41%，而2025年已降至0.93%，三年累计下行0.48个百分点，降幅达34%。
+她寄语全体教练员、运动员潜心训练、奋勇争先，力争在各级赛事中勇创佳绩。
 
-同时，各类型基金的显性费率（包括管理费、托管费、销售服务费）与隐性费率（包括交易成本、其他运营开支）同步走低，投资者长期持有成本持续优化。
+长春市总工会二级巡视员崔维国表示，工会将全力保障训练基地的场馆运维、后勤服务等各项工作，持续深化体工协作机制，为游泳人才的成长成才保驾护航，助力吉林游泳事业高质量发展。
 
-具体来看，天相投顾基金评价中心表示，第一阶段管理费率改革成效最为显著，尤其是主动权益类基金管理费率普遍明显下调，切实降低了投资者持有成本，推动行业从规模驱动向投资者回报导向转型。
+当天，新组建的吉林省游泳队运动员身着专业装备亮相，集中展示了自由泳、蛙泳、仰泳、蝶泳四种标准泳姿。
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [重庆市酉阳县委书记杨通胜接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:50 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:57 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 13:01 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:54 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 13:02 - [美伊停火暂时维持 华尔街股市强劲反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:47 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:09 - [英皇群星演唱会香港开唱勾起观众青春回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 13:04 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:53 - [央行公告这一名单更新！哪些机构新进，哪些退出？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 13:03 - [黄金周线有望录得上涨，或将突破箱体压力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 13:08 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:51 - [第48届东盟峰会在菲律宾举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 13:00 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:50 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 13:05 - [普京谈与泽连斯基会面：不主动 不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 13:05 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 13:06 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:56 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:57 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:52 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 13:18 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 13:17 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:50 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:56 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/7046614940.shtml)
-- 2026-06-29 12:46 - [“五一”假期浙江口岸出入境人员超10万人次](http://www.blog.kurohicncr.top/Article/details/01246807.shtml)
-- 2026-06-29 12:57 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:10 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](http://www.blog.kurohicncr.top/Article/details/50245742.shtml)
-- 2026-06-29 12:58 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [93.59万人次“五一”打卡太原文博 门票收入破千万](http://www.share.kurohicncr.top/Article/details/9123261487.shtml)
-- 2026-06-29 12:50 - [追光的你｜明天的中国，希望寄予青年](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [阿根廷将在涉疫邮轮出发地开展啮齿动物捕捉与检测工作](http://www.share.minike.top/Article/details/4902484.shtml)
-- 2026-06-29 12:46 - [浙江温岭：民间资金建造“海鹰加科”号科考船下水](http://www.share.minike.top/Article/details/324784045477.shtml)
-- 2026-06-29 13:04 - [逆市下跌，港股医药现低吸机遇？520880、159137溢价飙升！创新药产业链普跌，后续仍有催化](http://www.blog.kurohicncr.top/Article/details/50690.shtml)
-- 2026-06-29 13:01 - [著名文艺理论家王先霈因病逝世](http://www.share.minike.top/Article/details/006946031.shtml)
-- 2026-06-29 12:45 - [精神航空为何倒闭？太多乘客对其飞行体验极度不满](http://www.blog.kurohicncr.top/Article/details/125028281811.shtml)
+- 2026-06-29 13:07 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](http://www.blog.kurohicncr.top/Article/details/50991902.shtml)
+- 2026-06-29 12:53 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](http://www.share.minike.top/Article/details/6221849815.shtml)
+- 2026-06-29 13:02 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](http://www.blog.kurohicncr.top/Article/details/014483988011.shtml)
+- 2026-06-29 12:50 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](http://www.share.minike.top/Article/details/527860550815.shtml)
+- 2026-06-29 13:17 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](http://www.share.minike.top/Article/details/462091.shtml)
+- 2026-06-29 13:00 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:01 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](http://www.blog.minike.top/Article/details/935240165934.shtml)
+- 2026-06-29 13:02 - [特朗普称俄罗斯和乌克兰将在5月9日至11日期间停火三天](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [普京发表阅兵演讲：俄正基于实战经验研制现代化武器](http://www.share.kurohicncr.top/Article/details/296353051.shtml)
+- 2026-06-29 12:57 - [强军思想育新人丨“翀”上云霄](http://www.share.minike.top/Article/details/364649424.shtml)
+- 2026-06-29 13:07 - [固生堂于5月8日斥资158.17万港元回购5.43万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:15 - [全线上涨，近8万人爆仓！美国炼油厂，突发爆炸！](http://www.share.minike.top/Article/details/06134.shtml)
+- 2026-06-29 12:55 - [任天堂将上调Switch 2价格 预计其销量将下滑](http://www.share.minike.top/Article/details/60286763379.shtml)
+- 2026-06-29 13:15 - [陕西宝鸡：江海之上造 “宝桥”](https://github.com/lisacumin64-arch)

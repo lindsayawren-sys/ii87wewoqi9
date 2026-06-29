@@ -1,58 +1,55 @@
-# 515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观
+# 翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。《银华小小理财家》“公益+投教”财商课程活动参选“最佳投资者教育创新奖”类别。>>活动详情 据悉，为响应中国证券投资基金业协会“一司一省一高校”投资者教育专项号召，深入践行金融为民与普惠金融理念，银华基金创新打造“公益+投教”双融合财商教育模式，为乡
+发布时间：2026年05月08日 19:19 来源：中国新闻网 5月8日清晨，翡翠千里眼、顺风耳雕像捐赠揭幕仪式在福建莆田湄洲妈祖祖庙举行。 翡翠千里眼、顺风耳雕像，长48公分、宽32公分、高108公分，每尊重量166千克。该组雕像将与此前安座于弘仁普济天妃宫的翡翠妈祖像、翡翠侍女像配套安座。 此次翡翠千里眼、顺风耳雕像由湄洲妈祖祖庙荣誉董事长赵柳成向湄洲妈祖祖庙捐赠，以此助力
 
 ## 正文
 
-专题：515投资者保护！
+发布时间：2026年05月08日 19:19 来源：中国新闻网 5月8日清晨，翡翠千里眼、顺风耳雕像捐赠揭幕仪式在福建莆田湄洲妈祖祖庙举行。
 
-新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
+翡翠千里眼、顺风耳雕像，长48公分、宽32公分、高108公分，每尊重量166千克。
 
-《银华小小理财家》“公益+投教”财商课程活动参选“最佳投资者教育创新奖”类别。
+该组雕像将与此前安座于弘仁普济天妃宫的翡翠妈祖像、翡翠侍女像配套安座。
 
->>活动详情 据悉，为响应中国证券投资基金业协会“一司一省一高校”投资者教育专项号召，深入践行金融为民与普惠金融理念，银华基金创新打造“公益+投教”双融合财商教育模式，为乡村学子带去生动有趣的《银华小小理财家》财商启蒙课，以金融温度赋能儿童成长，让财商教育的种子扎根校园沃土。
+此次翡翠千里眼、顺风耳雕像由湄洲妈祖祖庙荣誉董事长赵柳成向湄洲妈祖祖庙捐赠，以此助力妈祖文化的传承与传播。
 
-财商教育是国民金融素养教育的核心组成，更是儿童素质教育的重要一课。
-
-从小培育正确的财富观、消费观与理财意识，不仅能帮助孩子们树立理性规划的生活理念，更能为全民金融素养提升筑牢根基。
-
-《银华小小理财家》财商启蒙课程，通过案例讲解、互动分析、游戏实践等多种形式，帮助小朋友了解货币演变、财富来源、理性消费、储蓄意义及复利价值相关知识，引导小朋友树立正确的金钱观、消费观与理财意识，学会合理规划财富。
-
-财商启蒙课一共分为5个部分讲述： 第一部分：主题为“穿越金银岛”主要讲述金钱的演变以及不同国家的货币。
+(记者 吴晟炜 视频来源 湄洲妈祖祖庙） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [福特秘密电动车部门浮出水面 市场放缓背景下仍看好全新电动皮卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:47 - [伊朗：尚未回应美国对伊方14点提议的看法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:56 - [5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:49 - [生猪板块升温，期股共振释放什么信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:48 - [美国股市：标普500指数续创新高 AMD大涨与中东和平预期提振市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 13:03 - [午盘：美股继续上扬 纳指创盘中新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 13:07 - [路易丝·阿伯将出任第31任加拿大总督](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:55 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:49 - [离境退税“即买即退”跨省互认进一步扩围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:46 - [哈塞特：没有参与私募信贷的人不必担心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:46 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 13:08 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 13:14 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 13:13 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:48 - [高开低走，油脂后市何去何从？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 13:05 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:54 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 13:08 - [享界S9零重力座椅事件，给车企和用户都提了个醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 13:06 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:52 - [湖北武汉：初夏时节 花田花海美不胜收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 13:14 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 13:14 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 13:13 - [A股1300亿算力巨头协创数据，净利润猛增343%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:53 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:57 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:52 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 13:16 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [大摩：中国软件国际降至“减持”评级 目标价大削至2.6港元](http://www.share.minike.top/Article/details/017977002.shtml)
-- 2026-06-29 12:55 - [文旅观察：浙南海岛褪去“看海”标签 业态焕新引热潮](http://www.share.kurohicncr.top/Article/details/211768885.shtml)
-- 2026-06-29 12:50 - [转型金融破局：货币政策如何发力？](http://www.blog.kurohicncr.top/Article/details/42693687264.shtml)
-- 2026-06-29 12:51 - [利好突袭，中概狂飙！港股互联网共振向上，百亿513770涨近2%，阿里巴巴涨超3%，机构：5月互联网赔率最高](http://www.blog.kurohicncr.top/Article/details/90039.shtml)
-- 2026-06-29 12:56 - [燃油价格飙升，韩国4月通胀率创21个月新高](http://www.blog.kurohicncr.top/Article/details/229312848637.shtml)
-- 2026-06-29 12:56 - [投资逾百亿港元 港莞共建大湾区可持续航空燃料产业链](http://www.blog.minike.top/Article/details/22837107007.shtml)
-- 2026-06-29 12:53 - [Coinbase首席执行官称公司将裁员约14%](http://www.share.minike.top/Article/details/8569746.shtml)
-- 2026-06-29 13:01 - [Anthropic“杀”进金融圈，联创称2028年底AI能自我进化](http://www.blog.kurohicncr.top/Article/details/5966700034.shtml)
-- 2026-06-29 12:56 - [全国大部降水增多 冷空气将自北向南制造降温](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [开盘：美股周二高开 油价回落与强劲财报提振](http://www.share.kurohicncr.top/Article/details/583006902903.shtml)
-- 2026-06-29 12:48 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [哮喘控制不好？快看看吸入剂你用对了吗？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](http://www.blog.kurohicncr.top/Article/details/14463003714.shtml)
-- 2026-06-29 12:52 - [成都铁路迎“五一”假期客流返程高峰](http://www.blog.kurohicncr.top/Article/details/44593233.shtml)
-- 2026-06-29 13:03 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](http://www.blog.minike.top/Article/details/546233.shtml)
+- 2026-06-29 12:51 - [财税专家：教育培训等行业应全额一次性申报纳税](http://www.blog.minike.top/Article/details/260414766559.shtml)
+- 2026-06-29 12:53 - [《智能体规范应用与创新发展实施意见》答记者问](http://www.blog.kurohicncr.top/Article/details/45113.shtml)
+- 2026-06-29 12:49 - [高盛：美图公司维持“买入”评级 目标价14.30港元](http://www.blog.minike.top/Article/details/96592368821.shtml)
+- 2026-06-29 13:08 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](http://www.share.kurohicncr.top/Article/details/448034.shtml)
+- 2026-06-29 13:06 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:10 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](http://www.blog.kurohicncr.top/Article/details/520861.shtml)
+- 2026-06-29 13:14 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](http://www.blog.kurohicncr.top/Article/details/44482.shtml)
+- 2026-06-29 12:53 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](http://www.blog.kurohicncr.top/Article/details/781140959.shtml)
+- 2026-06-29 13:11 - [加州新计划：新生儿家庭将获数百片免费尿布](http://www.share.minike.top/Article/details/52370903970.shtml)
+- 2026-06-29 12:51 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](http://www.blog.kurohicncr.top/Article/details/208414536.shtml)
+- 2026-06-29 12:53 - [2026世界杯美加墨三国将分别举办开幕式](http://www.share.kurohicncr.top/Article/details/959394012056.shtml)
+- 2026-06-29 13:06 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](http://www.share.kurohicncr.top/Article/details/247752486224.shtml)
+- 2026-06-29 12:52 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](http://www.blog.kurohicncr.top/Article/details/04741488.shtml)

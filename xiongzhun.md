@@ -1,61 +1,61 @@
-# 黄金，又涨了！该抄底了？
+# Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-文章来源：中国商报 当地时间5月5日，国际贵金属价格收盘涨跌不一，现货黄金涨0.76%，报4555.61美元/盎司；COMEX黄金期货涨0.76%，报4567.80美元/盎司。现货白银涨0.12%，报72.82美元/盎司；COMEX白银期货跌0.35%，报73.27美元/盎司。 北京时间5月6日，现货黄金盘中重回4600美元。截至发稿，报4650美元/盎司，涨2.08%。 在国
+物流公司Forward Air公布一季度财报后表示，预计将在未来60至90天内完成一批非核心资产的出售，而受此前业务重组影响的客户过渡计划将于2027年初正式启动。 资产出售进展 公司管理层在财报电话会议上透露，已收到多份针对非核心资产的初步报价，涵盖部分区域性的零担运输网络和仓储设施。预计首批资产出售将在60至90天内完成，其余非核心资产的剥离将在年底前收尾。公司预计，资产出
 
 ## 正文
 
-文章来源：中国商报 当地时间5月5日，国际贵金属价格收盘涨跌不一，现货黄金涨0.76%，报4555.61美元/盎司；COMEX黄金期货涨0.76%，报4567.80美元/盎司。
+物流公司Forward Air公布一季度财报后表示，预计将在未来60至90天内完成一批非核心资产的出售，而受此前业务重组影响的客户过渡计划将于2027年初正式启动。
 
-现货白银涨0.12%，报72.82美元/盎司；COMEX白银期货跌0.35%，报73.27美元/盎司。
+资产出售进展 公司管理层在财报电话会议上透露，已收到多份针对非核心资产的初步报价，涵盖部分区域性的零担运输网络和仓储设施。
 
-北京时间5月6日，现货黄金盘中重回4600美元。
+预计首批资产出售将在60至90天内完成，其余非核心资产的剥离将在年底前收尾。
 
-截至发稿，报4650美元/盎司，涨2.08%。
+公司预计，资产出售将产生约1.5亿至2亿美元的现金收益，将用于偿还债务和优化资本结构。
 
-在国内金饰价格方面，5月6日，周大福、周生生黄金价格报1413元/克，六福珠宝、金至尊报1411元/克。
+客户过渡计划 此前，Forward Air宣布退出部分低利润率的货运代理业务，导致部分客户需要转移至其他承运商。
 
-近日，部分品牌金店为吸引消费者，开始推出特定产品“打折优惠”。
+公司表示，过渡期将于2027年初开始，预计持续6至9个月。
 
-在香港一家六福珠宝门口，该店活动宣传牌上写着“指定定价黄金首饰低至6.5折”。
+为尽量减少对客户的冲击，Forward Air已与多家区域承运商达成运力合作协议。
 
-“这是我们‘一口价’黄金产品的优惠活动。
+战略转型背景 此次资产出售和客户过渡是Forward Air为期两年的“精简与聚焦”战略的一部分。
 
 ## 相关推荐
 
-- 2026-06-29 12:56 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:52 - [【新思想引领新征程】“五一”假期消费市场活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:54 - [九方智投控股于5月5日斥资403.74万港元回购12.03万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:45 - [五一档总票房7.58亿元！它凭什么刷新今年最高分纪录？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 13:01 - [在SpaceX上市前夕 贝索斯对蓝色起源的员工激励机制进行了调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:51 - [承诺“增高”构成欺诈 商家被判退一赔三](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:50 - [以色列停火期间突袭贝鲁特 或炸死真主党一指挥官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:47 - [快讯：WTI原油失守93美元/桶，日内跌9.15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:47 - [心动公司于5月4日斥资761.31万港元回购12万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:59 - [FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:53 - [中国市场缘何被喻为“健身房”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 13:08 - [汉堡王母公司RBI季度业绩超预期，价值套餐需求推动增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:54 - [广州楼市新政发力 “五一”假期一二手住宅市场同步向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 12:49 - [空客计划2020年以来首次发债 应对供应链中断](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 13:10 - [韩国称将确保每年从加拿大进口至多3300万桶原油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:52 - [AI数字人“邓丽君”在河南郑州“登台”表演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 13:01 - [英国首相斯塔默遭遇地方选举惨败，仍计划留任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 13:12 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:59 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:57 - [“AI+影视”找准发展平衡点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 13:12 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 13:03 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 13:06 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:59 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 13:01 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 13:10 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:48 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 13:02 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:50 - [日经指数下跌0.8% 受科技股和金融股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:51 - [预防心梗，这些不良习惯需警惕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:05 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.share.kurohicncr.top/Article/details/1074353.shtml)
-- 2026-06-29 13:10 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](http://www.share.minike.top/Article/details/88414823561.shtml)
-- 2026-06-29 13:00 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](http://www.blog.kurohicncr.top/Article/details/60008996.shtml)
-- 2026-06-29 12:45 - [酒价内参5月6日价格发布：古井贡古20上涨2元](http://www.blog.minike.top/Article/details/38096.shtml)
-- 2026-06-29 12:55 - [广东广州以“微改革”推动营商环境系统提升](http://www.blog.kurohicncr.top/Article/details/39890.shtml)
-- 2026-06-29 12:48 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](http://www.share.kurohicncr.top/Article/details/4274310.shtml)
-- 2026-06-29 13:00 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](http://www.blog.minike.top/Article/details/35362661234.shtml)
-- 2026-06-29 12:43 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](http://www.share.kurohicncr.top/Article/details/056780490.shtml)
-- 2026-06-29 12:59 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](http://www.share.minike.top/Article/details/16469728.shtml)
-- 2026-06-29 13:04 - [CVS业绩亮眼 助力医保行业整体向好](http://www.blog.minike.top/Article/details/47922009615.shtml)
-- 2026-06-29 12:56 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](http://www.blog.kurohicncr.top/Article/details/75754574718.shtml)
-- 2026-06-29 13:05 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](http://www.share.kurohicncr.top/Article/details/5288137.shtml)
-- 2026-06-29 12:57 - [南京银行：印建军担任业务总监的任职资格获监管核准](http://www.share.kurohicncr.top/Article/details/828679.shtml)
-- 2026-06-29 13:09 - [房产租赁毛利率下滑，汇通能源经营遇考](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [美国陆军要求导弹制造商提升自家武器兼容性](http://www.share.kurohicncr.top/Article/details/9589617.shtml)
+- 2026-06-29 12:51 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](http://www.share.kurohicncr.top/Article/details/842704771.shtml)
+- 2026-06-29 12:48 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:10 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](http://www.blog.kurohicncr.top/Article/details/550382.shtml)
+- 2026-06-29 12:52 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](http://www.share.kurohicncr.top/Article/details/01957293445.shtml)
+- 2026-06-29 13:06 - [三部门联合印发《智能体规范应用与创新发展实施意见》](http://www.blog.kurohicncr.top/Article/details/2466758.shtml)
+- 2026-06-29 13:14 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](http://www.blog.kurohicncr.top/Article/details/80089802.shtml)
+- 2026-06-29 12:52 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](http://www.share.kurohicncr.top/Article/details/1655968.shtml)
+- 2026-06-29 13:14 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](http://www.blog.kurohicncr.top/Article/details/764846.shtml)
+- 2026-06-29 13:08 - [第四届西藏自治区数字教育发展大会在拉萨举办](http://www.blog.minike.top/Article/details/014572511.shtml)
+- 2026-06-29 12:50 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](http://www.blog.kurohicncr.top/Article/details/17072.shtml)
+- 2026-06-29 13:07 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](http://www.share.kurohicncr.top/Article/details/47267.shtml)
+- 2026-06-29 13:02 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](http://www.blog.minike.top/Article/details/356037975228.shtml)
+- 2026-06-29 12:48 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.kurohicncr.top/Article/details/664804919.shtml)
+- 2026-06-29 13:17 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](http://www.share.kurohicncr.top/Article/details/5866208.shtml)

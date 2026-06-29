@@ -1,60 +1,50 @@
-# 宝马一季度利润降25%，关税与中国竞争拖累业绩
+# 成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-BMWYY>宝马集团公布2026年第一季度财报，受中国市场竞争加剧及关税压力影响，当季税前利润同比下滑25%至23亿欧元，略高于市场预期的22亿欧元。营收为310亿欧元，同比下降8.1%。 财报显示，宝马核心汽车业务息税前利润率从去年同期的6.9%降至5.0%，但仍高于分析师预测的4.7%。集团全球交付量为56.58万辆，同比减少3.5%。其中中国市场表现尤为疲弱，当季交付量仅
+发布时间：2026年05月09日 19:49 来源：中国新闻网 5月9日，四川成都成华区一处公厕外，藏着一个由清洁工王定平打造的小花园。几年来，他收集路边丢弃和居民弃养的盆栽，细心浇水、修剪后，整齐摆放在公厕周边，让普通角落焕发生机。起初王定平自己购买了两盆花，后来邻居们也会将养不活但未完全枯萎的花草送来，他都悉心照料使其存活。如今这片小花园长势喜人，成为周边一处治愈人心的小景
 
 ## 正文
 
-BMWYY>宝马集团公布2026年第一季度财报，受中国市场竞争加剧及关税压力影响，当季税前利润同比下滑25%至23亿欧元，略高于市场预期的22亿欧元。
+发布时间：2026年05月09日 19:49 来源：中国新闻网 5月9日，四川成都成华区一处公厕外，藏着一个由清洁工王定平打造的小花园。
 
-营收为310亿欧元，同比下降8.1%。
+几年来，他收集路边丢弃和居民弃养的盆栽，细心浇水、修剪后，整齐摆放在公厕周边，让普通角落焕发生机。
 
-财报显示，宝马核心汽车业务息税前利润率从去年同期的6.9%降至5.0%，但仍高于分析师预测的4.7%。
+起初王定平自己购买了两盆花，后来邻居们也会将养不活但未完全枯萎的花草送来，他都悉心照料使其存活。
 
-集团全球交付量为56.58万辆，同比减少3.5%。
+如今这片小花园长势喜人，成为周边一处治愈人心的小景致。
 
-其中中国市场表现尤为疲弱，当季交付量仅14.4万辆，同比下滑10%，主要受本土车企价格竞争及新能源车型冲击。
-
-关税因素对业绩构成显著拖累。
-
-宝马表示，美国现行15%整车进口关税及欧盟对中国产电动车额外征收的关税，合计对汽车业务利润率造成约1.25个百分点的负面影响。
-
-若特朗普政府将欧洲汽车关税进一步提高至25%，宝马全年业绩将面临更大压力。
+(制作 陈选斌） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 12:52 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:46 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:42 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:54 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:53 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:54 - [93.59万人次“五一”打卡太原文博 门票收入破千万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 13:09 - [追光的你｜明天的中国，希望寄予青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:50 - [阿根廷将在涉疫邮轮出发地开展啮齿动物捕捉与检测工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:50 - [浙江温岭：民间资金建造“海鹰加科”号科考船下水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 13:04 - [逆市下跌，港股医药现低吸机遇？520880、159137溢价飙升！创新药产业链普跌，后续仍有催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:59 - [著名文艺理论家王先霈因病逝世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:56 - [精神航空为何倒闭？太多乘客对其飞行体验极度不满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:56 - [AMD飙涨近19%带飞AI芯片板块！规模最大港股通信息技术ETF华宝（159131）续涨2.55%冲击连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 13:09 - [芯成科技今早一度翻倍 两个交易日股价累计涨幅高达400%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 13:05 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 13:14 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:09 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 13:17 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:51 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 13:02 - [特朗普称俄罗斯和乌克兰将在5月9日至11日期间停火三天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:54 - [普京发表阅兵演讲：俄正基于实战经验研制现代化武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 13:00 - [强军思想育新人丨“翀”上云霄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 13:08 - [固生堂于5月8日斥资158.17万港元回购5.43万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:59 - [全线上涨，近8万人爆仓！美国炼油厂，突发爆炸！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:04 - [书香伴假日 奋斗自芳华](http://www.blog.kurohicncr.top/Article/details/2311438.shtml)
-- 2026-06-29 12:46 - [以色列自停火以来首次袭击贝鲁特 称旨在清除真主党精锐部队指挥官](http://www.blog.minike.top/Article/details/19184.shtml)
-- 2026-06-29 12:48 - [广西开展专题调研——探寻八桂大地上的团结密码](http://www.blog.kurohicncr.top/Article/details/8386504238.shtml)
-- 2026-06-29 12:47 - [2026年“五一”假期宁夏刑事、治安警情同比“双下降”](http://www.blog.minike.top/Article/details/30111389037.shtml)
-- 2026-06-29 12:58 - [中国车企“扫货”海外闲置产能](http://www.blog.kurohicncr.top/Article/details/76191923194.shtml)
-- 2026-06-29 12:49 - [重组完成28个月后，中国奥园为何再陷境外债违约？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [越疆午前涨超5% 越疆创业板IPO申请获深交所受理](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [谨记骑乘电动车戴牢头盔 北京明日各主要路口路段将增设执勤警力](http://www.blog.minike.top/Article/details/2381239.shtml)
-- 2026-06-29 12:54 - [惠誉将阿根廷信用评级上调至B- 展望稳定](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [Coinbase裁员14% 转向“AI优先”运营模式](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [日本央行会议纪要：一位委员称政策利率仍远未达到中性水平](http://www.blog.minike.top/Article/details/830729.shtml)
-- 2026-06-29 12:50 - [西藏自治区拉萨市委常委、常务副市长占堆被查](http://www.share.kurohicncr.top/Article/details/809848.shtml)
-- 2026-06-29 13:10 - [冠城钟表珠宝拟“3供1”基准供股](http://www.share.minike.top/Article/details/89506.shtml)
-- 2026-06-29 13:11 - [电影《给阿嬷的情书》：书写中国人刻在骨血里的情义](http://www.blog.kurohicncr.top/Article/details/91419459769.shtml)
-- 2026-06-29 13:09 - [中国男乒逆转取胜 晋级世乒赛男团八强](http://www.blog.minike.top/Article/details/435795299586.shtml)
+- 2026-06-29 12:48 - [天津皇会踩街巡游 两岸信众共迎妈祖诞辰](http://www.blog.minike.top/Article/details/65700.shtml)
+- 2026-06-29 13:11 - [中远海发于5月8日斥资408.85万元回购150万股A股](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:12 - [中国空天领域百余家单位联合倡议 共建千星规模“太空云”生态](http://www.blog.kurohicncr.top/Article/details/68170.shtml)
+- 2026-06-29 12:54 - [赖清德跪拜日本人被批“无耻无骨无格”](http://www.blog.minike.top/Article/details/65397.shtml)
+- 2026-06-29 13:12 - [华尔街收低，芯片股回吐涨幅](http://www.share.kurohicncr.top/Article/details/368064515878.shtml)
+- 2026-06-29 13:04 - [江西省人大常委会委员喻晓社接受审查调查](http://www.share.kurohicncr.top/Article/details/5020304606.shtml)
+- 2026-06-29 12:49 - [外交部：希望欧方全面客观积极看待中欧经贸关系](http://www.blog.minike.top/Article/details/640506023080.shtml)
+- 2026-06-29 13:09 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.share.kurohicncr.top/Article/details/0585437.shtml)
+- 2026-06-29 12:52 - [美国非农数据公布前市场情绪趋于谨慎，黄金维持小幅震荡](http://www.blog.minike.top/Article/details/67747067.shtml)
+- 2026-06-29 13:04 - [市场监管总局完成企业变更登记等五项“一件事”政务服务改革](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [光大期货：5月8日矿钢煤焦日报](http://www.share.minike.top/Article/details/73855703.shtml)
+- 2026-06-29 12:48 - [育龄女性当心：体重失控“偷走”生育力](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:12 - [A股沪指翻红，超3700只个股上涨](http://www.blog.kurohicncr.top/Article/details/54525.shtml)
+- 2026-06-29 13:14 - [西宁冷凉蔬菜、西宁草莓品牌正式发布](http://www.blog.minike.top/Article/details/214368567.shtml)
+- 2026-06-29 12:55 - [绿色智能消费、县域游、赛事游……从“五一”假期消费看中国经济向新向优](http://www.share.minike.top/Article/details/926011.shtml)

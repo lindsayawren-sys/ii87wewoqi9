@@ -1,60 +1,61 @@
-# Anthropic“杀”进金融圈，联创称2028年底AI能自我进化
+# 工商银行全新推出“工盈研选”品牌 博时多只优质产品入选
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-再次引发股价大跌。 北京时间5月5日晚，新的风暴席卷华尔街。AI明星公司Anthropic宣布推出10款面向金融行业的AI智能体，引发相关服务商的股价大跌。 这10款AI智能体涵盖银行、保险等金融科技领域，可用于生成客户推荐材料、审阅财务报表以及触发合规审查流程等。AI同时接入了Word、Excel、PowerPoint及Outlook，可以提升分析师更新数据、构建财务模型、制
+近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。 “工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。首期推出“安盈”“智盈”两个产品系列，精准
 
 ## 正文
 
-再次引发股价大跌。
+近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。
 
-北京时间5月5日晚，新的风暴席卷华尔街。
+“工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。
 
-AI明星公司Anthropic宣布推出10款面向金融行业的AI智能体，引发相关服务商的股价大跌。
+首期推出“安盈”“智盈”两个产品系列，精准匹配不同客户投资需求。
 
-这10款AI智能体涵盖银行、保险等金融科技领域，可用于生成客户推荐材料、审阅财务报表以及触发合规审查流程等。
+其中“安盈”系列聚焦固收、固收+产品，通过严控回撤风险，力争助力客户资产稳健增长。
 
-AI同时接入了Word、Excel、PowerPoint及Outlook，可以提升分析师更新数据、构建财务模型、制作演示材料的效率。
+智盈系列则精选权益指数及指数增强产品，力争为追求收益弹性的客户提供进攻性工具。
 
-消息发布后，昨夜盘中美股金融数据服务商FactSet Research Systems一度下跌超8%，后有所反弹，收盘跌幅收复至2.24%；金融服务商晨星（Morningstar）在早盘涨超1%，消息发布后股价转跌，一度跌逾3%；标普全球（S&P Global）及穆迪（Moody‘s Corp．）也有明显股价波动。
+经过层层精选，博时基金旗下博时恒泰债券基金成功入选“安盈”系列，博时恒生高股息ETF联接基金、博时恒生科技ETF联接基金双双入选“智盈”系列。
 
-这一场景似曾相识——就在两个多月前，Anthropic发布Claude Cowork智能体时，就曾引发AI替代软件服务的担忧，全球软件股集体跳水，Thomson Reuters、Salesforce、Adobe等无一幸免。
+基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒泰债券基金A类、C类收益率分别为6.09%、5.72%，同期业绩比较基准收益率为0.95%。
 
-Anthropic在AI编程工具领域确立了地位，随后公司今年开始在此基础上推出一系列专业领域的智能体工具。
+基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒生高股息ETF联接A类、C类收益率均为23.14%，同期业绩比较基准收益率为20.00%。
 
 ## 相关推荐
 
-- 2026-06-29 13:06 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:46 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:54 - [广东建成内地规模最大欧标充电服务网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:51 - [AI、国防与气候：重塑全球增长格局的三大支柱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:47 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 13:10 - [重庆市酉阳县委书记杨通胜接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:52 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:44 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:45 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:56 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:42 - [美伊停火暂时维持 华尔街股市强劲反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:44 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:45 - [英皇群星演唱会香港开唱勾起观众青春回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:56 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:54 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:55 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 13:04 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:57 - [新疆加快打造全国优质农牧产品重要供给基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 13:15 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:55 - [黄金周线有望录得上涨，或将突破箱体压力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:56 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:57 - [第48届东盟峰会在菲律宾举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 13:00 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:51 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 13:16 - [普京谈与泽连斯基会面：不主动 不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 13:07 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 13:11 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:57 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:48 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:07 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](http://www.share.minike.top/Article/details/320838.shtml)
-- 2026-06-29 13:04 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](http://www.blog.minike.top/Article/details/9181663.shtml)
-- 2026-06-29 12:57 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](http://www.share.minike.top/Article/details/24889.shtml)
-- 2026-06-29 12:46 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [今天全国铁路预计发送旅客2300万人次](http://www.blog.minike.top/Article/details/3622319.shtml)
-- 2026-06-29 12:59 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](http://www.share.minike.top/Article/details/142904.shtml)
-- 2026-06-29 12:52 - [“五一”假期浙江口岸出入境人员超10万人次](http://www.share.minike.top/Article/details/016420619.shtml)
-- 2026-06-29 12:43 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](http://www.share.kurohicncr.top/Article/details/350114.shtml)
-- 2026-06-29 13:07 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](http://www.blog.minike.top/Article/details/244742720.shtml)
-- 2026-06-29 12:55 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](http://www.share.kurohicncr.top/Article/details/63466843.shtml)
-- 2026-06-29 12:58 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](http://www.blog.minike.top/Article/details/05658.shtml)
-- 2026-06-29 12:42 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](http://www.share.kurohicncr.top/Article/details/52587400.shtml)
-- 2026-06-29 12:46 - [93.59万人次“五一”打卡太原文博 门票收入破千万](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [追光的你｜明天的中国，希望寄予青年](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:10 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](http://www.blog.minike.top/Article/details/01867955.shtml)
+- 2026-06-29 12:49 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](http://www.share.kurohicncr.top/Article/details/287400266897.shtml)
+- 2026-06-29 12:49 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [德银高管：美伊停战情境下 油价或下探每桶85美元](http://www.share.kurohicncr.top/Article/details/59056.shtml)
+- 2026-06-29 13:03 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](http://www.share.minike.top/Article/details/695628282.shtml)
+- 2026-06-29 13:01 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](http://www.blog.kurohicncr.top/Article/details/651198824109.shtml)
+- 2026-06-29 13:15 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](http://www.share.minike.top/Article/details/0610741.shtml)
+- 2026-06-29 12:59 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](http://www.share.minike.top/Article/details/528017194.shtml)
+- 2026-06-29 13:01 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](http://www.share.kurohicncr.top/Article/details/560121.shtml)
+- 2026-06-29 13:07 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](http://www.share.kurohicncr.top/Article/details/3042594055.shtml)
+- 2026-06-29 12:48 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](http://www.share.kurohicncr.top/Article/details/3654839909.shtml)
+- 2026-06-29 13:16 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](http://www.share.kurohicncr.top/Article/details/7536914.shtml)
+- 2026-06-29 12:49 - [特朗普称俄罗斯和乌克兰将在5月9日至11日期间停火三天](http://www.blog.kurohicncr.top/Article/details/591426.shtml)
+- 2026-06-29 13:06 - [普京发表阅兵演讲：俄正基于实战经验研制现代化武器](http://www.blog.kurohicncr.top/Article/details/295145.shtml)

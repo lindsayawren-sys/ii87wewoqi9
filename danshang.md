@@ -1,57 +1,61 @@
-# “五一”假期核心城市楼市升温：京深二手房交易同比大增
+# 【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-中新社北京5月6日电 (记者 庞无忌)今年“五一”假期，中国核心城市房地产市场交投活跃。 5月前5天，中国核心城市新房和二手房成交量均明显高于去年同期。中指研究院6日发布的数据显示，从新房来看，2026年“五一”假期期间(5月1日至5日)，重点26城新建商品住宅网签面积51.8万平方米，同比增长12.5%。 “五一”假期前，广州、深圳、武汉等城市扎堆出台房地产新政。据中指研究院
+央视网消息（新闻联播）：当前，树立和践行正确政绩观学习教育正在深入扎实开展。四川省宜宾市、福建省厦门市深学细悟、真抓实干，切实把学习教育成果转化为指导实践、为民造福的实际行动和成效。 四川宜宾建立专题研讨深学、青年党员研学、市县专班督学等机制，推动学习教育融入日常、抓在经常。学习教育开展以来，宜宾选派2100多名干部走进社区、乡村，收集整理群众意见。 围绕居民反映的部分老旧小区
 
 ## 正文
 
-中新社北京5月6日电 (记者 庞无忌)今年“五一”假期，中国核心城市房地产市场交投活跃。
+央视网消息（新闻联播）：当前，树立和践行正确政绩观学习教育正在深入扎实开展。
 
-5月前5天，中国核心城市新房和二手房成交量均明显高于去年同期。
+四川省宜宾市、福建省厦门市深学细悟、真抓实干，切实把学习教育成果转化为指导实践、为民造福的实际行动和成效。
 
-中指研究院6日发布的数据显示，从新房来看，2026年“五一”假期期间(5月1日至5日)，重点26城新建商品住宅网签面积51.8万平方米，同比增长12.5%。
+四川宜宾建立专题研讨深学、青年党员研学、市县专班督学等机制，推动学习教育融入日常、抓在经常。
 
-“五一”假期前，广州、深圳、武汉等城市扎堆出台房地产新政。
+学习教育开展以来，宜宾选派2100多名干部走进社区、乡村，收集整理群众意见。
 
-据中指研究院监测，“五一”假期期间，这些城市新房项目到访及成交提升显著：深圳新房销售面积同比增长59%，武汉同比增长122%，上海新房网签成交量同比增长45%，北京、杭州、西安等城市新房市场则延续前期温和复苏走势。
+围绕居民反映的部分老旧小区无业主委员会、无物业服务、无人防物防等问题，宜宾将全市存在问题的400多个小区划分为4类，制定45项重点攻坚任务清单，分批推动改造提升。
 
-整体来看，区域分化、产品分化仍是市场主旋律，高性价比及改善型项目表现相对突出。
+目前，宜宾全市县处级以上领导班子针对“部分干部存在主动破局意愿薄弱”等情况，建立学习教育查摆问题清单162个，查摆问题4300余条。
 
-二手房方面，“五一”假期期间，11个城市二手住宅网签成交合计约2300套，较2025年同期增长26.7%，相比2024年同期增长近七成。
+福建厦门一体推进学查改。
 
-其中，北京、上海、深圳“五一”假期期间二手住宅网签成交量同比分别增长76%、16%、81%。
+学习教育开展以来，厦门以民生需求为工作落脚点，组织党员干部深入社区一线走访调研，倾听群众诉求。
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:49 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:43 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:44 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:48 - [南京银行：印建军担任业务总监的任职资格获监管核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:52 - [房产租赁毛利率下滑，汇通能源经营遇考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:01 - [美国陆军要求导弹制造商提升自家武器兼容性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:43 - [以共赢促共富 民企精准帮扶常态化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 13:11 - [际华集团（601718）收到处罚事先告知书，投资者索赔多次提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 13:08 - [福特秘密电动车部门浮出水面 市场放缓背景下仍看好全新电动皮卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 13:00 - [伊朗：尚未回应美国对伊方14点提议的看法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 13:08 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 13:00 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 13:02 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 13:13 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:55 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 13:06 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 13:08 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:55 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 13:14 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 13:16 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 13:11 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 13:13 - [高开低走，油脂后市何去何从？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 13:09 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 13:09 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 13:13 - [享界S9零重力座椅事件，给车企和用户都提了个醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:51 - [国乒女团3比0瑞典 晋级世乒赛8强](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [小摩：民生银行给予“中性”评级 目标价3.90港元](http://www.share.kurohicncr.top/Article/details/29844887396.shtml)
-- 2026-06-29 12:58 - [山东省枣庄市青檀学校：榴乡厚土育同心](http://www.blog.kurohicncr.top/Article/details/014280024.shtml)
-- 2026-06-29 13:11 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](http://www.blog.kurohicncr.top/Article/details/61332321.shtml)
-- 2026-06-29 12:57 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](http://www.share.kurohicncr.top/Article/details/6038226144.shtml)
-- 2026-06-29 12:42 - [成本压力持续传导 全球消费品企业竞相涨价](http://www.blog.minike.top/Article/details/153006640.shtml)
-- 2026-06-29 13:01 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](http://www.share.kurohicncr.top/Article/details/3587287609.shtml)
-- 2026-06-29 13:06 - [穿越百年航海史 “时光邮轮”驶入吉林长春](http://www.blog.minike.top/Article/details/73788185906.shtml)
-- 2026-06-29 12:46 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](http://www.blog.kurohicncr.top/Article/details/4778733970.shtml)
-- 2026-06-29 13:03 - [大摩：中国软件国际降至“减持”评级 目标价大削至2.6港元](http://www.blog.minike.top/Article/details/487282041.shtml)
-- 2026-06-29 12:43 - [文旅观察：浙南海岛褪去“看海”标签 业态焕新引热潮](http://www.share.minike.top/Article/details/5201214.shtml)
-- 2026-06-29 12:45 - [转型金融破局：货币政策如何发力？](http://www.blog.minike.top/Article/details/31062139347.shtml)
-- 2026-06-29 12:51 - [利好突袭，中概狂飙！港股互联网共振向上，百亿513770涨近2%，阿里巴巴涨超3%，机构：5月互联网赔率最高](http://www.share.minike.top/Article/details/4029715132.shtml)
-- 2026-06-29 12:50 - [燃油价格飙升，韩国4月通胀率创21个月新高](http://www.blog.minike.top/Article/details/92577075.shtml)
-- 2026-06-29 13:08 - [投资逾百亿港元 港莞共建大湾区可持续航空燃料产业链](http://www.blog.minike.top/Article/details/529703.shtml)
+- 2026-06-29 12:49 - [光大证券，离头部券商越来越远](http://www.share.kurohicncr.top/Article/details/371517.shtml)
+- 2026-06-29 13:13 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.blog.minike.top/Article/details/432670423600.shtml)
+- 2026-06-29 13:15 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](http://www.share.minike.top/Article/details/7146842211.shtml)
+- 2026-06-29 12:51 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.blog.minike.top/Article/details/79077.shtml)
+- 2026-06-29 12:57 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:17 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.blog.kurohicncr.top/Article/details/54191812466.shtml)
+- 2026-06-29 13:14 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [工信部启动人工智能科技伦理审查与服务先导计划](http://www.share.minike.top/Article/details/20761872460.shtml)
+- 2026-06-29 12:53 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](http://www.share.kurohicncr.top/Article/details/2396418.shtml)
+- 2026-06-29 13:15 - [财税专家：教育培训等行业应全额一次性申报纳税](http://www.blog.minike.top/Article/details/4996151.shtml)
+- 2026-06-29 13:09 - [《智能体规范应用与创新发展实施意见》答记者问](http://www.blog.kurohicncr.top/Article/details/9682247.shtml)
+- 2026-06-29 12:59 - [高盛：美图公司维持“买入”评级 目标价14.30港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:17 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](http://www.blog.minike.top/Article/details/118644249.shtml)
+- 2026-06-29 13:01 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](http://www.blog.minike.top/Article/details/821465.shtml)
+- 2026-06-29 13:17 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](http://www.blog.kurohicncr.top/Article/details/3917484387.shtml)

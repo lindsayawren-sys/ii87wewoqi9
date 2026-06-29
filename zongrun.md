@@ -1,61 +1,60 @@
-# AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势
+# 海南首个飞灰资源化利用项目投产
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-受强劲财报及人工智能需求前景提振，超威半导体股价周三飙升至创纪录水平，并带动芯片股集体走强。 AMD股价当日大涨约18%，创下历史新高，总市值逼近7000亿美元。此前该公司公布的2026财年第一季度财报显示，营收同比增长38%至102.5亿美元，净利润同比增长95%至13.8亿美元，双双超出市场预期。业绩增长主要得益于AI基础设施需求的持续加速，数据中心业务成为核心驱动力，该部
+中新网海口5月8日电 (王晓斌 孙秀英 李军)据海南省生态环境厅8日消息，位于海南昌江的水泥窑协同处置飞灰及危险废物项目已正式投产，该项目以海南全省生活垃圾焚烧发电厂的飞灰为原料，打通了生活垃圾焚烧飞灰处置的“最后一公里”。这个由华润水泥(昌江)有限公司投资1.39亿元建成的水泥窑协同处置飞灰及危险废物项目，是海南省首个飞灰资源化利用项目，规划处置飞灰5万吨/年及危险废物2.9
 
 ## 正文
 
-受强劲财报及人工智能需求前景提振，超威半导体股价周三飙升至创纪录水平，并带动芯片股集体走强。
+中新网海口5月8日电 (王晓斌 孙秀英 李军)据海南省生态环境厅8日消息，位于海南昌江的水泥窑协同处置飞灰及危险废物项目已正式投产，该项目以海南全省生活垃圾焚烧发电厂的飞灰为原料，打通了生活垃圾焚烧飞灰处置的“最后一公里”。
 
-AMD股价当日大涨约18%，创下历史新高，总市值逼近7000亿美元。
+这个由华润水泥(昌江)有限公司投资1.39亿元建成的水泥窑协同处置飞灰及危险废物项目，是海南省首个飞灰资源化利用项目，规划处置飞灰5万吨/年及危险废物2.92万吨/年。
 
-此前该公司公布的2026财年第一季度财报显示，营收同比增长38%至102.5亿美元，净利润同比增长95%至13.8亿美元，双双超出市场预期。
+自今年初投产以来，已累计处理飞灰5200吨、危废3800吨，并产出结晶盐等水洗副产品。
 
-业绩增长主要得益于AI基础设施需求的持续加速，数据中心业务成为核心驱动力，该部门营收达58亿美元，同比增长57%。
+项目以海南全省生活垃圾焚烧发电厂的飞灰为原料，采用当前国内成熟可靠的“飞灰水洗+蒸发脱盐+水泥窑协同处置”工艺技术，将飞灰经过水洗脱盐等预处理工艺后转化为水泥原料，降低了传统处置方式带来的环境风险，打通了生活垃圾焚烧飞灰处置的“最后一公里”。
 
-更令市场振奋的是公司对未来的展望。
+海南省生态环境厅土壤和农村环境管理处有关负责人表示，该项目是落实“无废岛”建设规划的重要工程。
 
-AMD大幅上修服务器CPU长期市场空间，将2030年市场规模预期从此前的600亿美元上调至1200亿美元，年复合增长率从18%提升至超35%。
+为促成项目落地，早在2021年海南省生态环境部门就开始谋划布局，通过出台相关规划和方案等明确提出“推动生活垃圾焚烧飞灰资源化利用，满足全省危险废物污染防治长远发展需要”，并协同海南省住建厅、昌江黎族自治县、海口市等多方联动，在项目落地、环评审批、危废经营许可证办理、飞灰原料来源、项目投产等方面予以积极指导帮扶，促使该项目顺利建成并投产，同时也为省内外提供了可复制、可推广的水泥窑协同处置飞灰实践案例。
 
-AMD首席执行官苏姿丰表示，随着AI推理与智能体应用重塑算力结构，CPU在数据中心中的地位正不断提升。
+据介绍，自2021年起，海南省已关停16座生活垃圾填埋场，依托8座焚烧发电厂实现原生生活垃圾全量焚烧，率先在全国实现“零填埋”；同时，累计建设“无废细胞”865家，覆盖酒店、景区等旅游行业重点场景；将“禁塑”作为国家生态文明试验区标志工程，形成“法规+名录+标准+可追溯平台+替代品产业”的闭环管理，协同实施“无塑”海洋、美丽海湾建设等工作，推动实现塑料污染陆海统筹治理，多项工作实现全国首创。
 
-公司预计第二季度服务器CPU营收将同比增长超70%。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:00 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 13:01 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:56 - [成本高企挤压利润，印度苏拉酒业Q4净利下滑34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:55 - [烧烤摊主为救3岁宝宝停业10天，归来后生意“爆棚”！市委书记也穿着简装来“打卡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 13:06 - [金建希股价操纵案法官遗书内容公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:44 - [优步CEO谈Q1业绩：我们着眼于长期布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:59 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 13:04 - [【新思想引领新征程】“五一”假期消费市场活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:46 - [九方智投控股于5月5日斥资403.74万港元回购12.03万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:44 - [五一档总票房7.58亿元！它凭什么刷新今年最高分纪录？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 13:04 - [在SpaceX上市前夕 贝索斯对蓝色起源的员工激励机制进行了调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:59 - [承诺“增高”构成欺诈 商家被判退一赔三](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:42 - [以色列停火期间突袭贝鲁特 或炸死真主党一指挥官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:44 - [快讯：WTI原油失守93美元/桶，日内跌9.15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:46 - [心动公司于5月4日斥资761.31万港元回购12万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:15 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:55 - [万份收益不足3毛，天弘余额宝连续6天“七日年化收益率”低于1％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:48 - [四川探路跨境电商 巴蜀生活美学走向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 13:03 - [塔吉克斯坦总统拉赫蒙将对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:54 - [四川野生大熊猫情侣在竹林中谈恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 13:01 - [两岸一家亲！台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 13:02 - [AI数字人“邓丽君”在河南郑州“登台”表演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:48 - [英国首相斯塔默遭遇地方选举惨败，仍计划留任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 13:17 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 13:11 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 13:07 - [“AI+影视”找准发展平衡点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 13:03 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 13:13 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:59 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:43 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.blog.minike.top/Article/details/340852534.shtml)
-- 2026-06-29 13:00 - [伊朗查封并没收22名与美以有关联人员财产](http://www.blog.minike.top/Article/details/64387.shtml)
-- 2026-06-29 13:02 - [俄美外长通话讨论国际局势和双边关系](http://www.blog.minike.top/Article/details/35559358.shtml)
-- 2026-06-29 13:00 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](http://www.share.minike.top/Article/details/09325163.shtml)
-- 2026-06-29 13:04 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.share.minike.top/Article/details/969102594.shtml)
-- 2026-06-29 13:07 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.blog.kurohicncr.top/Article/details/986846412329.shtml)
-- 2026-06-29 12:50 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](http://www.blog.kurohicncr.top/Article/details/350248420075.shtml)
-- 2026-06-29 12:55 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](http://www.share.kurohicncr.top/Article/details/91574.shtml)
-- 2026-06-29 12:52 - [酒价内参5月6日价格发布：古井贡古20上涨2元](http://www.blog.minike.top/Article/details/1383104924.shtml)
-- 2026-06-29 12:54 - [广东广州以“微改革”推动营商环境系统提升](http://www.blog.minike.top/Article/details/08593.shtml)
-- 2026-06-29 12:45 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](http://www.share.kurohicncr.top/Article/details/13105164681.shtml)
-- 2026-06-29 12:42 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](http://www.blog.kurohicncr.top/Article/details/43775086.shtml)
-- 2026-06-29 13:03 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](http://www.blog.minike.top/Article/details/2722231.shtml)
+- 2026-06-29 13:02 - [中欧班列开行突破13万列](http://www.share.kurohicncr.top/Article/details/107529397640.shtml)
+- 2026-06-29 13:05 - [A股再现国资“A吃A”！](http://www.share.kurohicncr.top/Article/details/43082754.shtml)
+- 2026-06-29 13:13 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.blog.kurohicncr.top/Article/details/21414.shtml)
+- 2026-06-29 12:53 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.share.kurohicncr.top/Article/details/5931178712.shtml)
+- 2026-06-29 12:49 - [个人办事，不只“能办”还要“好办、易办”](http://www.share.kurohicncr.top/Article/details/565254770.shtml)
+- 2026-06-29 12:51 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:14 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](http://www.share.minike.top/Article/details/8426024074.shtml)
+- 2026-06-29 13:12 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](http://www.share.minike.top/Article/details/726491396.shtml)
+- 2026-06-29 12:53 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](http://www.blog.minike.top/Article/details/49153.shtml)
+- 2026-06-29 12:52 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](http://www.blog.minike.top/Article/details/87081233.shtml)
+- 2026-06-29 12:54 - [三部门联合印发《智能体规范应用与创新发展实施意见》](http://www.blog.kurohicncr.top/Article/details/077212600169.shtml)
+- 2026-06-29 12:53 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](http://www.blog.kurohicncr.top/Article/details/35097881813.shtml)
+- 2026-06-29 13:12 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](http://www.blog.kurohicncr.top/Article/details/4597926181.shtml)
+- 2026-06-29 12:59 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lisacumin64-arch)

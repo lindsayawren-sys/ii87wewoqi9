@@ -1,59 +1,48 @@
-# 马斯克就推特持股披露案与SEC达成和解 支付150万美元罚款
+# 保诚于5月7日斥资298.87万英镑回购25.26万股
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-埃隆·马斯克已就美国证券交易委员会提起的民事诉讼达成和解，同意支付150万美元罚款，了结关于其2022年收购推特期间未能及时披露持股的指控。 根据5月4日提交给华盛顿特区联邦法院的和解协议，马斯克名下的一个信托将支付这笔民事罚款。马斯克既未承认存在不当行为，也无需退还其因延迟披露而声称节约的1.5亿美元资金。此前曾要求马斯克退还该笔款项并支付额外罚款，据悉该机构在早期和解提议中
+保诚（02378）发布公告，于2026年5月7日斥资298.87万英镑回购25.26万股；注销35.13万股已回购股份。责任编辑：卢昱君
 
 ## 正文
 
-埃隆·马斯克已就美国证券交易委员会提起的民事诉讼达成和解，同意支付150万美元罚款，了结关于其2022年收购推特期间未能及时披露持股的指控。
+保诚（02378）发布公告，于2026年5月7日斥资298.87万英镑回购25.26万股；注销35.13万股已回购股份。
 
-根据5月4日提交给华盛顿特区联邦法院的和解协议，马斯克名下的一个信托将支付这笔民事罚款。
-
-马斯克既未承认存在不当行为，也无需退还其因延迟披露而声称节约的1.5亿美元资金。
-
-此前曾要求马斯克退还该笔款项并支付额外罚款，据悉该机构在早期和解提议中一度要求2亿美元。
-
-在2025年1月提起的诉讼中指出，马斯克在2022年3月14日持有推特股份超过5%的门槛，但直至4月4日才披露其持股已达9.2%，延迟了11天。
-
-这期间，马斯克得以以较低价格购买了价值超过5亿美元的股票，而推特股价在他披露持股当天大涨27%。
-
-马斯克律师亚历克斯·斯皮罗发表声明称：“马斯克先生现在已经了结了与推特收购案中迟交表格相关的所有问题，正如我们从一开始所说的那样。
-
-” 此次和解正值在特朗普政府领导下调整执法优先事项之际。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:06 - [美国宣布对伊军事行动结束，分析担忧战事远未终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:49 - [万成集团股份复牌一度飙升91% 获执董钟国强折让约34.96%提全购要约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:56 - [锦欣生殖前4个月不孕初诊数同比增长7.5% 取卵周期数同比增长5.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 13:02 - [2026年“香港高考”收官：逾5.85万考生报考 内地试点考场持续优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:42 - [苹果因Mac需求强劲面临供应压力 旺盛需求超出芯片供应能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:53 - [维格维口服减肥药销量大幅超预期，诺和诺德股价大涨7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:11 - [AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 13:06 - [外媒：伊朗已启动霍尔木兹海峡通行管理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:48 - [潍柴动力午后涨逾4%再创新高 小摩维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 13:09 - [“五一”假期江苏接待国内游客3758.98万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:51 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:02 - [宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 13:04 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 13:05 - [欧阳光：四川银行中小银行IT体系企业级重构建设实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:57 - [直击徐州非法排污事件现场：清淤仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 13:05 - [（乡村行·看振兴）山西忻州荒坡上的“酸枣经”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 13:03 - [台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 13:10 - [五粮液（000858）投资者索赔案已提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 13:04 - [外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 13:02 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 13:17 - [李成钢：积极推动APEC贸易部长会议围绕两方面议题达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 13:15 - [被拖欠片酬，演员喊话要求《平乐赋》下架，爱奇艺回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:58 - [大美边疆看我家丨黑龙江牡丹江：熔岩台地杏花如雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 13:17 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:49 - [红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 13:17 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 13:13 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:49 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](http://www.share.kurohicncr.top/Article/details/96316503.shtml)
-- 2026-06-29 13:06 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](http://www.blog.kurohicncr.top/Article/details/07386719913.shtml)
-- 2026-06-29 13:07 - [年轻人假期热衷贵阳“寻咖”](http://www.share.minike.top/Article/details/35726013.shtml)
-- 2026-06-29 13:06 - [富通科技公布于5月6日下午起复牌](http://www.blog.kurohicncr.top/Article/details/91342416351.shtml)
-- 2026-06-29 13:08 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](http://www.share.minike.top/Article/details/7646500579.shtml)
-- 2026-06-29 12:48 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:10 - [追光的你｜青春的颜色](http://www.share.kurohicncr.top/Article/details/17850.shtml)
-- 2026-06-29 13:03 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](http://www.blog.minike.top/Article/details/323998019.shtml)
-- 2026-06-29 13:11 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](http://www.share.minike.top/Article/details/2827676528.shtml)
-- 2026-06-29 13:01 - [特朗普称将暂停自由计划“一小段时间”](http://www.share.minike.top/Article/details/97235567.shtml)
-- 2026-06-29 12:48 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.share.kurohicncr.top/Article/details/096520.shtml)
-- 2026-06-29 12:42 - [青春之喻，奋斗之帆](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.blog.kurohicncr.top/Article/details/23655192.shtml)
-- 2026-06-29 12:52 - [伊朗查封并没收22名与美以有关联人员财产](http://www.blog.minike.top/Article/details/05526984615.shtml)
+- 2026-06-29 12:56 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](http://www.share.minike.top/Article/details/46303.shtml)
+- 2026-06-29 12:49 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](http://www.share.kurohicncr.top/Article/details/218271.shtml)
+- 2026-06-29 12:53 - [AI时代，全球教育正面临三层重塑](http://www.share.minike.top/Article/details/22815594.shtml)
+- 2026-06-29 12:51 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](http://www.share.minike.top/Article/details/8110531.shtml)
+- 2026-06-29 12:58 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.share.kurohicncr.top/Article/details/248435206.shtml)
+- 2026-06-29 13:15 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](http://www.blog.kurohicncr.top/Article/details/772057802863.shtml)
+- 2026-06-29 12:56 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.share.minike.top/Article/details/9263112.shtml)
+- 2026-06-29 12:53 - [坚持有腐必反、有贪必肃](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:17 - [信利国际于5月8日耗资103万港元回购100万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:06 - [中欧班列开行突破13万列](http://www.share.minike.top/Article/details/9014334.shtml)
+- 2026-06-29 12:55 - [A股再现国资“A吃A”！](http://www.share.kurohicncr.top/Article/details/745311053412.shtml)

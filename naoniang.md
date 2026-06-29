@@ -1,58 +1,54 @@
-# 午盘：美股继续上扬 纳指创盘中新高
+# 享界S9零重力座椅事件，给车企和用户都提了个醒
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-北京时间5月6日凌晨，美股周二午盘继续上扬，纳指创盘中历史新高。道指上涨200点。交易员密切关注一系列强劲财报结果。原油价格全线回落，WTI原油下跌逾4%。 道指涨254.85点，涨幅为0.52%，报49196.75点；纳指涨237.13点，涨幅为0.95%，报25304.93点；标普500指数涨55.39点，涨幅为0.77%，报7256.14点。 周二早间，纳指最高上涨至25
+发布时间：2026年05月09日 21:52 来源：中国新闻网 近日，一段展厅视频，让鸿蒙智行和享界S9站上了舆论的风口浪尖。视频中，一名男子通过语音开启零重力模式，副驾座椅开始折叠下压，而一名儿童正坐在上面。男子连喊数声“小艺，停止”，语音助手反复回应“当前状态不支持暂停”，最终家长手动将孩子移开。虽然最终有惊无险，但这段几乎夹到孩子的画面，还是让人后背发凉。此次事件提醒车企
 
 ## 正文
 
-北京时间5月6日凌晨，美股周二午盘继续上扬，纳指创盘中历史新高。
+发布时间：2026年05月09日 21:52 来源：中国新闻网 近日，一段展厅视频，让鸿蒙智行和享界S9站上了舆论的风口浪尖。
 
-道指上涨200点。
+视频中，一名男子通过语音开启零重力模式，副驾座椅开始折叠下压，而一名儿童正坐在上面。
 
-交易员密切关注一系列强劲财报结果。
+男子连喊数声“小艺，停止”，语音助手反复回应“当前状态不支持暂停”，最终家长手动将孩子移开。
 
-原油价格全线回落，WTI原油下跌逾4%。
+虽然最终有惊无险，但这段几乎夹到孩子的画面，还是让人后背发凉。
 
-道指涨254.85点，涨幅为0.52%，报49196.75点；纳指涨237.13点，涨幅为0.95%，报25304.93点；标普500指数涨55.39点，涨幅为0.77%，报7256.14点。
+此次事件提醒车企，安全阈值不能仅以成年人为标尺，应对儿童等极端场景进行专门测试与优化，同时为智能功能设置更完善的紧急中断机制。
 
-周二早间，纳指最高上涨至25335.40点，创盘中历史新高。
+同时提醒每一个用户，智能汽车功能再先进，安全意识不能放松，尤其涉及儿童时，更需谨慎。
 
-原油价格全线下跌，为股指提供了支撑。
-
-西得克萨斯中质原油期货下跌4.2%，跌破每桶102美元上方。
+(民生调查局 佟奕萱 查志远） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-29 12:43 - [黄金突破4700美元，分析师警示风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:44 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 13:07 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 13:00 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:57 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:56 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:47 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 13:06 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:59 - [菲律宾失业率连续两个月回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 13:04 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:44 - [经纬线·青年习近平的“人生课堂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:59 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:57 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:58 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:54 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:50 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 13:15 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 13:14 - [唱响中国之声：中央音乐学院合唱团在俄演出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:50 - [永升服务于5月8日斥资41.04万港元回购20万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:51 - [祁连山 “生命方舟” 累计救助收容259只野生动物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 13:06 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 13:09 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](http://www.share.minike.top/Article/details/41847552.shtml)
-- 2026-06-29 13:02 - [成都铁路迎“五一”假期客流返程高峰](http://www.blog.kurohicncr.top/Article/details/916652.shtml)
-- 2026-06-29 13:10 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](http://www.blog.kurohicncr.top/Article/details/2660202.shtml)
-- 2026-06-29 13:04 - [特朗普威胁伊朗不要向美国船开火](http://www.share.minike.top/Article/details/8068317496.shtml)
-- 2026-06-29 12:44 - [广东建成内地规模最大欧标充电服务网络](http://www.share.minike.top/Article/details/82710222958.shtml)
-- 2026-06-29 13:07 - [AI、国防与气候：重塑全球增长格局的三大支柱](http://www.blog.kurohicncr.top/Article/details/602389203.shtml)
-- 2026-06-29 12:45 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [重庆市酉阳县委书记杨通胜接受审查调查](http://www.blog.kurohicncr.top/Article/details/682967517.shtml)
-- 2026-06-29 12:55 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:10 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](http://www.blog.kurohicncr.top/Article/details/660950.shtml)
-- 2026-06-29 13:08 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](http://www.share.minike.top/Article/details/58979.shtml)
-- 2026-06-29 13:10 - [美伊停火暂时维持 华尔街股市强劲反弹](http://www.blog.minike.top/Article/details/88245941.shtml)
-- 2026-06-29 12:58 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](http://www.blog.kurohicncr.top/Article/details/89985322.shtml)
-- 2026-06-29 12:56 - [英皇群星演唱会香港开唱勾起观众青春回忆](http://www.blog.kurohicncr.top/Article/details/664113681.shtml)
+- 2026-06-29 13:12 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](http://www.share.kurohicncr.top/Article/details/3651045462.shtml)
+- 2026-06-29 13:00 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](http://www.blog.kurohicncr.top/Article/details/21133.shtml)
+- 2026-06-29 12:53 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](http://www.share.minike.top/Article/details/338321110134.shtml)
+- 2026-06-29 12:50 - [新疆加快打造全国优质农牧产品重要供给基地](http://www.blog.minike.top/Article/details/98992844958.shtml)
+- 2026-06-29 13:04 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](http://www.share.kurohicncr.top/Article/details/765010943750.shtml)
+- 2026-06-29 13:06 - [黄金周线有望录得上涨，或将突破箱体压力？](http://www.share.minike.top/Article/details/2238471427.shtml)
+- 2026-06-29 13:08 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:06 - [第48届东盟峰会在菲律宾举行](http://www.share.kurohicncr.top/Article/details/50913.shtml)
+- 2026-06-29 13:00 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](http://www.share.kurohicncr.top/Article/details/23357.shtml)
+- 2026-06-29 13:15 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](http://www.share.kurohicncr.top/Article/details/885628925366.shtml)
+- 2026-06-29 13:11 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.share.minike.top/Article/details/115248492.shtml)
+- 2026-06-29 13:16 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](http://www.blog.minike.top/Article/details/55217.shtml)
+- 2026-06-29 13:14 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.share.kurohicncr.top/Article/details/75919229085.shtml)

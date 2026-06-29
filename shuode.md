@@ -1,61 +1,58 @@
-# 菲律宾失业率连续两个月回落
+# 早盘：标普500指数和纳斯达克综合再创历史新高
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-中新社马尼拉5月6日电 (记者 张兴龙)菲律宾国家统计局6日公布数据显示，该国3月失业率降至5.0%，较2月回落0.1个百分点，为连续第二个月下降。 数据显示，今年1月菲律宾失业率一度升至5.8%，创下2022年7月以来最高水平，随后于2月回落至5.1%，3月进一步降至5.0%。菲3月失业人口为258万，较2月减少8万人。 数据还显示，服务业是菲律宾吸纳就业最多的产业，3月就业
+北京时间5月8日晚，美股周五早盘继续上扬，标普500指数和纳斯达克综合再创历史新高。美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。 道指涨64.21点，涨幅为0.13%，报49661.18点；纳指涨312.10点，涨幅为1.21%，报26118.29点；标普500指数涨50.24点，涨幅为0.68%
 
 ## 正文
 
-中新社马尼拉5月6日电 (记者 张兴龙)菲律宾国家统计局6日公布数据显示，该国3月失业率降至5.0%，较2月回落0.1个百分点，为连续第二个月下降。
+北京时间5月8日晚，美股周五早盘继续上扬，标普500指数和纳斯达克综合再创历史新高。
 
-数据显示，今年1月菲律宾失业率一度升至5.8%，创下2022年7月以来最高水平，随后于2月回落至5.1%，3月进一步降至5.0%。
+美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。
 
-菲3月失业人口为258万，较2月减少8万人。
+美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。
 
-数据还显示，服务业是菲律宾吸纳就业最多的产业，3月就业人数达3091万，占总就业人数的63.0%；农业和工业分别占19.1%和17.9%。
+道指涨64.21点，涨幅为0.13%，报49661.18点；纳指涨312.10点，涨幅为1.21%，报26118.29点；标普500指数涨50.24点，涨幅为0.68%，报7387.35点。
 
-从细分行业看，运输和仓储、行政和支持性服务活动等行业就业人数同比增长较为明显；环比来看，农林业、建筑业、教育以及信息和通讯等行业就业人数增加较为明显。
+标普500指数和纳斯达克综合指数周五双双反弹，并再创历史新高。
 
-不过，菲律宾3月就业质量有所恶化。
+美国劳工统计局周五公布的数据显示，4月非农就业人数增加11.5万，高于道琼斯调查经济学家预期的5.5万。
 
-数据显示，菲3月就业不足率为12.3%，较2月上升0.5个百分点。
+美国失业率持稳于4.3%，符合预期。
 
-就业不足意味着就业者正在寻求更多工作时间或更好的工作机会。
+市场继续关注美伊局势的最新发展。
 
 ## 相关推荐
 
-- 2026-06-29 12:58 - [原油期货上涨 或因技术性反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 13:10 - [中东紧张局势冲击全球旅游业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:46 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 13:02 - [国乒女团3比0瑞典 晋级世乒赛8强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 13:05 - [小摩：民生银行给予“中性”评级 目标价3.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 13:02 - [山东省枣庄市青檀学校：榴乡厚土育同心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 13:01 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 13:09 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:56 - [成本压力持续传导 全球消费品企业竞相涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:49 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 13:01 - [穿越百年航海史 “时光邮轮”驶入吉林长春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 13:11 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:43 - [大摩：中国软件国际降至“减持”评级 目标价大削至2.6港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:47 - [文旅观察：浙南海岛褪去“看海”标签 业态焕新引热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:58 - [转型金融破局：货币政策如何发力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 13:07 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:53 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 13:12 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 13:02 - [光大证券，离头部券商越来越远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 13:14 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:59 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:50 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:57 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 13:06 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 13:03 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:55 - [工信部启动人工智能科技伦理审查与服务先导计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 13:04 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:05 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [央行公告这一名单更新！哪些机构新进，哪些退出？](http://www.blog.minike.top/Article/details/788991.shtml)
-- 2026-06-29 12:49 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](http://www.blog.kurohicncr.top/Article/details/194460.shtml)
-- 2026-06-29 12:45 - [心动公司于5月6日斥资282.29万港元回购4.5万股](http://www.blog.minike.top/Article/details/68209.shtml)
-- 2026-06-29 12:57 - [平安人寿保险增持农业银行4747.4万股](http://www.blog.kurohicncr.top/Article/details/49060.shtml)
-- 2026-06-29 13:09 - [巴西贝洛奥里藏特小型飞机撞楼事故致3人遇难](http://www.blog.minike.top/Article/details/4722160.shtml)
-- 2026-06-29 13:01 - [涉疫邮轮将停靠西班牙 世卫组织称或出现人际传播](http://www.blog.kurohicncr.top/Article/details/906501.shtml)
-- 2026-06-29 12:55 - [国资委：将组织开展新一轮数智化转型专项行动](http://www.blog.minike.top/Article/details/406757249.shtml)
-- 2026-06-29 12:46 - [长沙市委市政府：极为痛心、无比自责！全市所有烟花爆竹生产企业，全面停产整顿！](http://www.share.minike.top/Article/details/91294278.shtml)
-- 2026-06-29 12:47 - [“五一”假期盘点 假期接待游客总量超1800万人次](http://www.share.kurohicncr.top/Article/details/17241.shtml)
-- 2026-06-29 12:53 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [宁夏“五一”网络零售额突破9亿元 服务消费领跑假日经济](http://www.blog.kurohicncr.top/Article/details/4544767.shtml)
-- 2026-06-29 13:00 - [轰动一时的“臭氧层空洞”，正在自己悄悄长好，原因竟然是这个](http://www.share.minike.top/Article/details/15428.shtml)
+- 2026-06-29 12:53 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](http://www.share.minike.top/Article/details/82593243148.shtml)
+- 2026-06-29 12:57 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:13 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](http://www.blog.minike.top/Article/details/47214401.shtml)
+- 2026-06-29 12:54 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](http://www.blog.minike.top/Article/details/0182944.shtml)
+- 2026-06-29 13:08 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](http://www.share.minike.top/Article/details/332678956.shtml)
+- 2026-06-29 12:55 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](http://www.share.kurohicncr.top/Article/details/98612656660.shtml)
+- 2026-06-29 12:55 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](http://www.share.kurohicncr.top/Article/details/7728614580.shtml)
+- 2026-06-29 12:58 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.share.minike.top/Article/details/828232800971.shtml)
+- 2026-06-29 13:05 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](http://www.blog.kurohicncr.top/Article/details/5765193948.shtml)
+- 2026-06-29 12:58 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](http://www.share.kurohicncr.top/Article/details/167734500.shtml)
+- 2026-06-29 12:49 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](http://www.share.kurohicncr.top/Article/details/865929.shtml)
+- 2026-06-29 12:56 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](http://www.share.minike.top/Article/details/5923837068.shtml)
+- 2026-06-29 12:55 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](http://www.share.kurohicncr.top/Article/details/3939574.shtml)

@@ -1,56 +1,52 @@
-# 粤港湾控股午后涨幅扩大逾23% 公司受益AI产业高增长红利
+# 以军对黎巴嫩南部9个村庄发布撤离警告
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-粤港湾控股（01396）午后涨幅扩大逾25%，截至发稿，股价上涨23.14%，现报12.93港元，成交额1.94亿港元。 5月4日，豆包在免费服务基础上新增付费版本，每月收费从68元至500元不等，主要覆盖复杂任务和生产力场景，适应更多算力与推理的消耗需求。值得关注的是，豆包付费增值服务的背后，是Token（词元）价格不断攀升。特别是AI智能体的广泛应用，Token消耗规模的激
+当地时间9日，以色列国防军向黎巴嫩南部9个村庄发布撤离警告，称将对黎巴嫩真主党目标实施空袭。 以军阿拉伯语发言人阿维凯·阿德拉伊表示，鉴于黎巴嫩真主党“违反停火协议”，以军“不得不采取强力行动”，并称以方“无意伤害平民”。 当日，以色列国防军还表示，过去一天，以军对黎南部超过85个黎真主党目标发动打击，并袭击了位于贝卡谷地的一处地下武器设施，该设施被指用于黎真主党的武器生产。(
 
 ## 正文
 
-粤港湾控股（01396）午后涨幅扩大逾25%，截至发稿，股价上涨23.14%，现报12.93港元，成交额1.94亿港元。
+当地时间9日，以色列国防军向黎巴嫩南部9个村庄发布撤离警告，称将对黎巴嫩真主党目标实施空袭。
 
-5月4日，豆包在免费服务基础上新增付费版本，每月收费从68元至500元不等，主要覆盖复杂任务和生产力场景，适应更多算力与推理的消耗需求。
+以军阿拉伯语发言人阿维凯·阿德拉伊表示，鉴于黎巴嫩真主党“违反停火协议”，以军“不得不采取强力行动”，并称以方“无意伤害平民”。
 
-值得关注的是，豆包付费增值服务的背后，是Token（词元）价格不断攀升。
+当日，以色列国防军还表示，过去一天，以军对黎南部超过85个黎真主党目标发动打击，并袭击了位于贝卡谷地的一处地下武器设施，该设施被指用于黎真主党的武器生产。
 
-特别是AI智能体的广泛应用，Token消耗规模的激增直接推高了算力需求，进而传导至云计算服务价格。
-
-国海证券研报称，AI推理拐点已至，算力租赁进入量价齐升高景气周期，是当前AI产业链确定性较强的核心赛道。
-
-据悉，粤港湾控股有望深度受益AI产业的高增长红利。
-
-该公司于去年10月收购天顿数据后，已从传统地产模式全面转型为稀缺资产型AI算力基础设施平台，天顿数据在并表后两个多月便贡献约6.17亿元收入，占集团总营收逾六成，推动公司一举实现扭亏为盈。
-
-国元国际认为，转型智算赛道后，公司估值体系有望切换至“算力+科技”框架，具备显著重估空间。
+(总台记者 朱云翔)
 
 ## 相关推荐
 
-- 2026-06-29 12:46 - [中国海外发展早盘涨超5% 花旗现予目标价14.20港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 13:09 - [霍尔木兹海峡激战升级，美军打击伊朗快艇，阿联酋遭袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 13:06 - [摩根大通牵头财团或因Qualtrics债务面临5亿美元损失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:54 - [美国宣布对伊军事行动结束，分析担忧战事远未终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 13:07 - [万成集团股份复牌一度飙升91% 获执董钟国强折让约34.96%提全购要约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 13:04 - [锦欣生殖前4个月不孕初诊数同比增长7.5% 取卵周期数同比增长5.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:58 - [2026年“香港高考”收官：逾5.85万考生报考 内地试点考场持续优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 13:10 - [苹果因Mac需求强劲面临供应压力 旺盛需求超出芯片供应能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 13:10 - [维格维口服减肥药销量大幅超预期，诺和诺德股价大涨7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 13:03 - [AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 13:05 - [从乳业到稀土 内蒙古以产业计量嵌入全国产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 13:15 - [美国联邦政府4月再减9000个岗位，特朗普政府裁员计划持续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 13:01 - [福建“十五五”聚焦数智赋能 打造“四区一标杆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:07 - [欧阳光：四川银行中小银行IT体系企业级重构建设实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:56 - [直击徐州非法排污事件现场：清淤仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:49 - [（乡村行·看振兴）山西忻州荒坡上的“酸枣经”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 13:09 - [台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 13:05 - [五粮液（000858）投资者索赔案已提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 13:15 - [外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 13:11 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:53 - [李成钢：积极推动APEC贸易部长会议围绕两方面议题达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:56 - [被拖欠片酬，演员喊话要求《平乐赋》下架，爱奇艺回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:49 - [大美边疆看我家丨黑龙江牡丹江：熔岩台地杏花如雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 13:06 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [唯一！连续19年不良率低于1%，宁波银行凭什么被大摩列为“中国核心资产”？](http://www.share.kurohicncr.top/Article/details/207928125.shtml)
-- 2026-06-29 12:54 - [假期最后一天铁路迎返京高峰 受大风影响部分列车晚点](http://www.blog.kurohicncr.top/Article/details/561637194900.shtml)
-- 2026-06-29 13:02 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](http://www.blog.kurohicncr.top/Article/details/430283.shtml)
-- 2026-06-29 13:01 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](http://www.blog.kurohicncr.top/Article/details/57248482.shtml)
-- 2026-06-29 13:12 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [年轻人假期热衷贵阳“寻咖”](http://www.blog.kurohicncr.top/Article/details/905478904.shtml)
-- 2026-06-29 12:42 - [富通科技公布于5月6日下午起复牌](http://www.blog.kurohicncr.top/Article/details/2414544.shtml)
-- 2026-06-29 12:45 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](http://www.share.kurohicncr.top/Article/details/591374.shtml)
-- 2026-06-29 12:44 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](http://www.share.minike.top/Article/details/58810.shtml)
-- 2026-06-29 12:42 - [追光的你｜青春的颜色](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](http://www.share.kurohicncr.top/Article/details/3152204.shtml)
-- 2026-06-29 12:46 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](http://www.share.kurohicncr.top/Article/details/529935459620.shtml)
-- 2026-06-29 13:07 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [特朗普称将暂停自由计划“一小段时间”](http://www.share.minike.top/Article/details/892764179433.shtml)
-- 2026-06-29 12:56 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.blog.minike.top/Article/details/7375638705.shtml)
+- 2026-06-29 13:06 - [妈妈，我想对你说](http://www.blog.kurohicncr.top/Article/details/494531693.shtml)
+- 2026-06-29 13:06 - [通胀侵蚀消费支出 英国到店客流下滑](http://www.share.minike.top/Article/details/6953883170.shtml)
+- 2026-06-29 13:00 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](http://www.share.minike.top/Article/details/75367.shtml)
+- 2026-06-29 13:14 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](http://www.share.minike.top/Article/details/505374418.shtml)
+- 2026-06-29 13:07 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](http://www.share.minike.top/Article/details/5388395.shtml)
+- 2026-06-29 12:59 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](http://www.blog.minike.top/Article/details/77326256943.shtml)
+- 2026-06-29 12:56 - [AI时代，全球教育正面临三层重塑](http://www.blog.kurohicncr.top/Article/details/606980704608.shtml)
+- 2026-06-29 12:55 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.blog.minike.top/Article/details/94797640358.shtml)
+- 2026-06-29 12:49 - [北京曲剧《雷雨》观摩研讨会在京举办](http://www.share.minike.top/Article/details/2210402.shtml)
+- 2026-06-29 13:01 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](http://www.share.minike.top/Article/details/588609124.shtml)
+- 2026-06-29 13:04 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](http://www.blog.minike.top/Article/details/03341.shtml)
+- 2026-06-29 12:51 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.share.kurohicncr.top/Article/details/776483.shtml)
+- 2026-06-29 13:09 - [坚持有腐必反、有贪必肃](http://www.blog.kurohicncr.top/Article/details/996576146.shtml)

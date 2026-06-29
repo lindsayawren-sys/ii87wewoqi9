@@ -1,52 +1,57 @@
-# 港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和
+# 新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-香港交易所行政总裁陈翊庭表示，伦敦金属交易所（LME）在香港批准的一系列仓库的存储容量已接近饱和。LME去年开始批准在香港设立金属仓库。 陈翊庭在香港举行的LME亚洲周活动期间的研讨会上表示，LME目前在香港设有15个仓库，而一年前只有4个。 她称这是建立实物市场连通性的重要里程碑，LME和香港交易所将探索更多合作项目，包括期货和人民币计价产品，以在亚洲打造一个全面的大宗商品生
+美国劳工统计局于当地时间周五公布的数据显示，4月非农就业人口新增11.5万人，远高于此前道琼斯调查预期的5.5万人。3月非农就业人数由原先17.8万人上修至18.5万人。 作为本周最受关注的美国经济指标之一，4月非农数据超预期，同时也强化了美联储短期内维持利率不变的市场预期。不少分析师认为，美联储短期政策重心将继续锚定通胀，油价高企持续时间越长，打压消费者信心和支出的风险就越大
 
 ## 正文
 
-香港交易所行政总裁陈翊庭表示，伦敦金属交易所（LME）在香港批准的一系列仓库的存储容量已接近饱和。
+美国劳工统计局于当地时间周五公布的数据显示，4月非农就业人口新增11.5万人，远高于此前道琼斯调查预期的5.5万人。
 
-LME去年开始批准在香港设立金属仓库。
+3月非农就业人数由原先17.8万人上修至18.5万人。
 
-陈翊庭在香港举行的LME亚洲周活动期间的研讨会上表示，LME目前在香港设有15个仓库，而一年前只有4个。
+作为本周最受关注的美国经济指标之一，4月非农数据超预期，同时也强化了美联储短期内维持利率不变的市场预期。
 
-她称这是建立实物市场连通性的重要里程碑，LME和香港交易所将探索更多合作项目，包括期货和人民币计价产品，以在亚洲打造一个全面的大宗商品生态系统。
+不少分析师认为，美联储短期政策重心将继续锚定通胀，油价高企持续时间越长，打压消费者信心和支出的风险就越大，长期高位的负面影响会逐步累积。
 
-责任编辑：于健 SF069
+劳动力市场维持韧性 数据显示，细分行业就业延续近期格局：医疗健康行业新增3.7万个岗位领跑，反映人口老龄化趋势，运输仓储业新增3万人，零售业新增2.2万人，社会救助行业新增1.7万人。
+
+信息服务业减少1.3万个岗位，这已是长期下行趋势，自2022年11月以来该行业累计流失34.2万个岗位，降幅达11%，恰与人工智能普及进程同步。
+
+联邦政府再裁员9000人，自2024年10月峰值以来累计减少34.8万人，降幅11.5%。
+
+不过，另一项关键指标平均时薪低于预期，4月环比上涨0.2%，同比增长3.6%，低于市场预期的环比0.3%、同比3.8%的增速，缓解了薪资通胀的担忧。
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [“五一”假期盘点 假期接待游客总量超1800万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 13:09 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:55 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:54 - [消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:46 - [宁夏“五一”网络零售额突破9亿元 服务消费领跑假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:59 - [轰动一时的“臭氧层空洞”，正在自己悄悄长好，原因竟然是这个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:59 - [云南各机场“五一”迎客超百万 民族风情圈粉八方来客](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 13:04 - [“五一”假期 重庆无人机灯光秀绘就夜空光影画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:51 - [购房新政叠加“五一”假期 多地楼市升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:53 - [滴普科技午前大涨逾21% 机构看好其营收高增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 13:03 - [韩股飙涨6.45%首次突破7300点，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:50 - [酒价内参5月7日价格发布：青花郎领跌 总价创5天以来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 13:01 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 13:03 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 13:01 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 13:02 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 13:06 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 13:16 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 13:16 - [汉坦病毒如何让Moderna重成“必持”股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 13:13 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 13:04 - [英伟达重金押注光连接，AI的下一战场或在光纤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 13:17 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 13:12 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:05 - [西渝高铁樊哙隧道顺利贯通](http://www.share.minike.top/Article/details/120116.shtml)
-- 2026-06-29 13:07 - [国富氢能附属拟向九疆电力建设(陕西)提供300MW新能源耦合绿色电力项目的全套设备](http://www.share.minike.top/Article/details/797780479262.shtml)
-- 2026-06-29 13:08 - [“美军随时准备好恢复对伊朗大规模作战，只待指令下达”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [权威快报|税收发票数据显示：“五一”假期消费相关行业销售收入同比增长14.3%](http://www.share.minike.top/Article/details/271786.shtml)
-- 2026-06-29 12:51 - [“五一”假期铁路运输结束 重庆火车站累计发送旅客246万人次](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [博物馆“镇馆之宝”排队热 文博游何以持续火热？](http://www.blog.minike.top/Article/details/91904.shtml)
-- 2026-06-29 12:44 - [特朗普预计一周内可以解决伊朗问题](http://www.share.minike.top/Article/details/41083.shtml)
-- 2026-06-29 12:48 - [伊朗官方媒体IRIB：伊朗向霍尔木兹海峡的商船发布指引](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [玉林师范学院原党委副书记、 院长王卓华被开除党籍](http://www.blog.minike.top/Article/details/535331.shtml)
-- 2026-06-29 12:54 - [司法部组织开展行政处罚公示信息集中清理工作](http://www.blog.kurohicncr.top/Article/details/3123700424.shtml)
-- 2026-06-29 13:05 - [华宝基金科创人工智能ETF (589520)量价齐升！](http://www.share.minike.top/Article/details/030673567690.shtml)
-- 2026-06-29 13:08 - [地缘紧张局势缓和 墨西哥比索与股市双双走高](http://www.blog.minike.top/Article/details/3061591870.shtml)
-- 2026-06-29 13:07 - [日产全球大重组：欧洲裁员10%，桑德兰工厂合并生产线](http://www.blog.minike.top/Article/details/70363.shtml)
-- 2026-06-29 12:46 - [花旗：中煤能源维持“买入”评级 目标价降至16.6港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [有线耳机翻红 意外逆袭带来什么启发？](http://www.blog.kurohicncr.top/Article/details/172215.shtml)
+- 2026-06-29 13:17 - [探访全球首座储能电池"灯塔工厂" 揭秘一颗电芯的诞生](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [35家保险资管2025年业绩透视：华安资产、合众资产、华夏久盈等8家营收、净利“双降”](http://www.blog.minike.top/Article/details/74895.shtml)
+- 2026-06-29 13:00 - [*ST天喻领正式被罚，已有案件递交立案](http://www.share.minike.top/Article/details/456370.shtml)
+- 2026-06-29 13:04 - [长三角初夏“热情”高涨 多地最高温冲刺35℃](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.share.minike.top/Article/details/90753.shtml)
+- 2026-06-29 13:00 - [一季度广州海关关区出口锂电池52.2亿元 同比增长超2倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [CoreWeave二季度营收指引不及预期，周五盘前下跌6.5%](http://www.share.minike.top/Article/details/331514.shtml)
+- 2026-06-29 12:54 - [培育消费新场景新业态 激发消费新动能](http://www.blog.kurohicncr.top/Article/details/018073476.shtml)
+- 2026-06-29 13:05 - [文莱王储比拉将访华](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:06 - [Insight续押日元还会再跌 干预只能短暂止血](http://www.share.minike.top/Article/details/5870240.shtml)
+- 2026-06-29 12:49 - [资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:12 - [一双跑鞋炒至5000美元，12000件夹克27分钟抢空：阿迪达斯股东大会传递了什么？](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:17 - [酒价内参5月8日价格发布：五粮液1618上涨2元/瓶](http://www.share.kurohicncr.top/Article/details/455117865059.shtml)
+- 2026-06-29 13:06 - [“情书”里的爆款创作密码](http://www.blog.minike.top/Article/details/68532.shtml)
+- 2026-06-29 13:16 - [下周A股还能涨吗？这两件事，请股民重点关注](http://www.blog.kurohicncr.top/Article/details/48600665.shtml)

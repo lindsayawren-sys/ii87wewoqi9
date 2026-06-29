@@ -1,61 +1,57 @@
-# 哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险
+# APEC贸易部长会议将启 推动两个议题 释放三个信号
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-白宫国家经济委员会主任凯文·哈塞特周三表示，白宫正研究一项行政令，拟为Anthropic的Mythos等新人工智能模型建立审查机制，以保护企业和政府网络免受AI相关网络安全风险。 “我们正在研究，可能通过一项行政令，为各方提供清晰路径，以及未来那些可能出现漏洞的AI应当遵循怎样的程序，确保它们在被证明安全后才能像经FDA批准的药物一样推出，”哈塞特对福克斯新闻说。 新举措酝酿之
+新华社北京5月9日电 题：APEC贸易部长会议将启 推动两个议题 释放三个信号 新华社记者谢希瑶 记者从商务部9日举行的专题新闻发布会上获悉，亚太经合组织(APEC)贸易部长会议将于5月22日至23日在苏州举办，积极推动各方围绕两方面议题达成共识，释放三个信号促进亚太共同繁荣。 今年是中国加入APEC的35周年，也是时隔12年之后，中国第三次担任APEC东道主。今年APEC合作
 
 ## 正文
 
-白宫国家经济委员会主任凯文·哈塞特周三表示，白宫正研究一项行政令，拟为Anthropic的Mythos等新人工智能模型建立审查机制，以保护企业和政府网络免受AI相关网络安全风险。
+新华社北京5月9日电 题：APEC贸易部长会议将启 推动两个议题 释放三个信号 新华社记者谢希瑶 记者从商务部9日举行的专题新闻发布会上获悉，亚太经合组织(APEC)贸易部长会议将于5月22日至23日在苏州举办，积极推动各方围绕两方面议题达成共识，释放三个信号促进亚太共同繁荣。
 
-“我们正在研究，可能通过一项行政令，为各方提供清晰路径，以及未来那些可能出现漏洞的AI应当遵循怎样的程序，确保它们在被证明安全后才能像经FDA批准的药物一样推出，”哈塞特对福克斯新闻说。
+今年是中国加入APEC的35周年，也是时隔12年之后，中国第三次担任APEC东道主。
 
-新举措酝酿之际，Anthropic数周前披露其突破性模型Mythos擅长发现网络漏洞，并可能构成全球网络安全风险。
+今年APEC合作主题是“建设亚太共同体，促进共同繁荣”，以“开放、创新、合作”为主线。
 
-目前该模型仅向少数大型科技和金融公司开放，特朗普政府也在推动其向联邦机构开放以测试政府系统。
+贸易部长会议是APEC每年固定举行的主要部长级会议。
 
-哈塞特周三对此予以确认。
+商务部国际贸易谈判代表兼副部长李成钢说，当前国际形势变乱交织，全球经济增长乏力，亚太地区发展面临多重复杂挑战。
 
-他说：“我们已动员整个政府及私营部门协调合作，确保在该模型开放前经过全方位测试，确保不会对美国企业或美国政府造成任何伤害。
+在此背景下，中方将与APEC各方一道，积极推动会议围绕两方面议题达成共识。
 
-” 尚不清楚哈塞特描述的命令是否会要求对AI系统进行强制测试。
+一是“建设开放、可预期的区域和多边经贸秩序”。
 
-如果属实，这将标志着美国总统唐纳德·特朗普在AI监管立场上的转变，他此前强调减少监管干预。
+中方愿以“亚太自贸区愿景提出20周年”为契机，推动区域内经贸规则协同发展，强化供应链互联互通与韧性，构建有利于促进相互信任的贸易投资伙伴关系，为推进亚太自贸区进程提供更加清晰、务实的指引。
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [购房新政叠加“五一”假期 多地楼市升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:56 - [滴普科技午前大涨逾21% 机构看好其营收高增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:49 - [韩股飙涨6.45%首次突破7300点，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:08 - [酒价内参5月7日价格发布：青花郎领跌 总价创5天以来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:11 - [百亿明星私募被曝光“打新内幕”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 13:00 - [被特朗普痛批后，美国食药局首次批准调味电子烟上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:47 - [体验式消费、IP联名活动 “五一”假期消费市场持续上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 13:04 - [Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:46 - [情感赛道变形记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:54 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 13:01 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 13:09 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 13:09 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:48 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:53 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 13:10 - [英伟达重金押注光连接，AI的下一战场或在光纤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:49 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:55 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:59 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:51 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:59 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:50 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 13:12 - [社评：中国的“Country Walk”何以吸引西方年轻人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:10 - [Stifel在近期抛售后上调Shake Shack评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 13:03 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 13:15 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:48 - [玉林师范学院原党委副书记、 院长王卓华被开除党籍](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [司法部组织开展行政处罚公示信息集中清理工作](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [华宝基金科创人工智能ETF (589520)量价齐升！](http://www.blog.minike.top/Article/details/112222.shtml)
-- 2026-06-29 13:03 - [地缘紧张局势缓和 墨西哥比索与股市双双走高](http://www.share.minike.top/Article/details/524161.shtml)
-- 2026-06-29 12:52 - [日产全球大重组：欧洲裁员10%，桑德兰工厂合并生产线](http://www.blog.minike.top/Article/details/54513673.shtml)
-- 2026-06-29 13:04 - [花旗：中煤能源维持“买入”评级 目标价降至16.6港元](http://www.blog.minike.top/Article/details/1562122.shtml)
-- 2026-06-29 12:57 - [有线耳机翻红 意外逆袭带来什么启发？](http://www.blog.minike.top/Article/details/5148224909.shtml)
-- 2026-06-29 12:42 - [以旧换新政策，今年力度降了吗](http://www.blog.minike.top/Article/details/23286.shtml)
-- 2026-06-29 13:03 - [广发银行深耕科技金融 科技贷款余额超4000亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [英飞凌展望超预期，AI热潮提振功率芯片业务](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [迪士尼超预期财报助推相关ETF，个股年内仍跌12%](http://www.blog.kurohicncr.top/Article/details/255714.shtml)
-- 2026-06-29 12:43 - [InflaRx完成1.5亿美元普通股发行定价](http://www.share.minike.top/Article/details/9512994726.shtml)
-- 2026-06-29 13:08 - [Alphabet发行欧元和加元债券 合计融资近170亿美元](http://www.share.minike.top/Article/details/4032199.shtml)
-- 2026-06-29 13:05 - [美官员透露：美伊拟达成一页纸备忘录以结束战事](http://www.share.kurohicncr.top/Article/details/02663240810.shtml)
-- 2026-06-29 12:46 - [AMD营收及业绩指引均超预期，股价暴涨16%](http://www.blog.kurohicncr.top/Article/details/6584573932.shtml)
+- 2026-06-29 12:55 - [文莱王储比拉将访华](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [Insight续押日元还会再跌 干预只能短暂止血](http://www.share.kurohicncr.top/Article/details/980943938.shtml)
+- 2026-06-29 13:01 - [资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元](http://www.share.kurohicncr.top/Article/details/820730392.shtml)
+- 2026-06-29 13:08 - [一双跑鞋炒至5000美元，12000件夹克27分钟抢空：阿迪达斯股东大会传递了什么？](http://www.blog.minike.top/Article/details/9272059.shtml)
+- 2026-06-29 13:03 - [酒价内参5月8日价格发布：五粮液1618上涨2元/瓶](http://www.share.kurohicncr.top/Article/details/7407407.shtml)
+- 2026-06-29 13:06 - [“情书”里的爆款创作密码](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [下周A股还能涨吗？这两件事，请股民重点关注](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [金风科技截至4月末累计回购1万股H股](http://www.share.minike.top/Article/details/54683983723.shtml)
+- 2026-06-29 13:01 - [今年开分最高的国产电影，每一件道具都是华侨的情书](http://www.share.minike.top/Article/details/048326891165.shtml)
+- 2026-06-29 13:10 - [海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来](http://www.blog.kurohicncr.top/Article/details/98889865758.shtml)
+- 2026-06-29 13:07 - [市场监管总局：4792.24万户经营主体获信用修复](http://www.share.minike.top/Article/details/907916875.shtml)
+- 2026-06-29 13:04 - [泰柬领导人在菲律宾讨论两国边境局势](http://www.share.minike.top/Article/details/354657229.shtml)
+- 2026-06-29 12:59 - [中国国防部：“航母五件套”是人民海军加速转型建设重要成果](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [福建省“环戴云山”OPC联盟在德化成立](http://www.blog.kurohicncr.top/Article/details/75771378083.shtml)
+- 2026-06-29 13:11 - [香港漫游记：冠冕与胸针的自如切换 来看看维多利亚时期珠宝设计的智慧](http://www.blog.minike.top/Article/details/28102380.shtml)

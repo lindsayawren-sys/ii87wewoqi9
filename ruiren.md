@@ -1,61 +1,61 @@
-# 超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新
+# 员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！随着A股2025年年报以及2026年一季报基本披露完毕，多位知名投资人的调仓路线也浮出水面。 21快讯记者据同花顺iFind数据统计，2026年一季度末： 刘鑫共现身7家A股上市公司的前十大股东名单，一季度对国晟科技（维权）进行了减持，并加仓瑞华泰，新进天银机电等多只个股； 章建平一季度减持寒武纪并退出前十
+来源：新刊财经 当免费模式导致“按需使用”变为“无序占用”，通过市场化手段优化资源配置的收费模式，就具备了合理性。不过，成本压力或许也是导致比亚迪取消福利的重要原因。 今年5月6日起，比亚迪全面取消全国所有园区（含工厂、办公区、产业园）员工免费充电福利，实行统一收费（以下简称“新政策”）。消息一出，引发广泛关注。比亚迪此前因实施员工全面免费充电福利政策，成为行业标杆。此次取消，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：新刊财经 当免费模式导致“按需使用”变为“无序占用”，通过市场化手段优化资源配置的收费模式，就具备了合理性。
 
-随着A股2025年年报以及2026年一季报基本披露完毕，多位知名投资人的调仓路线也浮出水面。
+不过，成本压力或许也是导致比亚迪取消福利的重要原因。
 
-21快讯记者据同花顺iFind数据统计，2026年一季度末： 刘鑫共现身7家A股上市公司的前十大股东名单，一季度对国晟科技（维权）进行了减持，并加仓瑞华泰，新进天银机电等多只个股； 章建平一季度减持寒武纪并退出前十大股东名单，新进北方稀土、西部材料、美年健康、四川黄金前十大流通股股东名单，其关联人方文艳亦新进美年健康、四川黄金，并成为江淮汽车前十大股东； 葛卫东共现身5家A股上市公司前十大股东名单，一季度新进江淮汽车、优刻得-W，小幅减持兆易创新，其关联人王萍亦有调仓动作。
+今年5月6日起，比亚迪全面取消全国所有园区（含工厂、办公区、产业园）员工免费充电福利，实行统一收费（以下简称“新政策”）。
 
-刘鑫减持国晟科技，押中年内涨超200%牛股 21快讯记者据同花顺iFind数据统计，2026年一季度末，刘鑫现身晓程科技、德龙汇能、法尔胜、瑞华泰、龙星科技、天银机电、国晟科技前十大股东名单，持股数量分别为366.66万股、1634.33万股、927.37万股、768.56万股、675.39万股、1418.61万股、2566.66万股，合计持仓市值超21亿元。
+消息一出，引发广泛关注。
 
-与2025年末相比，2026年一季度刘鑫减持了国晟科技26.48万股，截至一季度末仍持有2566.66万股，持仓市值约6.42亿元，占总股本比例约3.89%。
+比亚迪此前因实施员工全面免费充电福利政策，成为行业标杆。
 
-同时退出大金重工、中电电机前十大股东名单，大举增持瑞华泰501.89万股，新进晓程科技、德龙汇能、法尔胜和天银机电前十大股东名单。
+此次取消，并非孤立的福利调整，而是其权衡企业现状、成本压力、战略需求后的结果。
 
-值得注意的是，刘鑫一季度持有的多只个股在二级市场上表现不俗。
+图片来源：中国能源网 整治免费弊端，全面收费启动 上述新政策覆盖比亚迪深圳总部园区、西安整车制造基地等生产工厂、办公区及产业园，所有供员工使用的充电设施均停止免费服务，统一执行收费政策。
 
-其中，截至4月30日，法尔胜年内累计涨幅已超200%。
+采用“当地工商业峰谷电价+0.1元/度服务费”的市场化模式，略高于当地居民电价，但显著低于市场公共充电桩收费标准。
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [国资委：将组织开展新一轮数智化转型专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:47 - [长沙市委市政府：极为痛心、无比自责！全市所有烟花爆竹生产企业，全面停产整顿！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 13:05 - [“五一”假期盘点 假期接待游客总量超1800万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:46 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:55 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:59 - [消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:56 - [宁夏“五一”网络零售额突破9亿元 服务消费领跑假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:52 - [轰动一时的“臭氧层空洞”，正在自己悄悄长好，原因竟然是这个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:55 - [云南各机场“五一”迎客超百万 民族风情圈粉八方来客](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:51 - [“五一”假期 重庆无人机灯光秀绘就夜空光影画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:44 - [购房新政叠加“五一”假期 多地楼市升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:54 - [滴普科技午前大涨逾21% 机构看好其营收高增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:45 - [韩股飙涨6.45%首次突破7300点，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:49 - [酒价内参5月7日价格发布：青花郎领跌 总价创5天以来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 13:06 - [百亿明星私募被曝光“打新内幕”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:56 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 13:13 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:49 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:53 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 13:13 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:48 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 13:11 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:48 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:56 - [汉坦病毒如何让Moderna重成“必持”股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 13:00 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:50 - [英伟达重金押注光连接，AI的下一战场或在光纤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 13:02 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:54 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 13:11 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 13:15 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:55 - [AMD飙涨近19%带飞AI芯片板块！规模最大港股通信息技术ETF华宝（159131）续涨2.55%冲击连阳](http://www.blog.minike.top/Article/details/456733.shtml)
-- 2026-06-29 12:43 - [芯成科技今早一度翻倍 两个交易日股价累计涨幅高达400%](http://www.share.minike.top/Article/details/94116.shtml)
-- 2026-06-29 12:45 - [西渝高铁樊哙隧道顺利贯通](http://www.blog.minike.top/Article/details/14368326.shtml)
-- 2026-06-29 12:53 - [国富氢能附属拟向九疆电力建设(陕西)提供300MW新能源耦合绿色电力项目的全套设备](http://www.share.minike.top/Article/details/491839368138.shtml)
-- 2026-06-29 12:46 - [“美军随时准备好恢复对伊朗大规模作战，只待指令下达”](http://www.share.kurohicncr.top/Article/details/957502.shtml)
-- 2026-06-29 12:53 - [权威快报|税收发票数据显示：“五一”假期消费相关行业销售收入同比增长14.3%](http://www.share.kurohicncr.top/Article/details/45080752957.shtml)
-- 2026-06-29 13:08 - [“五一”假期铁路运输结束 重庆火车站累计发送旅客246万人次](http://www.share.kurohicncr.top/Article/details/5162203.shtml)
-- 2026-06-29 12:57 - [博物馆“镇馆之宝”排队热 文博游何以持续火热？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [特朗普预计一周内可以解决伊朗问题](http://www.blog.minike.top/Article/details/20498577173.shtml)
-- 2026-06-29 13:02 - [伊朗官方媒体IRIB：伊朗向霍尔木兹海峡的商船发布指引](http://www.share.kurohicncr.top/Article/details/7848720.shtml)
-- 2026-06-29 12:58 - [玉林师范学院原党委副书记、 院长王卓华被开除党籍](http://www.share.minike.top/Article/details/593558.shtml)
-- 2026-06-29 12:48 - [司法部组织开展行政处罚公示信息集中清理工作](http://www.share.kurohicncr.top/Article/details/536114.shtml)
-- 2026-06-29 12:56 - [华宝基金科创人工智能ETF (589520)量价齐升！](http://www.blog.minike.top/Article/details/65178276899.shtml)
-- 2026-06-29 13:01 - [地缘紧张局势缓和 墨西哥比索与股市双双走高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [日产全球大重组：欧洲裁员10%，桑德兰工厂合并生产线](http://www.share.kurohicncr.top/Article/details/1032388.shtml)
+- 2026-06-29 13:08 - [以“无我”境界成“有我”之业](http://www.share.minike.top/Article/details/742956577.shtml)
+- 2026-06-29 13:01 - [李强主持召开国务院常务会议](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:15 - [探访全球首座储能电池"灯塔工厂" 揭秘一颗电芯的诞生](http://www.share.minike.top/Article/details/43498111963.shtml)
+- 2026-06-29 13:12 - [35家保险资管2025年业绩透视：华安资产、合众资产、华夏久盈等8家营收、净利“双降”](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [*ST天喻领正式被罚，已有案件递交立案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [长三角初夏“热情”高涨 多地最高温冲刺35℃](http://www.blog.minike.top/Article/details/29906072.shtml)
+- 2026-06-29 12:58 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [一季度广州海关关区出口锂电池52.2亿元 同比增长超2倍](http://www.share.kurohicncr.top/Article/details/22131077.shtml)
+- 2026-06-29 13:13 - [CoreWeave二季度营收指引不及预期，周五盘前下跌6.5%](http://www.share.minike.top/Article/details/38641693706.shtml)
+- 2026-06-29 13:15 - [培育消费新场景新业态 激发消费新动能](http://www.blog.kurohicncr.top/Article/details/846748633.shtml)
+- 2026-06-29 12:56 - [文莱王储比拉将访华](http://www.share.minike.top/Article/details/42671555.shtml)
+- 2026-06-29 12:57 - [Insight续押日元还会再跌 干预只能短暂止血](http://www.share.kurohicncr.top/Article/details/23474286967.shtml)
+- 2026-06-29 12:51 - [资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元](http://www.blog.kurohicncr.top/Article/details/04256.shtml)
+- 2026-06-29 13:09 - [一双跑鞋炒至5000美元，12000件夹克27分钟抢空：阿迪达斯股东大会传递了什么？](http://www.share.kurohicncr.top/Article/details/922358433202.shtml)
+- 2026-06-29 12:59 - [酒价内参5月8日价格发布：五粮液1618上涨2元/瓶](http://www.blog.minike.top/Article/details/33055262.shtml)

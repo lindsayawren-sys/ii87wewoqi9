@@ -1,61 +1,57 @@
-# 际华集团（601718）收到处罚事先告知书，投资者索赔多次提交立案
+# 走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-2026年4月30日晚，际华集团（601718）公告公司及相关当事人收到证监会下发的《行政处罚事先告知书》，上海久诚律师事务所股票索赔律师许峰提示，至此，际华集团虚假陈述违法事实已基本清晰，如果投资者因此受损，目前还可发起索赔。 许峰律师代理的际华集团投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的
+中新网哈尔滨5月9日电 题：走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山 作者 史轶夫 高春梅 五月的哈尔滨暖风拂面、草木葳蕤，初夏的东北林业大学(以下简称“东林”)校园绿意盎然。又一届即将出征的学子齐聚校园，怀揣着对林海原野的赤诚向往，收拾行囊奔赴全国各大林区一线，将青春理想深深扎根在绿水青山之间。 2021年，东北林业大学在全国高校率先推出推免研究生“支林计
 
 ## 正文
 
-2026年4月30日晚，际华集团（601718）公告公司及相关当事人收到证监会下发的《行政处罚事先告知书》，上海久诚律师事务所股票索赔律师许峰提示，至此，际华集团虚假陈述违法事实已基本清晰，如果投资者因此受损，目前还可发起索赔。
+中新网哈尔滨5月9日电 题：走，到林区一线去！
 
-许峰律师代理的际华集团投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+东林“支林计划”近五百学子以青春守绿水青山 作者 史轶夫 高春梅 五月的哈尔滨暖风拂面、草木葳蕤，初夏的东北林业大学(以下简称“东林”)校园绿意盎然。
 
-（许峰律师专栏） 上述行政处罚事先告知书公告信息显示，经查明，际华集团及相关人员违法事实如下： （一）际华集团跨期确认土地出售收入导致虚减利润际华集团全资子公司跨期确认襄阳土地出售收入，导致际华集团2020年年度报告虚减利润总额502，111，658.99元，占当期对外披露利润总额的60.26%。
+又一届即将出征的学子齐聚校园，怀揣着对林海原野的赤诚向往，收拾行囊奔赴全国各大林区一线，将青春理想深深扎根在绿水青山之间。
 
-（二）际华集团通过开展融资性贸易虚增营业收入、营业成本 2018年至2019年，际华集团子公司新兴际华国际贸易有限公司（以下简称际华国贸）与多家公司开展融资性贸易业务，并对此确认营业收入和营业成本，导致际华集团2018年、2019年分别虚增营业收入5，098，495，638.15元、2，997，624，845.12元，占各期对外披露营业收入的22.48%、14.17%，虚增营业成本5，078，563，183.57元、2，980，144，144.24元，占各期对外披露营业成本的22.29%、14.04%。
+2021年，东北林业大学在全国高校率先推出推免研究生“支林计划”，开辟“基层实践+学术深造”的绿色成才新路。
 
-（三）际华集团通过开展代理业务虚增营业收入、营业成本。
+项目落地至今，已有499名东林学子奔赴五省区百余个林场、林业和草原局及自然保护区，服务期满考核合格即可获得推免读研资格，让青年在一线历练、在实践中成才。
 
-综上，际华集团2018年至2021年年度报告分别虚增营业收入5，098，495，638.15元、2，997，624，845.12元、550，776，959.10元、1，013，129，465.60元，占各期对外披露营业收入的22.48%、14.17%、3.68%、6.54%，虚增营业成本5，078，563，183.57元、2，980，144，144.24元、550，776，959.10元、1，013，129，465.60元，占各期对外披露营业成本的22.29%、14.04%、3.60%、6.51%。
+“‘支林计划’聚焦林区建设、生态整治，和我的专业方向高度契合，我想用所学为林场建设出一份力。
 
-同时，2020年年度报告虚减利润总额502，111，658.99元，占当期对外披露利润总额的60.26%。
+”首批支林学子段佳楠坦言。
 
-专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2019年4月26日到2025年8月9日之间买入际华集团股票，并在2025年8月9日后卖出或继续持有股票的投资者，目前还可发起索赔。
+怀揣这样的初心，一批又一批东林青年告别校园繁华，奔赴偏远林区，开启从书生到林业新兵的蜕变。
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [路易丝·阿伯将出任第31任加拿大总督](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:46 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 13:08 - [离境退税“即买即退”跨省互认进一步扩围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 13:00 - [哈塞特：没有参与私募信贷的人不必担心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 13:09 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 13:11 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:54 - [黄金突破4700美元，分析师警示风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:52 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 13:06 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:55 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:57 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 13:02 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:42 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:50 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:47 - [菲律宾失业率连续两个月回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:58 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 13:12 - [湖北武汉：初夏时节 花田花海美不胜收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 13:01 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 13:05 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:49 - [A股1300亿算力巨头协创数据，净利润猛增343%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 13:06 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:53 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 13:11 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 13:05 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:56 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 13:16 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:02 - [Coinbase首席执行官称公司将裁员约14%](http://www.blog.minike.top/Article/details/2547670562.shtml)
-- 2026-06-29 13:05 - [Anthropic“杀”进金融圈，联创称2028年底AI能自我进化](http://www.share.kurohicncr.top/Article/details/32672617019.shtml)
-- 2026-06-29 13:08 - [全国大部降水增多 冷空气将自北向南制造降温](http://www.share.kurohicncr.top/Article/details/35092278593.shtml)
-- 2026-06-29 12:57 - [开盘：美股周二高开 油价回落与强劲财报提振](http://www.share.minike.top/Article/details/922995492.shtml)
-- 2026-06-29 12:46 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](http://www.share.kurohicncr.top/Article/details/85902293.shtml)
-- 2026-06-29 13:10 - [哮喘控制不好？快看看吸入剂你用对了吗？](http://www.blog.kurohicncr.top/Article/details/515049358788.shtml)
-- 2026-06-29 12:58 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](http://www.blog.minike.top/Article/details/0285358845.shtml)
-- 2026-06-29 12:57 - [成都铁路迎“五一”假期客流返程高峰](http://www.share.kurohicncr.top/Article/details/45485333.shtml)
-- 2026-06-29 12:51 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](http://www.share.minike.top/Article/details/55508.shtml)
-- 2026-06-29 13:11 - [特朗普威胁伊朗不要向美国船开火](http://www.share.kurohicncr.top/Article/details/835339518.shtml)
-- 2026-06-29 12:46 - [广东建成内地规模最大欧标充电服务网络](http://www.blog.minike.top/Article/details/43434.shtml)
-- 2026-06-29 12:48 - [AI、国防与气候：重塑全球增长格局的三大支柱](http://www.blog.kurohicncr.top/Article/details/07815815.shtml)
-- 2026-06-29 12:49 - [全球政府债券延续涨势 受美伊进展报道影响](http://www.share.minike.top/Article/details/33428289.shtml)
-- 2026-06-29 12:51 - [重庆市酉阳县委书记杨通胜接受审查调查](http://www.share.kurohicncr.top/Article/details/935098329.shtml)
-- 2026-06-29 13:08 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](http://www.blog.minike.top/Article/details/08334444537.shtml)
+- 2026-06-29 13:17 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](http://www.blog.minike.top/Article/details/95443.shtml)
+- 2026-06-29 13:17 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](http://www.share.kurohicncr.top/Article/details/776831930282.shtml)
+- 2026-06-29 13:15 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](http://www.share.minike.top/Article/details/7967480673.shtml)
+- 2026-06-29 13:11 - [加州新计划：新生儿家庭将获数百片免费尿布](http://www.blog.kurohicncr.top/Article/details/5385423312.shtml)
+- 2026-06-29 12:58 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [2026世界杯美加墨三国将分别举办开幕式](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:12 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](http://www.share.kurohicncr.top/Article/details/82424.shtml)
+- 2026-06-29 13:09 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](http://www.share.minike.top/Article/details/14824261945.shtml)
+- 2026-06-29 13:08 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](http://www.share.minike.top/Article/details/20255.shtml)
+- 2026-06-29 13:17 - [新疆加快打造全国优质农牧产品重要供给基地](http://www.share.kurohicncr.top/Article/details/8295087502.shtml)
+- 2026-06-29 12:57 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](http://www.share.minike.top/Article/details/543949.shtml)
+- 2026-06-29 12:53 - [黄金周线有望录得上涨，或将突破箱体压力？](http://www.share.kurohicncr.top/Article/details/080820856.shtml)
+- 2026-06-29 12:56 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lisacumin64-arch)

@@ -1,57 +1,56 @@
-# 离境退税“即买即退”跨省互认进一步扩围
+# 人工智能科技伦理审查与服务先导计划启动
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-中新网广州5月6日电 (记者 郭军)记者6日从国家税务总局广东省税务局获悉，自5月1日起，境外旅客在广东(含深圳)、海南、广西任意一地办理离境退税“即买即退”并申领预付金后，可在三省区任一离境退税口岸离境。这意味着，境外旅客在华购物退税进一步打破购物地与离境口岸必须对应的地域限制，在华南地区实现更大范围的跨区域互认。 “五一”假期期间，这项新政策让正在参加第139届广交会的不少
+人工智能科技伦理审查与服务先导计划启动 《人民日报》（2026年05月10日 第 02 版） 据新华社北京5月9日电 （记者周圆）工业和信息化部日前印发通知，正式启动人工智能科技伦理审查与服务先导计划，将依托国家人工智能产业创新应用先导区所在省份，率先探索人工智能科技伦理审查与服务的落地路径。 当前，算法歧视、情感依赖等科技伦理风险日益凸显，亟须建立人工智能科技伦理审查与服务机
 
 ## 正文
 
-中新网广州5月6日电 (记者 郭军)记者6日从国家税务总局广东省税务局获悉，自5月1日起，境外旅客在广东(含深圳)、海南、广西任意一地办理离境退税“即买即退”并申领预付金后，可在三省区任一离境退税口岸离境。
+人工智能科技伦理审查与服务先导计划启动 《人民日报》（2026年05月10日 第 02 版） 据新华社北京5月9日电 （记者周圆）工业和信息化部日前印发通知，正式启动人工智能科技伦理审查与服务先导计划，将依托国家人工智能产业创新应用先导区所在省份，率先探索人工智能科技伦理审查与服务的落地路径。
 
-这意味着，境外旅客在华购物退税进一步打破购物地与离境口岸必须对应的地域限制，在华南地区实现更大范围的跨区域互认。
+当前，算法歧视、情感依赖等科技伦理风险日益凸显，亟须建立人工智能科技伦理审查与服务机制。
 
-“五一”假期期间，这项新政策让正在参加第139届广交会的不少境外客商直呼“惊喜”。
+此前，工业和信息化部等10部门联合印发《人工智能科技伦理审查与服务办法（试行）》，先导计划旨在推动办法在部分城市率先落地。
 
-在广交会展馆离境退税专区，来自墨西哥的SALAZAR现场办理退税并领取现金后，得知回国时可以自由选择从深圳、广西或海南的离境口岸离开。
+重点任务方面，通知提出将细化省级人工智能科技伦理审查制度规范，指导建设人工智能科技伦理委员会，探索建设人工智能科技伦理审查与服务中心，开展人工智能科技伦理审查实践，将审查实践经验转化为技术标准，健全审查情况通报机制等。
 
-她兴奋地说：“本来以为只能在广州办退税、从广州走，没想到现在能在好几个省区任选口岸离境，我可以放心地把周边省份也加入行程了。
+通知明确，将设立全国人工智能科技伦理风险监测服务网络，编制相关培训教材，常态化开设“伦理课堂”，开展伦理风险监测预警，为先导计划城市提供智力支撑服务。
 
-” 为让跨区域互认运行更顺畅，税务部门在服务端同步升级。
-
-广交会退税专区首次引入离境退税“票单同开”智能服务，税务志愿者只需“一键扫描”境外旅客证件，系统便自动完成信息核验、发票生成和退税单打印，办理效率大幅提升。
-
-与此同时，广东税务部门创新推行“3+X”集中退付模式，在广州天河路、北京路、万国广场等核心商圈设立集中退付点，实现“一次通办、全市通退”，并拓展“碰一下”“扫一下”等多元化便捷办理渠道，让境外旅客在商圈购物后即可就近完成退税申领。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:57 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 13:06 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:55 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 13:06 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 13:05 - [菲律宾失业率连续两个月回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:55 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:43 - [经纬线·青年习近平的“人生课堂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:02 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:55 - [S佳通涉信息披露违法违规，受损投资者可维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:42 - [2026年“香港高考”收官 文凭试加速迈向国际化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:55 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 13:12 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:58 - [唱响中国之声：中央音乐学院合唱团在俄演出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:49 - [永升服务于5月8日斥资41.04万港元回购20万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:50 - [祁连山 “生命方舟” 累计救助收容259只野生动物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:53 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 13:05 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 13:16 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 13:05 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 13:09 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:58 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 13:13 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 13:16 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 13:14 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [广东建成内地规模最大欧标充电服务网络](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [AI、国防与气候：重塑全球增长格局的三大支柱](http://www.share.kurohicncr.top/Article/details/535269308022.shtml)
-- 2026-06-29 13:07 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [重庆市酉阳县委书记杨通胜接受审查调查](http://www.share.minike.top/Article/details/87801567.shtml)
-- 2026-06-29 12:42 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](http://www.blog.minike.top/Article/details/52405113.shtml)
-- 2026-06-29 12:47 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](http://www.share.minike.top/Article/details/075358576454.shtml)
-- 2026-06-29 13:07 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](http://www.share.minike.top/Article/details/6131364.shtml)
-- 2026-06-29 12:52 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](http://www.blog.kurohicncr.top/Article/details/5581056.shtml)
-- 2026-06-29 12:50 - [美伊停火暂时维持 华尔街股市强劲反弹](http://www.blog.minike.top/Article/details/846789044476.shtml)
-- 2026-06-29 13:00 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [英皇群星演唱会香港开唱勾起观众青春回忆](http://www.share.minike.top/Article/details/9105814720.shtml)
-- 2026-06-29 13:04 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](http://www.blog.kurohicncr.top/Article/details/99342.shtml)
-- 2026-06-29 12:45 - [央行公告这一名单更新！哪些机构新进，哪些退出？](http://www.share.minike.top/Article/details/65903.shtml)
-- 2026-06-29 13:11 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](http://www.share.kurohicncr.top/Article/details/39692181.shtml)
+- 2026-06-29 13:14 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:13 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](http://www.share.minike.top/Article/details/115928458.shtml)
+- 2026-06-29 13:03 - [新疆加快打造全国优质农牧产品重要供给基地](http://www.blog.minike.top/Article/details/92169.shtml)
+- 2026-06-29 13:14 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](http://www.share.minike.top/Article/details/0226478.shtml)
+- 2026-06-29 13:07 - [黄金周线有望录得上涨，或将突破箱体压力？](http://www.blog.minike.top/Article/details/7077732995.shtml)
+- 2026-06-29 13:10 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](http://www.share.minike.top/Article/details/16181549990.shtml)
+- 2026-06-29 12:55 - [第48届东盟峰会在菲律宾举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:14 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](http://www.blog.minike.top/Article/details/403064318.shtml)
+- 2026-06-29 12:49 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](http://www.share.kurohicncr.top/Article/details/7590925596.shtml)
+- 2026-06-29 13:17 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.share.minike.top/Article/details/136853.shtml)
+- 2026-06-29 13:14 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](http://www.share.minike.top/Article/details/54624.shtml)
+- 2026-06-29 13:09 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.share.minike.top/Article/details/4712186.shtml)
+- 2026-06-29 13:16 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](http://www.blog.kurohicncr.top/Article/details/629303118961.shtml)
+- 2026-06-29 13:08 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](https://github.com/lisacumin64-arch)

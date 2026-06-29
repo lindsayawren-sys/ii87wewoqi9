@@ -1,56 +1,49 @@
-# AMD CEO苏姿丰：智能体正引爆人工智能周期巨大需求
+# 四部门发文促进人工智能与能源双向赋能
 
-> 更新时间：2026-06-29 13:12:05 UTC+8
+> 更新时间：2026-06-29 13:18:05 UTC+8
 
 ## 摘要
 
-AMD首席执行官苏姿丰周三表示，公司大幅上调行业及业绩预期，核心动因是智能体人工智能兴起带动中央处理器（CPU）需求飙升。 苏姿丰表示：“在整个人工智能落地普及浪潮里，智能体正在催生极强的市场需求，我们身处这一浪潮中心，对此倍感振奋。” AMD周二公布一季度财报，每股收益与营收均超出分析师预期；营收同比大涨38%。苏姿丰重点指出，数据中心业务是此次业绩增长的核心驱动力。 苏姿丰
+新华社北京5月8日电(记者王悦阳)记者5月8日从国家能源局获悉，国家能源局会同国家发展改革委、工业和信息化部、国家数据局近日印发的《关于促进人工智能与能源双向赋能的行动方案》提出，力争到2030年，人工智能算力设施的清洁能源供给保障能力和能源领域人工智能应用水平大幅提升，构建人工智能与能源双向赋能、深度融合的发展新格局。 行动方案以能源支撑人工智能发展、人工智能赋能能源转型为主
 
 ## 正文
 
-AMD首席执行官苏姿丰周三表示，公司大幅上调行业及业绩预期，核心动因是智能体人工智能兴起带动中央处理器（CPU）需求飙升。
+新华社北京5月8日电(记者王悦阳)记者5月8日从国家能源局获悉，国家能源局会同国家发展改革委、工业和信息化部、国家数据局近日印发的《关于促进人工智能与能源双向赋能的行动方案》提出，力争到2030年，人工智能算力设施的清洁能源供给保障能力和能源领域人工智能应用水平大幅提升，构建人工智能与能源双向赋能、深度融合的发展新格局。
 
-苏姿丰表示：“在整个人工智能落地普及浪潮里，智能体正在催生极强的市场需求，我们身处这一浪潮中心，对此倍感振奋。
-
-” AMD周二公布一季度财报，每股收益与营收均超出分析师预期；营收同比大涨38%。
-
-苏姿丰重点指出，数据中心业务是此次业绩增长的核心驱动力。
-
-苏姿丰透露：“最关键的一点是，我们正看到算力负载需求正在发生结构性转移。
-
-” 她补充道，过去90天里，通过与各大核心大客户沟通，市场需求前景变得愈发清晰。
-
-随着智能体AI快速发展，算力需求结构发生转变，CPU市场再度强势复苏。
-
-尽管AMD在图形处理器（GPU）领域落后于英伟达，但在推理任务必备的CPU赛道上，AMD稳居行业头部地位。
+行动方案以能源支撑人工智能发展、人工智能赋能能源转型为主线，聚焦保障算力设施安全可靠的能源供给、推动算力设施绿色低碳转型、促进算力电力高效经济协同、开放能源领域人工智能高价值应用场景、挖掘能源领域数据价值、强化能源领域人工智能模型创新等方面部署29项重点任务，着力促进能源、算力、场景、数据、模型等人工智能发展各要素高效协同。
 
 ## 相关推荐
 
-- 2026-06-29 12:43 - [富通科技公布于5月6日下午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:43 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:51 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 13:11 - [追光的你｜青春的颜色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:54 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:52 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:47 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:45 - [特朗普称将暂停自由计划“一小段时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 13:00 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:46 - [青春之喻，奋斗之帆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 13:09 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:58 - [AI时代，全球教育正面临三层重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 13:15 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 13:16 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 13:13 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 13:06 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:59 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 13:00 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 13:02 - [坚持有腐必反、有贪必肃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:51 - [信利国际于5月8日耗资103万港元回购100万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:59 - [中欧班列开行突破13万列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 13:09 - [A股再现国资“A吃A”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 13:16 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:48 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 13:13 - [个人办事，不只“能办”还要“好办、易办”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:42 - [路易丝·阿伯将出任第31任加拿大总督](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](http://www.blog.minike.top/Article/details/3369606.shtml)
-- 2026-06-29 13:06 - [离境退税“即买即退”跨省互认进一步扩围](http://www.share.kurohicncr.top/Article/details/59696.shtml)
-- 2026-06-29 12:56 - [哈塞特：没有参与私募信贷的人不必担心](http://www.blog.kurohicncr.top/Article/details/049416290541.shtml)
-- 2026-06-29 13:11 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](http://www.blog.kurohicncr.top/Article/details/632320626.shtml)
-- 2026-06-29 12:52 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](http://www.share.minike.top/Article/details/72820965675.shtml)
-- 2026-06-29 12:48 - [黄金突破4700美元，分析师警示风险犹存](http://www.share.kurohicncr.top/Article/details/932422068.shtml)
-- 2026-06-29 13:00 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](http://www.blog.minike.top/Article/details/48656.shtml)
-- 2026-06-29 12:48 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](http://www.share.kurohicncr.top/Article/details/3562714.shtml)
-- 2026-06-29 13:04 - [“市场依然可为！”基金经理看好节后三大主线](http://www.blog.minike.top/Article/details/89820544405.shtml)
-- 2026-06-29 12:58 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](http://www.share.kurohicncr.top/Article/details/822630611865.shtml)
-- 2026-06-29 13:08 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](http://www.blog.minike.top/Article/details/6328248761.shtml)
-- 2026-06-29 12:59 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](http://www.blog.kurohicncr.top/Article/details/9803307.shtml)
-- 2026-06-29 13:10 - [菲律宾失业率连续两个月回落](http://www.share.kurohicncr.top/Article/details/187031952013.shtml)
+- 2026-06-29 12:54 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:14 - [湖北武汉：初夏时节 花田花海美不胜收](http://www.share.kurohicncr.top/Article/details/1524513.shtml)
+- 2026-06-29 12:56 - [人工智能科技伦理审查与服务先导计划启动](http://www.blog.minike.top/Article/details/215023667.shtml)
+- 2026-06-29 12:59 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](http://www.share.kurohicncr.top/Article/details/23683688965.shtml)
+- 2026-06-29 12:48 - [A股1300亿算力巨头协创数据，净利润猛增343%](http://www.share.minike.top/Article/details/9732306072.shtml)
+- 2026-06-29 13:02 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](http://www.share.minike.top/Article/details/22550001.shtml)
+- 2026-06-29 12:51 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](http://www.share.kurohicncr.top/Article/details/03147691374.shtml)
+- 2026-06-29 13:15 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](http://www.blog.minike.top/Article/details/89501652.shtml)
+- 2026-06-29 13:15 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](http://www.share.minike.top/Article/details/7122785.shtml)
+- 2026-06-29 13:00 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](http://www.share.minike.top/Article/details/7263890689.shtml)
+- 2026-06-29 12:48 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](http://www.share.minike.top/Article/details/00613030.shtml)
+- 2026-06-29 13:03 - [唱响中国之声：中央音乐学院合唱团在俄演出](http://www.share.minike.top/Article/details/9666405094.shtml)
+- 2026-06-29 13:05 - [永升服务于5月8日斥资41.04万港元回购20万股](http://www.share.minike.top/Article/details/41856.shtml)
+- 2026-06-29 13:06 - [祁连山 “生命方舟” 累计救助收容259只野生动物](http://www.share.minike.top/Article/details/400495806.shtml)
+- 2026-06-29 13:11 - [早盘：标普500指数和纳斯达克综合再创历史新高](http://www.blog.kurohicncr.top/Article/details/4612319369.shtml)
