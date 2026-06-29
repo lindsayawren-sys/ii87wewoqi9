@@ -1,68 +1,54 @@
-# 清明假期广西多措并举 助推消费市场火热
+# 伊朗代表团强调解冻资产及实现黎巴嫩“真正停火”
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-中新网南宁4月8日电(韦佳秀)广西商务厅8日介绍，今年清明假期(4月4日—6日)期间，该部门紧扣“今年春假来广西 畅游畅购三月三”主题，推出系列促消费举措，创新打造多元沉浸式消费场景，为春季消费市场注入新活力。 清明假期期间，广西各地扎实推进消费品以旧换新活动。贵港、防城港、贺州等市推出新车购车补贴，消费者购车最高可享补贴4000元。南宁、柳州等地部分4S店
+专题：美伊谈判最新进展 新华社德黑兰4月11日电（记者陈霄沙达提）伊朗伊斯兰共和国广播电视台11日报道，伊朗谈判代表团当天与巴基斯坦官员在伊斯兰堡闭门会谈，伊方强调解冻资产及实现黎巴嫩“真正停火”。 报道说，由伊朗议会议长卡利巴夫率领、外长阿拉格齐随行的伊朗谈判代表团当天与巴基斯坦方面举行了会晤。 该报道还提及，美方官员表示同意解冻伊朗相关资产，但具体细节仍
 
 ## 正文
 
-中新网南宁4月8日电(韦佳秀)广西商务厅8日介绍，今年清明假期(4月4日—6日)期间，该部门紧扣“今年春假来广西 畅游畅购三月三”主题，推出系列促消费举措，创新打造多元沉浸式消费场景，为春季消费市场注入新活力。
+专题：美伊谈判最新进展 新华社德黑兰4月11日电（记者陈霄沙达提）伊朗伊斯兰共和国广播电视台11日报道，伊朗谈判代表团当天与巴基斯坦官员在伊斯兰堡闭门会谈，伊方强调解冻资产及实现黎巴嫩“真正停火”。
 
-清明假期期间，广西各地扎实推进消费品以旧换新活动。
+报道说，由伊朗议会议长卡利巴夫率领、外长阿拉格齐随行的伊朗谈判代表团当天与巴基斯坦方面举行了会晤。
 
-贵港、防城港、贺州等市推出新车购车补贴，消费者购车最高可享补贴4000元。
+该报道还提及，美方官员表示同意解冻伊朗相关资产，但具体细节仍有待进一步明确。
 
-南宁、柳州等地部分4S店推出置换补贴加码活动，部分车型可享4000元置换补贴、3年0息等多重优惠。
+不过，美国白宫对此说法予以否认。
 
-京东电器、苏宁易购等单台家电最高补贴5000元。
-
-南宁市还创新推出“以旧换新+有奖发票”活动，截至4月6日，活动累计参与36万人次，上传发票174.2万张，拉动消费8.6亿元。
-
-广西175家零售企业商品销售额同比(下同)增长10.1%，其中汽车类、通讯器材类、石油及制品类分别增长6.7%、21.8%和24.6%。
+（完）责任编辑：赵思远
 
 ## 相关推荐
 
-- [特朗普宣布为期两周停火后，油价跌破100美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuiding.md)
-- [全国人大常委会部分组成人员参加义务植树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/geshun.md)
-- [飞絮过敏和花粉过敏是一回事吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beiren.md)
-- [东博会2026年首场进东盟专题展亮相越南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunran.md)
-- [俄外交部：俄日关系降至前所未有的低点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sunqing.md)
-- [特朗普威胁对向伊朗供武国家征收50%关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongran.md)
-- [国家广电总局：已清理“AI魔改”相关违规视频23000余条](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
-- [山东济宁：织密民生保障网 呵护“一老一小”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jianquan.md)
-- [王毅将访问朝鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mingman.md)
-- [汽油涨破4美元，美国民众：“所有东西都在涨价，我们薪水却没变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songhan.md)
-- [特朗普宣布美国将协助霍尔木兹海峡航运，“会赚到大钱！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shaxiong.md)
-- [罕见！董事长变总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shangxu.md)
-- [伊朗发动“真实承诺-4”第100轮攻势 打击美以目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zeming.md)
-- [收评|股指期货全线上涨 中证500股指期货主力合约涨5.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
-- [光大银行：注册资本增至590.9亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
-- [CBA常规赛：吉林大胜四川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainiao.md)
-- [进出口银行党委召开2026年第一轮巡视动员部署会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tipeng.md)
-- [“牛市旗手”券商板块表现强势，证券ETF富国（515850）盘中涨幅达3.90%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pengchai.md)
-- [东西问｜当250年历史的国家威胁毁掉5000年文明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/congnie.md)
-- [两高：依法从严惩处涉民航飞行安全违法犯罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suozhen.md)
-- [东亚银行：下调今年恒指目标至点 悲观情景下或回调点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
-- [伊朗议长将率团前往巴基斯坦首都参加伊美谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
-- [邮储银行山西省大同市分行被罚6万元：未按规定收缴假币](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongpi.md)
-- [美瑞新材：公司的TPU在电线电缆方面的主要应用领域是汽车线束和充电桩线缆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pushua.md)
+- [“长征90载·宁化再出发”房车主题活动启幕 百余名车友重走红色征程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liaozeng.md)
+- [4月11日隔夜要闻：美股三大股指本周均涨超3% 美油创六年来最大单周跌幅 铜价三周连涨 市场聚焦美伊周末会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunran.md)
+- [卓驭科技CEO沈劭劼：未来两年，全球辅助驾驶行业将全面拥抱基础模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanmai.md)
+- [号称年入18亿美元的“一人公司”翻车，极致效率背后是极致脆弱？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongpi.md)
+- [一张图看懂2026年3月美国通胀明细](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zeming.md)
+- [南非柑橘输华检疫标准优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
+- [蔚来李斌：电芯规格不统一，成为制约车企发展的严重问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanmang.md)
+- [特朗普称赞“世界上最强大的重置” 但未作详细说明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongran.md)
+- [美国稀土CEO回应国会质疑：力挺特朗普政府16亿美元投资计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shangxu.md)
+- [【东西问】王馗：梅兰芳1930年访美演出为何具有里程碑意义？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xude.md)
+- [深圳铁路实施新的列车运行图 促湾区与粤东融合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanyuan.md)
+- [大众汽车韩三楚：2027年将在中国推出30款新能源车，2030年推出50款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
+- [伊美即将举行第三轮会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuangeng.md)
+- [北京人艺话剧《张居正》在香港上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
 
 ## 延伸阅读
 
-- [国家能源局：截至2月底，全国可再生能源发电装机达23.81亿千瓦](http://www.share.kurohicncr.top/Article/details/526557704475.shtml)
-- [精心组织、推动发展、务实为民——各地扎实开展树立和践行正确政绩观学习教育](http://www.share.kurohicncr.top/Article/details/73354.shtml)
-- [全线大涨！美伊谈判在即，以色列暂停打击](http://www.share.minike.top/Article/details/0106659.shtml)
-- [FPG财盛国际:巴西油气产能推动美洲能源安全](https://github.com/lisacumin64-arch)
-- [快讯：甲醇主力合约日内暴跌10%](http://www.blog.kurohicncr.top/Article/details/149131.shtml)
-- [特朗普称伊朗将不会进行铀浓缩活动](https://github.com/lisacumin64-arch)
-- [36％股权被质押、多家民营股东出局，北部湾财险增长瓶颈待破](http://www.blog.kurohicncr.top/Article/details/5613564.shtml)
-- [你的盲盒要涨价？中东战火烧到“潮玩圈”：塑料价格狂飙，“5元货现在卖9元”](http://www.share.minike.top/Article/details/003308093.shtml)
-- [华安基金：追“光”识“新”更掘“金”创业板50指数聚焦新质生产力赛道](http://www.share.minike.top/Article/details/19075.shtml)
-- [深圳宝安“具身智能港”关键落子 全球机器人选品中心正式启用](http://www.share.kurohicncr.top/Article/details/71962424360.shtml)
-- [中东临时停火 全球经济难回战前常态](http://www.share.minike.top/Article/details/158876053.shtml)
-- [美伊以三方暂时协议停火，金ETF富国（518680）盘间大涨超2.5%](http://www.share.minike.top/Article/details/56835.shtml)
-- [奋进“十五五” 实干开新局丨“电子垃圾”华丽变身 场景创新激活新动能](http://www.blog.kurohicncr.top/Article/details/09842091.shtml)
-- [HALO资产：AI时代的“卖铲人”](http://www.share.minike.top/Article/details/167649593.shtml)
-- [金融监管总局：严禁以涉农名义违规新增地方政府隐性债务](http://www.blog.minike.top/Article/details/37899691.shtml)
+- [透过“阿耳忒弥斯2号”看美国重返月球之变](http://www.share.kurohicncr.top/Article/details/33311833606.shtml)
+- [中国长安汽车赵非：建议加快构建全国统一的智能辅助驾驶安全数据采集标准体系](https://github.com/lisacumin64-arch)
+- [河南三门峡：牡丹花开春意浓](https://github.com/lisacumin64-arch)
+- [“森拉克”将继续增强 最强可达超强台风级](https://github.com/lisacumin64-arch)
+- [酒价内参4月11日价格发布 终端总价微跌再创两周新低](http://www.blog.kurohicncr.top/Article/details/75248064.shtml)
+- [“理解当代中国”春令营在渝收官 俄罗斯青年感知中国魅力](https://github.com/lisacumin64-arch)
+- [广汽冯兴亚：国际化已成为必争之地，车企必须同时打好国内和国外两场战役](http://www.blog.minike.top/Article/details/341265779057.shtml)
+- [海内外18支车队将参加2026广州国际公路自行车赛](http://www.share.kurohicncr.top/Article/details/0569000699.shtml)
+- [学者析国共领导人会面：立足中华民族 共谋和平未来](http://www.share.minike.top/Article/details/788589229.shtml)
+- [利好不断！液冷赛道猛涨，这些公司订单爆发](http://www.share.minike.top/Article/details/86578609167.shtml)
+- [内塔尼亚胡：“消灭真主党”是以黎谈判前提](http://www.share.kurohicncr.top/Article/details/0263642.shtml)
+- [如何在家门口看好病？分级诊疗重塑就医新格局](https://github.com/lisacumin64-arch)
+- [伊朗新一届领导层在美和平谈判前态度谨慎](http://www.blog.minike.top/Article/details/543251.shtml)
+- [伊朗与美国谈判进入专家磋商阶段](http://www.blog.minike.top/Article/details/2317221136.shtml)
+- [美国法官应阻止亚利桑那州对Kalshi提起刑事案件](http://www.blog.kurohicncr.top/Article/details/19496.shtml)

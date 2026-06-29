@@ -1,66 +1,58 @@
-# 卡塔尔开始着手恢复液化天然气出口工厂的生产
+# （乡村行·看振兴）运河民俗何以持续“流淌”？江南网船会再现水上盛景
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-据知情人士透露，随着中东战争停火，卡塔尔正调集工程师和工人，旨在重启全球最大的液化天然气出口工厂的生产。 知情人士表示，安全形势的改善使得有限的活动得以开展，该设施正在进行计划重启前的必要维护。由于未获授权与媒体交谈，这些人士要求匿名。未来几天内部分生产可能开始恢复，尽管尚不清楚产能能多快提升，且要恢复大规模生产，必须确保船只能够通过霍尔木兹海峡。 拉斯拉凡
+中新网嘉兴4月10日电(黄彦君)水面船影绰绰，岸边人声鼎沸……4月10日一大早，浙江省嘉兴市秀洲区王江泾镇的莲泗荡景区热闹非凡，近百个民间社团汇聚于此，共赴一场属于水乡人家的盛会。 春光正好，“流淌着的运河民俗—2026江南网船会”如约而至。网船会是江南地区规模盛大的水上庙会。历史上，网船会通常在每年清明、中秋、除夕期间举行，其中清明前后规模最大。长三角一带
 
 ## 正文
 
-据知情人士透露，随着中东战争停火，卡塔尔正调集工程师和工人，旨在重启全球最大的液化天然气出口工厂的生产。
+中新网嘉兴4月10日电(黄彦君)水面船影绰绰，岸边人声鼎沸……4月10日一大早，浙江省嘉兴市秀洲区王江泾镇的莲泗荡景区热闹非凡，近百个民间社团汇聚于此，共赴一场属于水乡人家的盛会。
 
-知情人士表示，安全形势的改善使得有限的活动得以开展，该设施正在进行计划重启前的必要维护。
+春光正好，“流淌着的运河民俗—2026江南网船会”如约而至。
 
-由于未获授权与媒体交谈，这些人士要求匿名。
+网船会是江南地区规模盛大的水上庙会。
 
-未来几天内部分生产可能开始恢复，尽管尚不清楚产能能多快提升，且要恢复大规模生产，必须确保船只能够通过霍尔木兹海峡。
+历史上，网船会通常在每年清明、中秋、除夕期间举行，其中清明前后规模最大。
 
-拉斯拉凡设施自3月初停产以来，已引发全球天然气供应危机。
+长三角一带渔民、船民纷纷驾船至莲泗荡，祈平安、会亲友、观演出、进行商品交易，船只汇集荡面，蔚为壮观。
 
-责任编辑：江学思
+“我们社团最早成立于1898年，这次100多号人全员出动。
+
+”66岁的张根宝，是嘉善县渔民村一支民间社团的负责人。
 
 ## 相关推荐
 
-- [停火了，金价为何比油价“克制”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xixia.md)
-- [特朗普宣布为期两周停火后，油价跌破100美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zeming.md)
-- [全国人大常委会部分组成人员参加义务植树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
-- [飞絮过敏和花粉过敏是一回事吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
-- [东博会2026年首场进东盟专题展亮相越南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/congnie.md)
-- [特朗普威胁对向伊朗供武国家征收50%关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sunqing.md)
-- [国家广电总局：已清理“AI魔改”相关违规视频23000余条](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
-- [山东济宁：织密民生保障网 呵护“一老一小”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanruo.md)
-- [王毅将访问朝鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tipeng.md)
-- [汽油涨破4美元，美国民众：“所有东西都在涨价，我们薪水却没变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liaozeng.md)
-- [特朗普宣布美国将协助霍尔木兹海峡航运，“会赚到大钱！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gongjian.md)
-- [罕见！董事长变总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuyang.md)
-- [伊朗发动“真实承诺-4”第100轮攻势 打击美以目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunran.md)
-- [光大银行：注册资本增至590.9亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainian.md)
-- [CBA常规赛：吉林大胜四川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
-- [ATFX:美伊达成两周停火协议 WTI暴跌15美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shaxiong.md)
-- [进出口银行党委召开2026年第一轮巡视动员部署会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
-- [东西问｜当250年历史的国家威胁毁掉5000年文明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pengchai.md)
-- [两高：依法从严惩处涉民航飞行安全违法犯罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beiren.md)
-- [统战赋能春耕一线 江西玉山绘就春耕同心画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banwu.md)
-- [伊朗议长将率团前往巴基斯坦首都参加伊美谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueqiang.md)
-- [邮储银行山西省大同市分行被罚6万元：未按规定收缴假币](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuiding.md)
-- [美瑞新材：公司的TPU在电线电缆方面的主要应用领域是汽车线束和充电桩线缆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xude.md)
-- [在三星公布业绩大幅预增后，SK海力士股价暴涨15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuimang.md)
+- [2026赛季中乙联赛：山西崇德荣海不敌山东泰山B队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueqiang.md)
+- [“长征90载·宁化再出发”房车主题活动启幕 百余名车友重走红色征程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zeming.md)
+- [4月11日隔夜要闻：美股三大股指本周均涨超3% 美油创六年来最大单周跌幅 铜价三周连涨 市场聚焦美伊周末会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuyang.md)
+- [卓驭科技CEO沈劭劼：未来两年，全球辅助驾驶行业将全面拥抱基础模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainiao.md)
+- [号称年入18亿美元的“一人公司”翻车，极致效率背后是极致脆弱？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangwan.md)
+- [一张图看懂2026年3月美国通胀明细](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paizen.md)
+- [南非柑橘输华检疫标准优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liaozeng.md)
+- [蔚来李斌：电芯规格不统一，成为制约车企发展的严重问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beiren.md)
+- [特朗普称赞“世界上最强大的重置” 但未作详细说明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shengduan.md)
+- [美国稀土CEO回应国会质疑：力挺特朗普政府16亿美元投资计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunran.md)
+- [【东西问】王馗：梅兰芳1930年访美演出为何具有里程碑意义？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benhe.md)
+- [深圳铁路实施新的列车运行图 促湾区与粤东融合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banwu.md)
+- [大众汽车韩三楚：2027年将在中国推出30款新能源车，2030年推出50款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songhan.md)
+- [伊美即将举行第三轮会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongfei.md)
 
 ## 延伸阅读
 
-- [伊朗驻华大使感谢中国在安理会投下反对票](https://github.com/lisacumin64-arch)
-- [国家能源局：截至2月底，全国可再生能源发电装机达23.81亿千瓦](http://www.blog.minike.top/Article/details/829361828.shtml)
-- [精心组织、推动发展、务实为民——各地扎实开展树立和践行正确政绩观学习教育](http://www.share.kurohicncr.top/Article/details/7996010942.shtml)
-- [全线大涨！美伊谈判在即，以色列暂停打击](http://www.share.minike.top/Article/details/95332.shtml)
-- [FPG财盛国际:巴西油气产能推动美洲能源安全](http://www.share.minike.top/Article/details/16455612.shtml)
-- [快讯：甲醇主力合约日内暴跌10%](http://www.share.minike.top/Article/details/289114903915.shtml)
-- [特朗普称伊朗将不会进行铀浓缩活动](http://www.share.kurohicncr.top/Article/details/085339.shtml)
-- [36％股权被质押、多家民营股东出局，北部湾财险增长瓶颈待破](http://www.blog.minike.top/Article/details/25529.shtml)
-- [你的盲盒要涨价？中东战火烧到“潮玩圈”：塑料价格狂飙，“5元货现在卖9元”](http://www.blog.kurohicncr.top/Article/details/060649606.shtml)
-- [华安基金：追“光”识“新”更掘“金”创业板50指数聚焦新质生产力赛道](https://github.com/lisacumin64-arch)
-- [深圳宝安“具身智能港”关键落子 全球机器人选品中心正式启用](http://www.share.kurohicncr.top/Article/details/979758013965.shtml)
-- [中东临时停火 全球经济难回战前常态](http://www.share.kurohicncr.top/Article/details/72470.shtml)
-- [美伊以三方暂时协议停火，金ETF富国（518680）盘间大涨超2.5%](http://www.share.kurohicncr.top/Article/details/70214704022.shtml)
-- [奋进“十五五” 实干开新局丨“电子垃圾”华丽变身 场景创新激活新动能](http://www.blog.minike.top/Article/details/5321056543.shtml)
-- [HALO资产：AI时代的“卖铲人”](http://www.share.minike.top/Article/details/032558.shtml)
+- [中国美院“文艺复兴研究中心”正式揭牌](http://www.blog.minike.top/Article/details/1308007.shtml)
+- [透过“阿耳忒弥斯2号”看美国重返月球之变](http://www.share.minike.top/Article/details/046985260765.shtml)
+- [中国长安汽车赵非：建议加快构建全国统一的智能辅助驾驶安全数据采集标准体系](http://www.share.minike.top/Article/details/7958247.shtml)
+- [河南三门峡：牡丹花开春意浓](http://www.blog.kurohicncr.top/Article/details/20721837465.shtml)
+- [“森拉克”将继续增强 最强可达超强台风级](http://www.share.kurohicncr.top/Article/details/502583893.shtml)
+- [酒价内参4月11日价格发布 终端总价微跌再创两周新低](http://www.blog.minike.top/Article/details/726670.shtml)
+- [“理解当代中国”春令营在渝收官 俄罗斯青年感知中国魅力](http://www.share.minike.top/Article/details/5278427738.shtml)
+- [广汽冯兴亚：国际化已成为必争之地，车企必须同时打好国内和国外两场战役](http://www.blog.minike.top/Article/details/192677583190.shtml)
+- [海内外18支车队将参加2026广州国际公路自行车赛](http://www.share.minike.top/Article/details/467430184040.shtml)
+- [学者析国共领导人会面：立足中华民族 共谋和平未来](http://www.blog.minike.top/Article/details/45125.shtml)
+- [利好不断！液冷赛道猛涨，这些公司订单爆发](http://www.share.minike.top/Article/details/073149843326.shtml)
+- [内塔尼亚胡：“消灭真主党”是以黎谈判前提](https://github.com/lisacumin64-arch)
+- [如何在家门口看好病？分级诊疗重塑就医新格局](http://www.share.minike.top/Article/details/846466869.shtml)
+- [伊朗新一届领导层在美和平谈判前态度谨慎](http://www.share.kurohicncr.top/Article/details/5339100.shtml)
+- [伊朗与美国谈判进入专家磋商阶段](https://github.com/lisacumin64-arch)

@@ -1,57 +1,56 @@
-# AI巨头可能重塑IPO窗口
+# 中国钢铁工业协会：建立钢铁行业产能治理新机制
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-在创纪录的人工智能融资背景下，SpaceX、OpenAI和Anthropic可能启动上市——或吸收市场流动性——纳斯达克被视为可能的受益交易所。责任编辑：张俊 SF065
+中新网北京4月11日电 (记者 王梦瑶)中国钢铁工业协会副会长夏农11日在2026(第十七届)钢铁高质量发展大会上表示，要建立钢铁行业产能治理新机制。 夏农说，钢铁行业面临着供需矛盾较大、效益基础不稳固、绿色转型等投入强度较高的压力，但钢铁是国民经济发展不可替代的重要基础原料，钢铁工业是建设现代化强国不可或缺的重要支撑产业。 他表示，要在严格落实粗钢产量调控
 
 ## 正文
 
-在创纪录的人工智能融资背景下，SpaceX、OpenAI和Anthropic可能启动上市——或吸收市场流动性——纳斯达克被视为可能的受益交易所。
+中新网北京4月11日电 (记者 王梦瑶)中国钢铁工业协会副会长夏农11日在2026(第十七届)钢铁高质量发展大会上表示，要建立钢铁行业产能治理新机制。
 
-责任编辑：张俊 SF065
+夏农说，钢铁行业面临着供需矛盾较大、效益基础不稳固、绿色转型等投入强度较高的压力，但钢铁是国民经济发展不可替代的重要基础原料，钢铁工业是建设现代化强国不可或缺的重要支撑产业。
+
+他表示，要在严格落实粗钢产量调控政策的基础上，积极研究建立产能治理新机制。
+
+要严禁新增产能，开辟产能退出通道，通过出台相关政策措施，淘汰技术落后、环境污染严重、生产效率低的装备，建立完善科学有效的长效机制，引导企业严格自律。
+
+夏农提出，还要坚持供需发力，进一步扩展钢材的应用空间，这是发掘有效需求、缓解矛盾的重要途径。
+
+他表示，中国钢结构在建筑、中小跨度桥梁等领域的应用发展潜力巨大，这将是拓展钢材应用空间的重要领域。
+
+在“十五五”高质量发展背景下，钢结构建筑特别是钢结构住宅是充满前途的朝阳产业，是钢铁、建筑、房地产多产业融合发展、好房子建设的重要载体。
 
 ## 相关推荐
 
-- [公诉364人！北京检方依法严厉打击侵害未成年人犯罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duren.md)
-- [卡组织们的焦虑与突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shangxu.md)
-- [北京金融管理部门联合召开做好首都金融“五篇大文章”2026年第1次（总第4次）工作会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongfei.md)
-- [尼日利亚西北部多村庄遭袭 至少20人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangwan.md)
-- [战事冲击叠加关税余波 双重压力下美联储陷入两难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
-- [湖北今年以来最强降雨过程来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuiding.md)
-- [TACO如期而至，港股互联网大反攻！华宝基金港股互联网ETF（513770）冲击5%！龙头集体起立，美团暴涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
-- [战事冲击对冲基金，宏观交易员3月遭遇惨重亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainiao.md)
-- [OEXN:油市紧张预期与价格背离风险加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pengchai.md)
-- [杨德龙：特朗普如预期宣布停战两周 大盘迎来新一轮大涨机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/laoxiong.md)
-- [国台办驳斥管碧玲有关大陆公务船言论：纯属恶意抹黑炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banwu.md)
-- [国家邮政局：2025年快递服务公众满意度得分为85.0分，同比上升0.4分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanruo.md)
-- [中方为平息伊朗战事作出哪些努力？外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benhe.md)
-- [18,057辆！比亚迪斩获曼谷车展销量第一！中国新能源改写泰国车市格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paizen.md)
-- [卡塔尔开始着手恢复液化天然气出口工厂的生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanmai.md)
-- [清明假期广西多措并举 助推消费市场火热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
-- [停火了，金价为何比油价“克制”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xixia.md)
-- [特朗普宣布为期两周停火后，油价跌破100美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jianquan.md)
-- [全国人大常委会部分组成人员参加义务植树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongpi.md)
-- [飞絮过敏和花粉过敏是一回事吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueqiang.md)
-- [东博会2026年首场进东盟专题展亮相越南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gongjian.md)
-- [俄外交部：俄日关系降至前所未有的低点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cuyin.md)
-- [特朗普威胁对向伊朗供武国家征收50%关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongran.md)
+- [阿耳特弥斯二号宇航员从月球归来 将溅落地球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zeming.md)
+- [浙师大儿童文学馆在金华开馆 百年童心有了“新家”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tipeng.md)
+- [广西校园多彩民俗迎“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainiao.md)
+- [CoreWeave获Anthropic数十亿美元AI算力协议，股价大涨11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shangxu.md)
+- [伊朗消息人士：美国同意解冻伊朗海外资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
+- [京剧马派经典剧目《火牛阵》在福州上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shengduan.md)
+- [蔚来李斌：20到30万级里，今年要全面应用旗舰级智驾芯片及智驾系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongran.md)
+- [欧洲债市：德国国债下跌 交易员在美伊和谈前上调欧洲央行加息押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banwu.md)
+- [清华大学教授李克强：去年智驾相关投诉比例激增，安全事故频发已引起社会公众质疑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
+- [新疆甘肃携手展史前彩陶西渐路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suozhen.md)
+- [高起点，高要求，汇丰、渣打为何能拿下首批稳定币牌照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songhan.md)
+- [海南澄迈：“地瓜中的爱马仕”上市即出圈 远销海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
 
 ## 延伸阅读
 
-- [东西问｜当250年历史的国家威胁毁掉5000年文明](http://www.blog.kurohicncr.top/Article/details/5680238.shtml)
-- [两高：依法从严惩处涉民航飞行安全违法犯罪](https://github.com/lisacumin64-arch)
-- [统战赋能春耕一线 江西玉山绘就春耕同心画卷](http://www.blog.kurohicncr.top/Article/details/654272.shtml)
-- [东亚银行：下调今年恒指目标至点 悲观情景下或回调点](http://www.share.minike.top/Article/details/6089172832.shtml)
-- [中国官方：将健全完善较大亡人火灾备案审查制度](https://github.com/lisacumin64-arch)
-- [伊朗议长将率团前往巴基斯坦首都参加伊美谈判](https://github.com/lisacumin64-arch)
-- [邮储银行山西省大同市分行被罚6万元：未按规定收缴假币](https://github.com/lisacumin64-arch)
-- [建设银行董事长张金良与河北省委常委，雄安新区党工委书记、管委会主任张国华举行工作座谈](https://github.com/lisacumin64-arch)
-- [美瑞新材：公司的TPU在电线电缆方面的主要应用领域是汽车线束和充电桩线缆](https://github.com/lisacumin64-arch)
-- [在三星公布业绩大幅预增后，SK海力士股价暴涨15%](https://github.com/lisacumin64-arch)
-- [外贸淡季变旺季，订单暴涨 义乌老板提前开启“世界杯时间”](http://www.share.kurohicncr.top/Article/details/115510928.shtml)
-- [科技巨头支持Anthropic的网络安全行动](http://www.share.kurohicncr.top/Article/details/985465932.shtml)
-- [50%关税！特朗普，突发威胁！黄金、白银拉升](http://www.blog.kurohicncr.top/Article/details/8785569.shtml)
-- [我国发布全球首个全景式碳排放核算系统](http://www.share.minike.top/Article/details/303864938.shtml)
-- [下沉乡镇市场，“火锅界蜜雪冰城”赚翻了！父女搭档头悬“双刃剑”](http://www.blog.minike.top/Article/details/11642408693.shtml)
+- [一张图看懂2026年3月美国通胀明细](https://github.com/lisacumin64-arch)
+- [南非柑橘输华检疫标准优化](http://www.blog.minike.top/Article/details/84736046.shtml)
+- [蔚来李斌：电芯规格不统一，成为制约车企发展的严重问题](http://www.blog.minike.top/Article/details/9116288830.shtml)
+- [特朗普称赞“世界上最强大的重置” 但未作详细说明](http://www.blog.minike.top/Article/details/361016931.shtml)
+- [美国稀土CEO回应国会质疑：力挺特朗普政府16亿美元投资计划](http://www.blog.kurohicncr.top/Article/details/6580289267.shtml)
+- [【东西问】王馗：梅兰芳1930年访美演出为何具有里程碑意义？](http://www.blog.minike.top/Article/details/19580.shtml)
+- [深圳铁路实施新的列车运行图 促湾区与粤东融合](http://www.blog.kurohicncr.top/Article/details/529750730804.shtml)
+- [大众汽车韩三楚：2027年将在中国推出30款新能源车，2030年推出50款](http://www.blog.kurohicncr.top/Article/details/925986356403.shtml)
+- [伊美即将举行第三轮会谈](http://www.blog.kurohicncr.top/Article/details/753583618.shtml)
+- [北京人艺话剧《张居正》在香港上演](http://www.share.kurohicncr.top/Article/details/9009800632.shtml)
+- [辽大留学生彰武行 探寻治沙奇迹](http://www.blog.minike.top/Article/details/850191527095.shtml)
+- [伊朗媒体：伊美第三轮谈判结束](http://www.share.kurohicncr.top/Article/details/99931104.shtml)
+- [蔚来李斌：电芯标准化+芯片归一化将为行业提供超一千亿元的降本机会](http://www.share.minike.top/Article/details/73593.shtml)
+- [百度副总裁石清华：企业要开始进行自己的算力规划，现在是“卡吃人、卡吃业务”](http://www.share.kurohicncr.top/Article/details/382663.shtml)
+- [特朗普：美国正在“清理”霍尔木兹海峡](http://www.blog.minike.top/Article/details/997453246908.shtml)

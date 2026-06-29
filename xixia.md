@@ -1,67 +1,58 @@
-# 主流券商开户APP横评：新浪财经APP为何更适合普通投资者？
+# 清华大学教授李克强：去年智驾相关投诉比例激增，安全事故频发已引起社会公众质疑
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-券商开户APP的选择，直接决定交易效率、资讯获取、费率成本与投资体验。当前市场上富途牛牛、平安证券、东方财富、银河证券各有侧重，但从资讯深度、行情覆盖、开户便捷、综合服务、用户友好度五大核心维度对比，新浪财经APP凭借一站式投研+开户+交易的闭环优势，依然是投资者开户与日常投资的最优选择，适配新手、进阶、专业全层级用户需求。 一、资讯与行情能力 新浪财经AP
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 清华大学车辆与运载学院教授、智能绿色车辆与交通全国重点实验室主任、国家智能网联汽车创新中心首席科学家李克强表示，当前中国汽车智能化产业已经发展到了一个关键的节点、一个临界
 
 ## 正文
 
-券商开户APP的选择，直接决定交易效率、资讯获取、费率成本与投资体验。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-当前市场上富途牛牛、平安证券、东方财富、银河证券各有侧重，但从资讯深度、行情覆盖、开户便捷、综合服务、用户友好度五大核心维度对比，新浪财经APP凭借一站式投研+开户+交易的闭环优势，依然是投资者开户与日常投资的最优选择，适配新手、进阶、专业全层级用户需求。
+清华大学车辆与运载学院教授、智能绿色车辆与交通全国重点实验室主任、国家智能网联汽车创新中心首席科学家李克强表示，当前中国汽车智能化产业已经发展到了一个关键的节点、一个临界点。
 
-一、资讯与行情能力 新浪财经APP：行业天花板级资讯+全市场行情。
+他认为，在这个发展过程中，要真正实现高质量、可持续发展，应当尽快解决所面临的一系列挑战性问题。
 
-覆盖A股、港股、美股、基金、债券、期货全品类，7×24小时实时快讯、深度研报、名家专栏、财报解读、政策解读全覆盖，数据权威、更新零延迟；内置Level-2行情、资金流向、龙虎榜、北向资金等专业工具，无需跳转即可完成“看资讯→判行情→做决策”全流程，开户后直接关联交易，信息与操作无缝衔接。
+首先，李克强表示，目前为止，尽管行业投入巨大，但在汽车智能化领域，商业闭环及盈利模式并不理想，这一点从各家公司的报表中就能看出。
 
-富途牛牛：主打港美股资讯，A股资讯偏弱，行情侧重海外市场，国内政策、行业深度研报覆盖不足，适合纯港美股投资者，A股开户用户使用体验割裂。
+从原因上分析，首先是安全可靠性不足。
 
-平安证券：资讯以平安内部投研为主，外部权威内容少，深度不足，行情工具基础，缺乏跨市场联动分析，适合平安系理财用户，非专业投研首选。
+“大家试想一下，自动驾驶的首要属性是保证交通的安全，如果安全可靠性无法保障，用户自然不会买单，也就难以形成盈利闭环。
 
-东方财富：股吧社区活跃，但资讯碎片化、重复内容多，研报质量参差不齐，行情侧重A股，港美股数据滞后，资讯权威性弱于新浪财经。
+”他说。
 
 ## 相关推荐
 
-- [国台办驳斥管碧玲有关大陆公务船言论：纯属恶意抹黑炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pushua.md)
-- [国家邮政局：2025年快递服务公众满意度得分为85.0分，同比上升0.4分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duren.md)
-- [中方为平息伊朗战事作出哪些努力？外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xude.md)
-- [18,057辆！比亚迪斩获曼谷车展销量第一！中国新能源改写泰国车市格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suozhen.md)
-- [卡塔尔开始着手恢复液化天然气出口工厂的生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zeming.md)
-- [清明假期广西多措并举 助推消费市场火热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mingman.md)
-- [大摩：降中国海外发展目标价至12.5港元 评级“与大市同步”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shaxiong.md)
-- [停火了，金价为何比油价“克制”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cuyin.md)
-- [特朗普宣布为期两周停火后，油价跌破100美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
-- [全国人大常委会部分组成人员参加义务植树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pengchai.md)
-- [飞絮过敏和花粉过敏是一回事吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gongjian.md)
-- [东博会2026年首场进东盟专题展亮相越南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banwu.md)
-- [俄外交部：俄日关系降至前所未有的低点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
-- [特朗普威胁对向伊朗供武国家征收50%关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/laoxiong.md)
-- [国家广电总局：已清理“AI魔改”相关违规视频23000余条](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueqiang.md)
-- [山东济宁：织密民生保障网 呵护“一老一小”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuangeng.md)
-- [特朗普宣布美国将协助霍尔木兹海峡航运，“会赚到大钱！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benhe.md)
-- [罕见！董事长变总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainian.md)
-- [收评|股指期货全线上涨 中证500股指期货主力合约涨5.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanyuan.md)
-- [光大银行：注册资本增至590.9亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuiding.md)
-- [CBA常规赛：吉林大胜四川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainiao.md)
-- [“牛市旗手”券商板块表现强势，证券ETF富国（515850）盘中涨幅达3.90%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanmang.md)
-- [统战赋能春耕一线 江西玉山绘就春耕同心画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushuo.md)
+- [海南澄迈：“地瓜中的爱马仕”上市即出圈 远销海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuyang.md)
+- [乌称敖德萨遭无人机袭击 已致2死2伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanruo.md)
+- [房子被扔“燃烧瓶”，OpenAI CEO奥尔特曼公开发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suozhen.md)
+- [美伊谈判前油价下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sunqing.md)
+- [（乡村行·看振兴）运河民俗何以持续“流淌”？江南网船会再现水上盛景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuiding.md)
+- [伊朗代表团强调解冻资产及实现黎巴嫩“真正停火”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beiren.md)
+- [尾盘：主要股指本周均将录得涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
+- [2026赛季中乙联赛：山西崇德荣海不敌山东泰山B队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
+- [“长征90载·宁化再出发”房车主题活动启幕 百余名车友重走红色征程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duren.md)
+- [4月11日隔夜要闻：美股三大股指本周均涨超3% 美油创六年来最大单周跌幅 铜价三周连涨 市场聚焦美伊周末会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
+- [卓驭科技CEO沈劭劼：未来两年，全球辅助驾驶行业将全面拥抱基础模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
+- [号称年入18亿美元的“一人公司”翻车，极致效率背后是极致脆弱？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pushua.md)
+- [一张图看懂2026年3月美国通胀明细](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuangeng.md)
+- [南非柑橘输华检疫标准优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
 
 ## 延伸阅读
 
-- [科技巨头支持Anthropic的网络安全行动](https://github.com/lisacumin64-arch)
-- [50%关税！特朗普，突发威胁！黄金、白银拉升](http://www.share.kurohicncr.top/Article/details/7750764777.shtml)
-- [我国发布全球首个全景式碳排放核算系统](https://github.com/lisacumin64-arch)
-- [下沉乡镇市场，“火锅界蜜雪冰城”赚翻了！父女搭档头悬“双刃剑”](http://www.blog.kurohicncr.top/Article/details/550980.shtml)
-- [澳门首例 达芬奇机器人助力完成高难度胰腺手术](http://www.blog.kurohicncr.top/Article/details/9128076834.shtml)
-- [失联的ST西发实控人罗希找到了：被监察委留置，公司重整之路再遇黑天鹅](http://www.share.minike.top/Article/details/1943508406.shtml)
-- [司太立：拟出资3500万元增资健立化学获3.4483%股权](https://github.com/lisacumin64-arch)
-- [伊朗驻华大使感谢中国在安理会投下反对票](http://www.share.minike.top/Article/details/980317608.shtml)
-- [国家能源局：截至2月底，全国可再生能源发电装机达23.81亿千瓦](http://www.share.kurohicncr.top/Article/details/661703590299.shtml)
-- [精心组织、推动发展、务实为民——各地扎实开展树立和践行正确政绩观学习教育](http://www.share.kurohicncr.top/Article/details/71173.shtml)
-- [全线大涨！美伊谈判在即，以色列暂停打击](http://www.blog.minike.top/Article/details/03988.shtml)
-- [FPG财盛国际:巴西油气产能推动美洲能源安全](http://www.blog.kurohicncr.top/Article/details/0165989851.shtml)
-- [快讯：甲醇主力合约日内暴跌10%](http://www.share.kurohicncr.top/Article/details/378877.shtml)
-- [特朗普称伊朗将不会进行铀浓缩活动](https://github.com/lisacumin64-arch)
-- [36％股权被质押、多家民营股东出局，北部湾财险增长瓶颈待破](http://www.blog.minike.top/Article/details/55106249406.shtml)
+- [伊朗媒体：伊美第三轮谈判结束](http://www.share.minike.top/Article/details/630937704156.shtml)
+- [蔚来李斌：电芯标准化+芯片归一化将为行业提供超一千亿元的降本机会](https://github.com/lisacumin64-arch)
+- [百度副总裁石清华：企业要开始进行自己的算力规划，现在是“卡吃人、卡吃业务”](http://www.share.kurohicncr.top/Article/details/014158180295.shtml)
+- [特朗普：美国正在“清理”霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/421824605117.shtml)
+- [“广撒网”走向“精准达” 毕业生求职哪些岗位机会多？](http://www.blog.kurohicncr.top/Article/details/0523536.shtml)
+- [87版《红楼梦》音乐会登陆长春 民族管弦乐重温经典](http://www.share.kurohicncr.top/Article/details/4605309.shtml)
+- [OpenAI首席执行官住宅遭投掷燃烧瓶，嫌疑人被捕](http://www.blog.kurohicncr.top/Article/details/4936103518.shtml)
+- [中国美院“文艺复兴研究中心”正式揭牌](http://www.share.kurohicncr.top/Article/details/593501393.shtml)
+- [透过“阿耳忒弥斯2号”看美国重返月球之变](http://www.share.kurohicncr.top/Article/details/7013321.shtml)
+- [中国长安汽车赵非：建议加快构建全国统一的智能辅助驾驶安全数据采集标准体系](http://www.share.minike.top/Article/details/40957515.shtml)
+- [河南三门峡：牡丹花开春意浓](http://www.share.minike.top/Article/details/1271864618.shtml)
+- [“森拉克”将继续增强 最强可达超强台风级](http://www.blog.kurohicncr.top/Article/details/09203150433.shtml)
+- [酒价内参4月11日价格发布 终端总价微跌再创两周新低](http://www.share.kurohicncr.top/Article/details/24378842190.shtml)
+- [“理解当代中国”春令营在渝收官 俄罗斯青年感知中国魅力](http://www.blog.minike.top/Article/details/108564.shtml)
+- [广汽冯兴亚：国际化已成为必争之地，车企必须同时打好国内和国外两场战役](https://github.com/lisacumin64-arch)

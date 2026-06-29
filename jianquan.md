@@ -1,69 +1,57 @@
-# 卡组织们的焦虑与突围
+# 浙师大儿童文学馆在金华开馆 百年童心有了“新家”
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-移动支付网 支付必须具备韧性、可靠性、安全性，并符合欧洲价值观。 万事达卡欧洲区总裁凯莉·德瓦恩（Kelly Devine）最近发布署名文章，正面回应了当下欧洲地区对本地支付主权辩论的看法，同时也说了支付业务本身的特点。因地缘政治影响，欧洲一直想去V/M（Visa、万事达卡），组建自己的卡组织。或许欧洲现在正后悔，2002年没有阻止欧陆卡收购案。 而万事达卡
+中新网金华4月11日电(曹丹 盛灿灿 许飘怡)4月11日，浙江师范大学(下称“浙师大”)儿童文学馆在浙江金华正式开馆。该馆以儿童文学为核心主题，致力于打造学术高地与面向社会开放的美育课堂、研学基地和文化窗口。 开馆仪式现场，101岁的中国儿童文学学科拓荒者蒋风表示，儿童文学是一项充满希望的事业，其服务对象在成长，事业本身在延续。“我之所以能坚守数十载，正是因
 
 ## 正文
 
-移动支付网 支付必须具备韧性、可靠性、安全性，并符合欧洲价值观。
+中新网金华4月11日电(曹丹 盛灿灿 许飘怡)4月11日，浙江师范大学(下称“浙师大”)儿童文学馆在浙江金华正式开馆。
 
-万事达卡欧洲区总裁凯莉·德瓦恩（Kelly Devine）最近发布署名文章，正面回应了当下欧洲地区对本地支付主权辩论的看法，同时也说了支付业务本身的特点。
+该馆以儿童文学为核心主题，致力于打造学术高地与面向社会开放的美育课堂、研学基地和文化窗口。
 
-因地缘政治影响，欧洲一直想去V/M（Visa、万事达卡），组建自己的卡组织。
+开馆仪式现场，101岁的中国儿童文学学科拓荒者蒋风表示，儿童文学是一项充满希望的事业，其服务对象在成长，事业本身在延续。
 
-或许欧洲现在正后悔，2002年没有阻止欧陆卡收购案。
+“我之所以能坚守数十载，正是因为深切感受到这份事业的分量。
 
-而万事达卡的立场陈述，也透露出卡组织们正经历的焦虑期。
+” 走进儿童文学馆的“时光藏珍”展区，玻璃展柜中静静躺着1923年出版的叶圣陶《稻草人》、1926年出版的冰心《寄小读者》、1958年出版的任溶溶《没头脑和不高兴》以及1897年创刊的《蒙学报》等早期期刊原件。
 
-狼烟四起 全球卡组织们正面临新技术 、新思路及地缘政治影响等方面的冲击，有些甚至会影响其业务根基。
+这些泛黄的书页，见证了中国儿童文学从萌芽到繁盛的历程。
 
-从地缘政治影响来看，俄乌冲突即是最直接的案例，V/M等国际卡组织相继退出了俄罗斯市场；而在欧洲，“去美国化”思潮下，V/M经常被反垄断调查，在2025年年中，欧盟升级对V/M的反垄断调查，重点核查其收费表并要求提高收费透明度。
+浙师大党委书记蒋云良表示，学校将以建校70周年为新起点，将儿童文学馆打造成文献宝库、学术高地、人才培养基地和文化传播窗口，推动儿童文学走出校园、走向社会，让这座场馆成为连接童心与世界的桥梁，为繁荣中国儿童文学事业、守护儿童心灵成长作出更大贡献。
 
 ## 相关推荐
 
-- [战事冲击叠加关税余波 双重压力下美联储陷入两难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
-- [湖北今年以来最强降雨过程来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benhe.md)
-- [TACO如期而至，港股互联网大反攻！华宝基金港股互联网ETF（513770）冲击5%！龙头集体起立，美团暴涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duren.md)
-- [战事冲击对冲基金，宏观交易员3月遭遇惨重亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuyang.md)
-- [主流券商开户APP横评：新浪财经APP为何更适合普通投资者？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shengduan.md)
-- [OEXN:油市紧张预期与价格背离风险加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shaxiong.md)
-- [杨德龙：特朗普如预期宣布停战两周 大盘迎来新一轮大涨机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueqiang.md)
-- [国台办驳斥管碧玲有关大陆公务船言论：纯属恶意抹黑炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanmai.md)
-- [国家邮政局：2025年快递服务公众满意度得分为85.0分，同比上升0.4分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunran.md)
-- [18,057辆！比亚迪斩获曼谷车展销量第一！中国新能源改写泰国车市格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongpi.md)
-- [卡塔尔开始着手恢复液化天然气出口工厂的生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushuo.md)
-- [清明假期广西多措并举 助推消费市场火热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainian.md)
-- [大摩：降中国海外发展目标价至12.5港元 评级“与大市同步”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
-- [停火了，金价为何比油价“克制”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuangeng.md)
-- [特朗普宣布为期两周停火后，油价跌破100美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuimang.md)
-- [全国人大常委会部分组成人员参加义务植树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/laoxiong.md)
-- [飞絮过敏和花粉过敏是一回事吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beiren.md)
-- [东博会2026年首场进东盟专题展亮相越南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanyuan.md)
-- [俄外交部：俄日关系降至前所未有的低点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cuyin.md)
-- [特朗普威胁对向伊朗供武国家征收50%关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gongjian.md)
-- [国家广电总局：已清理“AI魔改”相关违规视频23000余条](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
-- [山东济宁：织密民生保障网 呵护“一老一小”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songhan.md)
-- [王毅将访问朝鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sunqing.md)
-- [特朗普宣布美国将协助霍尔木兹海峡航运，“会赚到大钱！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuiding.md)
-- [收评|股指期货全线上涨 中证500股指期货主力合约涨5.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xude.md)
+- [伊朗消息人士：美国同意解冻伊朗海外资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueqiang.md)
+- [京剧马派经典剧目《火牛阵》在福州上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
+- [蔚来李斌：20到30万级里，今年要全面应用旗舰级智驾芯片及智驾系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pengchai.md)
+- [欧洲债市：德国国债下跌 交易员在美伊和谈前上调欧洲央行加息押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pushua.md)
+- [清华大学教授李克强：去年智驾相关投诉比例激增，安全事故频发已引起社会公众质疑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
+- [新疆甘肃携手展史前彩陶西渐路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongran.md)
+- [高起点，高要求，汇丰、渣打为何能拿下首批稳定币牌照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongshen.md)
+- [海南澄迈：“地瓜中的爱马仕”上市即出圈 远销海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xixia.md)
+- [乌称敖德萨遭无人机袭击 已致2死2伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suozhen.md)
+- [房子被扔“燃烧瓶”，OpenAI CEO奥尔特曼公开发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
+- [美伊谈判前油价下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
+- [（乡村行·看振兴）运河民俗何以持续“流淌”？江南网船会再现水上盛景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushuo.md)
+- [伊朗代表团强调解冻资产及实现黎巴嫩“真正停火”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
 
 ## 延伸阅读
 
-- [中国官方：将健全完善较大亡人火灾备案审查制度](https://github.com/lisacumin64-arch)
-- [伊朗议长将率团前往巴基斯坦首都参加伊美谈判](http://www.share.minike.top/Article/details/752197069.shtml)
-- [邮储银行山西省大同市分行被罚6万元：未按规定收缴假币](http://www.share.minike.top/Article/details/696758.shtml)
-- [建设银行董事长张金良与河北省委常委，雄安新区党工委书记、管委会主任张国华举行工作座谈](http://www.blog.minike.top/Article/details/711008727378.shtml)
-- [美瑞新材：公司的TPU在电线电缆方面的主要应用领域是汽车线束和充电桩线缆](http://www.share.kurohicncr.top/Article/details/744352442674.shtml)
-- [在三星公布业绩大幅预增后，SK海力士股价暴涨15%](https://github.com/lisacumin64-arch)
-- [外贸淡季变旺季，订单暴涨 义乌老板提前开启“世界杯时间”](http://www.blog.minike.top/Article/details/235013.shtml)
-- [科技巨头支持Anthropic的网络安全行动](http://www.share.kurohicncr.top/Article/details/0522435161.shtml)
-- [50%关税！特朗普，突发威胁！黄金、白银拉升](https://github.com/lisacumin64-arch)
-- [我国发布全球首个全景式碳排放核算系统](http://www.share.minike.top/Article/details/812944426.shtml)
-- [下沉乡镇市场，“火锅界蜜雪冰城”赚翻了！父女搭档头悬“双刃剑”](http://www.share.kurohicncr.top/Article/details/377803195503.shtml)
-- [澳门首例 达芬奇机器人助力完成高难度胰腺手术](http://www.blog.minike.top/Article/details/3303375.shtml)
-- [失联的ST西发实控人罗希找到了：被监察委留置，公司重整之路再遇黑天鹅](http://www.blog.minike.top/Article/details/145707299.shtml)
-- [司太立：拟出资3500万元增资健立化学获3.4483%股权](http://www.share.kurohicncr.top/Article/details/96078920312.shtml)
-- [伊朗驻华大使感谢中国在安理会投下反对票](http://www.share.minike.top/Article/details/73038319256.shtml)
+- [美国稀土CEO回应国会质疑：力挺特朗普政府16亿美元投资计划](http://www.share.kurohicncr.top/Article/details/386205.shtml)
+- [【东西问】王馗：梅兰芳1930年访美演出为何具有里程碑意义？](http://www.blog.minike.top/Article/details/0280739745.shtml)
+- [深圳铁路实施新的列车运行图 促湾区与粤东融合](http://www.blog.minike.top/Article/details/741951.shtml)
+- [大众汽车韩三楚：2027年将在中国推出30款新能源车，2030年推出50款](http://www.blog.minike.top/Article/details/63303830.shtml)
+- [伊美即将举行第三轮会谈](http://www.blog.kurohicncr.top/Article/details/461251590.shtml)
+- [北京人艺话剧《张居正》在香港上演](http://www.blog.kurohicncr.top/Article/details/941566267.shtml)
+- [辽大留学生彰武行 探寻治沙奇迹](http://www.share.kurohicncr.top/Article/details/679010084.shtml)
+- [伊朗媒体：伊美第三轮谈判结束](http://www.blog.kurohicncr.top/Article/details/98349.shtml)
+- [蔚来李斌：电芯标准化+芯片归一化将为行业提供超一千亿元的降本机会](http://www.share.minike.top/Article/details/95081367.shtml)
+- [百度副总裁石清华：企业要开始进行自己的算力规划，现在是“卡吃人、卡吃业务”](http://www.blog.minike.top/Article/details/68406637495.shtml)
+- [特朗普：美国正在“清理”霍尔木兹海峡](http://www.share.kurohicncr.top/Article/details/3724222.shtml)
+- [“广撒网”走向“精准达” 毕业生求职哪些岗位机会多？](http://www.blog.kurohicncr.top/Article/details/40832.shtml)
+- [87版《红楼梦》音乐会登陆长春 民族管弦乐重温经典](http://www.share.minike.top/Article/details/918210219879.shtml)
+- [OpenAI首席执行官住宅遭投掷燃烧瓶，嫌疑人被捕](http://www.blog.kurohicncr.top/Article/details/57932180572.shtml)
+- [中国美院“文艺复兴研究中心”正式揭牌](http://www.blog.kurohicncr.top/Article/details/67878846.shtml)

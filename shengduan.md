@@ -1,64 +1,49 @@
-# 每经热评 | 易伟“荐股”被罚没4394万元 治理大V“割韭菜”要斩断其利益链
+# 伊朗革命卫队：任何军用船只试图通过霍尔木兹海峡都将遭强硬回应
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-每经评论员 杜恒峰 近日，深圳市中级人民法院发布《2025年度金融审判典型案例》。其中自然人林某某诉易某在操纵三夫户外股票期间造成损失，经第三方测算，林某某获赔157169.56元。被告易某是曾经的微博大V、三夫户外前董事易伟。 易伟的非法行为不止操纵股价，其还以大V身份“收割”其他投资者。其个人微博宣扬自己毕业于耶鲁大学，富有投资经验，是大型美元基金管理人
+新华社德黑兰4月12日电(记者陈霄 沙达提)伊朗伊斯兰革命卫队海军司令部12日凌晨发布公告称，革命卫队海军掌管着霍尔木兹海峡的通行权，将仅授予非军用船只通行许可。 公告否认了有关美军舰船通过霍尔木兹海峡的报道，并警告称，任何军用船只试图强行通过该水道都将遭到坚决而强硬的回应。
 
 ## 正文
 
-每经评论员 杜恒峰 近日，深圳市中级人民法院发布《2025年度金融审判典型案例》。
+新华社德黑兰4月12日电(记者陈霄 沙达提)伊朗伊斯兰革命卫队海军司令部12日凌晨发布公告称，革命卫队海军掌管着霍尔木兹海峡的通行权，将仅授予非军用船只通行许可。
 
-其中自然人林某某诉易某在操纵三夫户外股票期间造成损失，经第三方测算，林某某获赔157169.56元。
-
-被告易某是曾经的微博大V、三夫户外前董事易伟。
-
-易伟的非法行为不止操纵股价，其还以大V身份“收割”其他投资者。
-
-其个人微博宣扬自己毕业于耶鲁大学，富有投资经验，是大型美元基金管理人，并大力传播其投资理论并给出投资建议，通过微博、微信提供推荐个股、预测行情、指导操作等证券咨询服务。
-
-在10个月左右的时间里，共有534人加入易伟投资咨询群并支付会员费，合计2394.22万元。
-
-对此，证监会没收了易伟2394.22万元违法所得，并处以2000万元罚款。
+公告否认了有关美军舰船通过霍尔木兹海峡的报道，并警告称，任何军用船只试图强行通过该水道都将遭到坚决而强硬的回应。
 
 ## 相关推荐
 
-- [（乡村行·看振兴）农资充足农机就位 山西襄垣按下春耕备耕“加速键”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/congnie.md)
-- [广东强降雨“暂歇” 部分地区录得“回南天”数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/laoxiong.md)
-- [视频 | 但斌：A股当前尚未进入牛市阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
-- [IMF总裁警告滞胀风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangwan.md)
-- [炭黑龙头也“黑脸”：黑猫股份2025年巨亏4.63亿元，导电炭黑布局短期难救主业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banwu.md)
-- [久之洋：公司的星体跟踪器产品已应用于多项国家重要平台任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benhe.md)
-- [科技板块全线走强！数字经济ETF富国（159385）盘中涨幅达4.43%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
-- [紫金矿业王高尚：国内铜需求峰值约每年1700万吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songhan.md)
-- [山东港口青岛港再添东南亚新航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xixia.md)
-- [涉嫌违法违规、限制消费者权利！洲际酒店被约谈整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
-- [浙江破获特大非法经营烟草案 查获非法卷烟逾3万条](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
-- [达美航空等公司上调行李费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanmang.md)
-- [沙特关键东西向输油管道遭无人机袭击 受损情况仍在评估中](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pengchai.md)
-- [皇氏集团从“减亏”到巨亏，祸起一家合营企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shangxu.md)
-- [AI巨头可能重塑IPO窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainiao.md)
-- [一封信，四校师生共答时代命题丨求实学、务实业 学习贯彻总书记回信精神④](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongshen.md)
-- [公诉364人！北京检方依法严厉打击侵害未成年人犯罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shaxiong.md)
-- [北京金融管理部门联合召开做好首都金融“五篇大文章”2026年第1次（总第4次）工作会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beiren.md)
-- [战事冲击叠加关税余波 双重压力下美联储陷入两难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/geshun.md)
-- [湖北今年以来最强降雨过程来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuyang.md)
+- [海底捞回应员工被强制自费买礼物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liaozeng.md)
+- [“花园里的音乐会”引白领流连 重庆环照母山特色产业园再造公共空间意义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanmang.md)
+- [一见·从这场大会，感受服务业发展的分量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
+- [马龙、张怡宁、邓亚萍亮相中美“乒乓外交”55周年纪念大会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongfei.md)
+- [特朗普称美伊和谈非常深入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuimang.md)
+- [美伊今日开始谈判：谁来谈？谈什么？谈崩了怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanmai.md)
+- [伊朗方面披露伊方代表团首日日程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suozhen.md)
+- [地平线余凯：智能化时代，未来将不会区分座舱跟智驾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongshen.md)
+- [郑丽文参访故宫直呼好漂亮 有民众高喊“欢迎回来” 郑丽文热情回应！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/geshun.md)
+- [湖南江华“巴掌田”变“连片田” 高标准农田助农降本增收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunran.md)
+- [吉布提总统盖莱宣布再次胜选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushuo.md)
+- [尼泊尔民众拉战车迎接尼历新年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuiding.md)
+- [京西碧云寺：伟人风范长留 两岸同胞连心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanyuan.md)
+- [江淮汽车李明:在智能新能源领域，中国供应链的韧性和竞争力会更强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueqiang.md)
+- [海外台胞参访辽宁：触摸“振兴脉动” 共话两岸亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pushua.md)
 
 ## 延伸阅读
 
-- [卡塔尔开始着手恢复液化天然气出口工厂的生产](http://www.share.minike.top/Article/details/4662570.shtml)
-- [清明假期广西多措并举 助推消费市场火热](http://www.share.minike.top/Article/details/38234770.shtml)
-- [大摩：降中国海外发展目标价至12.5港元 评级“与大市同步”](https://github.com/lisacumin64-arch)
-- [停火了，金价为何比油价“克制”？](http://www.share.kurohicncr.top/Article/details/21477.shtml)
-- [特朗普宣布为期两周停火后，油价跌破100美元](http://www.blog.kurohicncr.top/Article/details/65703.shtml)
-- [全国人大常委会部分组成人员参加义务植树](http://www.share.kurohicncr.top/Article/details/787717.shtml)
-- [飞絮过敏和花粉过敏是一回事吗？](http://www.blog.minike.top/Article/details/33054279957.shtml)
-- [东博会2026年首场进东盟专题展亮相越南](http://www.blog.minike.top/Article/details/6582134.shtml)
-- [俄外交部：俄日关系降至前所未有的低点](http://www.blog.kurohicncr.top/Article/details/47787872.shtml)
-- [特朗普威胁对向伊朗供武国家征收50%关税](http://www.share.minike.top/Article/details/0978645.shtml)
-- [国家广电总局：已清理“AI魔改”相关违规视频23000余条](http://www.blog.kurohicncr.top/Article/details/10771433729.shtml)
-- [山东济宁：织密民生保障网 呵护“一老一小”](http://www.blog.minike.top/Article/details/991361135024.shtml)
-- [王毅将访问朝鲜](http://www.blog.kurohicncr.top/Article/details/79434783569.shtml)
-- [汽油涨破4美元，美国民众：“所有东西都在涨价，我们薪水却没变”](https://github.com/lisacumin64-arch)
-- [特朗普宣布美国将协助霍尔木兹海峡航运，“会赚到大钱！”](http://www.share.minike.top/Article/details/513642084598.shtml)
+- [阿耳特弥斯二号宇航员从月球归来 将溅落地球](https://github.com/lisacumin64-arch)
+- [浙师大儿童文学馆在金华开馆 百年童心有了“新家”](http://www.blog.kurohicncr.top/Article/details/986177.shtml)
+- [广西校园多彩民俗迎“三月三”](http://www.share.minike.top/Article/details/4200119.shtml)
+- [CoreWeave获Anthropic数十亿美元AI算力协议，股价大涨11%](https://github.com/lisacumin64-arch)
+- [伊朗消息人士：美国同意解冻伊朗海外资产](http://www.blog.minike.top/Article/details/597530750.shtml)
+- [京剧马派经典剧目《火牛阵》在福州上演](http://www.share.minike.top/Article/details/120648.shtml)
+- [蔚来李斌：20到30万级里，今年要全面应用旗舰级智驾芯片及智驾系统](https://github.com/lisacumin64-arch)
+- [欧洲债市：德国国债下跌 交易员在美伊和谈前上调欧洲央行加息押注](http://www.blog.kurohicncr.top/Article/details/802903175195.shtml)
+- [清华大学教授李克强：去年智驾相关投诉比例激增，安全事故频发已引起社会公众质疑](http://www.blog.kurohicncr.top/Article/details/31773637020.shtml)
+- [新疆甘肃携手展史前彩陶西渐路](http://www.blog.minike.top/Article/details/860319527.shtml)
+- [高起点，高要求，汇丰、渣打为何能拿下首批稳定币牌照](http://www.share.kurohicncr.top/Article/details/13943515772.shtml)
+- [海南澄迈：“地瓜中的爱马仕”上市即出圈 远销海外](http://www.blog.minike.top/Article/details/471291438.shtml)
+- [乌称敖德萨遭无人机袭击 已致2死2伤](http://www.share.minike.top/Article/details/688739054101.shtml)
+- [房子被扔“燃烧瓶”，OpenAI CEO奥尔特曼公开发声](https://github.com/lisacumin64-arch)
+- [美伊谈判前油价下跌](http://www.blog.kurohicncr.top/Article/details/1619376723.shtml)

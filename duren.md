@@ -1,64 +1,55 @@
-# 公诉364人！北京检方依法严厉打击侵害未成年人犯罪
+# 阿耳特弥斯二号宇航员从月球归来 将溅落地球
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月08日 19:30 来源：中国新闻网 4月8日，北京市检察院召开“京心首未——精心守护未来”主题新闻发布会，发布《北京市未成年人检察工作白皮书(2025)》。北京市人民检察院副检察长岳向阳介绍，2025年，北京检察机关坚持“出重拳”“零容忍”，依法从严惩治成年人侵害未成年人犯罪，共批准逮捕成年人侵害未成年人犯罪367人，提起公诉36
+美东时间周五，四名阿耳特弥斯二号宇航员在完成半个多世纪以来世界上首次载人月球航行后，急速飞返地球，准备让猎户座飞船在南加州附近的太平洋上完成最后的下降和溅落。 周五下午，自主驾驶的“猎户座”乘员舱对喷气推进器进行了最后一次8秒钟的点火，以微调飞行路线，这是一次关键操作，旨在确保在近10天的任务后安全返回。 在进入地球大气层前约20分钟，圆锥形的猎户座飞行器将
 
 ## 正文
 
-发布时间：2026年04月08日 19:30 来源：中国新闻网 4月8日，北京市检察院召开“京心首未——精心守护未来”主题新闻发布会，发布《北京市未成年人检察工作白皮书(2025)》。
+美东时间周五，四名阿耳特弥斯二号宇航员在完成半个多世纪以来世界上首次载人月球航行后，急速飞返地球，准备让猎户座飞船在南加州附近的太平洋上完成最后的下降和溅落。
 
-北京市人民检察院副检察长岳向阳介绍，2025年，北京检察机关坚持“出重拳”“零容忍”，依法从严惩治成年人侵害未成年人犯罪，共批准逮捕成年人侵害未成年人犯罪367人，提起公诉364人。
+周五下午，自主驾驶的“猎户座”乘员舱对喷气推进器进行了最后一次8秒钟的点火，以微调飞行路线，这是一次关键操作，旨在确保在近10天的任务后安全返回。
 
-起诉成年人侵害未成年人犯罪主要集中在猥亵儿童罪，强奸罪，强制猥亵、侮辱罪，盗窃罪，寻衅滋事罪，上述五类犯罪人数占起诉侵害未成年人犯罪总人数的78.02%。
+在进入地球大气层前约20分钟，圆锥形的猎户座飞行器将其主火箭发动机所在的服务舱抛出，暴露出太空舱的隔热罩，在重返大气层的炽热过程中，隔热罩将面临高达5000华氏度的高温（2760摄氏度）。
 
-性侵害未成年人犯罪人数占起诉侵害未成年人犯罪总数的69.51%，保持下降态势。
+炽热的等离子体包裹着太空舱，预计将引发六分钟的通信中断。
 
-岳向阳表示，北京检察机关加强对未成年被害人的关爱救助，协助开展生活安置、提供临时照料16人，帮助66名涉案未成年人纳入社会救助，对未成年被害人开展国家司法救助69人次，发放救助金86万余元，为174名涉案困境未成年人申请发放小额爱心资助金29万余元。
+预计大气摩擦力和一组降落伞将使太空舱的速度从32倍音速减慢到每小时17英里（27kph），在距离圣迭戈海岸几百英里的地方溅落。
 
-(记者 董泽宇） 责任编辑：【于晓】
+如果一切顺利，美国宇航员里德-怀斯曼（Reid Wiseman）、维克多-格洛弗（Victor Glover）和克里斯蒂娜-科赫（Christina Koch），以及加拿大宇航员杰里米-汉森（Jeremy Hansen），将在美国东部时间晚上8点后不久，安全地乘坐他们的猎户座太空舱（名为“正直”号）在大洋中摇摆。
+
+（0000GMT）。
 
 ## 相关推荐
 
-- [尼日利亚西北部多村庄遭袭 至少20人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pushua.md)
-- [战事冲击叠加关税余波 双重压力下美联储陷入两难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liaozeng.md)
-- [湖北今年以来最强降雨过程来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueqiang.md)
-- [战事冲击对冲基金，宏观交易员3月遭遇惨重亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zunhou.md)
-- [主流券商开户APP横评：新浪财经APP为何更适合普通投资者？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songhan.md)
-- [OEXN:油市紧张预期与价格背离风险加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zeming.md)
-- [杨德龙：特朗普如预期宣布停战两周 大盘迎来新一轮大涨机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushuo.md)
-- [国家邮政局：2025年快递服务公众满意度得分为85.0分，同比上升0.4分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanmai.md)
-- [中方为平息伊朗战事作出哪些努力？外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gongjian.md)
-- [18,057辆！比亚迪斩获曼谷车展销量第一！中国新能源改写泰国车市格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
-- [卡塔尔开始着手恢复液化天然气出口工厂的生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paizen.md)
-- [清明假期广西多措并举 助推消费市场火热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
-- [停火了，金价为何比油价“克制”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanmang.md)
-- [特朗普宣布为期两周停火后，油价跌破100美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongran.md)
-- [全国人大常委会部分组成人员参加义务植树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
-- [飞絮过敏和花粉过敏是一回事吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
-- [特朗普威胁对向伊朗供武国家征收50%关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shaxiong.md)
-- [国家广电总局：已清理“AI魔改”相关违规视频23000余条](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jianquan.md)
-- [汽油涨破4美元，美国民众：“所有东西都在涨价，我们薪水却没变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sunqing.md)
-- [罕见！董事长变总经理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainiao.md)
-- [伊朗发动“真实承诺-4”第100轮攻势 打击美以目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunran.md)
-- [收评|股指期货全线上涨 中证500股指期货主力合约涨5.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongshen.md)
+- [CoreWeave获Anthropic数十亿美元AI算力协议，股价大涨11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueqiang.md)
+- [伊朗消息人士：美国同意解冻伊朗海外资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
+- [京剧马派经典剧目《火牛阵》在福州上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuimang.md)
+- [蔚来李斌：20到30万级里，今年要全面应用旗舰级智驾芯片及智驾系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benhe.md)
+- [欧洲债市：德国国债下跌 交易员在美伊和谈前上调欧洲央行加息押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zunhou.md)
+- [清华大学教授李克强：去年智驾相关投诉比例激增，安全事故频发已引起社会公众质疑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xixia.md)
+- [新疆甘肃携手展史前彩陶西渐路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
+- [高起点，高要求，汇丰、渣打为何能拿下首批稳定币牌照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gongjian.md)
+- [海南澄迈：“地瓜中的爱马仕”上市即出圈 远销海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuangeng.md)
+- [乌称敖德萨遭无人机袭击 已致2死2伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushuo.md)
+- [房子被扔“燃烧瓶”，OpenAI CEO奥尔特曼公开发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shengduan.md)
 
 ## 延伸阅读
 
-- [东亚银行：下调今年恒指目标至点 悲观情景下或回调点](http://www.blog.kurohicncr.top/Article/details/7221707438.shtml)
-- [中国官方：将健全完善较大亡人火灾备案审查制度](http://www.blog.kurohicncr.top/Article/details/58223.shtml)
-- [伊朗议长将率团前往巴基斯坦首都参加伊美谈判](http://www.blog.minike.top/Article/details/5588306699.shtml)
-- [邮储银行山西省大同市分行被罚6万元：未按规定收缴假币](http://www.share.kurohicncr.top/Article/details/7215176.shtml)
-- [建设银行董事长张金良与河北省委常委，雄安新区党工委书记、管委会主任张国华举行工作座谈](http://www.blog.kurohicncr.top/Article/details/1077100.shtml)
-- [美瑞新材：公司的TPU在电线电缆方面的主要应用领域是汽车线束和充电桩线缆](http://www.blog.minike.top/Article/details/8812796243.shtml)
-- [在三星公布业绩大幅预增后，SK海力士股价暴涨15%](http://www.share.kurohicncr.top/Article/details/84380140.shtml)
-- [外贸淡季变旺季，订单暴涨 义乌老板提前开启“世界杯时间”](https://github.com/lisacumin64-arch)
-- [科技巨头支持Anthropic的网络安全行动](http://www.blog.kurohicncr.top/Article/details/151138011.shtml)
-- [50%关税！特朗普，突发威胁！黄金、白银拉升](https://github.com/lisacumin64-arch)
-- [我国发布全球首个全景式碳排放核算系统](http://www.share.minike.top/Article/details/1448494.shtml)
-- [下沉乡镇市场，“火锅界蜜雪冰城”赚翻了！父女搭档头悬“双刃剑”](http://www.blog.kurohicncr.top/Article/details/6570692102.shtml)
-- [澳门首例 达芬奇机器人助力完成高难度胰腺手术](http://www.blog.kurohicncr.top/Article/details/22114371.shtml)
-- [失联的ST西发实控人罗希找到了：被监察委留置，公司重整之路再遇黑天鹅](http://www.blog.minike.top/Article/details/4528650.shtml)
-- [司太立：拟出资3500万元增资健立化学获3.4483%股权](http://www.blog.kurohicncr.top/Article/details/73903238329.shtml)
+- [特朗普称赞“世界上最强大的重置” 但未作详细说明](http://www.share.kurohicncr.top/Article/details/71414009729.shtml)
+- [美国稀土CEO回应国会质疑：力挺特朗普政府16亿美元投资计划](http://www.share.kurohicncr.top/Article/details/8284339493.shtml)
+- [【东西问】王馗：梅兰芳1930年访美演出为何具有里程碑意义？](http://www.share.kurohicncr.top/Article/details/95855698.shtml)
+- [深圳铁路实施新的列车运行图 促湾区与粤东融合](https://github.com/lisacumin64-arch)
+- [大众汽车韩三楚：2027年将在中国推出30款新能源车，2030年推出50款](https://github.com/lisacumin64-arch)
+- [伊美即将举行第三轮会谈](http://www.blog.minike.top/Article/details/3025989396.shtml)
+- [北京人艺话剧《张居正》在香港上演](http://www.blog.minike.top/Article/details/9100010021.shtml)
+- [辽大留学生彰武行 探寻治沙奇迹](http://www.blog.minike.top/Article/details/621082708985.shtml)
+- [伊朗媒体：伊美第三轮谈判结束](http://www.blog.minike.top/Article/details/657248.shtml)
+- [蔚来李斌：电芯标准化+芯片归一化将为行业提供超一千亿元的降本机会](http://www.share.minike.top/Article/details/71005304.shtml)
+- [百度副总裁石清华：企业要开始进行自己的算力规划，现在是“卡吃人、卡吃业务”](http://www.share.minike.top/Article/details/6683353181.shtml)
+- [特朗普：美国正在“清理”霍尔木兹海峡](http://www.share.minike.top/Article/details/646669673.shtml)
+- [“广撒网”走向“精准达” 毕业生求职哪些岗位机会多？](http://www.share.kurohicncr.top/Article/details/96065.shtml)
+- [87版《红楼梦》音乐会登陆长春 民族管弦乐重温经典](http://www.blog.minike.top/Article/details/15824.shtml)
+- [OpenAI首席执行官住宅遭投掷燃烧瓶，嫌疑人被捕](http://www.share.minike.top/Article/details/56921978.shtml)

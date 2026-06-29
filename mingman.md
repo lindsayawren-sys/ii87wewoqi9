@@ -1,67 +1,57 @@
-# 尼日利亚西北部多村庄遭袭 至少20人丧生
+# CoreWeave获Anthropic数十亿美元AI算力协议，股价大涨11%
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-中新社北京4月8日电 阿布贾消息：当地时间4月7日，一伙武装分子袭击了位于尼日利亚尼日尔州西北部多个村庄，造成包括安全人员在内的至少20人死亡，另有多人受伤。 综合尼日利亚《抨击报》、路透社等媒体报道，据尼日尔州警方发言人瓦西乌·阿比奥敦(Wasiu Abiodun)透露，此次袭击事件发生在尼日尔州希罗罗地区，该地区目前饱受绑架事件和武装分子袭击等困扰。据目
+随着对其人工智能服务的需求持续增长，Anthropic正寻求获得更多计算能力，并与CoreWeave签署了一项多年期协议。CoreWeave首席执行官迈克尔·因特拉托称这是一项价值数十亿美元的合同，预计将支持Anthropic旗下Claude模型的开发和部署。该协议包括在美国数据中心使用英伟达的一系列芯片架构，这反映出AI开发商正日益将基础设施规模与模型性能
 
 ## 正文
 
-中新社北京4月8日电 阿布贾消息：当地时间4月7日，一伙武装分子袭击了位于尼日利亚尼日尔州西北部多个村庄，造成包括安全人员在内的至少20人死亡，另有多人受伤。
+随着对其人工智能服务的需求持续增长，Anthropic正寻求获得更多计算能力，并与CoreWeave签署了一项多年期协议。
 
-综合尼日利亚《抨击报》、路透社等媒体报道，据尼日尔州警方发言人瓦西乌·阿比奥敦(Wasiu Abiodun)透露，此次袭击事件发生在尼日尔州希罗罗地区，该地区目前饱受绑架事件和武装分子袭击等困扰。
+CoreWeave首席执行官迈克尔·因特拉托称这是一项价值数十亿美元的合同，预计将支持Anthropic旗下Claude模型的开发和部署。
 
-据目击者描述，事发时超过160名武装分子骑着摩托车先后冲进巴格纳村和埃雷纳村两个村庄，四处开枪并使用爆炸物引燃建筑物，导致居民惊慌逃窜。
+该协议包括在美国数据中心使用英伟达的一系列芯片架构，这反映出AI开发商正日益将基础设施规模与模型性能置于同等重要的位置。
 
-此次袭击持续数小时，并造成至少20人丧生，多人受伤。
+此项协议签署之际，Anthropic仍在应对因其所称的“空前需求”而带来的算力压力。
 
-此外，武装分子还摧毁多座房屋，并与随后赶来的地区安全部队发生激烈交火。
+该公司已承诺在美国新建AI数据中心投入500亿美元，并最近筹集了300亿美元，据报估值达到3800亿美元。
 
-受到此次袭击事件影响，部分当地村民随后逃往附近村镇躲避。
+与此同时，Anthropic通过与博通以及Alphabet旗下谷歌的合作，获得了3.5吉瓦的电力供应。
 
-瓦西乌·阿比奥敦表示，事件发生后，尼日利亚安全部队随即被部署到上述地区，目前该地区局势已经恢复平静。
+这一电力规模可满足数十万美国家庭的用电需求，凸显出算力和能源正日益成为AI增长的核心制约因素。
 
 ## 相关推荐
 
-- [TACO如期而至，港股互联网大反攻！华宝基金港股互联网ETF（513770）冲击5%！龙头集体起立，美团暴涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangwan.md)
-- [战事冲击对冲基金，宏观交易员3月遭遇惨重亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongfei.md)
-- [主流券商开户APP横评：新浪财经APP为何更适合普通投资者？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shengduan.md)
-- [OEXN:油市紧张预期与价格背离风险加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beiren.md)
-- [国台办驳斥管碧玲有关大陆公务船言论：纯属恶意抹黑炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gongjian.md)
-- [国家邮政局：2025年快递服务公众满意度得分为85.0分，同比上升0.4分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
-- [中方为平息伊朗战事作出哪些努力？外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainian.md)
-- [18,057辆！比亚迪斩获曼谷车展销量第一！中国新能源改写泰国车市格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suozhen.md)
-- [卡塔尔开始着手恢复液化天然气出口工厂的生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shaxiong.md)
-- [清明假期广西多措并举 助推消费市场火热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuiding.md)
-- [停火了，金价为何比油价“克制”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuyang.md)
-- [特朗普宣布为期两周停火后，油价跌破100美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanyuan.md)
-- [全国人大常委会部分组成人员参加义务植树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cuyin.md)
-- [飞絮过敏和花粉过敏是一回事吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tipeng.md)
-- [俄外交部：俄日关系降至前所未有的低点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xude.md)
-- [特朗普威胁对向伊朗供武国家征收50%关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongpi.md)
-- [王毅将访问朝鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songhan.md)
-- [汽油涨破4美元，美国民众：“所有东西都在涨价，我们薪水却没变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/geshun.md)
-- [特朗普宣布美国将协助霍尔木兹海峡航运，“会赚到大钱！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuangeng.md)
-- [伊朗发动“真实承诺-4”第100轮攻势 打击美以目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunran.md)
-- [收评|股指期货全线上涨 中证500股指期货主力合约涨5.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sunqing.md)
-- [光大银行：注册资本增至590.9亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
-- [ATFX:美伊达成两周停火协议 WTI暴跌15美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
+- [蔚来李斌：20到30万级里，今年要全面应用旗舰级智驾芯片及智驾系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
+- [欧洲债市：德国国债下跌 交易员在美伊和谈前上调欧洲央行加息押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zunhou.md)
+- [清华大学教授李克强：去年智驾相关投诉比例激增，安全事故频发已引起社会公众质疑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
+- [新疆甘肃携手展史前彩陶西渐路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/congnie.md)
+- [高起点，高要求，汇丰、渣打为何能拿下首批稳定币牌照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangwan.md)
+- [海南澄迈：“地瓜中的爱马仕”上市即出圈 远销海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/laoxiong.md)
+- [乌称敖德萨遭无人机袭击 已致2死2伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cuyin.md)
+- [房子被扔“燃烧瓶”，OpenAI CEO奥尔特曼公开发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuiding.md)
+- [美伊谈判前油价下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sunqing.md)
+- [（乡村行·看振兴）运河民俗何以持续“流淌”？江南网船会再现水上盛景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pushua.md)
+- [伊朗代表团强调解冻资产及实现黎巴嫩“真正停火”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beiren.md)
+- [尾盘：主要股指本周均将录得涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongran.md)
+- [2026赛季中乙联赛：山西崇德荣海不敌山东泰山B队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanruo.md)
 
 ## 延伸阅读
 
-- [邮储银行山西省大同市分行被罚6万元：未按规定收缴假币](http://www.blog.kurohicncr.top/Article/details/176446.shtml)
-- [建设银行董事长张金良与河北省委常委，雄安新区党工委书记、管委会主任张国华举行工作座谈](http://www.blog.kurohicncr.top/Article/details/6386267.shtml)
-- [美瑞新材：公司的TPU在电线电缆方面的主要应用领域是汽车线束和充电桩线缆](http://www.share.minike.top/Article/details/05365690424.shtml)
-- [在三星公布业绩大幅预增后，SK海力士股价暴涨15%](http://www.share.kurohicncr.top/Article/details/8426823.shtml)
-- [外贸淡季变旺季，订单暴涨 义乌老板提前开启“世界杯时间”](https://github.com/lisacumin64-arch)
-- [科技巨头支持Anthropic的网络安全行动](http://www.blog.kurohicncr.top/Article/details/042318.shtml)
-- [50%关税！特朗普，突发威胁！黄金、白银拉升](http://www.blog.kurohicncr.top/Article/details/90690.shtml)
-- [我国发布全球首个全景式碳排放核算系统](http://www.share.kurohicncr.top/Article/details/5549786041.shtml)
-- [下沉乡镇市场，“火锅界蜜雪冰城”赚翻了！父女搭档头悬“双刃剑”](https://github.com/lisacumin64-arch)
-- [澳门首例 达芬奇机器人助力完成高难度胰腺手术](http://www.share.kurohicncr.top/Article/details/703528.shtml)
-- [失联的ST西发实控人罗希找到了：被监察委留置，公司重整之路再遇黑天鹅](http://www.share.kurohicncr.top/Article/details/88996.shtml)
-- [司太立：拟出资3500万元增资健立化学获3.4483%股权](http://www.blog.kurohicncr.top/Article/details/55801606.shtml)
-- [伊朗驻华大使感谢中国在安理会投下反对票](http://www.share.minike.top/Article/details/843638107.shtml)
-- [国家能源局：截至2月底，全国可再生能源发电装机达23.81亿千瓦](https://github.com/lisacumin64-arch)
-- [精心组织、推动发展、务实为民——各地扎实开展树立和践行正确政绩观学习教育](https://github.com/lisacumin64-arch)
+- [深圳铁路实施新的列车运行图 促湾区与粤东融合](http://www.share.kurohicncr.top/Article/details/298564374136.shtml)
+- [大众汽车韩三楚：2027年将在中国推出30款新能源车，2030年推出50款](https://github.com/lisacumin64-arch)
+- [伊美即将举行第三轮会谈](http://www.blog.minike.top/Article/details/397709.shtml)
+- [北京人艺话剧《张居正》在香港上演](http://www.share.minike.top/Article/details/16628.shtml)
+- [辽大留学生彰武行 探寻治沙奇迹](http://www.blog.minike.top/Article/details/214058814.shtml)
+- [伊朗媒体：伊美第三轮谈判结束](http://www.blog.minike.top/Article/details/497246043.shtml)
+- [蔚来李斌：电芯标准化+芯片归一化将为行业提供超一千亿元的降本机会](https://github.com/lisacumin64-arch)
+- [百度副总裁石清华：企业要开始进行自己的算力规划，现在是“卡吃人、卡吃业务”](http://www.blog.minike.top/Article/details/3354436.shtml)
+- [特朗普：美国正在“清理”霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/612954410574.shtml)
+- [“广撒网”走向“精准达” 毕业生求职哪些岗位机会多？](https://github.com/lisacumin64-arch)
+- [87版《红楼梦》音乐会登陆长春 民族管弦乐重温经典](http://www.share.minike.top/Article/details/46812116763.shtml)
+- [OpenAI首席执行官住宅遭投掷燃烧瓶，嫌疑人被捕](http://www.blog.kurohicncr.top/Article/details/73759374.shtml)
+- [中国美院“文艺复兴研究中心”正式揭牌](http://www.blog.minike.top/Article/details/665523237466.shtml)
+- [透过“阿耳忒弥斯2号”看美国重返月球之变](https://github.com/lisacumin64-arch)
+- [中国长安汽车赵非：建议加快构建全国统一的智能辅助驾驶安全数据采集标准体系](http://www.blog.kurohicncr.top/Article/details/0740948.shtml)

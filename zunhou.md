@@ -1,68 +1,58 @@
-# 炭黑龙头也“黑脸”：黑猫股份2025年巨亏4.63亿元，导电炭黑布局短期难救主业
+# 特朗普称美伊和谈非常深入
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上市之家 国内炭黑行业龙头黑猫股份近日披露2025年度财报，公司全年实现营业收入86.85亿元，同比下滑14.28%；归母净利润亏损4.63亿元，同比降幅超19倍，创下近三年最大亏损纪录。 在2025年炭黑行业供需失衡、价格承压的背景下，公司传统主业盈利崩塌，尽管在新能源领域布局初
+美国、伊朗、巴基斯坦周六开始直接三方会谈，以结束在中东持续了六周的战争。 离开白宫前往迈阿密出席一场终极格斗冠军赛（UFC）的美国总统特朗普称正在进行的谈判“非常深入”，但同时淡化了会谈的重要性，并再次宣称已取得胜利。 他说：“我们是否达成协议对我来说没有区别，原因是我们已经赢了。” 据官员透露，美国副总统JD·万斯、特使史蒂夫·威特科夫和特朗普的女婿贾里德
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国、伊朗、巴基斯坦周六开始直接三方会谈，以结束在中东持续了六周的战争。
 
-来源：上市之家 国内炭黑行业龙头黑猫股份近日披露2025年度财报，公司全年实现营业收入86.85亿元，同比下滑14.28%；归母净利润亏损4.63亿元，同比降幅超19倍，创下近三年最大亏损纪录。
+离开白宫前往迈阿密出席一场终极格斗冠军赛（UFC）的美国总统特朗普称正在进行的谈判“非常深入”，但同时淡化了会谈的重要性，并再次宣称已取得胜利。
 
-在2025年炭黑行业供需失衡、价格承压的背景下，公司传统主业盈利崩塌，尽管在新能源领域布局初见成效，但短期仍难抵行业下行压力，转型突围面临多重挑战。
+他说：“我们是否达成协议对我来说没有区别，原因是我们已经赢了。
 
-行业深度调整成为业绩变脸的核心诱因。
+” 据官员透露，美国副总统JD·万斯、特使史蒂夫·威特科夫和特朗普的女婿贾里德·库什纳自当地时间下午5：30开始与伊朗议长穆罕默德·巴格尔·卡利巴夫、外交部长阿巴斯·阿拉格齐等人组成的伊方团队会谈。
 
-2025年炭黑行业呈现“量增、价减、利弱”的格局，纳入中国橡胶协会统计的31家会员企业中42%陷入亏损。
+据伊朗半官方的塔斯尼姆通讯社报道，专家团队在约一小时后加入了主要谈判代表。
 
-作为行业龙头，黑猫股份虽维持了92.89%的高产能利用率，全年炭黑产销量分别达107.94万吨和106.50万吨，但产品价格持续走低挤压了利润空间。
+据一名知情美国官员和一名知情巴基斯坦官员称，在伊斯兰堡进行的这些技术性讨论主要集中在霍尔木兹海峡、停火的潜在延长以及分阶段解除制裁等问题上，基本回避了特朗普政府声称导致战争爆发的核心议题。
 
-以主流产品N330为例，2025年山东地区均价同比下跌17.89%，而上游煤焦油价格震荡波动，导致炭黑产品价格与成本出现“倒挂”，利润空间被大幅压缩。
+这些核心问题包括伊朗对武装代理人的支持，以及其核计划和导弹计划——这些正是特朗普声称自2月28日开始对伊朗发动攻击的主要原因。
 
 ## 相关推荐
 
-- [紫金矿业王高尚：国内铜需求峰值约每年1700万吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pengchai.md)
-- [山东港口青岛港再添东南亚新航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
-- [34年来最强增长！日本薪资数据超预期，4月加息不是梦？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanyuan.md)
-- [涉嫌违法违规、限制消费者权利！洲际酒店被约谈整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanmang.md)
-- [中阿巴三方代表在乌鲁木齐举行非正式会晤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueqiang.md)
-- [浙江破获特大非法经营烟草案 查获非法卷烟逾3万条](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
-- [达美航空等公司上调行李费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zeming.md)
-- [不止于山水 浙江安吉书写“两山”转化新篇章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongshen.md)
-- [一起感受下迫击炮实弹现场吧！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shangxu.md)
-- [越走越亲！中越姐妹共庆“三月三”同叙边关情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banwu.md)
-- [中阿巴三方代表在乌鲁木齐举行非正式会晤 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
-- [皇氏集团从“减亏”到巨亏，祸起一家合营企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
-- [刚刚，影像巨头迎来“新掌门”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongpi.md)
-- [一封信，四校师生共答时代命题丨求实学、务实业 学习贯彻总书记回信精神④](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuyang.md)
-- [公诉364人！北京检方依法严厉打击侵害未成年人犯罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benhe.md)
-- [卡组织们的焦虑与突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
-- [北京金融管理部门联合召开做好首都金融“五篇大文章”2026年第1次（总第4次）工作会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
-- [战事冲击叠加关税余波 双重压力下美联储陷入两难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beiren.md)
-- [湖北今年以来最强降雨过程来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuimang.md)
-- [战事冲击对冲基金，宏观交易员3月遭遇惨重亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/laoxiong.md)
-- [主流券商开户APP横评：新浪财经APP为何更适合普通投资者？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shengduan.md)
-- [OEXN:油市紧张预期与价格背离风险加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shaxiong.md)
-- [杨德龙：特朗普如预期宣布停战两周 大盘迎来新一轮大涨机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuangeng.md)
-- [国家邮政局：2025年快递服务公众满意度得分为85.0分，同比上升0.4分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunran.md)
+- [地平线余凯：智能化时代，未来将不会区分座舱跟智驾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongran.md)
+- [郑丽文参访故宫直呼好漂亮 有民众高喊“欢迎回来” 郑丽文热情回应！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangwan.md)
+- [湖南江华“巴掌田”变“连片田” 高标准农田助农降本增收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/geshun.md)
+- [吉布提总统盖莱宣布再次胜选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
+- [尼泊尔民众拉战车迎接尼历新年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suozhen.md)
+- [京西碧云寺：伟人风范长留 两岸同胞连心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shengduan.md)
+- [江淮汽车李明:在智能新能源领域，中国供应链的韧性和竞争力会更强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shaxiong.md)
+- [海外台胞参访辽宁：触摸“振兴脉动” 共话两岸亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duren.md)
+- [伊朗媒体：伊美谈判可能延长一天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pushua.md)
+- [李斌：蔚来高峰时一年要买3亿美元的英伟达芯片，自研芯片已经替公司省了很多钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
+- [平陆运河划定河海分界线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanruo.md)
+- [张雪拍卖机车 45秒后“光速结束” 款项全部捐给李亚鹏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
+- [霍尔木兹海峡的海军对峙，凸显美伊谈判的极高风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xude.md)
+- [中国钢铁工业协会：建立钢铁行业产能治理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mingman.md)
 
 ## 延伸阅读
 
-- [东博会2026年首场进东盟专题展亮相越南](http://www.blog.minike.top/Article/details/976990287175.shtml)
-- [俄外交部：俄日关系降至前所未有的低点](https://github.com/lisacumin64-arch)
-- [特朗普威胁对向伊朗供武国家征收50%关税](https://github.com/lisacumin64-arch)
-- [国家广电总局：已清理“AI魔改”相关违规视频23000余条](http://www.blog.minike.top/Article/details/445145053185.shtml)
-- [山东济宁：织密民生保障网 呵护“一老一小”](http://www.share.kurohicncr.top/Article/details/98924200484.shtml)
-- [王毅将访问朝鲜](http://www.blog.kurohicncr.top/Article/details/902433.shtml)
-- [汽油涨破4美元，美国民众：“所有东西都在涨价，我们薪水却没变”](http://www.blog.kurohicncr.top/Article/details/687794869.shtml)
-- [特朗普宣布美国将协助霍尔木兹海峡航运，“会赚到大钱！”](http://www.blog.kurohicncr.top/Article/details/921330259.shtml)
-- [罕见！董事长变总经理](http://www.share.kurohicncr.top/Article/details/741223212.shtml)
-- [伊朗发动“真实承诺-4”第100轮攻势 打击美以目标](http://www.share.minike.top/Article/details/96956502.shtml)
-- [收评|股指期货全线上涨 中证500股指期货主力合约涨5.96%](http://www.blog.minike.top/Article/details/1438941592.shtml)
-- [光大银行：注册资本增至590.9亿元](http://www.share.kurohicncr.top/Article/details/801198658.shtml)
-- [CBA常规赛：吉林大胜四川](http://www.share.kurohicncr.top/Article/details/3290757.shtml)
-- [ATFX:美伊达成两周停火协议 WTI暴跌15美元](http://www.blog.minike.top/Article/details/728027269.shtml)
-- [进出口银行党委召开2026年第一轮巡视动员部署会](http://www.share.minike.top/Article/details/440703472.shtml)
+- [欧洲债市：德国国债下跌 交易员在美伊和谈前上调欧洲央行加息押注](http://www.share.kurohicncr.top/Article/details/0576230.shtml)
+- [清华大学教授李克强：去年智驾相关投诉比例激增，安全事故频发已引起社会公众质疑](http://www.share.minike.top/Article/details/228621119896.shtml)
+- [新疆甘肃携手展史前彩陶西渐路](http://www.share.kurohicncr.top/Article/details/91445877132.shtml)
+- [高起点，高要求，汇丰、渣打为何能拿下首批稳定币牌照](http://www.blog.kurohicncr.top/Article/details/64487493737.shtml)
+- [海南澄迈：“地瓜中的爱马仕”上市即出圈 远销海外](http://www.share.minike.top/Article/details/36674247474.shtml)
+- [乌称敖德萨遭无人机袭击 已致2死2伤](http://www.share.kurohicncr.top/Article/details/71145418466.shtml)
+- [房子被扔“燃烧瓶”，OpenAI CEO奥尔特曼公开发声](https://github.com/lisacumin64-arch)
+- [美伊谈判前油价下跌](http://www.share.kurohicncr.top/Article/details/048772.shtml)
+- [（乡村行·看振兴）运河民俗何以持续“流淌”？江南网船会再现水上盛景](http://www.blog.kurohicncr.top/Article/details/318380501.shtml)
+- [伊朗代表团强调解冻资产及实现黎巴嫩“真正停火”](http://www.share.minike.top/Article/details/662810.shtml)
+- [尾盘：主要股指本周均将录得涨幅](http://www.share.kurohicncr.top/Article/details/2624990929.shtml)
+- [2026赛季中乙联赛：山西崇德荣海不敌山东泰山B队](http://www.share.kurohicncr.top/Article/details/75970.shtml)
+- [“长征90载·宁化再出发”房车主题活动启幕 百余名车友重走红色征程](http://www.blog.minike.top/Article/details/2229152039.shtml)
+- [4月11日隔夜要闻：美股三大股指本周均涨超3% 美油创六年来最大单周跌幅 铜价三周连涨 市场聚焦美伊周末会谈](http://www.share.kurohicncr.top/Article/details/83314.shtml)
+- [卓驭科技CEO沈劭劼：未来两年，全球辅助驾驶行业将全面拥抱基础模型](http://www.share.kurohicncr.top/Article/details/04294471.shtml)

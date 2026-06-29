@@ -1,55 +1,58 @@
-# 一起感受下迫击炮实弹现场吧！
+# 李斌：蔚来高峰时一年要买3亿美元的英伟达芯片，自研芯片已经替公司省了很多钱
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月08日 14:04 来源：中国新闻网 近日，武警第二机动总队某支队立足实战化训练要求，秉承“铸火力之重器，成攻坚之利刃”的目标，从难从严组织迫击炮实弹射击训练，全程融入战场环境，严格落实战斗标准，在真打实备中磨砺战斗意志，在复杂环境下锻造打赢本领，全面提升部队精准打击、高效毁伤的实战能力。作者：胡国平、孟令照、郭旭 责任编辑：【魏聪
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，在智能电动汽车发展高层论坛（2026）期间，蔚来创始人、董事长、CEO李斌与媒体对话。 谈及自研智驾芯片业务，李斌表示，如果从蔚来内部的管理报表角度来看的话，其实替公司已经省了很多钱了。蔚来在前几年一直都用英伟达芯片，高峰的时候一年要买3亿美金的英伟达芯片。自研智驾芯片虽然研发费用投
 
 ## 正文
 
-发布时间：2026年04月08日 14:04 来源：中国新闻网 近日，武警第二机动总队某支队立足实战化训练要求，秉承“铸火力之重器，成攻坚之利刃”的目标，从难从严组织迫击炮实弹射击训练，全程融入战场环境，严格落实战斗标准，在真打实备中磨砺战斗意志，在复杂环境下锻造打赢本领，全面提升部队精准打击、高效毁伤的实战能力。
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，在智能电动汽车发展高层论坛（2026）期间，蔚来创始人、董事长、CEO李斌与媒体对话。
 
-作者：胡国平、孟令照、郭旭 责任编辑：【魏聪聪】
+谈及自研智驾芯片业务，李斌表示，如果从蔚来内部的管理报表角度来看的话，其实替公司已经省了很多钱了。
+
+蔚来在前几年一直都用英伟达芯片，高峰的时候一年要买3亿美金的英伟达芯片。
+
+自研智驾芯片虽然研发费用投入大，肯定不需要花这么多钱，如果蔚来现在都还是外采的话，以蔚来每年40~50%的销量增长，采购是挺大的一笔开支。
+
+他表示，从这个角度来看，自研芯片肯定是用研发去换成本降低的，研发这块毛利的角度来讲肯定是合算的。
+
+可能一开始启动阶段确实投资比较大，但像今年有几十万的这样一个用量，其实已经合算了。
+
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- [皇氏集团从“减亏”到巨亏，祸起一家合营企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushuo.md)
-- [AI巨头可能重塑IPO窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongpi.md)
-- [刚刚，影像巨头迎来“新掌门”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zunhou.md)
-- [一封信，四校师生共答时代命题丨求实学、务实业 学习贯彻总书记回信精神④](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
-- [公诉364人！北京检方依法严厉打击侵害未成年人犯罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mingman.md)
-- [卡组织们的焦虑与突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuyang.md)
-- [北京金融管理部门联合召开做好首都金融“五篇大文章”2026年第1次（总第4次）工作会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gongjian.md)
-- [尼日利亚西北部多村庄遭袭 至少20人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainian.md)
-- [战事冲击叠加关税余波 双重压力下美联储陷入两难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainiao.md)
-- [湖北今年以来最强降雨过程来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xude.md)
-- [TACO如期而至，港股互联网大反攻！华宝基金港股互联网ETF（513770）冲击5%！龙头集体起立，美团暴涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangwan.md)
-- [主流券商开户APP横评：新浪财经APP为何更适合普通投资者？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanmang.md)
-- [杨德龙：特朗普如预期宣布停战两周 大盘迎来新一轮大涨机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongshen.md)
-- [国台办驳斥管碧玲有关大陆公务船言论：纯属恶意抹黑炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tipeng.md)
-- [中方为平息伊朗战事作出哪些努力？外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jianquan.md)
-- [18,057辆！比亚迪斩获曼谷车展销量第一！中国新能源改写泰国车市格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuiding.md)
-- [卡塔尔开始着手恢复液化天然气出口工厂的生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liaozeng.md)
-- [停火了，金价为何比油价“克制”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
-- [飞絮过敏和花粉过敏是一回事吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
-- [特朗普威胁对向伊朗供武国家征收50%关税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/congnie.md)
-- [国家广电总局：已清理“AI魔改”相关违规视频23000余条](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duren.md)
+- [霍尔木兹海峡的海军对峙，凸显美伊谈判的极高风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zeming.md)
+- [中国钢铁工业协会：建立钢铁行业产能治理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushuo.md)
+- [中缅边境云南澜沧万人同庆葫芦节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
+- [伊朗消息人士：伊美或举行新一轮谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/congnie.md)
+- [阿耳特弥斯二号宇航员从月球归来 将溅落地球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shengduan.md)
+- [浙师大儿童文学馆在金华开馆 百年童心有了“新家”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanmang.md)
+- [广西校园多彩民俗迎“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuangeng.md)
+- [CoreWeave获Anthropic数十亿美元AI算力协议，股价大涨11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongfei.md)
+- [伊朗消息人士：美国同意解冻伊朗海外资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mingman.md)
+- [京剧马派经典剧目《火牛阵》在福州上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zunhou.md)
+- [蔚来李斌：20到30万级里，今年要全面应用旗舰级智驾芯片及智驾系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benhe.md)
+- [欧洲债市：德国国债下跌 交易员在美伊和谈前上调欧洲央行加息押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xixia.md)
+- [清华大学教授李克强：去年智驾相关投诉比例激增，安全事故频发已引起社会公众质疑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanyuan.md)
+- [新疆甘肃携手展史前彩陶西渐路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
 
 ## 延伸阅读
 
-- [CBA常规赛：吉林大胜四川](http://www.blog.minike.top/Article/details/77429.shtml)
-- [ATFX:美伊达成两周停火协议 WTI暴跌15美元](https://github.com/lisacumin64-arch)
-- [进出口银行党委召开2026年第一轮巡视动员部署会](http://www.blog.minike.top/Article/details/084690114.shtml)
-- [“牛市旗手”券商板块表现强势，证券ETF富国（515850）盘中涨幅达3.90%](http://www.blog.kurohicncr.top/Article/details/606360080.shtml)
-- [东西问｜当250年历史的国家威胁毁掉5000年文明](http://www.blog.minike.top/Article/details/936479422133.shtml)
-- [两高：依法从严惩处涉民航飞行安全违法犯罪](http://www.blog.minike.top/Article/details/2830641192.shtml)
-- [统战赋能春耕一线 江西玉山绘就春耕同心画卷](http://www.share.kurohicncr.top/Article/details/593789941.shtml)
-- [东亚银行：下调今年恒指目标至点 悲观情景下或回调点](http://www.share.minike.top/Article/details/63838.shtml)
-- [中国官方：将健全完善较大亡人火灾备案审查制度](http://www.blog.kurohicncr.top/Article/details/056338776020.shtml)
-- [伊朗议长将率团前往巴基斯坦首都参加伊美谈判](http://www.share.kurohicncr.top/Article/details/25276522773.shtml)
-- [邮储银行山西省大同市分行被罚6万元：未按规定收缴假币](https://github.com/lisacumin64-arch)
-- [建设银行董事长张金良与河北省委常委，雄安新区党工委书记、管委会主任张国华举行工作座谈](http://www.blog.kurohicncr.top/Article/details/992262.shtml)
-- [美瑞新材：公司的TPU在电线电缆方面的主要应用领域是汽车线束和充电桩线缆](http://www.share.kurohicncr.top/Article/details/60653.shtml)
-- [在三星公布业绩大幅预增后，SK海力士股价暴涨15%](http://www.share.minike.top/Article/details/8679723.shtml)
-- [外贸淡季变旺季，订单暴涨 义乌老板提前开启“世界杯时间”](http://www.blog.minike.top/Article/details/532830056.shtml)
+- [“长征90载·宁化再出发”房车主题活动启幕 百余名车友重走红色征程](http://www.share.minike.top/Article/details/44188860043.shtml)
+- [4月11日隔夜要闻：美股三大股指本周均涨超3% 美油创六年来最大单周跌幅 铜价三周连涨 市场聚焦美伊周末会谈](http://www.blog.minike.top/Article/details/42766.shtml)
+- [卓驭科技CEO沈劭劼：未来两年，全球辅助驾驶行业将全面拥抱基础模型](https://github.com/lisacumin64-arch)
+- [号称年入18亿美元的“一人公司”翻车，极致效率背后是极致脆弱？](http://www.blog.kurohicncr.top/Article/details/935370783.shtml)
+- [一张图看懂2026年3月美国通胀明细](http://www.blog.minike.top/Article/details/530576915.shtml)
+- [南非柑橘输华检疫标准优化](https://github.com/lisacumin64-arch)
+- [蔚来李斌：电芯规格不统一，成为制约车企发展的严重问题](http://www.share.kurohicncr.top/Article/details/86401984.shtml)
+- [特朗普称赞“世界上最强大的重置” 但未作详细说明](https://github.com/lisacumin64-arch)
+- [美国稀土CEO回应国会质疑：力挺特朗普政府16亿美元投资计划](http://www.share.kurohicncr.top/Article/details/7879307.shtml)
+- [【东西问】王馗：梅兰芳1930年访美演出为何具有里程碑意义？](http://www.share.minike.top/Article/details/666806094.shtml)
+- [深圳铁路实施新的列车运行图 促湾区与粤东融合](http://www.share.kurohicncr.top/Article/details/281509130925.shtml)
+- [大众汽车韩三楚：2027年将在中国推出30款新能源车，2030年推出50款](http://www.blog.kurohicncr.top/Article/details/94263.shtml)
+- [伊美即将举行第三轮会谈](http://www.share.minike.top/Article/details/83340484.shtml)
+- [北京人艺话剧《张居正》在香港上演](http://www.share.minike.top/Article/details/129116250.shtml)
+- [辽大留学生彰武行 探寻治沙奇迹](https://github.com/lisacumin64-arch)

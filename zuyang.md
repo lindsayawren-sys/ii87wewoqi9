@@ -1,66 +1,58 @@
-# 中方谈美伊同意停火：对有关方面宣布达成停火安排表示欢迎
+# 第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。 有记者提问：关于伊朗临时停火协议，停火将持续两周，中方对此有何评论？巴基斯坦居中调解了该停火协议，中方是否直接参与其中、与任何一方进行接触来达成协议？ 毛宁：首先，中方对有关方面宣布达成停火安排表示欢迎。我们支持巴基斯坦等国所做的斡旋努力，中方一贯主张尽快停火止战，通过政治外交
+中新网苏州4月11日电 (记者 钟升)以“新局开启锚定‘十五五’”为主题的第三届金鸡湖经济论坛10日在江苏苏州举行。海内外知名学者、新兴产业专家、优秀上市公司负责人等政产学研领域嘉宾500多人，共聚金鸡湖畔围绕全球经济新挑战与新机遇、“十五五”规划与中国经济发展前景等议题展开交流。 江苏省委常委、苏州市委书记范波在主旨推介中表示，苏州正牢牢把握上海与苏州重点
 
 ## 正文
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。
+中新网苏州4月11日电 (记者 钟升)以“新局开启锚定‘十五五’”为主题的第三届金鸡湖经济论坛10日在江苏苏州举行。
 
-有记者提问：关于伊朗临时停火协议，停火将持续两周，中方对此有何评论？
+海内外知名学者、新兴产业专家、优秀上市公司负责人等政产学研领域嘉宾500多人，共聚金鸡湖畔围绕全球经济新挑战与新机遇、“十五五”规划与中国经济发展前景等议题展开交流。
 
-巴基斯坦居中调解了该停火协议，中方是否直接参与其中、与任何一方进行接触来达成协议？
+江苏省委常委、苏州市委书记范波在主旨推介中表示，苏州正牢牢把握上海与苏州重点领域同城化发展、建设上海(长三角)国际科技创新中心关键支点、创建国家新型工业化示范区等重大机遇，因地制宜发展新质生产力，加快建设国际化现代化人民城市，努力实现“十五五”良好开局，为全国及江苏发展多作贡献。
 
-毛宁：首先，中方对有关方面宣布达成停火安排表示欢迎。
+新华通讯社副社长、党组成员刘健在致辞中表示，新华社将持续深化与苏州及长三角地区的协同联动，在强化全球传播、贡献智库方案、搭建合作桥梁等方面持续发力，助力“十五五”规划精准落地、高效实施。
 
-我们支持巴基斯坦等国所做的斡旋努力，中方一贯主张尽快停火止战，通过政治外交途径化解争端，最终实现中东和海湾地区的长治久安，中方也为此做出了自己的努力。
+东吴证券党委书记、董事长范力表示，“十五五”开局之年，论坛交流旨在共话全球发展大势，共商中国增长路径，共谋苏州高质量发展。
 
-(完)
+东吴证券将继续秉持“坚持根据地、融入长三角、服务中小微”的战略导向，以成长赋能城市，以专业服务实体，勇担金融国企使命。
+
+主旨演讲环节，海内外嘉宾以全球视野剖析经济热点，以理论深度为经济增长聚智赋能。
 
 ## 相关推荐
 
-- [广东强降雨“暂歇” 部分地区录得“回南天”数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gongjian.md)
-- [视频 | 但斌：A股当前尚未进入牛市阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banwu.md)
-- [IMF总裁警告滞胀风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
-- [炭黑龙头也“黑脸”：黑猫股份2025年巨亏4.63亿元，导电炭黑布局短期难救主业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shaxiong.md)
-- [久之洋：公司的星体跟踪器产品已应用于多项国家重要平台任务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benhe.md)
-- [科技板块全线走强！数字经济ETF富国（159385）盘中涨幅达4.43%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mingman.md)
-- [紫金矿业王高尚：国内铜需求峰值约每年1700万吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushuo.md)
-- [山东港口青岛港再添东南亚新航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pushua.md)
-- [34年来最强增长！日本薪资数据超预期，4月加息不是梦？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainian.md)
-- [涉嫌违法违规、限制消费者权利！洲际酒店被约谈整改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songhan.md)
-- [中阿巴三方代表在乌鲁木齐举行非正式会晤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanmai.md)
-- [浙江破获特大非法经营烟草案 查获非法卷烟逾3万条](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/laoxiong.md)
-- [达美航空等公司上调行李费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beiren.md)
-- [不止于山水 浙江安吉书写“两山”转化新篇章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongpi.md)
-- [沙特关键东西向输油管道遭无人机袭击 受损情况仍在评估中](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sunqing.md)
-- [一起感受下迫击炮实弹现场吧！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
-- [越走越亲！中越姐妹共庆“三月三”同叙边关情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zunhou.md)
-- [中阿巴三方代表在乌鲁木齐举行非正式会晤 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuiding.md)
-- [AI巨头可能重塑IPO窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
-- [刚刚，影像巨头迎来“新掌门”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shangxu.md)
-- [一封信，四校师生共答时代命题丨求实学、务实业 学习贯彻总书记回信精神④](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
-- [卡组织们的焦虑与突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tipeng.md)
-- [战事冲击叠加关税余波 双重压力下美联储陷入两难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongfei.md)
-- [湖北今年以来最强降雨过程来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanyuan.md)
+- [“花园里的音乐会”引白领流连 重庆环照母山特色产业园再造公共空间意义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
+- [一见·从这场大会，感受服务业发展的分量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xixia.md)
+- [马龙、张怡宁、邓亚萍亮相中美“乒乓外交”55周年纪念大会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/minghai.md)
+- [特朗普称美伊和谈非常深入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunran.md)
+- [美伊今日开始谈判：谁来谈？谈什么？谈崩了怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
+- [伊朗方面披露伊方代表团首日日程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/geshun.md)
+- [地平线余凯：智能化时代，未来将不会区分座舱跟智驾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shengduan.md)
+- [郑丽文参访故宫直呼好漂亮 有民众高喊“欢迎回来” 郑丽文热情回应！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xude.md)
+- [湖南江华“巴掌田”变“连片田” 高标准农田助农降本增收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangwan.md)
+- [吉布提总统盖莱宣布再次胜选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tongpi.md)
+- [尼泊尔民众拉战车迎接尼历新年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/laoxiong.md)
+- [京西碧云寺：伟人风范长留 两岸同胞连心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuangeng.md)
+- [江淮汽车李明:在智能新能源领域，中国供应链的韧性和竞争力会更强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fenrui.md)
+- [海外台胞参访辽宁：触摸“振兴脉动” 共话两岸亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
 
 ## 延伸阅读
 
-- [清明假期广西多措并举 助推消费市场火热](http://www.blog.kurohicncr.top/Article/details/31084149.shtml)
-- [大摩：降中国海外发展目标价至12.5港元 评级“与大市同步”](http://www.blog.kurohicncr.top/Article/details/2071860.shtml)
-- [停火了，金价为何比油价“克制”？](https://github.com/lisacumin64-arch)
-- [特朗普宣布为期两周停火后，油价跌破100美元](http://www.share.minike.top/Article/details/48391929.shtml)
-- [全国人大常委会部分组成人员参加义务植树](http://www.share.kurohicncr.top/Article/details/6150427.shtml)
-- [飞絮过敏和花粉过敏是一回事吗？](http://www.share.minike.top/Article/details/8754096.shtml)
-- [东博会2026年首场进东盟专题展亮相越南](http://www.share.kurohicncr.top/Article/details/486249572.shtml)
-- [俄外交部：俄日关系降至前所未有的低点](http://www.share.minike.top/Article/details/818710518121.shtml)
-- [特朗普威胁对向伊朗供武国家征收50%关税](http://www.share.kurohicncr.top/Article/details/65064160091.shtml)
-- [国家广电总局：已清理“AI魔改”相关违规视频23000余条](http://www.share.kurohicncr.top/Article/details/8610086163.shtml)
-- [山东济宁：织密民生保障网 呵护“一老一小”](http://www.blog.kurohicncr.top/Article/details/239943338608.shtml)
-- [王毅将访问朝鲜](http://www.blog.minike.top/Article/details/54956782247.shtml)
-- [汽油涨破4美元，美国民众：“所有东西都在涨价，我们薪水却没变”](http://www.share.kurohicncr.top/Article/details/25282383045.shtml)
-- [特朗普宣布美国将协助霍尔木兹海峡航运，“会赚到大钱！”](http://www.blog.kurohicncr.top/Article/details/02223.shtml)
-- [罕见！董事长变总经理](http://www.share.minike.top/Article/details/940088993795.shtml)
+- [浙师大儿童文学馆在金华开馆 百年童心有了“新家”](https://github.com/lisacumin64-arch)
+- [广西校园多彩民俗迎“三月三”](http://www.share.minike.top/Article/details/8864780.shtml)
+- [CoreWeave获Anthropic数十亿美元AI算力协议，股价大涨11%](http://www.blog.kurohicncr.top/Article/details/3810850.shtml)
+- [伊朗消息人士：美国同意解冻伊朗海外资产](https://github.com/lisacumin64-arch)
+- [京剧马派经典剧目《火牛阵》在福州上演](http://www.blog.minike.top/Article/details/34550583.shtml)
+- [蔚来李斌：20到30万级里，今年要全面应用旗舰级智驾芯片及智驾系统](http://www.blog.kurohicncr.top/Article/details/41451469.shtml)
+- [欧洲债市：德国国债下跌 交易员在美伊和谈前上调欧洲央行加息押注](http://www.blog.minike.top/Article/details/7267455998.shtml)
+- [清华大学教授李克强：去年智驾相关投诉比例激增，安全事故频发已引起社会公众质疑](http://www.share.minike.top/Article/details/6927942.shtml)
+- [新疆甘肃携手展史前彩陶西渐路](http://www.share.kurohicncr.top/Article/details/729574439259.shtml)
+- [高起点，高要求，汇丰、渣打为何能拿下首批稳定币牌照](http://www.blog.minike.top/Article/details/1468094107.shtml)
+- [海南澄迈：“地瓜中的爱马仕”上市即出圈 远销海外](http://www.share.minike.top/Article/details/0362110605.shtml)
+- [乌称敖德萨遭无人机袭击 已致2死2伤](http://www.blog.kurohicncr.top/Article/details/356301.shtml)
+- [房子被扔“燃烧瓶”，OpenAI CEO奥尔特曼公开发声](http://www.share.minike.top/Article/details/905044.shtml)
+- [美伊谈判前油价下跌](http://www.share.kurohicncr.top/Article/details/30434501268.shtml)
+- [（乡村行·看振兴）运河民俗何以持续“流淌”？江南网船会再现水上盛景](http://www.share.minike.top/Article/details/332660272600.shtml)

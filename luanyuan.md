@@ -1,64 +1,59 @@
-# 浙江破获特大非法经营烟草案 查获非法卷烟逾3万条
+# 京西碧云寺：伟人风范长留 两岸同胞连心
 
-> 更新时间：2026-06-29 11:06:42 UTC+8
+> 更新时间：2026-06-29 11:17:56 UTC+8
 
 ## 摘要
 
-中新网宁波4月8日电 (张斌 陈梦蝶 许桃)近日，浙江省宁波市公安局、宁波出入境边防检查站(下称：宁波边检站)、象山县公安局、象山县烟草专卖局四部门协作，破获一起特大非法经营烟草制品案，抓获犯罪嫌疑人11名，捣毁非法仓储窝点2处、仓库9间，现场查获各类非法卷烟3.5万余条，涉案价值900余万元。 今年年初，宁波边检站在深化港口口岸安全闭环管理工作中，通过大数
+中新社北京4月11日电 (记者 吕少威)春深四月，京西香山层峦叠翠，丹花映衬古刹。历经近七百载沧桑的碧云寺，于春光中更显庄严肃穆。山门前，天南海北的访客纷至沓来，既为探寻古寺清幽之境，更为缅怀孙中山先生。 碧云寺坐落于北京香山公园北麓，始建于元朝至顺二年(公元1331年)。1925年3月12日，孙中山在北京逝世，他的灵柩于当年4月2日移至碧云寺金刚宝座塔石券
 
 ## 正文
 
-中新网宁波4月8日电 (张斌 陈梦蝶 许桃)近日，浙江省宁波市公安局、宁波出入境边防检查站(下称：宁波边检站)、象山县公安局、象山县烟草专卖局四部门协作，破获一起特大非法经营烟草制品案，抓获犯罪嫌疑人11名，捣毁非法仓储窝点2处、仓库9间，现场查获各类非法卷烟3.5万余条，涉案价值900余万元。
+中新社北京4月11日电 (记者 吕少威)春深四月，京西香山层峦叠翠，丹花映衬古刹。
 
-今年年初，宁波边检站在深化港口口岸安全闭环管理工作中，通过大数据分析发现丁某某存在非法经营烟草制品的嫌疑。
+历经近七百载沧桑的碧云寺，于春光中更显庄严肃穆。
 
-宁波边检站、象山县公安局海防大队随即开展线索研判，围绕丁某某进行外围摸排，并与宁波市公安局治安管理支队(海防管理支队)会商，成立专班开展前期侦查。
+山门前，天南海北的访客纷至沓来，既为探寻古寺清幽之境，更为缅怀孙中山先生。
 
-经查，丁某某在未取得烟草专卖零售许可证的情况下，长期非法收购各类卷烟，依托港口周边人脉资源，租用多处仓库，通过网络渠道联络买家大肆分销。
+碧云寺坐落于北京香山公园北麓，始建于元朝至顺二年(公元1331年)。
 
-在宁波市公安局统筹部署下，四部门启动跨领域联合研判机制，抽调骨干力量组建联合专案组。
+1925年3月12日，孙中山在北京逝世，他的灵柩于当年4月2日移至碧云寺金刚宝座塔石券门内暂厝。
 
-专案组发现，以丁某某为首的非法经营团伙组织严密、分工明确，形成“非法收购——隐蔽存储——物流运输——网络分销”的完整犯罪链条，活动范围覆盖全国多个省份。
+四年后，移灵南下前，宋庆龄及亲属等在此为孙中山敛服，将更换出的中山先生衣帽封入金刚宝座塔石塔内，并在寺内普明妙觉殿(现孙中山纪念堂)设灵堂、举行灵榇奉移典礼。
 
-4月2日，在统一调度下，20余名警力与烟草稽查人员同步出击，赴涉案仓库开展集中抓捕行动，一举抓获主犯丁某某等犯罪嫌疑人11名，查扣作案手机8部，以及账本、物流单据等关键证据一批，实现全链条打击。
+此后，此地成为追思世纪伟人的重要纪念场所。
 
 ## 相关推荐
 
-- [沙特关键东西向输油管道遭无人机袭击 受损情况仍在评估中](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liaozeng.md)
-- [一起感受下迫击炮实弹现场吧！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banwu.md)
-- [越走越亲！中越姐妹共庆“三月三”同叙边关情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongfei.md)
-- [中阿巴三方代表在乌鲁木齐举行非正式会晤 外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanmang.md)
-- [皇氏集团从“减亏”到巨亏，祸起一家合营企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gongjian.md)
-- [AI巨头可能重塑IPO窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanmai.md)
-- [刚刚，影像巨头迎来“新掌门”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/taizi.md)
-- [一封信，四校师生共答时代命题丨求实学、务实业 学习贯彻总书记回信精神④](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xude.md)
-- [卡组织们的焦虑与突围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songhan.md)
-- [北京金融管理部门联合召开做好首都金融“五篇大文章”2026年第1次（总第4次）工作会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
-- [尼日利亚西北部多村庄遭袭 至少20人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuangeng.md)
-- [战事冲击叠加关税余波 双重压力下美联储陷入两难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duren.md)
-- [湖北今年以来最强降雨过程来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sunqing.md)
-- [TACO如期而至，港股互联网大反攻！华宝基金港股互联网ETF（513770）冲击5%！龙头集体起立，美团暴涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cuyin.md)
-- [战事冲击对冲基金，宏观交易员3月遭遇惨重亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paizen.md)
-- [主流券商开户APP横评：新浪财经APP为何更适合普通投资者？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beiren.md)
-- [OEXN:油市紧张预期与价格背离风险加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zeming.md)
-- [中方为平息伊朗战事作出哪些努力？外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lutiao.md)
-- [18,057辆！比亚迪斩获曼谷车展销量第一！中国新能源改写泰国车市格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shengduan.md)
-- [全国人大常委会部分组成人员参加义务植树](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jianquan.md)
+- [伊朗媒体：伊美谈判可能延长一天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xixia.md)
+- [李斌：蔚来高峰时一年要买3亿美元的英伟达芯片，自研芯片已经替公司省了很多钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tipeng.md)
+- [平陆运河划定河海分界线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pengchai.md)
+- [张雪拍卖机车 45秒后“光速结束” 款项全部捐给李亚鹏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuangeng.md)
+- [霍尔木兹海峡的海军对峙，凸显美伊谈判的极高风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shangxu.md)
+- [中国钢铁工业协会：建立钢铁行业产能治理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jianquan.md)
+- [中缅边境云南澜沧万人同庆葫芦节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanmai.md)
+- [伊朗消息人士：伊美或举行新一轮谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanruo.md)
+- [阿耳特弥斯二号宇航员从月球归来 将溅落地球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suozhen.md)
+- [浙师大儿童文学馆在金华开馆 百年童心有了“新家”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuainian.md)
+- [广西校园多彩民俗迎“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gongjian.md)
+- [CoreWeave获Anthropic数十亿美元AI算力协议，股价大涨11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiqiao.md)
+- [伊朗消息人士：美国同意解冻伊朗海外资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongran.md)
+- [京剧马派经典剧目《火牛阵》在福州上演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luanmang.md)
+- [蔚来李斌：20到30万级里，今年要全面应用旗舰级智驾芯片及智驾系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuipu.md)
 
 ## 延伸阅读
 
-- [罕见！董事长变总经理](http://www.share.minike.top/Article/details/600595.shtml)
-- [伊朗发动“真实承诺-4”第100轮攻势 打击美以目标](https://github.com/lisacumin64-arch)
-- [收评|股指期货全线上涨 中证500股指期货主力合约涨5.96%](http://www.share.kurohicncr.top/Article/details/94378075739.shtml)
-- [光大银行：注册资本增至590.9亿元](https://github.com/lisacumin64-arch)
-- [CBA常规赛：吉林大胜四川](http://www.blog.kurohicncr.top/Article/details/3784448833.shtml)
-- [ATFX:美伊达成两周停火协议 WTI暴跌15美元](http://www.blog.minike.top/Article/details/4112466034.shtml)
-- [进出口银行党委召开2026年第一轮巡视动员部署会](http://www.blog.kurohicncr.top/Article/details/96811260951.shtml)
-- [“牛市旗手”券商板块表现强势，证券ETF富国（515850）盘中涨幅达3.90%](http://www.share.kurohicncr.top/Article/details/30111229.shtml)
-- [东西问｜当250年历史的国家威胁毁掉5000年文明](http://www.share.kurohicncr.top/Article/details/75542726347.shtml)
-- [两高：依法从严惩处涉民航飞行安全违法犯罪](http://www.share.kurohicncr.top/Article/details/55225.shtml)
-- [统战赋能春耕一线 江西玉山绘就春耕同心画卷](http://www.blog.minike.top/Article/details/3081804.shtml)
-- [东亚银行：下调今年恒指目标至点 悲观情景下或回调点](http://www.share.minike.top/Article/details/30685.shtml)
-- [中国官方：将健全完善较大亡人火灾备案审查制度](http://www.blog.minike.top/Article/details/526029463726.shtml)
-- [伊朗议长将率团前往巴基斯坦首都参加伊美谈判](http://www.share.minike.top/Article/details/86859880.shtml)
-- [邮储银行山西省大同市分行被罚6万元：未按规定收缴假币](https://github.com/lisacumin64-arch)
+- [（乡村行·看振兴）运河民俗何以持续“流淌”？江南网船会再现水上盛景](http://www.share.kurohicncr.top/Article/details/8608228.shtml)
+- [伊朗代表团强调解冻资产及实现黎巴嫩“真正停火”](http://www.share.kurohicncr.top/Article/details/025076924904.shtml)
+- [尾盘：主要股指本周均将录得涨幅](http://www.blog.minike.top/Article/details/69997218544.shtml)
+- [2026赛季中乙联赛：山西崇德荣海不敌山东泰山B队](http://www.blog.minike.top/Article/details/573152818.shtml)
+- [“长征90载·宁化再出发”房车主题活动启幕 百余名车友重走红色征程](http://www.blog.minike.top/Article/details/155727.shtml)
+- [4月11日隔夜要闻：美股三大股指本周均涨超3% 美油创六年来最大单周跌幅 铜价三周连涨 市场聚焦美伊周末会谈](http://www.share.kurohicncr.top/Article/details/28596847.shtml)
+- [卓驭科技CEO沈劭劼：未来两年，全球辅助驾驶行业将全面拥抱基础模型](http://www.blog.kurohicncr.top/Article/details/82074.shtml)
+- [号称年入18亿美元的“一人公司”翻车，极致效率背后是极致脆弱？](http://www.share.kurohicncr.top/Article/details/301004843510.shtml)
+- [一张图看懂2026年3月美国通胀明细](http://www.share.minike.top/Article/details/09905.shtml)
+- [南非柑橘输华检疫标准优化](http://www.blog.minike.top/Article/details/8624759.shtml)
+- [蔚来李斌：电芯规格不统一，成为制约车企发展的严重问题](http://www.blog.kurohicncr.top/Article/details/333084.shtml)
+- [特朗普称赞“世界上最强大的重置” 但未作详细说明](http://www.share.minike.top/Article/details/766991.shtml)
+- [美国稀土CEO回应国会质疑：力挺特朗普政府16亿美元投资计划](http://www.share.kurohicncr.top/Article/details/02654632.shtml)
+- [【东西问】王馗：梅兰芳1930年访美演出为何具有里程碑意义？](http://www.share.minike.top/Article/details/3261747.shtml)
+- [深圳铁路实施新的列车运行图 促湾区与粤东融合](http://www.blog.minike.top/Article/details/6600853902.shtml)
