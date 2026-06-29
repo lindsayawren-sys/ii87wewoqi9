@@ -1,61 +1,58 @@
-# 光大期货：4月3日能源化工日报
+# 湖南永州爱心人士深山慰问“中国好人”谢红军
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周四内外盘油价有所分化，其中WTI 5月合约收盘上涨11.42美元至111.54美元/桶，涨幅11.41%。布伦特6月合约收盘上涨7.87美元至109.03美元/桶，涨幅7.78%。SC2605以713.2元/桶收盘，上涨25.8元/桶，涨幅3.75%。美国总统特朗普在晚间全国讲话中警告称，将在
+中新网永州4月10日电 (邓卓 陈鹏博 唐佳莉)近日，湖南永州东安县爱心人士与青年志愿者一行，走进舜皇山深处，为坚守无名红军墓半生的谢红军送去一台冰箱，致敬其家族三代人九十二年的红色坚守。 爱心人士赵波带领青年志愿者从县城出发，前往舜皇山红军村。该村山路崎岖陡峭、草木丛生，四名志愿者轮流扛起百余斤的冰箱，历经2个小时跋涉，抵达住在半山腰的谢红军家中。 “一百多斤的冰箱，我们四个
 
 ## 正文
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周四内外盘油价有所分化，其中WTI 5月合约收盘上涨11.42美元至111.54美元/桶，涨幅11.41%。
+中新网永州4月10日电 (邓卓 陈鹏博 唐佳莉)近日，湖南永州东安县爱心人士与青年志愿者一行，走进舜皇山深处，为坚守无名红军墓半生的谢红军送去一台冰箱，致敬其家族三代人九十二年的红色坚守。
 
-布伦特6月合约收盘上涨7.87美元至109.03美元/桶，涨幅7.78%。
+爱心人士赵波带领青年志愿者从县城出发，前往舜皇山红军村。
 
-SC2605以713.2元/桶收盘，上涨25.8元/桶，涨幅3.75%。
+该村山路崎岖陡峭、草木丛生，四名志愿者轮流扛起百余斤的冰箱，历经2个小时跋涉，抵达住在半山腰的谢红军家中。
 
-美国总统特朗普在晚间全国讲话中警告称，将在未来两到三周内对伊朗采取进一步军事行动，这打击了市场对冲突即将缓和的希望，并推高了油价，此举可能延长霍尔木兹海峡能源供应受阻的时间。
+“一百多斤的冰箱，我们四个人轮流扛还把肩膀磨红了，但这趟值得。
 
-伊朗外交部发言人巴加埃表示，伊朗决定对船只通行采取具体措施的原因很简单，因为伊朗需要确保侵略者及其船只不会滥用霍尔木兹海峡对伊朗发动军事侵略，这是基于国际法。
+”青年志愿者周云文说。
 
-本周日将举行OPEC八个成员国月度会议。
+红军村原名大坳村，因红军途经此地更名。
 
-欧佩克和非欧佩克中的8个主要产油国预计将讨论再次上调产量。
+1934年湘江战役后，一支红军队伍路过舜皇山时，将一名重伤员托付给谢红军的爷爷。
 
-欧佩克此前于3月1日发表声明称，八个主要产油国决定4月日均增产20.6万桶。
+战士牺牲后，谢红军的爷爷将其安葬并许下“世代守护”的承诺。
 
 ## 相关推荐
 
-- 2026-06-29 16:07 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 15:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 15:59 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 15:45 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 16:06 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 16:04 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 16:04 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 16:04 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 16:04 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 16:11 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 16:08 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 15:42 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 15:42 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 16:00 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 15:59 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 16:01 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 16:09 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 15:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 15:53 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 16:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 16:08 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 15:52 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 16:01 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 15:51 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 15:49 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 16:00 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 15:57 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:46 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/20342.shtml)
-- 2026-06-29 15:53 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/66527.shtml)
-- 2026-06-29 16:11 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/893675245.shtml)
-- 2026-06-29 16:03 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/44673.shtml)
-- 2026-06-29 15:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/7789888.shtml)
-- 2026-06-29 16:07 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/57708830.shtml)
-- 2026-06-29 16:02 - [乔家的儿女](http://www.share.minike.top/Article/details/0940430616.shtml)
-- 2026-06-29 16:08 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/94260705554.shtml)
-- 2026-06-29 16:06 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/885635.shtml)
-- 2026-06-29 15:48 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/646707.shtml)
-- 2026-06-29 16:04 - [青春环游记第三季](http://www.share.minike.top/Article/details/12265.shtml)
-- 2026-06-29 15:51 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/92643814474.shtml)
-- 2026-06-29 16:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/64676.shtml)
-- 2026-06-29 16:08 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/83933250043.shtml)
-- 2026-06-29 16:08 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/883116013555.shtml)
+- 2026-06-29 16:02 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/233083784839.shtml)
+- 2026-06-29 16:07 - [行程万里不忘初心](http://www.share.minike.top/Article/details/385481.shtml)
+- 2026-06-29 15:56 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/727872387.shtml)
+- 2026-06-29 15:51 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/9297815.shtml)
+- 2026-06-29 15:54 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/70645.shtml)
+- 2026-06-29 15:52 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/7282426040.shtml)
+- 2026-06-29 15:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/16733493455.shtml)
+- 2026-06-29 15:49 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/4642828.shtml)
+- 2026-06-29 15:52 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/4363983306.shtml)
+- 2026-06-29 16:10 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/8231388043.shtml)
+- 2026-06-29 16:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/9164198.shtml)
+- 2026-06-29 16:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/421548723.shtml)
+- 2026-06-29 16:06 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/925477542747.shtml)
+- 2026-06-29 15:58 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/0074969.shtml)
+- 2026-06-29 16:17 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/773715662420.shtml)

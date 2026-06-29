@@ -1,60 +1,57 @@
-# 特朗普称美国将在两三周内结束对伊战争 霍尔木兹海峡由他国自行解决
+# 北京各类学校人工智能应用覆盖率达87.7%
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-特朗普表示，他预计美国将在两到三周内结束对伊朗的战争，暗示美方已基本实现军事目标，并将把霍尔木兹海峡问题留给其他国家解决。 特朗普周二在白宫对记者表示：“我会说在两周内，也可能是三周，我们会离开，因为我们没有理由继续这样做。” 特朗普还暗示在此期间伊朗仍有可能与美国达成协议，但强调结束战争并不以与德黑兰达成协议为前提。特朗普称，一旦伊朗无法获得核武器，美国就会离开。他同时声称，
+中国青年报客户端北京4月10日电（中青报·中青网记者 杨洁）记者今天从教育部新闻发布会上获悉，截至2025年底，北京学校人工智能应用覆盖率达到了87.7%，同时推动教师从“会用AI”向“善用AI”升级。北京市教委主任李奕介绍，在基础教育阶段，北京研制《北京市中小学人工智能教育地方课程纲要》。全市中小学每学年开足开好8学时的通识课程，组建市、区两级的“AI教育讲师团”，汇聚高校、
 
 ## 正文
 
-特朗普表示，他预计美国将在两到三周内结束对伊朗的战争，暗示美方已基本实现军事目标，并将把霍尔木兹海峡问题留给其他国家解决。
+中国青年报客户端北京4月10日电（中青报·中青网记者 杨洁）记者今天从教育部新闻发布会上获悉，截至2025年底，北京学校人工智能应用覆盖率达到了87.7%，同时推动教师从“会用AI”向“善用AI”升级。
 
-特朗普周二在白宫对记者表示：“我会说在两周内，也可能是三周，我们会离开，因为我们没有理由继续这样做。
+北京市教委主任李奕介绍，在基础教育阶段，北京研制《北京市中小学人工智能教育地方课程纲要》。
 
-” 特朗普还暗示在此期间伊朗仍有可能与美国达成协议，但强调结束战争并不以与德黑兰达成协议为前提。
+全市中小学每学年开足开好8学时的通识课程，组建市、区两级的“AI教育讲师团”，汇聚高校、科研院所、高科技企业的专家“送课到校”。
 
-特朗普称，一旦伊朗无法获得核武器，美国就会离开。
+在高等教育和职业教育阶段，高质量开设459门人工智能通识课，建设人工智能及“人工智能+”这个辅修专业和微专业，打造数智书院。
 
-他同时声称，当前执政的伊朗政权好于战前的领导层。
+北京市高校现在已经建成11个“智能科学与技术”一级学科、36个人工智能本专科专业，支持48所高校设立人工智能学院（系）和研究院，高水平建设北京市中关村学院，探索人才培养新模式。
 
-特朗普表示，他预计美国将在两到三周内结束对伊朗的战争。
+此外，北京支持国家智慧教育示范区，以及教育部人工智能教育基地校的建设，培育百所北京市智慧校园示范校、百所人工智能标杆校，25项高校应用入选了教育部人工智能典型应用场景。
 
-他说：“我们现在已经发生了政权更迭。
-
-政权更迭从来不是我的目标之一。
+来源：中国青年报客户端
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 15:53 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 15:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 15:49 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 15:58 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 16:09 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 15:53 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 16:05 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 15:58 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 16:08 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 15:57 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 15:43 - [T1 KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 16:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 15:55 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 15:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 16:06 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 16:07 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 16:01 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 16:00 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 15:55 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 16:11 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 16:13 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 15:49 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 15:56 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 15:57 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 16:06 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 15:59 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/3405202.shtml)
-- 2026-06-29 15:54 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/004688171977.shtml)
-- 2026-06-29 16:08 - [广东一地发现极危植物新物种](http://www.blog.kurohicncr.top/Article/details/4970070.shtml)
-- 2026-06-29 16:06 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/731978.shtml)
-- 2026-06-29 15:58 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/07817649328.shtml)
-- 2026-06-29 15:48 - [扫黑风暴](http://www.share.minike.top/Article/details/01033875759.shtml)
-- 2026-06-29 16:11 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.minike.top/Article/details/788663705646.shtml)
-- 2026-06-29 15:52 - [媒体：网络测评不能只剩“生意”](https://www.blog.kurohicncr.top/Article/details/98260.shtml)
-- 2026-06-29 15:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/99729.shtml)
-- 2026-06-29 16:00 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/8631047.shtml)
-- 2026-06-29 16:00 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/561978.shtml)
-- 2026-06-29 15:42 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/219368708.shtml)
-- 2026-06-29 16:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/03295484.shtml)
-- 2026-06-29 15:44 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/75127.shtml)
-- 2026-06-29 16:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/8089404961.shtml)
+- 2026-06-29 16:08 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/87257461994.shtml)
+- 2026-06-29 16:00 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/514750.shtml)
+- 2026-06-29 15:59 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/48772392.shtml)
+- 2026-06-29 15:57 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/57550080.shtml)
+- 2026-06-29 16:09 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/0596295.shtml)
+- 2026-06-29 15:50 - [普京介绍前线战事](http://www.share.minike.top/Article/details/9421237.shtml)
+- 2026-06-29 16:08 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/894146973.shtml)
+- 2026-06-29 16:04 - [恋与深空 731](https://www.share.minike.top/Article/details/243522072119.shtml)
+- 2026-06-29 16:14 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/89791372.shtml)
+- 2026-06-29 16:13 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/06462549.shtml)
+- 2026-06-29 15:58 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.kurohicncr.top/Article/details/252752.shtml)
+- 2026-06-29 16:17 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/6268573884.shtml)
+- 2026-06-29 16:06 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/2494452935.shtml)
+- 2026-06-29 15:53 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/242267206756.shtml)
+- 2026-06-29 15:50 - [20年前的周杰伦](https://www.share.minike.top/Article/details/07986915453.shtml)

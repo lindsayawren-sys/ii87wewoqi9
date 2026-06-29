@@ -1,59 +1,58 @@
-# 国富氢能早盘涨超10% 公司中标摩洛哥制氢项目并签约国内加氢站订单
+# 长江首艘空间智能游轮在湖北宜昌亮相
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-国富氢能（02582）早盘涨超10%，截至发稿，股价上涨10.07%，现报26.46港元，成交额4430.78万港元。 国富氢能发布公告，于2026年4月6日，本公司与本公司联营公司GFHydrogenAfricaSarl订立销售协议（销售协议A），内容有关提供20MW制氢系统，对价为620万美元。于2026年3月30日，本公司与独立第三方广东云韬氢能科技有限公司（云韬）订立销
+中新网宜昌4月10日电 (董晓斌 朱延筠 谭英)“长江行·揽月”10日在湖北宜昌正式亮相。据宜昌交运长江游轮有限公司介绍，该船是长江首艘空间智能游轮，也是目前国内增程式系统电池容量最大的新能源混合动力省际度假游轮。 “长江行·揽月”投资约3亿元，由宜昌交运长江游轮有限公司打造。游轮总长约150米、型宽近23米、总吨位近1.7万吨，可载客650人。 作为“绿色+智能”游轮，“长江
 
 ## 正文
 
-国富氢能（02582）早盘涨超10%，截至发稿，股价上涨10.07%，现报26.46港元，成交额4430.78万港元。
+中新网宜昌4月10日电 (董晓斌 朱延筠 谭英)“长江行·揽月”10日在湖北宜昌正式亮相。
 
-国富氢能发布公告，于2026年4月6日，本公司与本公司联营公司GFHydrogenAfricaSarl订立销售协议（销售协议A），内容有关提供20MW制氢系统，对价为620万美元。
+据宜昌交运长江游轮有限公司介绍，该船是长江首艘空间智能游轮，也是目前国内增程式系统电池容量最大的新能源混合动力省际度假游轮。
 
-于2026年3月30日，本公司与独立第三方广东云韬氢能科技有限公司（云韬）订立销售协议（销售协议B，连同销售协议A，统称“该等销售协议”），内容有关提供不少于五座加氢站及相关安装服务，对价为人民币3205万元。
+“长江行·揽月”投资约3亿元，由宜昌交运长江游轮有限公司打造。
 
-摩洛哥为非洲绿色氢能最重要的市场，对本集团的国际布局具有重大意义。
+游轮总长约150米、型宽近23米、总吨位近1.7万吨，可载客650人。
 
-于签署销售协议A之前，本公司已作为首家中国制造商向摩洛哥交付一套用于科研与教学用途的制氢系统，并获当地市场认可。
+作为“绿色+智能”游轮，“长江行·揽月”搭载增程式发电机组、高性能电控及电机系统，并应用大型中央直流变频空调系统，船舶空调系统综合节能20%，综合续航达1500公里。
 
-通过订立销售协议B，本公司与云韬将长三角的装备制造能力与珠三角的政策支持与终端市场进行对接，有助于推动两大氢能产业集聚区的跨区域协同发展，助力粤港澳大湾区氢走廊的蓬勃发展。
+同时，游轮携手华为联合开发智能舱室，将鸿蒙空间智能系统深度融入旅居体验。
 
-责任编辑：卢昱君
+舱门配备高清智能电子门牌，实时显示动态及个性化欢迎信息，支持手机NFC及人脸识别便捷开门，实现“人到即享”的智能旅居体验。
+
+为打造“水上休闲度假综合体”，“长江行·揽月”首创全流程沉浸式游轮剧场体验，将三峡千年文脉融入航行全程，同时策划一价全含精品航线，深度游览瞿塘峡、巫峡、西陵峡，一站式满足游客“吃住行娱”的高品质需求。
 
 ## 相关推荐
 
-- 2026-06-29 16:09 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 15:48 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 15:46 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 16:09 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 16:01 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 16:02 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 15:49 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 15:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 15:58 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 15:49 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 16:01 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 15:56 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 15:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 15:56 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 15:42 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 15:51 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 16:11 - [评论员：日菲勾连各有盘算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 16:12 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 15:59 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 16:03 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 16:08 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 16:17 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 15:52 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 15:49 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 16:00 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 16:04 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 15:59 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:51 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/99526.shtml)
-- 2026-06-29 15:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/925006545.shtml)
-- 2026-06-29 15:57 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/99033.shtml)
-- 2026-06-29 16:10 - [周杰伦演唱会真的好多人啊](https://www.blog.minike.top/Article/details/07223800.shtml)
-- 2026-06-29 16:05 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/2153308272.shtml)
-- 2026-06-29 15:49 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/685730.shtml)
-- 2026-06-29 15:44 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/56821548850.shtml)
-- 2026-06-29 15:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/940382787.shtml)
-- 2026-06-29 15:51 - [博主：美航母沦为毒品集散窝点](http://www.blog.minike.top/Article/details/362334702.shtml)
-- 2026-06-29 16:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/8195184.shtml)
-- 2026-06-29 16:03 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/1153854.shtml)
-- 2026-06-29 15:53 - [105年初心滚烫](https://www.share.minike.top/Article/details/946095.shtml)
-- 2026-06-29 16:08 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/434820200488.shtml)
-- 2026-06-29 16:06 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/8617042.shtml)
-- 2026-06-29 15:59 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/393639257079.shtml)
+- 2026-06-29 15:58 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/061489.shtml)
+- 2026-06-29 16:09 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/48921150.shtml)
+- 2026-06-29 15:59 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/06510.shtml)
+- 2026-06-29 16:01 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/22755.shtml)
+- 2026-06-29 16:10 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/44385851.shtml)
+- 2026-06-29 16:01 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/742515777.shtml)
+- 2026-06-29 15:51 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/36775.shtml)
+- 2026-06-29 15:55 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/156296.shtml)
+- 2026-06-29 15:55 - [网警提醒4类高考查分陷阱考生速看](http://www.share.kurohicncr.top/Article/details/62521.shtml)
+- 2026-06-29 16:10 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.kurohicncr.top/Article/details/737096.shtml)
+- 2026-06-29 16:09 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/09423765544.shtml)
+- 2026-06-29 16:07 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/4356699802.shtml)
+- 2026-06-29 16:11 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/8019679642.shtml)
+- 2026-06-29 16:08 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.kurohicncr.top/Article/details/3045995237.shtml)
+- 2026-06-29 16:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/12160407177.shtml)

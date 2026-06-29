@@ -1,50 +1,56 @@
-# 心泰医疗建议H股回购计划
+# 68艘空油轮正驶向美国：亚洲抢油，美国出口料将创纪录
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-心泰医疗（02291）发布公告，公司董事会董事长已向董事会提议采纳一项计划（建议H股回购计划），据此，公司可视乎市况，并不时根据本公司股东于股东大会上批准的回购H股的一般性授权（建议回购授权），于公开市场回购公司H股。 目前预计根据建议H股回购计划，公司将动用不超过人民币1亿元，于公开市场回购最多550万股H股。责任编辑：卢昱君
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 根据Kpler的数据，目前有68艘空载油轮正在驶往美国的途中，而2月28日战争爆发前一周这一数字为24艘。去年的平均水平是27艘。Kpler的数据基于油轮预订和预计抵达时间。 “一支油轮舰队正朝这边驶来，”Kpler分析师马特·史密斯（Matt Smith）表示。 出口激增凸显了美国作为全球
 
 ## 正文
 
-心泰医疗（02291）发布公告，公司董事会董事长已向董事会提议采纳一项计划（建议H股回购计划），据此，公司可视乎市况，并不时根据本公司股东于股东大会上批准的回购H股的一般性授权（建议回购授权），于公开市场回购公司H股。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-目前预计根据建议H股回购计划，公司将动用不超过人民币1亿元，于公开市场回购最多550万股H股。
+来源：金十数据 根据Kpler的数据，目前有68艘空载油轮正在驶往美国的途中，而2月28日战争爆发前一周这一数字为24艘。
 
-责任编辑：卢昱君
+去年的平均水平是27艘。
+
+Kpler的数据基于油轮预订和预计抵达时间。
+
+“一支油轮舰队正朝这边驶来，”Kpler分析师马特·史密斯（Matt Smith）表示。
+
+出口激增凸显了美国作为全球“摇摆供应者”的角色日益重要，但来自亚洲的竞争也可能推高美国国内价格，加深对特朗普发动的伊朗战争引发新一轮通胀的担忧。
+
+这场冲突使亚洲特别容易受到供应中断的影响，因为2025年通过霍尔木兹海峡的石油和石油产品中，约80%是运往亚洲。
+
+周二美伊宣布的为期两周的脆弱停火，给人们带来了希望：这条至关重要的水道在经过数周几乎完全关闭后，将重新对油轮全面开放。
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 16:05 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 15:59 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 16:00 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 16:06 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 15:51 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 15:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 15:52 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 15:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 15:54 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 15:54 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 15:51 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 15:55 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 15:53 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 16:08 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 16:00 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 16:17 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 16:07 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 16:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 16:07 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 16:15 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 16:17 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 16:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 16:09 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:48 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/1346158375.shtml)
-- 2026-06-29 15:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/9466092.shtml)
-- 2026-06-29 15:49 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/36172.shtml)
-- 2026-06-29 16:02 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/20921367.shtml)
-- 2026-06-29 16:06 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/57681831728.shtml)
-- 2026-06-29 16:02 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/48946.shtml)
-- 2026-06-29 16:00 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/99773249951.shtml)
-- 2026-06-29 15:45 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/2684643693.shtml)
-- 2026-06-29 16:02 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/945405.shtml)
-- 2026-06-29 15:48 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.minike.top/Article/details/073462611083.shtml)
-- 2026-06-29 16:04 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/062166.shtml)
-- 2026-06-29 15:53 - [国家体育总局政策法规司原副司长获刑](http://www.blog.minike.top/Article/details/058651.shtml)
-- 2026-06-29 15:48 - [勇敢的心第二部](http://www.share.minike.top/Article/details/63439364.shtml)
-- 2026-06-29 16:04 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/882189100886.shtml)
-- 2026-06-29 16:10 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/02864173.shtml)
+- 2026-06-29 16:06 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/1948108501.shtml)
+- 2026-06-29 16:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/937918255811.shtml)
+- 2026-06-29 16:12 - [小娘惹](http://www.share.minike.top/Article/details/686262205.shtml)
+- 2026-06-29 16:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/90830418954.shtml)
+- 2026-06-29 16:15 - [普京介绍前线战事](http://www.share.minike.top/Article/details/7697481.shtml)
+- 2026-06-29 15:49 - [速度与激情9](http://www.blog.minike.top/Article/details/23296.shtml)
+- 2026-06-29 16:11 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/06436.shtml)
+- 2026-06-29 15:51 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/014259.shtml)
+- 2026-06-29 16:10 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/720863.shtml)
+- 2026-06-29 16:01 - [欧盟为什么越来越倾向贸易保护](http://www.blog.minike.top/Article/details/233807776.shtml)
+- 2026-06-29 16:11 - [东方风云榜](https://www.share.minike.top/Article/details/719652427454.shtml)
+- 2026-06-29 16:15 - [博主：黄金和原油回落不等于风险消失](https://www.blog.kurohicncr.top/Article/details/22081659820.shtml)
+- 2026-06-29 16:14 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/7288419.shtml)
+- 2026-06-29 16:13 - [周生如故](http://www.share.minike.top/Article/details/67266488142.shtml)
+- 2026-06-29 16:04 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/764727379.shtml)

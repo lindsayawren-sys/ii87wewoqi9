@@ -1,60 +1,61 @@
-# 燃料价格飙升推高通胀之际 新西兰央行维持关键利率不变
+# 美国原油出口量料创纪录 全球供应吃紧
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-新西兰央行将关键利率维持在近四年低位，并表示将忽略燃油价格飙升带来的初期通胀影响。 该行货币政策委员会周三在惠灵顿宣布维持官方现金利率在2.25%不变，这与彭博调查的全部22位经济学家的预期一致。该基准利率处于2022年年中以来的最低水平。 “委员会密切关注任何普遍性的通胀压力，随时准备采取行动，使通胀率回归中期目标，”政策声明指出。“如果中期通胀预期上升，通胀很可能变得更加持
+美国墨西哥湾沿岸原油日出口量5月料创纪录，达到500万桶，因亚洲买家大量采购以弥补中东供应的减少。 根据当前装船情况，4月原油日出口量已逐步接近约490万桶，高于3月的约397万桶。 随着越来越多的超大型油轮（VLCC）在墨西哥湾沿岸装运，分析师目前预计，5月原油出口量将进一步上升。“美国原油出口看起来将延续我们在4月看到的强劲势头，”Kpler大宗商品研究主管Matt Smi
 
 ## 正文
 
-新西兰央行将关键利率维持在近四年低位，并表示将忽略燃油价格飙升带来的初期通胀影响。
+美国墨西哥湾沿岸原油日出口量5月料创纪录，达到500万桶，因亚洲买家大量采购以弥补中东供应的减少。
 
-该行货币政策委员会周三在惠灵顿宣布维持官方现金利率在2.25%不变，这与彭博调查的全部22位经济学家的预期一致。
+根据当前装船情况，4月原油日出口量已逐步接近约490万桶，高于3月的约397万桶。
 
-该基准利率处于2022年年中以来的最低水平。
+随着越来越多的超大型油轮（VLCC）在墨西哥湾沿岸装运，分析师目前预计，5月原油出口量将进一步上升。
 
-“委员会密切关注任何普遍性的通胀压力，随时准备采取行动，使通胀率回归中期目标，”政策声明指出。
+“美国原油出口看起来将延续我们在4月看到的强劲势头，”Kpler大宗商品研究主管Matt Smith表示。
 
-“如果中期通胀预期上升，通胀很可能变得更加持久。
+他补充称，随着亚洲需求保持高位，5月日出口量可能突破500万桶大关 —— 超过此前450万桶的纪录。
 
-不过，疲软的需求和经济中的闲置产能应该会限制成本上涨的转嫁程度。
+随着夏季需求高峰临近，如果出口持续激增，美国炼油商将不得不支付更高价格以将原油留在国内。
 
-” 政策决定公布后，新西兰元小幅走强。
+汽油价格已升至2022年以来最高水平，超过每加仑4美元，如果汽油价格进一步上涨，可能在即将到来的中期选举中给特朗普所属的共和党带来政治风险。
 
-惠灵顿时间14：05，新西兰元兑美元报0.5809。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 15:58 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 15:59 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 15:47 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 16:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 15:47 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 15:42 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 16:08 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 15:49 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 15:50 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 16:06 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 16:03 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 15:54 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 16:02 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 16:10 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 15:52 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 16:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 15:56 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 16:04 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 15:52 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 16:04 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 16:00 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 16:14 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 15:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 15:51 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 16:17 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 16:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 15:49 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 16:03 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 15:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [欧盟为什么越来越倾向贸易保护](http://www.blog.minike.top/Article/details/800239746105.shtml)
-- 2026-06-29 15:58 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.kurohicncr.top/Article/details/61572949185.shtml)
-- 2026-06-29 16:10 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.minike.top/Article/details/85458725.shtml)
-- 2026-06-29 15:55 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/29670.shtml)
-- 2026-06-29 15:48 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.kurohicncr.top/Article/details/21229.shtml)
-- 2026-06-29 15:50 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/645275767616.shtml)
-- 2026-06-29 16:05 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/237901586.shtml)
-- 2026-06-29 15:55 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/77367950.shtml)
-- 2026-06-29 15:51 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/581068.shtml)
-- 2026-06-29 16:01 - [网约车司机转账15000元后被乘客拉黑](http://www.share.minike.top/Article/details/87187091305.shtml)
-- 2026-06-29 15:53 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/924703700.shtml)
-- 2026-06-29 16:10 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/4989625925.shtml)
-- 2026-06-29 15:49 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/286123.shtml)
-- 2026-06-29 15:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/209750191453.shtml)
-- 2026-06-29 15:59 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.kurohicncr.top/Article/details/972261.shtml)
+- 2026-06-29 16:02 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/5699096.shtml)
+- 2026-06-29 15:48 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/0621745.shtml)
+- 2026-06-29 15:48 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/995660215.shtml)
+- 2026-06-29 16:06 - [周生如故](https://www.share.kurohicncr.top/Article/details/61517549219.shtml)
+- 2026-06-29 15:53 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/98029583388.shtml)
+- 2026-06-29 16:10 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/197659522.shtml)
+- 2026-06-29 16:02 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/00234.shtml)
+- 2026-06-29 15:57 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/295787313280.shtml)
+- 2026-06-29 16:14 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/7929398379.shtml)
+- 2026-06-29 15:51 - [央视曝光涉黄App诈骗陷阱](https://www.blog.minike.top/Article/details/77148328.shtml)
+- 2026-06-29 16:14 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/730133462506.shtml)
+- 2026-06-29 15:59 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/683386.shtml)
+- 2026-06-29 15:48 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/1395304.shtml)
+- 2026-06-29 16:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/34945.shtml)
+- 2026-06-29 15:57 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/041880.shtml)

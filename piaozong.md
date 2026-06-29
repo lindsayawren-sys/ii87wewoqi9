@@ -1,57 +1,52 @@
-# 仅上一财年分红9.69%后，7400亿郑州银行2025年继续不分红
+# A股燃气轮机板块涨幅居前
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-来源：今日行长 原标题：仅上一财年分红9.69%后，7400亿郑州银行2025年继续不分红！营收、净利双升，核心一级资本充足率仅为8.45%… 郑州银行2025年度利润再次继续不分红，原因几何？ 2026年3月30日，郑州银行董事会通过的2025年度利润分配预案公布：拟不进行现金分红，不送红股，不进行资本公积金转增股份。这是继2020-2023年该行连续四年未分红，2024年“
+上证报中国证券网讯（记者 王文嫣）截至4月10日10时39分，大智慧燃气轮机概念板块涨超3%。个股中，联德股份、中国动力、万泽股份涨停，汽轮科技、隆达股份、泰豪科技等涨幅居前。消息面上，亚马逊当地时间4月9日宣布，在美国密西西比州的计划总投资额已达250亿美元，预计在该州所有数据中心运营中创造2000个高技能就业岗位。信达证券相关研报认为，AI数据中心建设带动电力需求，燃气轮机
 
 ## 正文
 
-来源：今日行长 原标题：仅上一财年分红9.69%后，7400亿郑州银行2025年继续不分红！
+上证报中国证券网讯（记者 王文嫣）截至4月10日10时39分，大智慧燃气轮机概念板块涨超3%。
 
-营收、净利双升，核心一级资本充足率仅为8.45%… 郑州银行2025年度利润再次继续不分红，原因几何？
+个股中，联德股份、中国动力、万泽股份涨停，汽轮科技、隆达股份、泰豪科技等涨幅居前。
 
-2026年3月30日，郑州银行董事会通过的2025年度利润分配预案公布：拟不进行现金分红，不送红股，不进行资本公积金转增股份。
+消息面上，亚马逊当地时间4月9日宣布，在美国密西西比州的计划总投资额已达250亿美元，预计在该州所有数据中心运营中创造2000个高技能就业岗位。
 
-这是继2020-2023年该行连续四年未分红，2024年“短暂”分红9.69%后的又一次不分红决定。
+信达证券相关研报认为，AI数据中心建设带动电力需求，燃气轮机凭借启动速度快、调峰能力强、碳排放低的优势，成为解决美国等地区电力缺口的核心选择。
 
-该行对分配预案的表态是：留存未分配利润有利于夯实高质量发展的资金基础，增强风险抵御能力，为经营稳定提供有力保障。
-
-在刚刚结束的上市银行年度业绩会，多家银行官宣分红比例超过30%，更有甚者把“每年现金分红比例不低于30%”写进公司章程的背景下，郑州银行的选择在同业中略显“不同寻常”。
-
-在整个资本市场里，银行一直都是分红界的“卷王”，2024年42家A股上市银行分红总额超过6000亿，分红占比能到整个A股的27%；2025年，已公布财报的22家银行中，21家合计分红超过5800亿元，同比增百亿．．． 上市公司某一年度分红与否、分多少其实没有标准可言，可根据自身经营策略做决定，解剖郑州银行年度业绩情况或可对其分红选择有更深入理解。
-
-ST风险解除即停摆，郑州银行2025年继续不分红 新规来了才分红、躲过ST风险就停，郑州银行的分红轨迹呈现出戏剧性的波动。
+当前，GEV、西门子等国际燃气轮机巨头订单饱满，国内燃机产业链公司将因此充分受益。
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 16:10 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 16:06 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 15:46 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 15:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 16:00 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 15:55 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 15:56 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 15:59 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 15:48 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 15:54 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 15:51 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 15:48 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 16:10 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 15:57 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 16:03 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 16:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 15:57 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 15:52 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 16:00 - [普京介绍前线战事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 16:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 16:17 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 16:04 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/48873231.shtml)
-- 2026-06-29 16:02 - [梅朗雄主张法国退出北约](https://www.share.kurohicncr.top/Article/details/107062.shtml)
-- 2026-06-29 15:43 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/88390885055.shtml)
-- 2026-06-29 16:07 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/1474611.shtml)
-- 2026-06-29 16:07 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/33213404273.shtml)
-- 2026-06-29 16:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/007036.shtml)
-- 2026-06-29 15:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/124438834.shtml)
-- 2026-06-29 15:53 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.kurohicncr.top/Article/details/827561060.shtml)
-- 2026-06-29 16:06 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/25447998787.shtml)
-- 2026-06-29 15:43 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/84729544519.shtml)
-- 2026-06-29 15:50 - [千与千寻](https://www.share.kurohicncr.top/Article/details/389778.shtml)
-- 2026-06-29 16:05 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/54964.shtml)
-- 2026-06-29 16:02 - [人形机器人](https://www.blog.minike.top/Article/details/03007957977.shtml)
-- 2026-06-29 16:09 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/9080445925.shtml)
-- 2026-06-29 16:09 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/67872006244.shtml)
+- 2026-06-29 16:10 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/83620367.shtml)
+- 2026-06-29 16:08 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/871127267.shtml)
+- 2026-06-29 15:56 - [105年初心滚烫](https://www.blog.minike.top/Article/details/709824.shtml)
+- 2026-06-29 16:11 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/65430813.shtml)
+- 2026-06-29 15:55 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/777296428.shtml)
+- 2026-06-29 16:09 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/46746.shtml)
+- 2026-06-29 15:59 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/6339103.shtml)
+- 2026-06-29 16:17 - [央视起底直播诈骗连环套](https://www.blog.minike.top/Article/details/39066.shtml)
+- 2026-06-29 16:14 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/1367535.shtml)
+- 2026-06-29 15:48 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/522781157.shtml)
+- 2026-06-29 16:00 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/714057266302.shtml)
+- 2026-06-29 16:16 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/60637181872.shtml)
+- 2026-06-29 15:49 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/39478879.shtml)
+- 2026-06-29 15:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/261082865084.shtml)
+- 2026-06-29 16:05 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/30227456.shtml)

@@ -1,54 +1,57 @@
-# 伊朗最高国家安全委员会确认停火协议
+# 3连板后，华远控股实控人透露重组计划
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电 综合卡塔尔半岛电视台等最新报道，伊朗最高国家安全委员会发表声明，确认了经巴基斯坦斡旋达成的为期两周的停火协议。 声明表示，该协议对伊朗而言是一场“胜利”，并补充说有关达成永久性协议的谈判将在伊斯兰堡举行。 美国总统特朗普稍早前表示，他已同巴基斯坦总理夏巴兹和陆军参谋长穆尼尔对话，对方请求美方暂缓空袭伊朗，“我同意暂停对伊朗的轰炸和袭击两周，前提是伊朗伊斯兰共和
+华远控股4月9日晚公告称，公司实际控制人北京市西城区国资委正在筹划对下属部分企业集团进行重组。 公告显示，4月9日，公司收到控股股东华远集团发送的《北京市华远集团有限公司对的回函》。 根据回函内容，截至公告披露之日，公司实际控制人北京市西城区国资委正在筹划对下属部分企业集团进行重组，本次重组可能涉及公司控股股东华远集团。相关事项仍处于筹划阶段，交易各方尚未签署任何具有法律约束力
 
 ## 正文
 
-中新网4月8日电 综合卡塔尔半岛电视台等最新报道，伊朗最高国家安全委员会发表声明，确认了经巴基斯坦斡旋达成的为期两周的停火协议。
+华远控股4月9日晚公告称，公司实际控制人北京市西城区国资委正在筹划对下属部分企业集团进行重组。
 
-声明表示，该协议对伊朗而言是一场“胜利”，并补充说有关达成永久性协议的谈判将在伊斯兰堡举行。
+公告显示，4月9日，公司收到控股股东华远集团发送的《北京市华远集团有限公司对的回函》。
 
-美国总统特朗普稍早前表示，他已同巴基斯坦总理夏巴兹和陆军参谋长穆尼尔对话，对方请求美方暂缓空袭伊朗，“我同意暂停对伊朗的轰炸和袭击两周，前提是伊朗伊斯兰共和国同意全面、立即且安全地开放霍尔木兹海峡”。
+根据回函内容，截至公告披露之日，公司实际控制人北京市西城区国资委正在筹划对下属部分企业集团进行重组，本次重组可能涉及公司控股股东华远集团。
 
-“这将是一次双向停火。
+相关事项仍处于筹划阶段，交易各方尚未签署任何具有法律约束力的正式协议，尚存在不确定性。
 
-”
+本次重组不涉及公司的重大资产重组事项，不会导致公司实际控制人发生变更。
+
+同日，公司披露股票交易异常波动公告称，公司股票连续三个交易日内（4月7日、4月8日、4月9日）收盘价格涨幅偏离值累计达到20%，属于股票交易异常波动的情况。
+
+经公司自查，公司目前日常生产经营活动正常，市场环境、行业政策等外部经营环境以及公司内部经营情况均未发生重大变化或调整。
+
+华远控股2025年业绩预告显示，公司预计2025年实现营业收入3.06亿元—3.16亿元，扣除与主营业务无关的业务收入和不具备商业实质的收入后的营业收入为3.01亿元—3.07亿元；归母净利润预计亏损8500万元—1.15亿元。
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 15:54 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 16:00 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 16:01 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 15:42 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 15:52 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 16:04 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 16:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 15:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 15:45 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 16:08 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 16:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 15:51 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 15:56 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 16:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 15:59 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 15:54 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 16:13 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 16:17 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 16:05 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 16:06 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 16:09 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 15:54 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 16:06 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 15:55 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/28578708717.shtml)
-- 2026-06-29 15:55 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/5654723201.shtml)
-- 2026-06-29 16:02 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/81096.shtml)
-- 2026-06-29 15:50 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/148856933.shtml)
-- 2026-06-29 16:02 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/06281435.shtml)
-- 2026-06-29 15:49 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.kurohicncr.top/Article/details/992424.shtml)
-- 2026-06-29 15:56 - [啊啊啊](http://www.blog.minike.top/Article/details/51599263.shtml)
-- 2026-06-29 16:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/8858536291.shtml)
-- 2026-06-29 16:06 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/92820.shtml)
-- 2026-06-29 15:54 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/836879751.shtml)
-- 2026-06-29 15:48 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/83552068266.shtml)
-- 2026-06-29 16:11 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/86042753.shtml)
-- 2026-06-29 16:04 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/13048890.shtml)
-- 2026-06-29 16:08 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/926121623715.shtml)
-- 2026-06-29 15:45 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/79501558161.shtml)
+- 2026-06-29 16:15 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/73145.shtml)
+- 2026-06-29 16:12 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/946149929514.shtml)
+- 2026-06-29 16:04 - [金刚川](http://www.share.kurohicncr.top/Article/details/35761929129.shtml)
+- 2026-06-29 16:06 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/92504076.shtml)
+- 2026-06-29 15:54 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/422499.shtml)
+- 2026-06-29 15:48 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/746251.shtml)
+- 2026-06-29 15:55 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/9339922.shtml)
+- 2026-06-29 16:16 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/69365294.shtml)
+- 2026-06-29 15:48 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/411427757.shtml)
+- 2026-06-29 16:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/49939810.shtml)
+- 2026-06-29 16:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/76490.shtml)
+- 2026-06-29 15:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/500100276.shtml)
+- 2026-06-29 16:03 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/204184547622.shtml)
+- 2026-06-29 16:01 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/5563831687.shtml)
+- 2026-06-29 16:15 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/207956.shtml)

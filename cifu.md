@@ -1,61 +1,56 @@
-# 越走越亲！中越姐妹共庆“三月三”同叙边关情
+# 重庆宝山嘉陵江大桥主桥首个合龙段浇筑完成
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-春风拂边关，欢歌庆佳节。4月5日，正值广西三月三民俗节庆期间，由大新县妇联、宝圩乡党委主办的“同心绘锦绣 携手共芳华——2026年中越‘边关好姐妹’跨境联谊活动”，在大新县宝圩乡宝圩社区热闹举行。中方妇女代表与越南跨境妇女代表欢聚一堂，共话姐妹情谊、同赏民族文化，以巾帼之谊筑牢中越边境友好连心桥。 活动现场洋溢着浓浓的壮族风情与跨境友好氛围。一场以“强边固防守家园 清廉家风润民
+中新网重庆4月9日电(张旭)4月9日，重庆市住房和城乡建设委员会发布消息称，8日晚，随着最后一方混凝土顺利入模，宝山嘉陵江大桥主桥首个合龙段浇筑圆满完成，为后续全桥合龙及通车目标奠定了坚实基础。 宝山嘉陵江大桥是重庆快速路五联络线的核心组成部分，由重庆城投基础设施建设有限公司组织建设、中交二航局施工。 大桥主桥采用连续钢构设计，主跨跨径250米。本次合龙段长2米、梁高5米，混凝
 
 ## 正文
 
-春风拂边关，欢歌庆佳节。
+中新网重庆4月9日电(张旭)4月9日，重庆市住房和城乡建设委员会发布消息称，8日晚，随着最后一方混凝土顺利入模，宝山嘉陵江大桥主桥首个合龙段浇筑圆满完成，为后续全桥合龙及通车目标奠定了坚实基础。
 
-4月5日，正值广西三月三民俗节庆期间，由大新县妇联、宝圩乡党委主办的“同心绘锦绣 携手共芳华——2026年中越‘边关好姐妹’跨境联谊活动”，在大新县宝圩乡宝圩社区热闹举行。
+宝山嘉陵江大桥是重庆快速路五联络线的核心组成部分，由重庆城投基础设施建设有限公司组织建设、中交二航局施工。
 
-中方妇女代表与越南跨境妇女代表欢聚一堂，共话姐妹情谊、同赏民族文化，以巾帼之谊筑牢中越边境友好连心桥。
+大桥主桥采用连续钢构设计，主跨跨径250米。
 
-活动现场洋溢着浓浓的壮族风情与跨境友好氛围。
+本次合龙段长2米、梁高5米，混凝土方量55.2立方米，梁段重达143.2吨，对施工精度与安全管控提出了极高要求。
 
-一场以“强边固防守家园 清廉家风润民心”为主题的宣讲率先开讲，结合边关发展与家庭建设，传递家国情怀与优良家风理念，凝聚起守护边疆安宁、传承良好家风的巾帼力量。
+针对高空作业、江面施工、温度敏感等特点，项目团队实施全流程精细化管控。
 
-“这是我第一次参加‘三月三’活动，太开心了！
+根据施工安排，项目团队将于4月完成首个右幅中跨合龙，预计8月前实现主桥全桥合龙。
 
-”越南游客阮氏水兴奋地说，“这里的姐妹特别热情，五色糯米饭、壮锦、抛绣球都很有意思。
+作为串联蔡家组团与悦来组团的重要交通枢纽，大桥建成后将实现蔡家至中央公园10余分钟快速通达，有效完善重庆中心城区快速路网结构，缓解跨江交通压力，显著改善区域交通环境，助力两江新区协同发展。
 
-和大家一起做手工、跳舞，就像家人一样。
+重庆有中国“桥都”之称，跨江大桥众多，且在技术难度、跨径长度等方面，频频创造“中国之最”“世界之最”。
 
 ## 相关推荐
 
-- 2026-06-29 15:43 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 16:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 15:42 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 16:03 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 16:01 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 16:08 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 15:43 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 15:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 15:47 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 15:43 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 16:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 16:00 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 16:00 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 16:11 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 15:45 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 15:51 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 16:17 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 16:11 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 16:11 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 16:17 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 15:52 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 16:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 16:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 16:05 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 15:50 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:56 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/06839.shtml)
-- 2026-06-29 16:11 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/2008211.shtml)
-- 2026-06-29 15:52 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/26629840.shtml)
-- 2026-06-29 16:06 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/8843552.shtml)
-- 2026-06-29 15:50 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/295099740034.shtml)
-- 2026-06-29 15:53 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/719845869.shtml)
-- 2026-06-29 15:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/05261138072.shtml)
-- 2026-06-29 16:06 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/988398.shtml)
-- 2026-06-29 15:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/94406485737.shtml)
-- 2026-06-29 15:48 - [当我回母校教书](http://www.blog.minike.top/Article/details/539459.shtml)
-- 2026-06-29 15:51 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/03171.shtml)
-- 2026-06-29 15:57 - [工作靠AI算不算职场作弊](https://www.blog.kurohicncr.top/Article/details/775333905368.shtml)
-- 2026-06-29 15:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/37680454725.shtml)
-- 2026-06-29 15:51 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/51486.shtml)
-- 2026-06-29 16:10 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/03956036.shtml)
+- 2026-06-29 15:55 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/955600649.shtml)
+- 2026-06-29 15:48 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/837869.shtml)
+- 2026-06-29 16:05 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/173560466926.shtml)
+- 2026-06-29 16:13 - [沙丘](https://www.blog.kurohicncr.top/Article/details/354306488.shtml)
+- 2026-06-29 16:10 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/1780455100.shtml)
+- 2026-06-29 16:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/300785430513.shtml)
+- 2026-06-29 15:50 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/00117247.shtml)
+- 2026-06-29 16:12 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/11044396.shtml)
+- 2026-06-29 16:07 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/21315534.shtml)
+- 2026-06-29 16:07 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/21678015823.shtml)
+- 2026-06-29 16:17 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/693120378862.shtml)
+- 2026-06-29 16:11 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/38972012135.shtml)
+- 2026-06-29 15:58 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/2988170293.shtml)
+- 2026-06-29 15:49 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/87779.shtml)
+- 2026-06-29 15:55 - [光与夜之恋](http://www.share.minike.top/Article/details/32690.shtml)

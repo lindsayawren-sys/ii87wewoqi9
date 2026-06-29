@@ -1,60 +1,48 @@
-# 没完没了的OpenAI豪门大戏
+# 中央网信办、国家铁路局联合约谈7家涉火车票销售第三方平台
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-作者：马丁・皮尔斯 敢打赌吗？OpenAI 在上市之前，高管团队大概率会迎来一场大洗牌。周日，《信息》（The Information） 报道称，首席财务官萨拉・弗莱尔对公司上市准备情况以及能否兑现 AI 服务器相关投入承诺表示担忧。而周一，《纽约客》刊发了一篇关于首席执行官山姆・奥特曼的长篇人物特写，再度引发外界对其可信度的长期质疑。 这两位高管似乎已经很难再一起站在投资者面
+中新网4月10日电 据“网信中国”微信公众号消息，近日，依据《网络安全法》《关键信息基础设施安全保护条例》有关规定，中央网信办、国家铁路局联合约谈携程、同程、去哪儿、飞猪、美团、智行火车票、高铁管家等7家涉火车票销售业务的第三方互联网平台，要求相关平台应当严格落实网络安全相关法律法规要求，不得利用自动化程序实施大规模、高频次的抢票操作干扰铁路12306平台的安全核验措施，不得干
 
 ## 正文
 
-作者：马丁・皮尔斯 敢打赌吗？
+中新网4月10日电 据“网信中国”微信公众号消息，近日，依据《网络安全法》《关键信息基础设施安全保护条例》有关规定，中央网信办、国家铁路局联合约谈携程、同程、去哪儿、飞猪、美团、智行火车票、高铁管家等7家涉火车票销售业务的第三方互联网平台，要求相关平台应当严格落实网络安全相关法律法规要求，不得利用自动化程序实施大规模、高频次的抢票操作干扰铁路12306平台的安全核验措施，不得干扰、危害铁路12306平台的安全稳定运行。
 
-OpenAI 在上市之前，高管团队大概率会迎来一场大洗牌。
-
-周日，《信息》（The Information） 报道称，首席财务官萨拉・弗莱尔对公司上市准备情况以及能否兑现 AI 服务器相关投入承诺表示担忧。
-
-而周一，《纽约客》刊发了一篇关于首席执行官山姆・奥特曼的长篇人物特写，再度引发外界对其可信度的长期质疑。
-
-这两位高管似乎已经很难再一起站在投资者面前，可信地推进 IPO 路演了。
-
-据本报报道，奥特曼已将弗莱尔排除在部分关键会议之外，并将其降职，改为向自己的下属汇报，弗莱尔的职位看起来岌岌可危。
-
-但《纽约客》的这篇特写重新引发了对奥特曼管理风格的质疑，或许也在暗示：如果他离开，对公司反而更好。
-
-别忘了，Anthropic 首席执行官达里奥・阿莫迪也曾隐晦批评过 OpenAI 的风险管理方式。
+后续相关部门将加强技术监测，如发现利用技术手段干扰、危害铁路12306平台安全的行为，将依据《网络安全法》《关键信息基础设施安全保护条例》等法律法规严肃查处。
 
 ## 相关推荐
 
-- 2026-06-29 16:07 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 16:04 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 15:45 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 16:06 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 15:45 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 16:00 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 16:01 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 15:54 - [光与夜之恋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 15:49 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 15:54 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 15:56 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 15:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 16:05 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 16:02 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 16:01 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 16:01 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 15:54 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 15:52 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 16:09 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 15:59 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 15:51 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 16:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 16:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 15:56 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 16:03 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 16:12 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 15:49 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 15:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/018032266216.shtml)
-- 2026-06-29 15:45 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/464272863147.shtml)
-- 2026-06-29 15:53 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/342220.shtml)
-- 2026-06-29 15:57 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/856044211995.shtml)
-- 2026-06-29 15:56 - [媒体：中国田径压力与期待并存](https://www.share.minike.top/Article/details/026972311.shtml)
-- 2026-06-29 16:05 - [金刚川](https://www.blog.kurohicncr.top/Article/details/21924.shtml)
-- 2026-06-29 15:49 - [请回答王牌2019](http://www.blog.minike.top/Article/details/3440511.shtml)
-- 2026-06-29 16:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/852015753.shtml)
-- 2026-06-29 15:51 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/5730031.shtml)
-- 2026-06-29 15:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/977181128785.shtml)
-- 2026-06-29 15:50 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/941864338364.shtml)
-- 2026-06-29 15:51 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/1316888580.shtml)
-- 2026-06-29 16:08 - [一见倾心](http://www.share.minike.top/Article/details/6612675735.shtml)
-- 2026-06-29 15:50 - [扫黑风暴](http://www.share.minike.top/Article/details/17641394524.shtml)
-- 2026-06-29 16:08 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/5442343.shtml)
+- 2026-06-29 15:56 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/0887803.shtml)
+- 2026-06-29 16:04 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/9585116.shtml)
+- 2026-06-29 16:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/9068645.shtml)
+- 2026-06-29 16:13 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/90096020.shtml)
+- 2026-06-29 15:51 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/796449317711.shtml)
+- 2026-06-29 15:55 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/6024940.shtml)
+- 2026-06-29 15:50 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/8709754004.shtml)
+- 2026-06-29 15:58 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/620352387363.shtml)
+- 2026-06-29 16:09 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/38905.shtml)
+- 2026-06-29 15:49 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/29228.shtml)
+- 2026-06-29 16:02 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/219882950.shtml)
+- 2026-06-29 16:10 - [千与千寻](http://www.share.kurohicncr.top/Article/details/07772584596.shtml)
+- 2026-06-29 15:56 - [人形机器人](http://www.share.minike.top/Article/details/0826058116.shtml)
+- 2026-06-29 15:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/54913667495.shtml)
+- 2026-06-29 16:08 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/2135675.shtml)

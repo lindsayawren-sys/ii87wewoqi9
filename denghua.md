@@ -1,57 +1,60 @@
-# 黑芝麻智能午后涨逾8% 华泰证券看好公司中长期成长空间
+# OpenAI“星门计划”核心负责人离职，数据中心战略再迎重大调整
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-黑芝麻智能（02533）盘中涨超10%，截至发稿，股价上涨7.71%，报16.48港元，成交额1.11亿港元。 黑芝麻智能2025年业绩显示，公司全年营收高达8.22亿元，同比增长73.4%，营收连续三年实现⾼增⻓，其中具身智能解决方案营收高达9630万元；⽑利从1.95亿元稳步增⻓至3.37亿元；经调整净亏损缩窄17.5%，盈利能力明显改善。报告期内，黑芝麻智能在智能汽车计算
+OpenAI “星门计划” 核心负责人离职，数据中心战略再迎重大调整 据多名知情人士透露，曾参与启动 OpenAI 首个 “星门” 数据中心项目的三位高管已离职，或将于近日离开这家 ChatGPT 开发公司。 其中一位知情人士称，为 “星门” 项目启动发挥关键作用的 OpenAI 高管彼得・赫施勒已离职。另有两位人士表示，负责算力战略与业务拓展的沙梅兹・赫马尼，以及 OpenA
 
 ## 正文
 
-黑芝麻智能（02533）盘中涨超10%，截至发稿，股价上涨7.71%，报16.48港元，成交额1.11亿港元。
+OpenAI “星门计划” 核心负责人离职，数据中心战略再迎重大调整 据多名知情人士透露，曾参与启动 OpenAI 首个 “星门” 数据中心项目的三位高管已离职，或将于近日离开这家 ChatGPT 开发公司。
 
-黑芝麻智能2025年业绩显示，公司全年营收高达8.22亿元，同比增长73.4%，营收连续三年实现⾼增⻓，其中具身智能解决方案营收高达9630万元；⽑利从1.95亿元稳步增⻓至3.37亿元；经调整净亏损缩窄17.5%，盈利能力明显改善。
+其中一位知情人士称，为 “星门” 项目启动发挥关键作用的 OpenAI 高管彼得・赫施勒已离职。
 
-报告期内，黑芝麻智能在智能汽车计算芯片领域持续巩固领先地位的同时，已在具身智能、端侧AI等创新业务上实现了战略性突破。
+另有两位人士表示，负责算力战略与业务拓展的沙梅兹・赫马尼，以及 OpenAI 算力部门另一位负责人阿努杰・萨哈兰，已向同事宣布离职消息。
 
-华泰证券认为，2025年公司三大业务板块均实现不同程度进展。
+据一位知情人士透露，这几位离职高管将共同加入同一家新公司，但该公司名称暂未获悉。
 
-在智能驾驶业务方面，实现收入6.87亿元，同比增长56.8%，为核心收入来源。
+基础设施团队一直是 OpenAI 及其竞争对手面临的核心挑战所在：如何以可承受的成本，获取充足算力以满足 AI 产品激增的需求。
 
-在具身智能业务方面，公司实现从0到1突破，全年实现收入约0.96亿元。
+OpenAI 表示，计划未来五年内获取总价值超 6000 亿美元的算力，为此已与甲骨文、亚马逊云科技等多家芯片与云计算巨头达成合作协议。
 
-展望2026年，公司具身智能业务将进入放量初期，同时随着高阶智能驾驶芯片放量及产品结构优化，汽车业务毛利率有望逐步修复，整体收入增速有望明显快于出货量增长。
+此次人事变动发生在 OpenAI 基础设施部门大规模重组之后。
 
-该行持续看好公司中长期成长空间。
+去年年底，公司聘请前英特尔高管萨钦・卡蒂担任算力与基础设施负责人。
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 15:47 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 16:02 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 16:07 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 15:42 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 16:03 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 16:04 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 15:46 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 16:01 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 15:51 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 15:52 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 16:13 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 15:55 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 16:00 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 16:09 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 16:12 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 16:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 16:17 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 16:13 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 16:08 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 15:56 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 16:11 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 16:09 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 15:53 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 16:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/6886560.shtml)
-- 2026-06-29 15:46 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/12816393088.shtml)
-- 2026-06-29 15:54 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/63268.shtml)
-- 2026-06-29 15:57 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/608524.shtml)
-- 2026-06-29 16:00 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/50982997185.shtml)
-- 2026-06-29 15:58 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/54026288274.shtml)
-- 2026-06-29 15:58 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/2218394.shtml)
-- 2026-06-29 15:47 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/30143809.shtml)
-- 2026-06-29 16:04 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/84607.shtml)
-- 2026-06-29 15:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/319310828.shtml)
-- 2026-06-29 16:09 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/2307656859.shtml)
-- 2026-06-29 15:57 - [爸爸当家](https://www.blog.minike.top/Article/details/032070003.shtml)
-- 2026-06-29 15:52 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/781807191.shtml)
-- 2026-06-29 16:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/79457414694.shtml)
-- 2026-06-29 15:52 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/81303.shtml)
+- 2026-06-29 15:56 - [爸爸当家](http://www.share.minike.top/Article/details/972084.shtml)
+- 2026-06-29 16:00 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/84270.shtml)
+- 2026-06-29 16:16 - [爸爸当家](https://www.blog.kurohicncr.top/Article/details/780352586.shtml)
+- 2026-06-29 16:13 - [周深双眼皮贴又掉了](http://www.share.minike.top/Article/details/17700.shtml)
+- 2026-06-29 15:52 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/514856.shtml)
+- 2026-06-29 16:14 - [我和我的家乡](https://www.blog.minike.top/Article/details/455124.shtml)
+- 2026-06-29 15:55 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/12798023.shtml)
+- 2026-06-29 16:14 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/72576431947.shtml)
+- 2026-06-29 16:07 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/0743966619.shtml)
+- 2026-06-29 15:51 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/51158.shtml)
+- 2026-06-29 15:52 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/82767.shtml)
+- 2026-06-29 15:49 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/559659142130.shtml)
+- 2026-06-29 15:51 - [韩国国脚无缘上亿韩元奖金](http://www.blog.minike.top/Article/details/89140049337.shtml)
+- 2026-06-29 15:56 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/28006423422.shtml)
+- 2026-06-29 16:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/8895223.shtml)

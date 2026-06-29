@@ -1,60 +1,57 @@
-# 南卫股份财总岗位有多难干：许晓嫌工资不及预期辞职，前任刚被罚150万元 | 长三角资本局
+# 汪滔谈公司名称由来：我妈在路上看到一个“大爱无疆”的牌子 ，说就叫 “大疆”吧
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 还没等年报出来，南卫股份（维权）的财务负责人先走了。更少见的是，这次离职公告没有用“个人原因”打太极，而是直接点明了一个颇为刺眼的理由：薪资不及预期。 一家公司计划近期披露2025年年报，财务负责人却在这个节骨眼上辞职，这本身就足够敏感。更何况，辞职的人还是今年1月才刚刚被聘上财务总监位置的许晓。上任才3个月，为何这么快就离开？薪酬究竟低到了什么程度，
+来源：晚点LatePost 大疆之路，汪滔的 20 年。 文丨小晚 汪滔上一次公开露面是在十年前，此后彻底消失在公众视野，只留下一句被反复引用的话：世界蠢得不可思议。 十年后，《晚点》独家访谈了大疆创始人、董事长汪滔。他补上了这句话的后半句——“世界蠢得不可思议，我也是。” 问题不只在世界，也在自己。这或许是汪滔对自己漫长创业生涯最简短的概括。 2006 年，还在香港科技大学读
 
 ## 正文
 
-文|新浪财经上海站 十里 还没等年报出来，南卫股份（维权）的财务负责人先走了。
+来源：晚点LatePost 大疆之路，汪滔的 20 年。
 
-更少见的是，这次离职公告没有用“个人原因”打太极，而是直接点明了一个颇为刺眼的理由：薪资不及预期。
+文丨小晚 汪滔上一次公开露面是在十年前，此后彻底消失在公众视野，只留下一句被反复引用的话：世界蠢得不可思议。
 
-一家公司计划近期披露2025年年报，财务负责人却在这个节骨眼上辞职，这本身就足够敏感。
+十年后，《晚点》独家访谈了大疆创始人、董事长汪滔。
 
-更何况，辞职的人还是今年1月才刚刚被聘上财务总监位置的许晓。
+他补上了这句话的后半句——“世界蠢得不可思议，我也是。
 
-上任才3个月，为何这么快就离开？
+” 问题不只在世界，也在自己。
 
-薪酬究竟低到了什么程度，才会让上市公司高管把“薪资不及预期”这样的话，直接写进公告里？
+这或许是汪滔对自己漫长创业生涯最简短的概括。
 
-对于A股市场而言，这样的表述并不常见，也因此比一份普通的人事变动公告更有冲击力。
+2006 年，还在香港科技大学读研究生的汪滔创立了大疆。
 
-从履历来看，许晓并不是横空而来的职业经理人。
+它从深圳莲花村的一处民居中起步，20 年时间，成长为一家以原创产品引领全球市场的中国科技企业。
 
 ## 相关推荐
 
-- 2026-06-29 16:00 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 15:44 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 16:06 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 15:43 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 15:52 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 16:05 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 16:09 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 15:42 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 15:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 15:51 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 16:10 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 16:11 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 15:45 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 15:49 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 16:04 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 16:16 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 15:55 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 16:10 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 15:50 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 15:51 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 16:05 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 16:11 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 15:58 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 15:59 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 16:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/087664492.shtml)
-- 2026-06-29 15:45 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/35797023.shtml)
-- 2026-06-29 15:44 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/349403716977.shtml)
-- 2026-06-29 15:54 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/371923029367.shtml)
-- 2026-06-29 15:52 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/130671128061.shtml)
-- 2026-06-29 15:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/24407675330.shtml)
-- 2026-06-29 15:42 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/114703498299.shtml)
-- 2026-06-29 15:50 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/583230.shtml)
-- 2026-06-29 16:06 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/16821632.shtml)
-- 2026-06-29 16:01 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/344531105.shtml)
-- 2026-06-29 15:49 - [普京：俄面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/73511.shtml)
-- 2026-06-29 15:56 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/2739932096.shtml)
-- 2026-06-29 15:57 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/22055872.shtml)
-- 2026-06-29 15:46 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/29035.shtml)
-- 2026-06-29 15:46 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/7671510.shtml)
+- 2026-06-29 16:04 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/602934.shtml)
+- 2026-06-29 16:08 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/67931313325.shtml)
+- 2026-06-29 16:08 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/59554568.shtml)
+- 2026-06-29 15:51 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/13366.shtml)
+- 2026-06-29 16:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/99022777.shtml)
+- 2026-06-29 15:52 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/14481835481.shtml)
+- 2026-06-29 15:49 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/017335.shtml)
+- 2026-06-29 15:53 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/23626138917.shtml)
+- 2026-06-29 15:54 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/376884849.shtml)
+- 2026-06-29 16:13 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/1328537.shtml)
+- 2026-06-29 15:57 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/78210249416.shtml)
+- 2026-06-29 16:10 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/1931398.shtml)
+- 2026-06-29 16:00 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/86766.shtml)
+- 2026-06-29 16:17 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/977710504.shtml)
+- 2026-06-29 16:02 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/324005898.shtml)

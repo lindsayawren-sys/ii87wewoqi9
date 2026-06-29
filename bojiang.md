@@ -1,55 +1,58 @@
-# 白宫声称伊朗提议移交高浓缩铀
+# 数据差错、整改不力被约谈，新华基金称已自查反思
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-白宫新闻秘书莱维特周三表示，伊朗已暗示，愿意放弃对该国境内埋在废墟下的近1000磅高浓缩铀的控制权。 当被问及伊朗的立场时，她表示，伊朗方面“已经”给出了这样的暗示。她说，阻止伊朗拥有制造核武器的能力仍然是“总统不会退让的一条红线”。莱维特补充说，她希望伊朗能通过外交途径交出这些材料。 周三早些时候，美国总统特朗普表示，美国将发起一项军事行动来取回这些铀。他在社交媒体上发帖称：
+登录新浪财经APP 搜索【信披】查看更多考评等级 金融统计质量再敲警钟！ 因金融统计数据报送差错较多且整改不力，央行重庆分行日前约谈新华基金，要求该公司压实整改责任，加强源头数据质量管理，切实做好金融统计数据报送。 央行重庆分行在约谈时，通报了新华基金近年在金融统计工作中的差错情况，重申了防范和惩治统计造假、弄虚作假有关要求精神，并明确指出新华基金存在数据报送差错较多，且约谈后
 
 ## 正文
 
-白宫新闻秘书莱维特周三表示，伊朗已暗示，愿意放弃对该国境内埋在废墟下的近1000磅高浓缩铀的控制权。
+登录新浪财经APP 搜索【信披】查看更多考评等级 金融统计质量再敲警钟！
 
-当被问及伊朗的立场时，她表示，伊朗方面“已经”给出了这样的暗示。
+因金融统计数据报送差错较多且整改不力，央行重庆分行日前约谈新华基金，要求该公司压实整改责任，加强源头数据质量管理，切实做好金融统计数据报送。
 
-她说，阻止伊朗拥有制造核武器的能力仍然是“总统不会退让的一条红线”。
+央行重庆分行在约谈时，通报了新华基金近年在金融统计工作中的差错情况，重申了防范和惩治统计造假、弄虚作假有关要求精神，并明确指出新华基金存在数据报送差错较多，且约谈后整改不力等问题。
 
-莱维特补充说，她希望伊朗能通过外交途径交出这些材料。
+面对监管约谈，新华基金就数据质量管理机制不健全、数据报送差错进行了深刻检讨，并汇报了下一步整改计划。
 
-周三早些时候，美国总统特朗普表示，美国将发起一项军事行动来取回这些铀。
+新华基金对第一财经称，该公司高度重视、诚恳接受并坚决落实监管要求，已对相关问题进行深刻自查反思，全面梳理数据报送全流程，明确整改责任与完成时限，加快推进源头数据质量管控、报送流程优化等各项整改工作，确保严格规范金融统计数据报送行为。
 
-他在社交媒体上发帖称：“美国将与伊朗合作，挖出并移除所有深埋的材料”。
+央行重庆分行也在公告中明确提到，后续将向有关部门通报新华基金数据报送差错、管理失职等问题，并根据新华基金数据质量管控整改情况采取针对性措施，切实履行好金融业综合统计管理职责。
 
-责任编辑：李桐
+有基金业内人士向第一财经透露，公告提及的金融统计数据并非面向公众的信息披露常规报告，而是需定期向监管机构报送的专项数据，具有固定接口和格式要求。
+
+一位合规人士介绍，此类数据通常由公司内部多部门协同生成，经内部复核后上报，不同机构的牵头部门也可能存在差异，有的由IT部门负责，有的归属数据管理部或合规部统筹。
 
 ## 相关推荐
 
-- 2026-06-29 16:03 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 15:48 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 16:05 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 15:42 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 15:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 15:55 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 15:49 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 16:00 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 15:57 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 16:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 15:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 16:12 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 15:53 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 16:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 16:13 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 15:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 15:59 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 16:06 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 15:48 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 16:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 15:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 16:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 16:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:12 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/66531158004.shtml)
-- 2026-06-29 15:52 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/81770770.shtml)
-- 2026-06-29 16:02 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/1335801849.shtml)
-- 2026-06-29 16:08 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/46950833131.shtml)
-- 2026-06-29 15:56 - [天道](http://www.blog.minike.top/Article/details/781199.shtml)
-- 2026-06-29 15:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/2418963.shtml)
-- 2026-06-29 16:11 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/70724936.shtml)
-- 2026-06-29 15:46 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/353608.shtml)
-- 2026-06-29 15:53 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/23235844556.shtml)
-- 2026-06-29 15:42 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/491873861.shtml)
-- 2026-06-29 15:56 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/3953146532.shtml)
-- 2026-06-29 16:11 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/72124495763.shtml)
-- 2026-06-29 16:11 - [沉睡花园](http://www.share.minike.top/Article/details/64649.shtml)
-- 2026-06-29 15:48 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/45765.shtml)
-- 2026-06-29 15:56 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/6813386246.shtml)
+- 2026-06-29 15:54 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/515912425.shtml)
+- 2026-06-29 15:55 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/98639.shtml)
+- 2026-06-29 15:56 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/7002834.shtml)
+- 2026-06-29 15:58 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/956440.shtml)
+- 2026-06-29 15:55 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/462223417111.shtml)
+- 2026-06-29 16:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/3607293.shtml)
+- 2026-06-29 16:15 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/107710136.shtml)
+- 2026-06-29 16:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/82825374576.shtml)
+- 2026-06-29 15:59 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/599732166012.shtml)
+- 2026-06-29 16:11 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/684457744.shtml)
+- 2026-06-29 16:06 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/41988915936.shtml)
+- 2026-06-29 15:56 - [急先锋](http://www.blog.kurohicncr.top/Article/details/84225.shtml)
+- 2026-06-29 16:10 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/7736012677.shtml)
+- 2026-06-29 16:00 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/6037986074.shtml)
+- 2026-06-29 16:11 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/675951720802.shtml)

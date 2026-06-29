@@ -1,58 +1,56 @@
-# SK 海力士向戴尔供应 321 层 QLC 消费级固态硬盘：2230 尺寸，可选 1TB/2TB
+# 博时宏观观点：全球风险情绪对地缘扰动有所钝化
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-IT之家 4 月 8 日消息，据韩媒 The Elec 今天报道，SK 海力士宣布向客户供应 321 层 QLC（四层单元）消费级固态硬盘（SSD），进一步扩展 NAND 闪存产品阵容。据介绍，本次供应的产品名为 PQC21，采用 2230 小尺寸，提供 1TB、2TB 两种容量选择。QLC NAND 每个单元可以存储 4bit 数据，相比 SLC（单层单元）存储密度更高，但在
+海外方面，美联储3月新增非农大超预期，美债利率与美元再上冲。虽然短期全球市场仍受美伊战争扰动，但美元、美债对战争定价已较为充分，如果26Q2战争烈度没有进一步超预期的激化，美元流动性的进一步收紧也缺乏支撑，未来一个季度可能不再恶化、甚至可能有所缓和。 国内方面，此前春节低基数提振带来3月制造业和服务业PMI上行，供需指标均改善，若高油价持续，关注原材料价格大幅上行对中下游企业利
 
 ## 正文
 
-IT之家 4 月 8 日消息，据韩媒 The Elec 今天报道，SK 海力士宣布向客户供应 321 层 QLC（四层单元）消费级固态硬盘（SSD），进一步扩展 NAND 闪存产品阵容。
+海外方面，美联储3月新增非农大超预期，美债利率与美元再上冲。
 
-据介绍，本次供应的产品名为 PQC21，采用 2230 小尺寸，提供 1TB、2TB 两种容量选择。
+虽然短期全球市场仍受美伊战争扰动，但美元、美债对战争定价已较为充分，如果26Q2战争烈度没有进一步超预期的激化，美元流动性的进一步收紧也缺乏支撑，未来一个季度可能不再恶化、甚至可能有所缓和。
 
-QLC NAND 每个单元可以存储 4bit 数据，相比 SLC（单层单元）存储密度更高，但在速度、耐久性方面有所下降。
+国内方面，此前春节低基数提振带来3月制造业和服务业PMI上行，供需指标均改善，若高油价持续，关注原材料价格大幅上行对中下游企业利润的挤压。
 
-这款固态硬盘通过 321 层 4D 结构堆叠数千亿个 QLC 单元构建，采用 PUC（IT之家注：Periphery Under Cell）架构，可通过将外围电路放在存储单元阵列下方缩小芯片体积。
+市场策略方面，债券方面，上周PMI超预期、二季度国债发行落地以及地缘冲突持续扰动下，债市短端上涨后小幅回调，长端窄幅震荡，超长端整体下跌。
 
-同时，这款产品还采用 DP（Die Packaging）技术，可将多个 321 层 NAND 芯片封装为单一芯片，提升存储密度。
+3月末跨季资金面平稳宽松，跨季后DR001降至1.23%新低，在内部基本面仍偏疲软、外部地缘风险持续的背景下，货币政策预计有望维持宽松态度，中短久期品种具有配置价值。
 
-配备 SLC 缓存技术，可以将部分数据先写入到速度更快的 SLC 区域，然后再转存至 QLC，从而提升写入性能。
+长端利率仍处于风偏走弱和通胀回升、基本面修复的博弈中，短期预计有望维持震荡格局。
 
-SK 海力士方面表示，这款产品本月已经向戴尔供货，计划扩展至全球更多客户。
+A股方面，外部局势不确定性仍大，波动率或难以快速下降，市场对短期时间催化敏感，需耐心等待新的共识的出现。
+
+全球市场来看，冲击下A股市场相对韧性，目前市场的情绪低点已基本清晰、微观流动性基本稳定，后续继续维持降波消化的过程。
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 16:06 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 15:54 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 15:48 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 15:46 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 15:49 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 15:54 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 15:42 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 16:09 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 16:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 15:43 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 16:06 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 15:56 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 16:02 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 16:04 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 15:55 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 16:03 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 15:49 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 16:02 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 15:50 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 15:51 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 15:59 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 15:51 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 16:03 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/8444272.shtml)
-- 2026-06-29 15:49 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/465361707.shtml)
-- 2026-06-29 15:49 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/87444.shtml)
-- 2026-06-29 16:03 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/35688548.shtml)
-- 2026-06-29 16:10 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/252890373372.shtml)
-- 2026-06-29 16:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/31963.shtml)
-- 2026-06-29 16:01 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/11397967489.shtml)
-- 2026-06-29 15:51 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/864195704636.shtml)
-- 2026-06-29 15:51 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/119340.shtml)
-- 2026-06-29 15:46 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/102962699.shtml)
-- 2026-06-29 15:44 - [流金岁月](http://www.share.kurohicncr.top/Article/details/376322127994.shtml)
-- 2026-06-29 15:48 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/96542185.shtml)
-- 2026-06-29 16:10 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/417071.shtml)
-- 2026-06-29 15:55 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/3627647.shtml)
-- 2026-06-29 15:44 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/82994.shtml)
+- 2026-06-29 16:03 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/147367287500.shtml)
+- 2026-06-29 16:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/170786079.shtml)
+- 2026-06-29 15:59 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/07670.shtml)
+- 2026-06-29 16:16 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/34547.shtml)
+- 2026-06-29 16:10 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/707337.shtml)
+- 2026-06-29 16:10 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/75905.shtml)
+- 2026-06-29 15:58 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/2090973.shtml)
+- 2026-06-29 16:03 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/67032.shtml)
+- 2026-06-29 15:52 - [美的空调 卡bug](http://www.share.minike.top/Article/details/11568541.shtml)
+- 2026-06-29 16:06 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/3760632139.shtml)
+- 2026-06-29 16:09 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/753696249451.shtml)
+- 2026-06-29 16:02 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/564273.shtml)
+- 2026-06-29 15:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/551535.shtml)
+- 2026-06-29 15:50 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/264012266650.shtml)
+- 2026-06-29 16:12 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/22813908389.shtml)

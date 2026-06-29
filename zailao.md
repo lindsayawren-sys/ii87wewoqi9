@@ -1,59 +1,55 @@
-# 国际航协称航空燃油供应或需数月时间才能恢复正常
+# 日本首相称将从5月初进一步释放石油储备
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-国际航空运输协会（IATA）理事长威利·沃尔什周三表示，即便伊朗重新开放霍尔木兹海峡，鉴于中东炼油能力的中断，航空燃油供应也需要数月时间才能恢复。 沃尔什在新加坡对记者表示，尽管他预计原油价格会下跌，但由于炼油厂受到影响，航空燃油成本仍可能会略微高企。 沃尔什表示：“即使重新开放并保持开放，考虑到中东炼油能力的中断，我认为仍需数月时间才能恢复到所需的供应水平。中东炼油能力是全球
+日本首相高市早苗说，日本将从5月初开始释放额外20天的石油储备。高市在东京告诉记者，第二批储备石油，大约够用20天，将于5月初开始交付。日本整体上石油储量充足，但人们一直担忧石油供应会中断。一些志同道合的国家已提出分享石油的请求，此类请求正在逐案处理。责任编辑：王永生
 
 ## 正文
 
-国际航空运输协会（IATA）理事长威利·沃尔什周三表示，即便伊朗重新开放霍尔木兹海峡，鉴于中东炼油能力的中断，航空燃油供应也需要数月时间才能恢复。
+日本首相高市早苗说，日本将从5月初开始释放额外20天的石油储备。
 
-沃尔什在新加坡对记者表示，尽管他预计原油价格会下跌，但由于炼油厂受到影响，航空燃油成本仍可能会略微高企。
+高市在东京告诉记者，第二批储备石油，大约够用20天，将于5月初开始交付。
 
-沃尔什表示：“即使重新开放并保持开放，考虑到中东炼油能力的中断，我认为仍需数月时间才能恢复到所需的供应水平。
+日本整体上石油储量充足，但人们一直担忧石油供应会中断。
 
-中东炼油能力是全球成品油供应的关键部分，不仅仅是航空燃油，还包括其他产品。
+一些志同道合的国家已提出分享石油的请求，此类请求正在逐案处理。
 
-” 由于中东冲突导致航空燃油供应紧张，亚洲各地的航空公司纷纷削减航班，从本国机场额外运载燃油，并增加加油站，这无疑加剧了航空业本已遭受重创的局面，此前航空燃油价格已翻了一番。
-
-迄今为止，受冲击最严重的地区是越南、缅甸和巴基斯坦等低收入、依赖进口的市场。
-
-沃尔什表示：“一旦原油供应恢复，炼油产能就会有空余，但这需要一些时间。
-
-目前裂解价差居高不下，我认为这会激励炼油厂增加航空燃油的产量。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 15:58 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 16:10 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 15:48 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 15:57 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 15:47 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 15:53 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 16:06 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 15:58 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 15:58 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 15:48 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 15:48 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 16:10 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 16:04 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 16:02 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 15:52 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 15:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 15:57 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 16:09 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 16:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 16:05 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 16:13 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 16:12 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 15:50 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 15:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 16:11 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 15:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 15:49 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 15:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/45029.shtml)
-- 2026-06-29 15:45 - [世界杯十大帅哥必吃榜](http://www.blog.minike.top/Article/details/224155079.shtml)
-- 2026-06-29 15:50 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/78844408.shtml)
-- 2026-06-29 15:45 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/279427631522.shtml)
-- 2026-06-29 15:50 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/930576.shtml)
-- 2026-06-29 15:47 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/86248.shtml)
-- 2026-06-29 15:52 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/233264.shtml)
-- 2026-06-29 15:58 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/97797941.shtml)
-- 2026-06-29 15:42 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/7909088342.shtml)
-- 2026-06-29 16:09 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/824335.shtml)
-- 2026-06-29 16:00 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/151628880673.shtml)
-- 2026-06-29 16:06 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/88034.shtml)
-- 2026-06-29 15:49 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/172623.shtml)
-- 2026-06-29 15:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/09110779.shtml)
-- 2026-06-29 16:08 - [光与夜之恋](https://www.blog.minike.top/Article/details/71394997.shtml)
+- 2026-06-29 16:07 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/437300217.shtml)
+- 2026-06-29 15:52 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.kurohicncr.top/Article/details/238701.shtml)
+- 2026-06-29 16:02 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/43548317621.shtml)
+- 2026-06-29 16:03 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/72416760183.shtml)
+- 2026-06-29 15:53 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/3497412323.shtml)
+- 2026-06-29 15:56 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/111499052450.shtml)
+- 2026-06-29 15:57 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/671559786838.shtml)
+- 2026-06-29 16:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/690163.shtml)
+- 2026-06-29 15:50 - [《贺子珍》](http://www.blog.minike.top/Article/details/9382768143.shtml)
+- 2026-06-29 15:59 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/5645422.shtml)
+- 2026-06-29 16:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/97749.shtml)
+- 2026-06-29 15:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/6381946107.shtml)
+- 2026-06-29 15:58 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/47431547743.shtml)
+- 2026-06-29 16:15 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/826371102958.shtml)
+- 2026-06-29 15:56 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/321634.shtml)

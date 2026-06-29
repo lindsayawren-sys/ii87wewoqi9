@@ -1,59 +1,60 @@
-# 第六届中国画展览在西安美院开幕
+# 开局起步“十五五”：海南拓展国际“朋友圈”、织密省际“协同网”
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新网西安4月8日电 (记者 阿琳娜)第六届中国画展览8日在西安美院美术馆开幕。此次展览从8000余幅投稿作品中遴选出360件精品(含特邀名家作品)，集中呈现近年来中国画领域的优秀创作成果，全面展现当下中国画创作的新面貌、新探索与新思考。 中国美术家协会分党组书记、驻会副主席屈健表示，本届展览立足陕西深厚的历史文化积淀和独特的美术资源，特别是长安画派“一手伸向传统，一手伸向生活
+中新网海口4月10日电 (记者 王子谦)“开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会10日在海口举行。海南省发展和改革委员会主任綦树利表示，“十五五”期间，海南自贸港将持续深化区域合作与联动发展，“总的思路是，拓展国际‘朋友圈’、织密省际‘协同网’、下好全省‘一盘棋’。” 《海南省国民经济和社会发展第十五个五年规划纲要》提出，海南“十五五”将深化区域合作与联
 
 ## 正文
 
-中新网西安4月8日电 (记者 阿琳娜)第六届中国画展览8日在西安美院美术馆开幕。
+中新网海口4月10日电 (记者 王子谦)“开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会10日在海口举行。
 
-此次展览从8000余幅投稿作品中遴选出360件精品(含特邀名家作品)，集中呈现近年来中国画领域的优秀创作成果，全面展现当下中国画创作的新面貌、新探索与新思考。
+海南省发展和改革委员会主任綦树利表示，“十五五”期间，海南自贸港将持续深化区域合作与联动发展，“总的思路是，拓展国际‘朋友圈’、织密省际‘协同网’、下好全省‘一盘棋’。
 
-中国美术家协会分党组书记、驻会副主席屈健表示，本届展览立足陕西深厚的历史文化积淀和独特的美术资源，特别是长安画派“一手伸向传统，一手伸向生活”的艺术主张，为当代中国画创新提供了不竭的灵感源泉。
+” 《海南省国民经济和社会发展第十五个五年规划纲要》提出，海南“十五五”将深化区域合作与联动发展，突出“全省一盘棋、全岛同城化”，更加注重区域协调发展，努力缩小地区差距，加快构建优势互补、高质量发展的区域经济布局。
 
-希望广大美术工作者始终坚持以人民为中心的创作导向，从厚重的历史文脉和鲜活的人民生活中汲取养分，不断提升作品的精神能量、文化内涵和艺术价值，以自强不息、厚德载物的文化创造，展示中国文艺新气象，铸就中华文化新辉煌。
+綦树利在会上说，为拓展国际“朋友圈”，“十五五”海南将与东南亚、共建“一带一路”国家及欧洲重点地区，围绕国际航运物流、高端医疗、新能源、数字贸易等深化合作。
 
-陕西省美术家协会主席、西安美术学院院长朱尽晖表示，此次展览集中代表了新时代中国画创作的前沿水准与学术高度，展出的作品题材广泛、语言多样，深植中华优秀传统文化，紧扣时代发展脉搏，充分展现了“文艺两新”群体的蓬勃力量和新时代美术工作者心系人民、深耕时代、守正创新的艺术追求。
+例如，密切与新加坡等东南亚国家的经贸人文交流，高标准建设海南自贸港绿色低碳国际合作示范区。
 
-此外，第六届中国画展览学术研讨会7日在西安美院举行，与会专家就当代中国画发展现状与问题、AI图像对当代中国画创作及教学的影响、中国画的主题创作与多元探索三个议题进行了深入研讨交流，分析了中国画在当代社会面临的机遇与挑战，探讨了新时代背景下中国画艺术传承与创新的路径。
+正在推进洋浦港和阿布扎比港等“一带一路”姊妹港建设，建设中国-阿联酋椰枣种质资源保护与利用中心。
 
-(完)
+同时，深化与德国等欧洲国家在高端装备制造、节能降碳、医疗健康等领域的交流合作。
+
+为织密省际“协同网”，海南将主动对接粤港澳、长三角、京津冀、长江经济带等国家重大区域战略，重点聚焦种业、深海、高端装备制造、航空航天、生物医药、金融服务、环境保护、文体消费等领域，以建设粤琼、湘琼、琼港、浙琼、深儋等合作产业园为载体，发挥区域战略叠加效应。
 
 ## 相关推荐
 
-- 2026-06-29 15:55 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 16:08 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 15:51 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 16:09 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 15:53 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 15:42 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 16:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 16:09 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 16:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 15:49 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 16:11 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 15:48 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 15:53 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 16:02 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 15:48 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 15:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 16:16 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 15:57 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 16:05 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 16:13 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 16:02 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 16:04 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 16:11 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 16:07 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 16:09 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 15:50 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 16:07 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 15:50 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 16:09 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/1080476.shtml)
-- 2026-06-29 16:07 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/9175873.shtml)
-- 2026-06-29 16:08 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/20122615941.shtml)
-- 2026-06-29 16:09 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/3319717.shtml)
-- 2026-06-29 16:04 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/146536.shtml)
-- 2026-06-29 16:00 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/650809.shtml)
-- 2026-06-29 15:48 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/17029509158.shtml)
-- 2026-06-29 16:05 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/274546641217.shtml)
-- 2026-06-29 16:03 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/0845973.shtml)
-- 2026-06-29 15:49 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/590662.shtml)
-- 2026-06-29 15:43 - [NBA交易](http://www.share.minike.top/Article/details/681300528.shtml)
-- 2026-06-29 15:56 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/16631635.shtml)
-- 2026-06-29 16:00 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/35468.shtml)
-- 2026-06-29 16:06 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/938578315.shtml)
-- 2026-06-29 15:43 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/953328.shtml)
+- 2026-06-29 15:51 - [警方回应东鹏饮料董事长不喝东鹏](https://www.share.kurohicncr.top/Article/details/04936025.shtml)
+- 2026-06-29 16:02 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/08278695184.shtml)
+- 2026-06-29 15:56 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/70924529.shtml)
+- 2026-06-29 15:54 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/07735.shtml)
+- 2026-06-29 15:55 - [沙丘](https://www.blog.minike.top/Article/details/0162343799.shtml)
+- 2026-06-29 16:08 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/3366493195.shtml)
+- 2026-06-29 16:05 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/55475178964.shtml)
+- 2026-06-29 15:48 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/90180424.shtml)
+- 2026-06-29 16:11 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/96934.shtml)
+- 2026-06-29 15:54 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/362680204526.shtml)
+- 2026-06-29 16:04 - [东方风云榜](https://www.blog.minike.top/Article/details/00961331.shtml)
+- 2026-06-29 16:09 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/2912903892.shtml)
+- 2026-06-29 16:01 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/779515745.shtml)
+- 2026-06-29 16:07 - [恋与深空 731](https://www.blog.minike.top/Article/details/35251465.shtml)
+- 2026-06-29 15:56 - [新能源车能当外接空调用吗](http://www.blog.minike.top/Article/details/473695390.shtml)

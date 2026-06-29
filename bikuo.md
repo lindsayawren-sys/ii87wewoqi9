@@ -1,53 +1,50 @@
-# 全国人大常委会副委员长武维华率团访问加蓬
+# 民航局：第一季度民航旅客运输量2.0亿人次，同比增长6.5%
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-新华社利伯维尔4月7日电 应加蓬国民议会邀请，全国人大常委会副委员长武维华5日至7日率团访问加蓬，同加蓬总统恩圭马会见，并同加国民议会议长奥南加、参议院第一副议长马比亚拉会谈。 武维华表示，中加友谊源远流长。近年来，在习近平主席和恩圭马总统战略引领下，中加关系发展势头良好，各领域合作成果显著。中方愿同加方一道，落实好两国元首重要共识和中非合作论坛北京峰会成果，弘扬传统友谊，加强
+中新网4月10日电 据中国民用航空局网站消息，4月8日，民航局召开4月安委会(扩大)会议。据悉，第一季度，全行业累计完成运输飞行377.1万小时、140.6万架次，同比分别增长5.2%、3.4%；运输总周转量428.0亿吨公里，旅客运输量2.0亿人次，同比分别增长10.9%、6.5%。同时，行业安全运行态势保持平稳，一季度各项工作实现了良好开局。
 
 ## 正文
 
-新华社利伯维尔4月7日电 应加蓬国民议会邀请，全国人大常委会副委员长武维华5日至7日率团访问加蓬，同加蓬总统恩圭马会见，并同加国民议会议长奥南加、参议院第一副议长马比亚拉会谈。
+中新网4月10日电 据中国民用航空局网站消息，4月8日，民航局召开4月安委会(扩大)会议。
 
-武维华表示，中加友谊源远流长。
+据悉，第一季度，全行业累计完成运输飞行377.1万小时、140.6万架次，同比分别增长5.2%、3.4%；运输总周转量428.0亿吨公里，旅客运输量2.0亿人次，同比分别增长10.9%、6.5%。
 
-近年来，在习近平主席和恩圭马总统战略引领下，中加关系发展势头良好，各领域合作成果显著。
-
-中方愿同加方一道，落实好两国元首重要共识和中非合作论坛北京峰会成果，弘扬传统友谊，加强治国理政经验交流，推动中加全面战略合作伙伴关系深入发展。
-
-武维华还宣介了中国对53个非洲建交国全面实施零关税举措。
-
-加方积极评价两国关系发展成就和中国对非零关税政策，表示将继续坚定恪守一个中国原则，愿同中方共同努力，密切双方立法机构交流合作，深化资源开发、基础设施建设、农业等领域合作，将加中传统友好转化为更多合作成果，造福两国人民。
+同时，行业安全运行态势保持平稳，一季度各项工作实现了良好开局。
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 16:00 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 15:56 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 15:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 15:54 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 15:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 16:01 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 15:54 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 15:53 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 15:52 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 16:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 16:16 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 15:58 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 16:16 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 15:54 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 16:01 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 15:55 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 16:16 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 15:48 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 15:56 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 16:01 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 15:48 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 16:08 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 16:13 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 16:07 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/836630519.shtml)
-- 2026-06-29 15:51 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/77745271.shtml)
-- 2026-06-29 15:44 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/79315.shtml)
-- 2026-06-29 15:58 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/65919601.shtml)
-- 2026-06-29 15:42 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/13287316913.shtml)
-- 2026-06-29 16:07 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/898291.shtml)
-- 2026-06-29 16:02 - [第一炉香](https://www.share.minike.top/Article/details/157047613885.shtml)
-- 2026-06-29 15:55 - [时光音乐会](https://www.share.minike.top/Article/details/15041783249.shtml)
-- 2026-06-29 15:47 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/80471.shtml)
-- 2026-06-29 15:54 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/020391138485.shtml)
-- 2026-06-29 15:47 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/290633355243.shtml)
-- 2026-06-29 16:11 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/7510809993.shtml)
-- 2026-06-29 15:43 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/213281779.shtml)
-- 2026-06-29 16:09 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/93658.shtml)
-- 2026-06-29 16:09 - [一见倾心](http://www.share.kurohicncr.top/Article/details/724407000.shtml)
+- 2026-06-29 15:57 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/6010021603.shtml)
+- 2026-06-29 15:57 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/7811184468.shtml)
+- 2026-06-29 16:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/0803116987.shtml)
+- 2026-06-29 15:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/2232504.shtml)
+- 2026-06-29 16:07 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/2400186102.shtml)
+- 2026-06-29 16:00 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/355548938.shtml)
+- 2026-06-29 15:50 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/74643813708.shtml)
+- 2026-06-29 16:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/658968021872.shtml)
+- 2026-06-29 15:51 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/0731553046.shtml)
+- 2026-06-29 16:13 - [驻日美军航母沦为“毒窝”](https://www.blog.kurohicncr.top/Article/details/9313529615.shtml)
+- 2026-06-29 15:58 - [流金岁月](https://www.blog.minike.top/Article/details/695278.shtml)
+- 2026-06-29 15:51 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/25052244.shtml)
+- 2026-06-29 16:01 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/604375.shtml)
+- 2026-06-29 15:58 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/429656253.shtml)
+- 2026-06-29 16:17 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/224180376.shtml)

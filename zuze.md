@@ -1,61 +1,61 @@
-# ETF日报：在AI大科技浪潮下，医药有望释放新的成长逻辑，脑机接口、AI医疗等也在快速发展
+# （乡村行·看振兴）山西襄垣：棚内管护忙 静待甜瓜香
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-2823.31 今日A股冲高回落，沪指下跌0.80%，深证成指下跌1.81%，创业板指下跌2.70%。沪深两市成交额约2.01万亿元，较前一个交易日略有放量。个股跌多涨少，全市场超4300只个股下跌。行业层面，汽车、医药、高铁等板块涨幅居前；煤炭、电解液、光模块等板块则跌幅明显。 3月最后一个交易日，沪指失守3900点，市场情绪依旧偏弱。近期虽然市场对地缘的敏感度有所下降，但成
+中新网长治4月9日电 (杨佩佩 邓蓉)春日时节，田间地头农事正忙。在山西省长治市襄垣县古韩镇王家庄村，一座座标准化大棚整齐连片。棚内，翠绿的香瓜枝叶繁茂、长势喜人。工作人员穿梭在垄间，进行疏果、整秧、修蔓等精细化管护工作。 近年来，王家庄村牢牢抓住乡村振兴发展机遇，不断优化种植结构、推广良种良法、提升管护水平，稳步提升种植效益，为乡村发展注入强劲动能，小小香瓜托起了富民大产业。
 
 ## 正文
 
-2823.31 今日A股冲高回落，沪指下跌0.80%，深证成指下跌1.81%，创业板指下跌2.70%。
+中新网长治4月9日电 (杨佩佩 邓蓉)春日时节，田间地头农事正忙。
 
-沪深两市成交额约2.01万亿元，较前一个交易日略有放量。
+在山西省长治市襄垣县古韩镇王家庄村，一座座标准化大棚整齐连片。
 
-个股跌多涨少，全市场超4300只个股下跌。
+棚内，翠绿的香瓜枝叶繁茂、长势喜人。
 
-行业层面，汽车、医药、高铁等板块涨幅居前；煤炭、电解液、光模块等板块则跌幅明显。
+工作人员穿梭在垄间，进行疏果、整秧、修蔓等精细化管护工作。
 
-3月最后一个交易日，沪指失守3900点，市场情绪依旧偏弱。
+近年来，王家庄村牢牢抓住乡村振兴发展机遇，不断优化种植结构、推广良种良法、提升管护水平，稳步提升种植效益，为乡村发展注入强劲动能，小小香瓜托起了富民大产业。
 
-近期虽然市场对地缘的敏感度有所下降，但成交量仍在2万亿左右徘徊。
+“今年一共种了10个大棚，主推博洋61、博洋9号、天美3个香瓜品种，预计一个月后，香瓜陆续成熟，亩产可达5000斤，每斤批发价在5元左右。
 
-后续上行空间的打开仍需要基本面的支撑，短期财报季来临，资金观望的情绪可能相对更强。
+”相关负责人张兴梅介绍，同时还吸纳12名村民就业，让乡亲们在家门口实现就业。
 
-在地缘冲突持续、全球流动性收紧、市场风偏下降的背景下，投资者或可关注中证A500ETF（159338）等一键打包各行业龙头的宽基产品。
+产销两旺的良好发展势头，得益于村集体超前谋划、精准布局的发展思路。
 
 ## 相关推荐
 
-- 2026-06-29 15:53 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 16:09 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 15:44 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 15:49 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 16:04 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 15:46 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 15:52 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 15:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 15:49 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 16:00 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 15:57 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 16:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 16:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 16:07 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 15:47 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 16:02 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 15:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 16:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 16:02 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 15:51 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 16:05 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 15:56 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 16:05 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 16:06 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 16:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 16:00 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 16:12 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 16:05 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 16:11 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 16:07 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [Agent带来token消耗爆炸](https://www.blog.minike.top/Article/details/406739002259.shtml)
-- 2026-06-29 16:08 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/49510911.shtml)
-- 2026-06-29 16:00 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/3939381.shtml)
-- 2026-06-29 16:03 - [光与夜之恋](https://www.blog.minike.top/Article/details/644824409.shtml)
-- 2026-06-29 16:09 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/499576.shtml)
-- 2026-06-29 15:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/997125937.shtml)
-- 2026-06-29 15:47 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/9836532.shtml)
-- 2026-06-29 15:57 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.minike.top/Article/details/73574211.shtml)
-- 2026-06-29 15:57 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/09413.shtml)
-- 2026-06-29 16:03 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.minike.top/Article/details/3025443.shtml)
-- 2026-06-29 16:02 - [吴建豪老婆](https://www.blog.minike.top/Article/details/11250.shtml)
-- 2026-06-29 16:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/7705799.shtml)
-- 2026-06-29 15:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/34279176089.shtml)
-- 2026-06-29 16:10 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/37634088.shtml)
-- 2026-06-29 16:04 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/80332779975.shtml)
+- 2026-06-29 15:52 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/3040998379.shtml)
+- 2026-06-29 16:10 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/5662897662.shtml)
+- 2026-06-29 15:57 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.minike.top/Article/details/0992305.shtml)
+- 2026-06-29 16:08 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/687734.shtml)
+- 2026-06-29 16:01 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/474825.shtml)
+- 2026-06-29 15:51 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/21037.shtml)
+- 2026-06-29 16:10 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/3415660381.shtml)
+- 2026-06-29 16:06 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/9153988.shtml)
+- 2026-06-29 16:17 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/417555.shtml)
+- 2026-06-29 15:54 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/676743.shtml)
+- 2026-06-29 16:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/2555988.shtml)
+- 2026-06-29 15:48 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.kurohicncr.top/Article/details/928737.shtml)
+- 2026-06-29 16:01 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/1223718609.shtml)
+- 2026-06-29 16:11 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.kurohicncr.top/Article/details/260603.shtml)
+- 2026-06-29 16:14 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.kurohicncr.top/Article/details/9954625369.shtml)

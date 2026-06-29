@@ -1,58 +1,58 @@
-# 小摩：升微创机器人-B目标价至42港元 评级“增持”
+# 光大期货0409热点追踪：棉花波动平稳，市场静待新棉种植落地
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，上调微创机器人-B（02252）2026至28年间毛利率假设介乎5至6个百分点，维持微创机器人2026年收入预测14亿元（高于市场共识），目标价由41港元上调至42港元，评级“增持”，并为医疗科技行业首选股。 报告指，微创机器人2026财年指引标志着从“商业化验证”明确转向“盈利释放”，管理层设定清晰的收入、盈利及现金流目标。公司预期今年收入约11亿元人民币
+近几日，国际地缘新闻此起彼伏，原油及相关化工品波动剧烈，而棉花作为与原油存在间接关联的品种，走势却显得相对平稳，盘面窄幅震荡，主力合约移仓换月，09合约持仓量已反超05合约。 当前市场的核心焦点已转向新棉种植端。美国方面，尽管本年度美棉预期种植面积同比有所增加，但产区干旱天气引发市场担忧，弃种率存在上行风险，最终产量预期反而同比下降。后续需密切关注美棉实际播种进度及产区天气变化
 
 ## 正文
 
-摩根大通发布研报称，上调微创机器人-B（02252）2026至28年间毛利率假设介乎5至6个百分点，维持微创机器人2026年收入预测14亿元（高于市场共识），目标价由41港元上调至42港元，评级“增持”，并为医疗科技行业首选股。
+近几日，国际地缘新闻此起彼伏，原油及相关化工品波动剧烈，而棉花作为与原油存在间接关联的品种，走势却显得相对平稳，盘面窄幅震荡，主力合约移仓换月，09合约持仓量已反超05合约。
 
-报告指，微创机器人2026财年指引标志着从“商业化验证”明确转向“盈利释放”，管理层设定清晰的收入、盈利及现金流目标。
+当前市场的核心焦点已转向新棉种植端。
 
-公司预期今年收入约11亿元人民币（下同），同比近乎翻倍，同时实现净利润收支平衡至盈利，以及正自由现金流，显示进入营运杠杆阶段。
+美国方面，尽管本年度美棉预期种植面积同比有所增加，但产区干旱天气引发市场担忧，弃种率存在上行风险，最终产量预期反而同比下降。
 
-该行表示，截至4月初，公司已安装23台图迈手术机器人，并持有86台在手订单。
+后续需密切关注美棉实际播种进度及产区天气变化。
 
-管理层指引上半年安装约103台至113台，全年至少200台，并表明去年下半年的交付瓶颈已解决。
+国内市场方面，新疆地区棉花种植面积下降基本成为定局，但减产的幅度市场仍存分歧。
 
-海外市场将继续是核心增长引擎，需求遍及欧洲、亚洲（中国除外）及拉丁美洲。
+在供应端收缩预期较为明确的背景下，需求端能否顺利消化本年度如此大体量的供应，成为后续博弈的关键变量。
 
-另外，该行重申对迈瑞医疗（300760.SZ）及微创医疗（00853）“增持”评级； 对心脉医疗（688016.SH） 予“中性”评级，对微电生理（688351.SH）予减持评级。
+此外，尽管近期棉花盘面表现相对平稳，但中东地缘局势仍处于高度不确定状态，一旦霍尔木兹海峡通航或原油供应再度受到实质性冲击，油价剧烈波动或将通过化纤替代链条传导至棉花市场，引发情绪与价格的意外波动，因此，交易者不宜因短期“风平浪静”而放松警惕，建议密切关注地缘局势演变，合理控制仓位，将潜在风险限定在可控范围之内。
 
-该行称，微创医疗具多元化平台敝口，料今年纯利部分受非经常项目支持，即使微创机器人收入增长加快； 微创医疗基本面有改善，料盈利质素呈渐进改善。
+信息来源：光大期货研究所 撰稿：姚涛 从业资格：F3082336 交易咨询资格：Z0018553 免责声明：本报告的信息均来源于公开资料，我公司对这些信息的准确性、可靠性和完整性不作任何保证，也不保证所包含的信息和建议不会发生任何变更。
 
 ## 相关推荐
 
-- 2026-06-29 15:45 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 15:45 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 15:54 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 16:09 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 16:06 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 15:58 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 15:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 15:56 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 15:44 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 16:00 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 15:57 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 15:55 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 16:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 16:02 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 16:11 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 16:15 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 16:12 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 16:04 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 16:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 15:52 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 15:57 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 16:07 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 16:08 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 16:11 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:42 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/9432925444.shtml)
-- 2026-06-29 15:51 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/46429549.shtml)
-- 2026-06-29 15:45 - [抓特务票房破亿](https://www.share.minike.top/Article/details/4893753.shtml)
-- 2026-06-29 15:55 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/31435001633.shtml)
-- 2026-06-29 16:11 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/6077100.shtml)
-- 2026-06-29 15:50 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/6260002128.shtml)
-- 2026-06-29 16:06 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/13060722546.shtml)
-- 2026-06-29 16:11 - [恋与深空 731](http://www.blog.minike.top/Article/details/80427.shtml)
-- 2026-06-29 15:57 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/649332.shtml)
-- 2026-06-29 15:55 - [上海一小区水池内出现一条鳄鱼](http://www.blog.kurohicncr.top/Article/details/41635112999.shtml)
-- 2026-06-29 16:00 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/24683181.shtml)
-- 2026-06-29 15:45 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/8217541574.shtml)
-- 2026-06-29 16:02 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/396042607.shtml)
-- 2026-06-29 15:55 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/42664967.shtml)
-- 2026-06-29 16:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/453132.shtml)
+- 2026-06-29 15:56 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/84583516.shtml)
+- 2026-06-29 16:08 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/22752650.shtml)
+- 2026-06-29 16:12 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/9146327.shtml)
+- 2026-06-29 16:07 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/83578206.shtml)
+- 2026-06-29 15:52 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/06364512.shtml)
+- 2026-06-29 16:06 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/06669968274.shtml)
+- 2026-06-29 15:53 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/499896566940.shtml)
+- 2026-06-29 16:02 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/252325297783.shtml)
+- 2026-06-29 15:55 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/6516904.shtml)
+- 2026-06-29 16:05 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/48514257515.shtml)
+- 2026-06-29 16:03 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/673495.shtml)
+- 2026-06-29 16:15 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/44178179.shtml)
+- 2026-06-29 16:04 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/09862276046.shtml)
+- 2026-06-29 16:13 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/73456932538.shtml)
+- 2026-06-29 16:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/406701370083.shtml)

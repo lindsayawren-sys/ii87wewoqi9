@@ -1,56 +1,56 @@
-# 微软、Spotify、Viking被列入美银美国1号名单
+# 3月超140家公司斥资近百亿实施回购，多家龙头公司加速扫货，顺丰控股大幅上调回购金额！
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-美国银行将微软、Spotify和Viking Holdings列入其“美国1号名单”的榜首位置。这家华尔街顶级投行向这三家公司投出了新的信任票。 “美国1号名单”旨在展示美银在评级为“买入”的美国上市股票中的最佳投资理念。虽然此次更新内容简短，但被列入该名单意义重大，因为这通常表明该行对这些公司更具信心，并可能吸引来自机构和个人投资者的更多关注。 微软因被纳入该名单，其在云计算
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：每日经济新闻 记者：吴永久 张宛 3月A股受外围局势扰动整体震荡调整，上市公司回购热情却逆势走高，当月正在实施回购的公司中，行业龙头回购节奏显著加快。与此同时，多家公司通过上调价格上限、增加回购金额、变更股份用途等方式调整回购方案，为回购顺利推进提供条件。 据同花顺数据统计，正在实施回购的公司中（3月
 
 ## 正文
 
-美国银行将微软、Spotify和Viking Holdings列入其“美国1号名单”的榜首位置。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家华尔街顶级投行向这三家公司投出了新的信任票。
+来源：每日经济新闻 记者：吴永久 张宛 3月A股受外围局势扰动整体震荡调整，上市公司回购热情却逆势走高，当月正在实施回购的公司中，行业龙头回购节奏显著加快。
 
-“美国1号名单”旨在展示美银在评级为“买入”的美国上市股票中的最佳投资理念。
+与此同时，多家公司通过上调价格上限、增加回购金额、变更股份用途等方式调整回购方案，为回购顺利推进提供条件。
 
-虽然此次更新内容简短，但被列入该名单意义重大，因为这通常表明该行对这些公司更具信心，并可能吸引来自机构和个人投资者的更多关注。
+据同花顺数据统计，正在实施回购的公司中（3月宣布完成回购的公司数据除外，下同），约有244家公司披露了截至3月底的回购进展，累计支付金额约365.17亿元。
 
-微软因被纳入该名单，其在云计算、软件和人工智能领域的地位显得更加稳固。
+行业分布上，医药生物、电子、机械设备和电力设备等行业公司数量居前，分别有33家、32家、26家和18家；其中电力设备行业18家公司累计支付金额达57.32亿元，为各行业最高。
 
-Spotify因其增长势头和数字音频平台的实力而受到市场兴奋情绪的推动，从而入选该名单。
+累计回购金额榜单上，截至3月底，宁德时代、顺丰控股、紫金矿业、歌尔股份和贵州茅台名次居前，分别累计回购了43.86亿元、26亿、16.82亿、12亿和11.12亿元。
 
-邮轮公司Viking Holdings似乎表现良好，因为市场仍相信人们的旅游度假和消费意愿依然强劲。
+据4月7日盘后公告，宁德时代本次回购方案已实施完毕。
 
-这一消息本身并不会改变公司的基本面，但它可以影响市场情绪，尤其是在分析师评级仍对短期股价表现有重大影响的市场环境中。
+从单月回购金额看，上述正在实施回购的公司中，3月份有超140家实施了回购，单月累计回购金额合计约92.93亿元。
 
 ## 相关推荐
 
-- 2026-06-29 15:48 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 16:11 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 15:43 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 16:05 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 15:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 15:46 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 15:54 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 15:50 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 16:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 16:09 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 16:07 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 15:51 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 15:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 16:07 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 15:51 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 16:16 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 15:55 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 15:50 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 16:04 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 15:52 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/72874634479.shtml)
-- 2026-06-29 15:53 - [智界V9成为高端圈层共同选择](http://www.blog.minike.top/Article/details/43508878468.shtml)
-- 2026-06-29 15:45 - [扫黑风暴](https://www.share.minike.top/Article/details/140850.shtml)
-- 2026-06-29 16:09 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/7498124196.shtml)
-- 2026-06-29 16:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/463364485065.shtml)
-- 2026-06-29 15:47 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/6364432249.shtml)
-- 2026-06-29 16:07 - [毒液2](https://www.share.kurohicncr.top/Article/details/8299356.shtml)
-- 2026-06-29 15:45 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/911440949.shtml)
-- 2026-06-29 16:10 - [行程万里不忘初心](http://www.share.minike.top/Article/details/59178626228.shtml)
-- 2026-06-29 15:48 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/1723745005.shtml)
-- 2026-06-29 15:48 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/622057.shtml)
-- 2026-06-29 15:57 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/064264568214.shtml)
-- 2026-06-29 16:10 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/21081551132.shtml)
-- 2026-06-29 15:47 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/59720.shtml)
-- 2026-06-29 15:44 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/62341.shtml)
+- 2026-06-29 16:00 - [崔韩率还以为韩娱来新人了](http://www.share.minike.top/Article/details/19099.shtml)
+- 2026-06-29 16:02 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/61943.shtml)
+- 2026-06-29 16:03 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/67616.shtml)
+- 2026-06-29 15:54 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/20236.shtml)
+- 2026-06-29 15:58 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/55189564.shtml)
+- 2026-06-29 15:57 - [首尔商铺禁止洪明甫入内](http://www.blog.kurohicncr.top/Article/details/089477417029.shtml)
+- 2026-06-29 16:02 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/7983828.shtml)
+- 2026-06-29 15:53 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/43365807.shtml)
+- 2026-06-29 15:53 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/286118781122.shtml)
+- 2026-06-29 16:06 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/84188070861.shtml)
+- 2026-06-29 16:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/858403744.shtml)
+- 2026-06-29 16:09 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/813715380822.shtml)
+- 2026-06-29 16:17 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/052052866866.shtml)
+- 2026-06-29 16:05 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/6248150.shtml)
+- 2026-06-29 16:11 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/97269071.shtml)

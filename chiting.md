@@ -1,60 +1,57 @@
-# 十基金解读A股百点长阳：市场将进入重定价阶段，寻求中长期线索是更优选择
+# OEXN:就业分化信号支撑金价高位震荡
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-周三A股三大指数集体大涨，沪指更是收出久违的百点长阳。 4月8日，A股呈现强劲反弹态势，三大指数集体大幅高开高走。截至收盘，上证综指涨104.83点，涨幅为2.69%，报3995点；深证成指涨4.79%，创业板指涨5.91%。市场情绪显著回暖，成交量明显放大。 对于周三市场大涨的原因，澎湃新闻盘后采访了十家公募。多家公募基金认为，周三A股大涨的核心驱动力，来自中东地缘风险的超预
+4月10日，黄金价格在周四早盘维持在当日高位附近震荡运行，主要受到最新就业数据发布后的市场情绪推动。OEXN认为，就业市场出现一定分化信号，使得投资者对经济前景的判断趋于谨慎，从而对黄金形成一定支撑。整体来看，金价在短线维持偏强走势，但仍缺乏持续突破的明确动能。 最新数据显示，美国初请失业金人数大致高于市场预期，整体处于约二十一万至二十二万区间，同时前值也有所上修。这表明劳动力
 
 ## 正文
 
-周三A股三大指数集体大涨，沪指更是收出久违的百点长阳。
+4月10日，黄金价格在周四早盘维持在当日高位附近震荡运行，主要受到最新就业数据发布后的市场情绪推动。
 
-4月8日，A股呈现强劲反弹态势，三大指数集体大幅高开高走。
+OEXN认为，就业市场出现一定分化信号，使得投资者对经济前景的判断趋于谨慎，从而对黄金形成一定支撑。
 
-截至收盘，上证综指涨104.83点，涨幅为2.69%，报3995点；深证成指涨4.79%，创业板指涨5.91%。
+整体来看，金价在短线维持偏强走势，但仍缺乏持续突破的明确动能。
 
-市场情绪显著回暖，成交量明显放大。
+最新数据显示，美国初请失业金人数大致高于市场预期，整体处于约二十一万至二十二万区间，同时前值也有所上修。
 
-对于周三市场大涨的原因，澎湃新闻盘后采访了十家公募。
+这表明劳动力市场边际有所走弱，新增失业人数略超预期水平。
 
-多家公募基金认为，周三A股大涨的核心驱动力，来自中东地缘风险的超预期缓和。
+与此同时，四周均值维持在约二十万左右的区间，波动相对有限。
 
-美伊双方已同意实施为期两周的临时停火并开启谈判，霍尔木兹海峡通航预期改善，推动原油价格大幅回落，从而显著缓解了市场对通胀升温及金融紧缩的担忧。
+OEXN认为，这种数据表现说明就业市场并未出现明显恶化，而是处于温和调整阶段，对市场的影响更多体现在预期层面。
 
-不过，也有公募基金提示，战事风险尚未完全解除，投资者应保持警惕，寻求中长期线索仍是更优选择。
+另一方面，续请失业金人数表现相对稳健。
 
 ## 相关推荐
 
-- 2026-06-29 16:09 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 16:02 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 15:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 16:11 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 15:47 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 16:07 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 15:57 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 15:53 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 16:07 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 15:53 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 15:59 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 15:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 16:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 16:04 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 15:54 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 16:10 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 16:17 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 15:55 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 16:10 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 16:17 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 15:59 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 15:56 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 16:08 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 16:10 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 15:51 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [恋与深空 731](https://www.share.kurohicncr.top/Article/details/49290098210.shtml)
-- 2026-06-29 15:45 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/3360250.shtml)
-- 2026-06-29 16:11 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/04144086.shtml)
-- 2026-06-29 15:46 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/61006637.shtml)
-- 2026-06-29 16:09 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/579630.shtml)
-- 2026-06-29 15:56 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/0979775.shtml)
-- 2026-06-29 16:10 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/56390196932.shtml)
-- 2026-06-29 15:52 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/8117860744.shtml)
-- 2026-06-29 16:00 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/11074667.shtml)
-- 2026-06-29 15:47 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/0104499510.shtml)
-- 2026-06-29 16:00 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/76508392070.shtml)
-- 2026-06-29 16:10 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/05278208224.shtml)
-- 2026-06-29 16:09 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/86054712507.shtml)
-- 2026-06-29 16:07 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/9079828.shtml)
-- 2026-06-29 15:59 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/035563.shtml)
+- 2026-06-29 16:11 - [请回答王牌2019](https://www.share.minike.top/Article/details/179222026352.shtml)
+- 2026-06-29 16:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/64456359642.shtml)
+- 2026-06-29 16:02 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/156477.shtml)
+- 2026-06-29 15:50 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/38758950402.shtml)
+- 2026-06-29 15:56 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/01556.shtml)
+- 2026-06-29 16:05 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/791601269899.shtml)
+- 2026-06-29 16:06 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/20110822.shtml)
+- 2026-06-29 15:58 - [极限挑战第一季](http://www.blog.minike.top/Article/details/69526752680.shtml)
+- 2026-06-29 16:08 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/2765280625.shtml)
+- 2026-06-29 15:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/399808064726.shtml)
+- 2026-06-29 15:54 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/31484572.shtml)
+- 2026-06-29 15:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/919149159.shtml)
+- 2026-06-29 15:52 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/563264733298.shtml)
+- 2026-06-29 16:04 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/059551046538.shtml)
+- 2026-06-29 16:07 - [起风了](https://www.blog.minike.top/Article/details/74725845.shtml)

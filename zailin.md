@@ -1,53 +1,46 @@
-# 黄金因可能出现技术性回调而小幅走低
+# 越共中央总书记、国家主席苏林将访华
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-继纽商所近月黄金期货合约隔夜上涨近2%后，黄金在早盘因可能出现技术性回调而小幅走低。德国商业银行研究部的Carsten Fritsch在一份研究报告中称，近期油价下跌正导致“通胀风险缓解，并因此导致利率预期下调“。该大宗商品分析师补充称：“这一前景已导致债券收益率下降，而作为一种无息投资的黄金则从中受益。这种情况能否持续，取决于未来两周内（美国和伊朗之间）能否达成持久的和平解决
+新华社北京4月9日电 中共中央对外联络部发言人胡兆明4月9日宣布：应中共中央总书记、国家主席习近平邀请，越共中央总书记、国家主席苏林将于4月14日至17日对中国进行国事访问。(完)
 
 ## 正文
 
-继纽商所近月黄金期货合约隔夜上涨近2%后，黄金在早盘因可能出现技术性回调而小幅走低。
+新华社北京4月9日电 中共中央对外联络部发言人胡兆明4月9日宣布：应中共中央总书记、国家主席习近平邀请，越共中央总书记、国家主席苏林将于4月14日至17日对中国进行国事访问。
 
-德国商业银行研究部的Carsten Fritsch在一份研究报告中称，近期油价下跌正导致“通胀风险缓解，并因此导致利率预期下调“。
-
-该大宗商品分析师补充称：“这一前景已导致债券收益率下降，而作为一种无息投资的黄金则从中受益。
-
-这种情况能否持续，取决于未来两周内（美国和伊朗之间）能否达成持久的和平解决方案，或者此后紧张局势是否会再度升温“。
-
-现货黄金下跌0.2%，报每盎司4，709.31美元。
-
-责任编辑：王永生
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:52 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 16:08 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 16:11 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 15:53 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 15:48 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 16:06 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 15:52 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 15:47 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 15:45 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 16:05 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 16:05 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 16:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 16:04 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 16:16 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 16:17 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 15:55 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 16:05 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 16:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 16:14 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 15:58 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 16:02 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 15:55 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 16:17 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/802698646917.shtml)
-- 2026-06-29 16:04 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/971872452.shtml)
-- 2026-06-29 15:50 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/8112086056.shtml)
-- 2026-06-29 16:05 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/157965.shtml)
-- 2026-06-29 15:55 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/052759.shtml)
-- 2026-06-29 16:09 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/340561.shtml)
-- 2026-06-29 15:48 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/229269052.shtml)
-- 2026-06-29 16:11 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/4597994.shtml)
-- 2026-06-29 15:48 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/21424.shtml)
-- 2026-06-29 15:50 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/6529822196.shtml)
-- 2026-06-29 16:00 - [吴建豪老婆](http://www.share.kurohicncr.top/Article/details/3484386.shtml)
-- 2026-06-29 15:56 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/300755908.shtml)
-- 2026-06-29 15:52 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/051827065.shtml)
-- 2026-06-29 15:49 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/5865877.shtml)
-- 2026-06-29 15:44 - [金牌调解](https://www.blog.minike.top/Article/details/187654568.shtml)
+- 2026-06-29 16:13 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/201106293007.shtml)
+- 2026-06-29 15:58 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/810333.shtml)
+- 2026-06-29 16:09 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/7236427328.shtml)
+- 2026-06-29 16:18 - [去了一趟潮汕。](https://www.share.kurohicncr.top/Article/details/37379.shtml)
+- 2026-06-29 15:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/1342486027.shtml)
+- 2026-06-29 16:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/042614815.shtml)
+- 2026-06-29 16:08 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/9239512415.shtml)
+- 2026-06-29 16:16 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/89016143.shtml)
+- 2026-06-29 16:13 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/18324.shtml)
+- 2026-06-29 16:09 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/993609550.shtml)
+- 2026-06-29 16:17 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/069820884828.shtml)
+- 2026-06-29 16:14 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/7907615926.shtml)
+- 2026-06-29 16:14 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/28693470017.shtml)
+- 2026-06-29 16:14 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/1413358.shtml)
+- 2026-06-29 16:16 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/30910.shtml)

@@ -1,60 +1,44 @@
-# 白宫敦促巴基斯坦斡旋伊朗临时停火
+# KIM YOUNG JUN（金暎埈）获批担任韩亚银行（中国）董事、董事长
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-据知情谈判人士透露，白宫方面推动与伊朗达成临时停火，与此同时，唐纳德·特朗普却不断升级对伊朗的威胁，并称伊朗正“苦苦乞求”达成协议。 上述人士表示，数周以来，特朗普政府一直向巴基斯坦施压，劝说伊朗同意停火并重新开放霍尔木兹海峡。作为以穆斯林为主的邻国与中间方，巴基斯坦的关键作用是向德黑兰转达美方提议。 这场由巴基斯坦军方实权人物阿西姆·穆尼尔牵头的幕后斡旋，最终在周二晚间促成美
+4月10日金融一线消息，北京金融监管局发布《关于KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长任职资格的批复》，核准KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长的任职资格。 责任编辑：曹睿潼
 
 ## 正文
 
-据知情谈判人士透露，白宫方面推动与伊朗达成临时停火，与此同时，唐纳德·特朗普却不断升级对伊朗的威胁，并称伊朗正“苦苦乞求”达成协议。
+4月10日金融一线消息，北京金融监管局发布《关于KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长任职资格的批复》，核准KIM YOUNG JUN（金暎埈）韩亚银行（中国）有限公司董事、董事长的任职资格。
 
-上述人士表示，数周以来，特朗普政府一直向巴基斯坦施压，劝说伊朗同意停火并重新开放霍尔木兹海峡。
-
-作为以穆斯林为主的邻国与中间方，巴基斯坦的关键作用是向德黑兰转达美方提议。
-
-这场由巴基斯坦军方实权人物阿西姆·穆尼尔牵头的幕后斡旋，最终在周二晚间促成美国、伊朗与以色列宣布为期两周的停火；而就在数小时前，特朗普还威胁称，若伊朗不接受他的条件，将摧毁伊朗的“整个文明”。
-
-据五位了解巴基斯坦主导的幕后渠道的人士透露，特朗普因油价飙升感到担忧，且对伊朗政权的韧性感到意外，至少自3月21日首次威胁“摧毁”伊朗发电厂以来，就急于推动停火。
-
-随着特朗普周二的最后期限临近，巴基斯坦的穆尼尔密集致电美国高层官员，包括特朗普、副总统JD·万斯以及特使史蒂夫·维特科夫。
-
-美国与巴基斯坦认为，由冲突全程保持中立的穆斯林邻国转达美方提议，伊朗接受的可能性更高。
-
-穆尼尔与伊朗外长阿拉格齐通话后，巴基斯坦总理夏巴兹·谢里夫在社交媒体上公开了这份为期两周的停火提议。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 15:42 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 16:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 15:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 15:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 15:58 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 15:59 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 15:44 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 15:45 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 16:08 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 16:11 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 16:05 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 15:55 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 15:57 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 16:02 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 15:49 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 16:15 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 15:51 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 16:13 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 15:49 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 15:48 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 15:53 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 16:09 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 16:14 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/1257790475.shtml)
-- 2026-06-29 16:09 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/7853393.shtml)
-- 2026-06-29 16:03 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/12895.shtml)
-- 2026-06-29 15:42 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/755373548351.shtml)
-- 2026-06-29 15:57 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/886572400.shtml)
-- 2026-06-29 15:51 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/0346841.shtml)
-- 2026-06-29 15:46 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/31607.shtml)
-- 2026-06-29 16:04 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/356235139264.shtml)
-- 2026-06-29 15:59 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/27441.shtml)
-- 2026-06-29 15:58 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/6248467.shtml)
-- 2026-06-29 16:09 - [一见倾心](http://www.share.minike.top/Article/details/6720779.shtml)
-- 2026-06-29 15:56 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/200994369255.shtml)
-- 2026-06-29 15:48 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/05977975739.shtml)
-- 2026-06-29 15:47 - [新一代影后杨紫](http://www.share.minike.top/Article/details/5558907.shtml)
-- 2026-06-29 16:02 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/067812.shtml)
+- 2026-06-29 16:11 - [流金岁月](http://www.blog.minike.top/Article/details/7668895.shtml)
+- 2026-06-29 15:51 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/4424248160.shtml)
+- 2026-06-29 15:57 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/65792458.shtml)
+- 2026-06-29 16:02 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/421641329492.shtml)
+- 2026-06-29 16:04 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/73050.shtml)
+- 2026-06-29 16:07 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/4958065.shtml)
+- 2026-06-29 16:05 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/062116449.shtml)
+- 2026-06-29 15:59 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/05591559.shtml)
+- 2026-06-29 15:53 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/7438907.shtml)
+- 2026-06-29 16:09 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/67141371.shtml)
+- 2026-06-29 16:03 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/114652153964.shtml)
+- 2026-06-29 16:11 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/419456741411.shtml)
+- 2026-06-29 16:07 - [5万块的威力](http://www.share.minike.top/Article/details/32680.shtml)
+- 2026-06-29 16:00 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/315907627948.shtml)
+- 2026-06-29 16:11 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/5110055.shtml)

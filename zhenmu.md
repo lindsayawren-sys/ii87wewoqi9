@@ -1,60 +1,59 @@
-# 五大险企“炒股”暴赚，近200只重仓股曝光
+# 开局起步“十五五”：强化“双轮驱动” 海南促消费扩投资
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！随着A股五大上市险企2025年年报披露收官，行业投资业绩与险资重仓股布局面貌同步揭晓。 2025年，五大险企合计投资资产规模达20.7万亿元，同比增长12.8%，投资收益全线大增。其中，新华保险（601336.SH）以6.6%总投资收益率领跑行业，中国平安（601318.SH）、中国人寿（601628.SH
+中新网海口4月10日电 (记者 王子谦)“十五五”期间，海南自贸港如何增强高质量发展的内生动力？海南省发展和改革委员会主任綦树利10日在海口表示，该省将强化促消费、扩投资的“双轮驱动”。 《海南省国民经济和社会发展第十五个五年规划纲要》提出，要“全方位扩大有效需求”并强调“促进消费和投资、供给和需求良性互动”。 綦树利当日在“开局起步‘十五五’——高标准建设海南自由贸易港”专场
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网海口4月10日电 (记者 王子谦)“十五五”期间，海南自贸港如何增强高质量发展的内生动力？
 
-随着A股五大上市险企2025年年报披露收官，行业投资业绩与险资重仓股布局面貌同步揭晓。
+海南省发展和改革委员会主任綦树利10日在海口表示，该省将强化促消费、扩投资的“双轮驱动”。
 
-2025年，五大险企合计投资资产规模达20.7万亿元，同比增长12.8%，投资收益全线大增。
+《海南省国民经济和社会发展第十五个五年规划纲要》提出，要“全方位扩大有效需求”并强调“促进消费和投资、供给和需求良性互动”。
 
-其中，新华保险（601336.SH）以6.6%总投资收益率领跑行业，中国平安（601318.SH）、中国人寿（601628.SH）紧随其后，分别以6.3%的综合投资收益率、6.09%的总投资收益率跻身第一梯队；中国太保（601601.SH）、中国人保（601319.SH）均以5.7%总投资收益率稳居第二梯队。
+綦树利当日在“开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会上表示，“十五五”时期，海南将从三方面发力促消费： 一是提升国际旅游消费中心能级。
 
-在低利率环境与政策引导下，险企集体加码权益投资，中国人寿、中国平安等均施行战略性增配权益资产，公开市场权益规模大幅增长。
+擦亮海口演艺、三亚游艇、文昌航天、琼海医疗、万宁冲浪、雨林温泉等“旅游名片”；以“全球首发、亚太首展、中国首秀”为重点，将消博会打造成全球潮流生活的“始发站”和“打卡地”，推动“到海南消费”成为国际新时尚。
 
-与此同时，险资重仓流通股名单出炉，从已经披露2025年年报的上市公司数据来看，截至2025年四季度末，险资重仓近200只个股，持仓市值近1.48万亿元，其中银行股持仓市值占比近三成。
+今年，海南将举办超800场旅文体活动，引进高品质演艺项目超40场、赛事超50场。
 
-2025年四季度，中国平安旗下平安人寿大手笔增持农业银行（601288.SH）9.46亿股，中国人寿新进成为交通银行（601328.SH）、中国平安、中国铝业（601600.SH）等多家上市公司前十大流通股东。
+二是做优“三篇消费文章”。
 
-01 加码权益资产投资 2025年，各家险企投资收益均实现同比增长，成为拉动企业净利润增长的重要动力。
+打造离岛免税“金字招牌”，推动品牌、品种、价格与国际同步，让消费者不出国门就能买到高性价比的免税好物；打造博鳌乐城“医疗特区”，进一步引进国际创新药械和国际知名医疗机构，扩大与国际接轨的商业保险支付和结算范围，让更多患者能在海南用上全球好药、看好病；打造“留学海南”品牌，陵水黎安国际教育创新试验区持续引进国内外优质教育资源，今年师生规模将超过1.5万人。
 
 ## 相关推荐
 
-- 2026-06-29 16:09 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 16:04 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 16:05 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 15:54 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 15:43 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 15:47 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 16:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 16:03 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 15:50 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 16:02 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 16:09 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 15:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 15:55 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 15:59 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 15:49 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 15:55 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 16:00 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 16:15 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 16:17 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 16:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 16:01 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 16:11 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 15:57 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 16:11 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 16:00 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 15:59 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 16:06 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/73650623.shtml)
-- 2026-06-29 16:06 - [Canna纳尔8-0对位单杀Doran](http://www.blog.minike.top/Article/details/496586.shtml)
-- 2026-06-29 16:00 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/109681828.shtml)
-- 2026-06-29 15:48 - [千与千寻](http://www.share.kurohicncr.top/Article/details/7737309734.shtml)
-- 2026-06-29 16:07 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/631600095.shtml)
-- 2026-06-29 15:58 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/496116.shtml)
-- 2026-06-29 15:54 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/6475585.shtml)
-- 2026-06-29 16:04 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/64749229.shtml)
-- 2026-06-29 15:59 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/243584272.shtml)
-- 2026-06-29 16:03 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/66347.shtml)
-- 2026-06-29 16:04 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/58610686655.shtml)
-- 2026-06-29 16:05 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/66671698776.shtml)
-- 2026-06-29 15:58 - [爱很美味](http://www.blog.minike.top/Article/details/751241595.shtml)
-- 2026-06-29 16:04 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/649808.shtml)
-- 2026-06-29 15:58 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/67937.shtml)
+- 2026-06-29 16:14 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/032980374.shtml)
+- 2026-06-29 15:51 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/61231929.shtml)
+- 2026-06-29 16:02 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/5592179930.shtml)
+- 2026-06-29 16:11 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/714418877544.shtml)
+- 2026-06-29 15:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/959897474048.shtml)
+- 2026-06-29 15:58 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/502414.shtml)
+- 2026-06-29 15:57 - [媒体：高考后消费应量力而行适度有度](https://www.blog.kurohicncr.top/Article/details/2883659.shtml)
+- 2026-06-29 16:09 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/74196.shtml)
+- 2026-06-29 16:11 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/28584077.shtml)
+- 2026-06-29 15:51 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/566648.shtml)
+- 2026-06-29 16:14 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/77966.shtml)
+- 2026-06-29 16:13 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/4539892.shtml)
+- 2026-06-29 16:07 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/672785463195.shtml)
+- 2026-06-29 15:57 - [博主：美航母沦为毒品集散窝点](https://www.blog.minike.top/Article/details/27204000627.shtml)
+- 2026-06-29 15:48 - [一见倾心](https://www.blog.minike.top/Article/details/94402.shtml)

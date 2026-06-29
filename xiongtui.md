@@ -1,55 +1,56 @@
-# 美国2月耐用品订单下降1.4%，降幅超预期
+# 震荡市如何“稳”字当头？不妨关注长城增强收益定开债基
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-美国商务部周二报告称，2月份国防和运输设备、计算机及家电等耐用品的订单降幅超过预期。 经季节性调整后，所谓的耐用品订单当月下降1.4%，高于1月份0.5%的降幅，也低于道琼斯普遍预期的1.1%降幅。 然而，剔除运输项目后，订单增长了0.8%；但剔除国防项目后，订单下降了1.2%。运输设备订单下降5.4%，即61亿美元。责任编辑：张俊 SF065
+登录新浪财经APP 搜索【信披】查看更多考评等级 当前市场震荡加剧，中东局势、油价波动等因素令市场避险情绪显著升温，兼顾稳健与弹性的一级债基成为配置热点。长城基金旗下长城增强收益定期开放债券基金（A类：000254；C类：000255）于3月31日起启动开放申购，或是当前震荡市投资者们追求“稳中有进”的投资优选。（开放情况请以公司公告为准） Wind数据显示，今年以来截至3月2
 
 ## 正文
 
-美国商务部周二报告称，2月份国防和运输设备、计算机及家电等耐用品的订单降幅超过预期。
+登录新浪财经APP 搜索【信披】查看更多考评等级 当前市场震荡加剧，中东局势、油价波动等因素令市场避险情绪显著升温，兼顾稳健与弹性的一级债基成为配置热点。
 
-经季节性调整后，所谓的耐用品订单当月下降1.4%，高于1月份0.5%的降幅，也低于道琼斯普遍预期的1.1%降幅。
+长城基金旗下长城增强收益定期开放债券基金（A类：000254；C类：000255）于3月31日起启动开放申购，或是当前震荡市投资者们追求“稳中有进”的投资优选。
 
-然而，剔除运输项目后，订单增长了0.8%；但剔除国防项目后，订单下降了1.2%。
+（开放情况请以公司公告为准） Wind数据显示，今年以来截至3月27日，万得混合债券型一级指数表现较为突出，年内涨幅0.80%，显著优于同期万得混合债券型二级指数、万得偏债混合型基金指数。
 
-运输设备订单下降5.4%，即61亿美元。
+放眼更长时间维度看，过去十年间，万得混合债券型一级指数只有在2022年因为极端股债双杀收益为负，其他年份都收获了正收益。
 
-责任编辑：张俊 SF065
+（数据来源：Wind，截至2026.3.27，一级债基指数指万得混合债券型一级指数（885006.WI），指数过往表现不代表未来，不等于产品实际收益，市场有风险，投资需谨慎） 如此来看，一级债基或正适配震荡市投资者们“稳字当头”的配置需求。
+
+当前，长城增强收益定期开放债券基金正处于开放申购期。
+
+该基金以定期开放形式运作，设置一年封闭期。
+
+作为一级债基，在转债策略上，该基金以信用风险控制为基础，优选低价“黑马”转债进行配置，利用上涨下跌不对称性，力争在严控回撤的前提下获取收益弹性。
 
 ## 相关推荐
 
-- 2026-06-29 15:54 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 16:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 15:58 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 15:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 15:43 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 16:08 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 15:57 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 16:00 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 15:57 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 16:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 16:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 15:58 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 15:49 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 16:10 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 15:44 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 15:52 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 16:05 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 15:52 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 15:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 15:51 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 16:08 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 15:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 15:55 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 15:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 16:17 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [崔韩率还以为韩娱来新人了](https://www.blog.kurohicncr.top/Article/details/438370112.shtml)
-- 2026-06-29 16:07 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/420367.shtml)
-- 2026-06-29 15:47 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/06490.shtml)
-- 2026-06-29 16:08 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/610841030.shtml)
-- 2026-06-29 15:51 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/840700181100.shtml)
-- 2026-06-29 15:58 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/1518403585.shtml)
-- 2026-06-29 16:00 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/7339817089.shtml)
-- 2026-06-29 16:08 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/101851644990.shtml)
-- 2026-06-29 16:01 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/141318935334.shtml)
-- 2026-06-29 15:51 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/79164.shtml)
-- 2026-06-29 15:49 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/53225955746.shtml)
-- 2026-06-29 15:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/661104.shtml)
-- 2026-06-29 15:51 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/636718.shtml)
-- 2026-06-29 15:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/08528806.shtml)
-- 2026-06-29 15:53 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/58198536.shtml)
+- 2026-06-29 16:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/76772080606.shtml)
+- 2026-06-29 16:09 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/36338355756.shtml)
+- 2026-06-29 16:13 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/42547121.shtml)
+- 2026-06-29 15:59 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/965787397096.shtml)
+- 2026-06-29 15:53 - [东方风云榜](http://www.share.minike.top/Article/details/026313345.shtml)
+- 2026-06-29 15:57 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/150099.shtml)
+- 2026-06-29 16:06 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/13828.shtml)
+- 2026-06-29 15:59 - [驻日美军航母沦为“毒窝”](https://www.blog.kurohicncr.top/Article/details/010979981323.shtml)
+- 2026-06-29 15:56 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/389764.shtml)
+- 2026-06-29 15:53 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/515313.shtml)
+- 2026-06-29 15:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/3204156.shtml)
+- 2026-06-29 16:07 - [吴建豪老婆](https://www.share.minike.top/Article/details/58208187.shtml)
+- 2026-06-29 16:17 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/652964.shtml)
+- 2026-06-29 15:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/951281696.shtml)
+- 2026-06-29 16:09 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/4580144880.shtml)

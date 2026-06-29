@@ -1,58 +1,56 @@
-# Anthropic携手科技巨头推出AI网络安全项目
+# 商务部：希望欧盟方面多听听成员国和欧洲业界的呼声，放弃保护主义的做法
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-Anthropic于周二宣布启动一项与多家大型科技公司的合作倡议，允许合作伙伴预览其开发的一款具备网络安全能力的先进AI模型。 根据Anthropic公布的信息，这项名为“Project Glasswing”（玻璃翼计划）的项目将向特定组织开放其未公开发布的通用AI模型“Claude Mythos预览版”，用于防御性网络安全工作。合作伙伴包括亚马逊、微软、苹果、谷歌、英伟达、C
+4月9日，商务部新闻发言人何亚东主持例行新闻发布会。他谈了中欧经贸的话题。 他说，中方对中欧双边经贸安排一直持开放的态度，并且对欧洲领导人的相关提议表示欢迎。然而欧盟近年来使用多项经贸工具对中国企业调查设限，近期还接连推出网络安全法修订草案和工业加速器法案，这严重影响了中欧企业合作的信心和预期。希望欧盟方面多听听成员国和欧洲业界的呼声，放弃保护主义的做法，与中方相向而行，以开放
 
 ## 正文
 
-Anthropic于周二宣布启动一项与多家大型科技公司的合作倡议，允许合作伙伴预览其开发的一款具备网络安全能力的先进AI模型。
+4月9日，商务部新闻发言人何亚东主持例行新闻发布会。
 
-根据Anthropic公布的信息，这项名为“Project Glasswing”（玻璃翼计划）的项目将向特定组织开放其未公开发布的通用AI模型“Claude Mythos预览版”，用于防御性网络安全工作。
+他谈了中欧经贸的话题。
 
-合作伙伴包括亚马逊、微软、苹果、谷歌、英伟达、CrowdStrike和Palo Alto Networks等科技与网络安全公司。
+他说，中方对中欧双边经贸安排一直持开放的态度，并且对欧洲领导人的相关提议表示欢迎。
 
-模型能力引发关注 Anthropic在博客文章中表示，Mythos预览版已在操作系统、网络浏览器和其他软件中发现了“数千个”重大漏洞。
+然而欧盟近年来使用多项经贸工具对中国企业调查设限，近期还接连推出网络安全法修订草案和工业加速器法案，这严重影响了中欧企业合作的信心和预期。
 
-据公司介绍，该模型发现的安全漏洞包括OpenBSD中一个存在27年的错误，以及FFmpeg中一个存在16年、在自动测试工具运行500万次后仍未被检测到的漏洞。
+希望欧盟方面多听听成员国和欧洲业界的呼声，放弃保护主义的做法，与中方相向而行，以开放合作代替筑墙设垒，以对话协商妥处摩擦分歧，共同的推动中欧经贸关系健康向好发展。
 
-值得注意的是，Mythos并非专门针对网络安全任务进行训练，但其“强大的智能体编程和推理能力”使其在网络安全领域表现出色。
-
-Anthropic表示，该模型能够“完全自主地”识别漏洞并开发相关利用代码，“无需任何人工引导”。
-
-分阶段发布与安全考量 考虑到模型可能被滥用的风险，Anthropic采取了谨慎的分阶段发布策略。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 15:57 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 15:53 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 15:51 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 16:11 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 15:48 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 15:59 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 16:04 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 15:47 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 16:10 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 16:04 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 15:53 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 16:11 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 16:00 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 15:48 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 15:57 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 15:49 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 15:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 15:48 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 16:02 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 16:14 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 16:10 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 16:01 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 16:13 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 16:12 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 16:12 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 16:15 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/95783582.shtml)
-- 2026-06-29 16:09 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/12710.shtml)
-- 2026-06-29 15:58 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/4035163.shtml)
-- 2026-06-29 15:49 - [网友飞机上偶遇肖战](https://www.share.kurohicncr.top/Article/details/2473120047.shtml)
-- 2026-06-29 15:44 - [小娘惹](https://www.share.minike.top/Article/details/19574846325.shtml)
-- 2026-06-29 15:46 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/378421979090.shtml)
-- 2026-06-29 15:43 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/697485946233.shtml)
-- 2026-06-29 16:05 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/14186416.shtml)
-- 2026-06-29 15:57 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/386978075.shtml)
-- 2026-06-29 15:42 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/137037629.shtml)
-- 2026-06-29 15:57 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/553242980962.shtml)
-- 2026-06-29 15:59 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/7273209.shtml)
-- 2026-06-29 15:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/6785855642.shtml)
-- 2026-06-29 16:01 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/1317577.shtml)
-- 2026-06-29 16:06 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/09826832.shtml)
+- 2026-06-29 16:00 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/38178685.shtml)
+- 2026-06-29 16:01 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/07716440.shtml)
+- 2026-06-29 16:15 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/969303.shtml)
+- 2026-06-29 16:01 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/28962683.shtml)
+- 2026-06-29 16:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/846569401275.shtml)
+- 2026-06-29 15:51 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/42913480209.shtml)
+- 2026-06-29 16:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/379289.shtml)
+- 2026-06-29 16:08 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/52323533.shtml)
+- 2026-06-29 16:06 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/7399870055.shtml)
+- 2026-06-29 15:56 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/64398768676.shtml)
+- 2026-06-29 16:11 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/5114354544.shtml)
+- 2026-06-29 16:01 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/297363.shtml)
+- 2026-06-29 16:17 - [吴建豪老婆](http://www.blog.minike.top/Article/details/690436583.shtml)
+- 2026-06-29 16:17 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/89655502468.shtml)
+- 2026-06-29 16:16 - [爸爸当家](https://www.share.minike.top/Article/details/071401011655.shtml)

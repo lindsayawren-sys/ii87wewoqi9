@@ -1,46 +1,59 @@
-# 美国国务卿鲁比奥与英国外交大臣讨论了伊朗问题
+# 十几万娶的“外籍新娘”全跑路 揭秘跨境骗婚黑色产业链
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-根据美国方面发布的消息，国务卿鲁比奥周二与英国外交大臣讨论了伊朗在中东持续发动的袭击以及恢复霍尔木兹海峡的航行自由。 美国表示，鲁比奥和英国外交大臣库珀已达成共识，需要国际共同努力，确保航运自由通行及能源供应能够触及全球市场。责任编辑：李桐
+十几万就能娶越南、缅甸“温柔新娘”？这样的违规广告吸引了一些单身人士的目光。但广告的背后，根本不是相亲，而是组织偷渡加连环骗婚的黑色产业链。国家移民管理局、公安部、中国海警局自2022年起联合开展“獴猎”行动，严打组织偷渡、伪造证件、跨境电诈、涉外婚骗等违法犯罪，已侦办数万起案件、抓获数万名嫌疑人。近日，山东边检总站与湖南省冷水江市公安局公布，两地警方联合办案，凭一条可疑网帖，
 
 ## 正文
 
-根据美国方面发布的消息，国务卿鲁比奥周二与英国外交大臣讨论了伊朗在中东持续发动的袭击以及恢复霍尔木兹海峡的航行自由。
+十几万就能娶越南、缅甸“温柔新娘”？
 
-美国表示，鲁比奥和英国外交大臣库珀已达成共识，需要国际共同努力，确保航运自由通行及能源供应能够触及全球市场。
+这样的违规广告吸引了一些单身人士的目光。
 
-责任编辑：李桐
+但广告的背后，根本不是相亲，而是组织偷渡加连环骗婚的黑色产业链。
+
+国家移民管理局、公安部、中国海警局自2022年起联合开展“獴猎”行动，严打组织偷渡、伪造证件、跨境电诈、涉外婚骗等违法犯罪，已侦办数万起案件、抓获数万名嫌疑人。
+
+近日，山东边检总站与湖南省冷水江市公安局公布，两地警方联合办案，凭一条可疑网帖，牵出一桩特大跨境婚骗案。
+
+一条可疑网帖牵出特大跨境婚骗案 2025年2月，山东边检总站石岛边检站民警在日常网络巡查时，一条高频刷屏的违规广告，瞬间触发预警。
+
+有人长期公开揽客，专业介绍越南、缅甸美女入境结婚生子。
+
+话术极具诱惑，专门瞄准单身男性。
 
 ## 相关推荐
 
-- 2026-06-29 15:58 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 16:00 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 15:43 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 15:56 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 15:57 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 15:46 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 15:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 15:53 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 16:08 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 15:52 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 15:48 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 15:51 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 16:14 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 15:59 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 16:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 16:11 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 16:10 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 16:02 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 16:00 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 15:54 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 15:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 15:58 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 15:48 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:47 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/36815514117.shtml)
-- 2026-06-29 16:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/405483220.shtml)
-- 2026-06-29 16:07 - [恋与深空 731](http://www.blog.minike.top/Article/details/871718562.shtml)
-- 2026-06-29 15:56 - [TLAW vs DCG MSI](http://www.share.minike.top/Article/details/71999806074.shtml)
-- 2026-06-29 15:51 - [急先锋](http://www.share.minike.top/Article/details/86674762.shtml)
-- 2026-06-29 15:56 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/9054176.shtml)
-- 2026-06-29 15:47 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/98217.shtml)
-- 2026-06-29 16:05 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/601265043159.shtml)
-- 2026-06-29 16:07 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/16607223481.shtml)
-- 2026-06-29 15:58 - [世界杯上那些封神的门将](http://www.blog.kurohicncr.top/Article/details/640899.shtml)
-- 2026-06-29 15:52 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/92876.shtml)
-- 2026-06-29 15:52 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/7195837.shtml)
-- 2026-06-29 15:48 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/530158714.shtml)
-- 2026-06-29 15:49 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/902598159.shtml)
-- 2026-06-29 15:57 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/7487059.shtml)
+- 2026-06-29 15:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/25837828156.shtml)
+- 2026-06-29 16:13 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/22950.shtml)
+- 2026-06-29 15:49 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/32960922.shtml)
+- 2026-06-29 15:49 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/939596634.shtml)
+- 2026-06-29 16:00 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/383760306.shtml)
+- 2026-06-29 15:53 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.minike.top/Article/details/624910.shtml)
+- 2026-06-29 16:04 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/55407309282.shtml)
+- 2026-06-29 15:48 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/72019945.shtml)
+- 2026-06-29 16:14 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/682924.shtml)
+- 2026-06-29 15:57 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.minike.top/Article/details/21276.shtml)
+- 2026-06-29 16:14 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/226762871.shtml)
+- 2026-06-29 15:50 - [南非老帅布罗斯的梦没能做完](https://www.blog.minike.top/Article/details/222790.shtml)
+- 2026-06-29 16:03 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/076389296.shtml)
+- 2026-06-29 16:10 - [金刚川](https://www.share.kurohicncr.top/Article/details/25813.shtml)
+- 2026-06-29 16:15 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/92183.shtml)

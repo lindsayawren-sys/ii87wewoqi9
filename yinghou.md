@@ -1,49 +1,59 @@
-# 美伊宣布停火数小时内，卡塔尔等多个海湾国家报告遭伊朗空袭
+# 伊朗冲突加剧物价与增长风险 韩国央行维持利率不变
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电 据卡塔尔半岛电视台报道，卡塔尔国防部发布声明称，卡塔尔当地时间8日遭到来自伊朗的七枚弹道导弹和多架无人机袭击。 声明还称，卡方防空系统对所有来袭的导弹和无人机进行了成功拦截。 报道提到，在美国和伊朗宣布停火后数小时内，多个海湾国家报告其领土遭到导弹和无人机袭击，其中包括阿拉伯联合酋长国、科威特、巴林、卡塔尔等。 此前报道，美国和伊朗美国东部时间4月7日晚宣布停
+韩国央行维持基准利率不变，释放出谨慎立场。伊朗冲突引发能源价格飙升，既推高通胀风险又威胁经济增长，令政策前景复杂化。 韩国银行（韩国央行）周五将七天期回购利率维持在2.5%，延续自去年7月以来的按兵不动态势。该决定符合媒体调查的全部18位经济学家的预期。此次维持利率的背景是通胀保持平稳、经济增长颇具韧性。 上月消费者物价同比上涨2.2%，较2月的2%有所回升，且仍接近央行目标水
 
 ## 正文
 
-中新网4月9日电 据卡塔尔半岛电视台报道，卡塔尔国防部发布声明称，卡塔尔当地时间8日遭到来自伊朗的七枚弹道导弹和多架无人机袭击。
+韩国央行维持基准利率不变，释放出谨慎立场。
 
-声明还称，卡方防空系统对所有来袭的导弹和无人机进行了成功拦截。
+伊朗冲突引发能源价格飙升，既推高通胀风险又威胁经济增长，令政策前景复杂化。
 
-报道提到，在美国和伊朗宣布停火后数小时内，多个海湾国家报告其领土遭到导弹和无人机袭击，其中包括阿拉伯联合酋长国、科威特、巴林、卡塔尔等。
+韩国银行（韩国央行）周五将七天期回购利率维持在2.5%，延续自去年7月以来的按兵不动态势。
 
-此前报道，美国和伊朗美国东部时间4月7日晚宣布停火并开启为期两周的谈判。
+该决定符合媒体调查的全部18位经济学家的预期。
+
+此次维持利率的背景是通胀保持平稳、经济增长颇具韧性。
+
+上月消费者物价同比上涨2.2%，较2月的2%有所回升，且仍接近央行目标水平。
+
+此外，韩国央行在2月上调了2026年经济增长预期。
+
+而当前中东冲突正对通胀与增长两端构成风险。
 
 ## 相关推荐
 
-- 2026-06-29 16:04 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 15:50 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 15:53 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 15:59 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 16:09 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 15:42 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 16:05 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 16:07 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 16:02 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 15:52 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 16:09 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 15:52 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 15:59 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 16:06 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 16:03 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 15:51 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 15:50 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 16:16 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 16:07 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 15:56 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 15:55 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 15:50 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 15:52 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 15:59 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:05 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/581190160939.shtml)
-- 2026-06-29 16:07 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/06283852.shtml)
-- 2026-06-29 16:04 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/465910631674.shtml)
-- 2026-06-29 15:49 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/926751776628.shtml)
-- 2026-06-29 15:48 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/254058.shtml)
-- 2026-06-29 15:43 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/3816248287.shtml)
-- 2026-06-29 16:05 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/090414.shtml)
-- 2026-06-29 15:53 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/1805142.shtml)
-- 2026-06-29 16:04 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/441014075334.shtml)
-- 2026-06-29 15:54 - [女心理师](https://www.blog.minike.top/Article/details/5590191.shtml)
-- 2026-06-29 15:49 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/18776254555.shtml)
-- 2026-06-29 16:10 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/696359824910.shtml)
-- 2026-06-29 15:55 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/6441354276.shtml)
-- 2026-06-29 16:00 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/342062866450.shtml)
-- 2026-06-29 16:03 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/829880783.shtml)
+- 2026-06-29 16:15 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/8117544.shtml)
+- 2026-06-29 16:07 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/697379062.shtml)
+- 2026-06-29 15:54 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/204329850.shtml)
+- 2026-06-29 16:08 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/341100634.shtml)
+- 2026-06-29 16:08 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/2754958215.shtml)
+- 2026-06-29 15:54 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.kurohicncr.top/Article/details/05900791.shtml)
+- 2026-06-29 16:00 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/92925819.shtml)
+- 2026-06-29 15:51 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/5467555.shtml)
+- 2026-06-29 16:08 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/374489176.shtml)
+- 2026-06-29 16:16 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/16415348.shtml)
+- 2026-06-29 16:02 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/54276134.shtml)
+- 2026-06-29 15:52 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/9993995561.shtml)
+- 2026-06-29 16:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/745870599.shtml)
+- 2026-06-29 16:01 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/516441954.shtml)
+- 2026-06-29 16:16 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/634388887.shtml)

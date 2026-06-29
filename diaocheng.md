@@ -1,50 +1,59 @@
-# 伊朗：准备对以色列袭击黎巴嫩做出“强力”回应
+# 2026年“苏超”盐城队出征 首轮客场挑战连云港队
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-伊朗革命卫队航空航天部队司令Majid Mousavi表示，伊朗正在准备对以色列今天袭击黎巴嫩的行动做出“强力”回应。 Mousavi表示，以色列对真主党的侵略就是对伊朗的侵略。责任编辑：李桐
+中新网盐城4月10日电(记者 谷华)绿茵逐梦，再战新程。2026年江苏省城市足球联赛(下称“苏超”)将于4月11日启幕。10日上午，2026年“苏超”盐城队举行出征活动，球队全员亮相，球迷现场呐喊助威，正式开启新赛季征程。 出征活动现场，歌声嘹亮、鼓点铿锵。上午9时许，盐城队全体教练员、运动员集体亮相。队伍中，既有球迷们熟悉的胡书铭、庞志超、花志成、童心等人，也有经过层层选拔脱
 
 ## 正文
 
-伊朗革命卫队航空航天部队司令Majid Mousavi表示，伊朗正在准备对以色列今天袭击黎巴嫩的行动做出“强力”回应。
+中新网盐城4月10日电(记者 谷华)绿茵逐梦，再战新程。
 
-Mousavi表示，以色列对真主党的侵略就是对伊朗的侵略。
+2026年江苏省城市足球联赛(下称“苏超”)将于4月11日启幕。
 
-责任编辑：李桐
+10日上午，2026年“苏超”盐城队举行出征活动，球队全员亮相，球迷现场呐喊助威，正式开启新赛季征程。
+
+出征活动现场，歌声嘹亮、鼓点铿锵。
+
+上午9时许，盐城队全体教练员、运动员集体亮相。
+
+队伍中，既有球迷们熟悉的胡书铭、庞志超、花志成、童心等人，也有经过层层选拔脱颖而出的新生力量。
+
+球队的出征，也是城市精神的集结。
+
+“新赛季即将拉开帷幕，大家能够代表盐城出征，既是个人荣耀，也是城市荣光。
 
 ## 相关推荐
 
-- 2026-06-29 15:54 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 15:44 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 15:46 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 15:51 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 16:11 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 15:57 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 15:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 15:43 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 15:51 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 16:01 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 15:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 16:09 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 16:05 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 15:53 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 16:05 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 15:58 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 15:49 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 16:03 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 16:06 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 16:07 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 16:13 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 16:03 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 16:02 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 16:13 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 15:51 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 16:03 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 16:15 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:58 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/88508097577.shtml)
-- 2026-06-29 15:50 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/913603680.shtml)
-- 2026-06-29 16:10 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/19610668043.shtml)
-- 2026-06-29 15:58 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/93097904.shtml)
-- 2026-06-29 15:47 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/865049.shtml)
-- 2026-06-29 16:01 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/58101.shtml)
-- 2026-06-29 16:06 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/249895470442.shtml)
-- 2026-06-29 16:10 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/294510048.shtml)
-- 2026-06-29 16:05 - [网警提醒4类高考查分陷阱考生速看](http://www.share.kurohicncr.top/Article/details/22021.shtml)
-- 2026-06-29 15:55 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/564281547448.shtml)
-- 2026-06-29 16:11 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/343767.shtml)
-- 2026-06-29 15:42 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/545070.shtml)
-- 2026-06-29 15:49 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/18944236.shtml)
-- 2026-06-29 15:50 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/32313988.shtml)
-- 2026-06-29 16:03 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/8919033677.shtml)
+- 2026-06-29 16:05 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/439141406.shtml)
+- 2026-06-29 16:06 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/107212672.shtml)
+- 2026-06-29 15:49 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/279491642867.shtml)
+- 2026-06-29 16:00 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/26394.shtml)
+- 2026-06-29 15:50 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/411715857302.shtml)
+- 2026-06-29 16:05 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/97956078.shtml)
+- 2026-06-29 16:17 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/010181429799.shtml)
+- 2026-06-29 16:13 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/71966335922.shtml)
+- 2026-06-29 16:04 - [AG 宫斗](http://www.share.minike.top/Article/details/7951228667.shtml)
+- 2026-06-29 16:00 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/451266.shtml)
+- 2026-06-29 16:06 - [世界杯上那些封神的门将](http://www.blog.kurohicncr.top/Article/details/7098688.shtml)
+- 2026-06-29 15:52 - [唐艺昕告别浪姐千字长文](http://www.share.kurohicncr.top/Article/details/7075563.shtml)
+- 2026-06-29 15:51 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/54253589.shtml)
+- 2026-06-29 15:53 - [普京承认俄出现燃料危机](https://www.blog.minike.top/Article/details/2302722.shtml)
+- 2026-06-29 15:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/8836185.shtml)

@@ -1,59 +1,53 @@
-# 押注苹果赚了1000亿美元但卖早了！巴菲特：当前美股不便宜，将重启慈善午餐
+# 北约秘书长：欧洲正在逐步摆脱对美国的不健康依赖
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-卸任CEO的“股神”巴菲特依然密切参与伯克希尔·哈撒韦的投资决策。 3月31日，95岁沃伦·巴菲特在接受采访时讨论了他卸任首席执行官（CEO）后的生活、对公司新任首席执行官Greg Abel的看法、最新的市场趋势、慈善午餐拍卖会的详情等等话题。 巴菲特在执掌伯克希尔·哈撒韦六十年后，于2026年初卸任首席执行官一职，目前仍担任公司董事长。 仍然密切参与投资决策 巴菲特强调，尽管
+在美国总统特朗普因伊朗战争批评北约后，北约秘书长马克·吕特表示，该组织正从欧洲对美国“不健康的相互依赖”转向“建立在真正伙伴关系基础上的跨大西洋联盟”。 吕特周四在华盛顿里根研究所发表讲话时作出上述表态，他此行旨在缓和与特朗普政府的紧张关系。 吕特说，“我对美国领导力的价值形成了坚定不移的认知，但这次也给了我一个反思的契机，好好思考当美国的盟友把这种领导力——美国的领导力——视
 
 ## 正文
 
-卸任CEO的“股神”巴菲特依然密切参与伯克希尔·哈撒韦的投资决策。
+在美国总统特朗普因伊朗战争批评北约后，北约秘书长马克·吕特表示，该组织正从欧洲对美国“不健康的相互依赖”转向“建立在真正伙伴关系基础上的跨大西洋联盟”。
 
-3月31日，95岁沃伦·巴菲特在接受采访时讨论了他卸任首席执行官（CEO）后的生活、对公司新任首席执行官Greg Abel的看法、最新的市场趋势、慈善午餐拍卖会的详情等等话题。
+吕特周四在华盛顿里根研究所发表讲话时作出上述表态，他此行旨在缓和与特朗普政府的紧张关系。
 
-巴菲特在执掌伯克希尔·哈撒韦六十年后，于2026年初卸任首席执行官一职，目前仍担任公司董事长。
+吕特说，“我对美国领导力的价值形成了坚定不移的认知，但这次也给了我一个反思的契机，好好思考当美国的盟友把这种领导力——美国的领导力——视为理所当然时，会发生什么。
 
-仍然密切参与投资决策 巴菲特强调，尽管他将在2026年初把CEO的职位交给，但他仍然会亲力亲为。
+” 这位北约负责人承认，一些欧洲国家曾认为“硬实力是令人尴尬的事情”，他们的军事实力随时间推移而逐步削弱，现代时期的国防预算“萎缩到无足轻重的程度”。
 
-巴菲特在采访中说，他仍然每天到办公室上班，关注市场动态，并与同事一起进行交易。
+吕特认为，欧洲大陆以前“过度依赖”美军来应对威胁，如今欧洲正在加大投入，而特朗普已推动北约盟友提高国防支出，这些新增投资“为真正的伙伴关系奠定基础”。
 
-巴菲特描述了他的日常安排，包括在开盘前致电伯克希尔·哈撒韦金融资产主管Mark Millard，讨论市场动态。
-
-巴菲特说，Millard的办公室就在大约20英尺外，他会根据这些谈话执行交易。
-
-“我不会做任何Greg认为错误的投资。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 15:52 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 16:02 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 15:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 15:58 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 16:03 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 15:59 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 15:47 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 15:48 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 16:01 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 16:02 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 16:07 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 15:45 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 15:45 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 15:49 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 15:56 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 15:58 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 15:50 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 16:02 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 15:54 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 16:08 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 16:06 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 16:02 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 16:05 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 16:01 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:47 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/01430085.shtml)
-- 2026-06-29 16:11 - [12所大学更正招生目录](https://www.share.kurohicncr.top/Article/details/3311919696.shtml)
-- 2026-06-29 15:56 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/92975948745.shtml)
-- 2026-06-29 15:45 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/405237236404.shtml)
-- 2026-06-29 15:53 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/9741312.shtml)
-- 2026-06-29 15:57 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/6234674.shtml)
-- 2026-06-29 15:49 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.kurohicncr.top/Article/details/5001895.shtml)
-- 2026-06-29 15:53 - [德国VS巴拉圭前瞻](http://www.share.minike.top/Article/details/806004035240.shtml)
-- 2026-06-29 15:43 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/090515.shtml)
-- 2026-06-29 16:11 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/9762197433.shtml)
-- 2026-06-29 15:47 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/11227785612.shtml)
-- 2026-06-29 16:09 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/08991.shtml)
-- 2026-06-29 16:09 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.kurohicncr.top/Article/details/78565.shtml)
-- 2026-06-29 15:56 - [美人鱼](http://www.share.minike.top/Article/details/0560180963.shtml)
-- 2026-06-29 16:03 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/48395044.shtml)
+- 2026-06-29 16:15 - [人类对空调和其他家电有多双标](http://www.blog.minike.top/Article/details/325079464.shtml)
+- 2026-06-29 16:09 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/842632.shtml)
+- 2026-06-29 15:57 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/684854335.shtml)
+- 2026-06-29 15:51 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/73038763513.shtml)
+- 2026-06-29 16:16 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/53065054306.shtml)
+- 2026-06-29 15:54 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/1332401912.shtml)
+- 2026-06-29 16:07 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/53828008471.shtml)
+- 2026-06-29 16:00 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/33031227966.shtml)
+- 2026-06-29 16:10 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/742854.shtml)
+- 2026-06-29 15:59 - [84岁英国教授成中国网红](https://www.share.kurohicncr.top/Article/details/589252759542.shtml)
+- 2026-06-29 16:08 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/02766559087.shtml)
+- 2026-06-29 16:13 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/2097850.shtml)
+- 2026-06-29 16:08 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/23961.shtml)
+- 2026-06-29 15:51 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/086469367690.shtml)
+- 2026-06-29 16:16 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/838594745.shtml)

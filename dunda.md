@@ -1,47 +1,60 @@
-# 时隔21年再来大陆 郑丽文：大陆的发展进步超乎期待和想象
+# 黄炎培职业教育思想研究会学术年会在佛山举行
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月08日 16:50 来源：中国新闻网 4月8日上午，中国国民党主席郑丽文率领国民党访问团拜谒了南京中山陵。这是郑丽文时隔21年，再次来到大陆。(记者 刘子衿 路梅 制作 方敏） 责任编辑：【于晓】
+中新网佛山4月10日电 (记者 郭军)由中华职业教育社主办的黄炎培职业教育思想研究会2025—2026学术年会9日在佛山开幕。本次年会主题为：“十五五”职业教育高质量发展与教育强国建设。 中华职业教育社第十一届理事会理事长陈昌智出席并作主旨讲话。他表示，黄炎培职业教育思想是我国职业教育的宝贵思想财富。站在“十五五”新起点上，要与时俱进传承弘扬黄炎培职业教育思想，推动职业教育高质
 
 ## 正文
 
-发布时间：2026年04月08日 16:50 来源：中国新闻网 4月8日上午，中国国民党主席郑丽文率领国民党访问团拜谒了南京中山陵。
+中新网佛山4月10日电 (记者 郭军)由中华职业教育社主办的黄炎培职业教育思想研究会2025—2026学术年会9日在佛山开幕。
 
-这是郑丽文时隔21年，再次来到大陆。
+本次年会主题为：“十五五”职业教育高质量发展与教育强国建设。
 
-(记者 刘子衿 路梅 制作 方敏） 责任编辑：【于晓】
+中华职业教育社第十一届理事会理事长陈昌智出席并作主旨讲话。
+
+他表示，黄炎培职业教育思想是我国职业教育的宝贵思想财富。
+
+站在“十五五”新起点上，要与时俱进传承弘扬黄炎培职业教育思想，推动职业教育高质量发展，助力教育强国建设。
+
+要始终把立德树人作为职业教育的根本任务，把劳模精神、劳动精神、工匠精神融入教育教学各环节，加快现代职业教育体系建设，推动职业教育主动拥抱技术变革，全面提升服务产业升级与技能型社会建设的能力。
+
+广东省人民政府副省长、佛山市委书记唐屹峰在致辞中提到，广东是经济大省、制造业大省，拥有全部31个制造业大类，制造业规模约占全国1/8，形成了10个万亿级战略性产业集群。
+
+庞大的产业基础，不仅对高素质技能技术人才提出了迫切需求，也为职业教育发展提供了广阔舞台。
 
 ## 相关推荐
 
-- 2026-06-29 15:52 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 16:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 15:46 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 15:50 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 15:45 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 15:54 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 16:02 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 16:11 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 16:10 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 15:53 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 15:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 16:12 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 16:12 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 16:05 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 16:02 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 16:06 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 16:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 16:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 16:09 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 16:01 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 15:48 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 16:15 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 16:17 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 16:08 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 15:57 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/713212389.shtml)
-- 2026-06-29 15:59 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/8568004573.shtml)
-- 2026-06-29 15:44 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/424615591.shtml)
-- 2026-06-29 15:44 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/20951225359.shtml)
-- 2026-06-29 15:45 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/722928337794.shtml)
-- 2026-06-29 16:03 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/594738941327.shtml)
-- 2026-06-29 15:58 - [T1零封KC MSI](https://www.share.minike.top/Article/details/997721648.shtml)
-- 2026-06-29 15:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/2780804.shtml)
-- 2026-06-29 16:05 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/52438962.shtml)
-- 2026-06-29 15:49 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/0413881267.shtml)
-- 2026-06-29 15:44 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/1808224.shtml)
-- 2026-06-29 16:04 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/981013.shtml)
-- 2026-06-29 15:48 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/060424930714.shtml)
-- 2026-06-29 16:06 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/9320072.shtml)
-- 2026-06-29 16:03 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/61502704585.shtml)
+- 2026-06-29 16:00 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/499301.shtml)
+- 2026-06-29 16:11 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/18130.shtml)
+- 2026-06-29 16:03 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/65122676.shtml)
+- 2026-06-29 15:57 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/38190.shtml)
+- 2026-06-29 16:09 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/21153.shtml)
+- 2026-06-29 15:57 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/54581.shtml)
+- 2026-06-29 16:09 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/70999018.shtml)
+- 2026-06-29 15:49 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/903845750528.shtml)
+- 2026-06-29 15:56 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/7364331461.shtml)
+- 2026-06-29 16:04 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/4998252.shtml)
+- 2026-06-29 15:53 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/112157986815.shtml)
+- 2026-06-29 16:05 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/20769982.shtml)
+- 2026-06-29 15:50 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/5057984.shtml)
+- 2026-06-29 15:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/887665002.shtml)
+- 2026-06-29 15:48 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/31563294689.shtml)

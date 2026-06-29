@@ -1,59 +1,58 @@
-# 新职业、新工种、新岗位！聚焦服务业，这场大会释放有力信号
+# 美军“拯救上校飞行员”的险途
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-7日—8日，全国服务业大会在北京召开。这是新时代首次聚焦国民经济第一大产业——服务业而举行的全国性大会。规格之高，背后释放什么信号？发展服务业，为何如此重要？ 服务业，就在我们身边。下个馆子、打个车、理个发，我们的衣食住行，都离不开服务业。如果说生活性服务业服务的是“人”，那生产性服务业主要服务的就是“企业”。一家企业要发货，需要物流服务；要贷款，需要金融服务。“东数西算”提供
+中国新闻周刊记者：曹然 发于总第1231期《中国新闻周刊》杂志 浓烟在被烧焦的飞机残骸上升起。从螺旋桨、引擎、机舱的形态，能依稀辨认出这是美军的C-130“大力神”运输机和“黑鹰”直升机。这次对美军飞行员的“生死营救”被美国总统特朗普称之为“史上最大胆、最勇敢的救援”。 一方面，美军高效完成了特朗普“带他们(F-15机组)回家”的命令。但另一方面，战争已持续超过40天，美军仍未
 
 ## 正文
 
-7日—8日，全国服务业大会在北京召开。
+中国新闻周刊记者：曹然 发于总第1231期《中国新闻周刊》杂志 浓烟在被烧焦的飞机残骸上升起。
 
-这是新时代首次聚焦国民经济第一大产业——服务业而举行的全国性大会。
+从螺旋桨、引擎、机舱的形态，能依稀辨认出这是美军的C-130“大力神”运输机和“黑鹰”直升机。
 
-规格之高，背后释放什么信号？
+这次对美军飞行员的“生死营救”被美国总统特朗普称之为“史上最大胆、最勇敢的救援”。
 
-发展服务业，为何如此重要？
+一方面，美军高效完成了特朗普“带他们(F-15机组)回家”的命令。
 
-服务业，就在我们身边。
+但另一方面，战争已持续超过40天，美军仍未彻底消除伊朗的反击和防空能力，更未能彻底改变伊朗政权的执政基础。
 
-下个馆子、打个车、理个发，我们的衣食住行，都离不开服务业。
+在救援行动中，两架美军运输机因为陷入沙地被炸毁抛弃，导致行动“差一点失败”；多架攻击机和直升机遭伊军轻武器攻击受损。
 
-如果说生活性服务业服务的是“人”，那生产性服务业主要服务的就是“企业”。
+而美军为了“救一人”对当地交通基础设施的无差别轰炸，又造成了更大的平民伤亡。
 
-一家企业要发货，需要物流服务；要贷款，需要金融服务。
+“幸运”的第一步 这场震惊世界的救援行动，始于伊朗时间4月3日凌晨，一架呼号为“Dude44”的美军双座F-15E战斗机在伊朗境内执行任务时，突然被伊朗防空导弹击中。
 
 ## 相关推荐
 
-- 2026-06-29 15:58 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 16:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 16:03 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 16:00 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 16:05 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 16:02 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 16:06 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 15:51 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 15:51 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 16:06 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 16:10 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 15:57 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 15:53 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 15:54 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 15:53 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 16:08 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 16:15 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 15:53 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 16:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 15:52 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 16:00 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 15:54 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 16:05 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 16:10 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 16:05 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/0828547.shtml)
-- 2026-06-29 15:54 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.kurohicncr.top/Article/details/616851783.shtml)
-- 2026-06-29 15:54 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/90235496.shtml)
-- 2026-06-29 16:11 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/66523.shtml)
-- 2026-06-29 16:05 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/33199.shtml)
-- 2026-06-29 15:42 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/38591383.shtml)
-- 2026-06-29 15:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/330343643.shtml)
-- 2026-06-29 15:51 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/635517917.shtml)
-- 2026-06-29 15:43 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/34351950.shtml)
-- 2026-06-29 15:52 - [沙丘](https://www.blog.kurohicncr.top/Article/details/8675561.shtml)
-- 2026-06-29 16:07 - [欧盟为什么越来越倾向贸易保护](http://www.blog.minike.top/Article/details/292398733195.shtml)
-- 2026-06-29 16:05 - [起风了](https://www.share.kurohicncr.top/Article/details/172978269549.shtml)
-- 2026-06-29 16:02 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/0673684888.shtml)
-- 2026-06-29 16:02 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/48360.shtml)
-- 2026-06-29 16:04 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/310463371352.shtml)
+- 2026-06-29 16:10 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/491487550.shtml)
+- 2026-06-29 16:17 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/7422170.shtml)
+- 2026-06-29 15:52 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/835933.shtml)
+- 2026-06-29 16:10 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/439160.shtml)
+- 2026-06-29 16:02 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/092078612685.shtml)
+- 2026-06-29 16:08 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/40192507440.shtml)
+- 2026-06-29 15:53 - [美人鱼](https://www.share.minike.top/Article/details/8057328.shtml)
+- 2026-06-29 16:11 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/40982.shtml)
+- 2026-06-29 16:09 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/3886742.shtml)
+- 2026-06-29 16:14 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/21173577142.shtml)
+- 2026-06-29 16:16 - [省市招考专家解读山西高考志愿政策](http://www.blog.kurohicncr.top/Article/details/92901990.shtml)
+- 2026-06-29 16:12 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/54586931362.shtml)
+- 2026-06-29 15:51 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/007843.shtml)
+- 2026-06-29 16:01 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/210492317122.shtml)
+- 2026-06-29 16:04 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/18791.shtml)

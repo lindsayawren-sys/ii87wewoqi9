@@ -1,59 +1,50 @@
-# 女子冒充房东在成都“一房多租” 警方：嫌疑人已被刑拘
+# 中国开发的东南亚单体最大光伏项目投运
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电 据“成都公安”微信公众号消息，4月7日，成都市公安局高新区分局发布警情通报。 近日，成都市公安局高新区分局陆续接到多名群众报警，称在租房过程中疑似遭遇诈骗。 经查，犯罪嫌疑人童某(女，39岁)在成都市高新区、武侯区、天府新区等地租赁房屋后，冒充房东或以转租名义，通过网络平台发布虚假租房信息，采取“一房多租”的方式，与多名被害人签订租赁合同，骗取租金、押金等款项
+发布时间：2026年04月09日 19:09 来源：中国新闻网 近日，由中国开发建设的东南亚单体最大光伏项目——中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网投运。 据了解，该项目是老挝首个大型山地光伏项目，一期投产后，预计年均发电量约16.5亿千瓦时，等效节约标煤消耗约50万吨、减排二氧化碳约130万吨。 据介绍，该项目带动我国新能源制造、施工、建设产业链40余家企业
 
 ## 正文
 
-中新网4月8日电 据“成都公安”微信公众号消息，4月7日，成都市公安局高新区分局发布警情通报。
+发布时间：2026年04月09日 19:09 来源：中国新闻网 近日，由中国开发建设的东南亚单体最大光伏项目——中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网投运。
 
-近日，成都市公安局高新区分局陆续接到多名群众报警，称在租房过程中疑似遭遇诈骗。
+据了解，该项目是老挝首个大型山地光伏项目，一期投产后，预计年均发电量约16.5亿千瓦时，等效节约标煤消耗约50万吨、减排二氧化碳约130万吨。
 
-经查，犯罪嫌疑人童某(女，39岁)在成都市高新区、武侯区、天府新区等地租赁房屋后，冒充房东或以转租名义，通过网络平台发布虚假租房信息，采取“一房多租”的方式，与多名被害人签订租赁合同，骗取租金、押金等款项，后以各种理由拖延被害人入住，并携款潜逃。
+据介绍，该项目带动我国新能源制造、施工、建设产业链40余家企业，以及老挝本地施工单位、机械供应、原材料供应等30余家企业共同参与建设。
 
-其间：童某存在向被害人出示伪造的房产证等行为。
+后续，中广核将加快推进老挝北部五省后续清洁能源项目落地，开拓中部、南部市场，推动中老互联互通向更深层次、更广领域迈进。
 
-接部分被害人报案后，成都市公安局高新区分局立即成立工作专班，将相关案件并案侦查，于4月3日将童某抓获。
-
-目前，童某已被依法刑事拘留，案件正在进一步侦办中。
-
-通报中提到，为全面查清案件事实，切实维护被害人合法权益，请尚未报案的被害人携带本人身份证及复印件、租房合同原件及复印件、资金交易明细等相关证据材料，前往成都市公安局高新区分局经济犯罪侦查大队登记报案，配合公安机关开展调查取证工作。
+(记者 索有为 制作 王佳琪） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 15:43 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 15:46 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 16:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 15:59 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 16:05 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 16:01 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 16:09 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 16:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 16:00 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 15:43 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 16:03 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 15:46 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 15:46 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 15:54 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 15:57 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 16:08 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 16:12 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 16:00 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 15:50 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 15:58 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 16:04 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 15:55 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 16:00 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 15:50 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 16:13 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:52 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/780624.shtml)
-- 2026-06-29 16:00 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/308046390423.shtml)
-- 2026-06-29 16:06 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/70529.shtml)
-- 2026-06-29 15:49 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/04403.shtml)
-- 2026-06-29 15:55 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/134454851.shtml)
-- 2026-06-29 16:11 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/96244282224.shtml)
-- 2026-06-29 16:11 - [周生如故](http://www.share.kurohicncr.top/Article/details/6756570017.shtml)
-- 2026-06-29 16:01 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/590543.shtml)
-- 2026-06-29 16:02 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/303775.shtml)
-- 2026-06-29 15:57 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/77430935993.shtml)
-- 2026-06-29 15:54 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/5308509.shtml)
-- 2026-06-29 16:10 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/48446915677.shtml)
-- 2026-06-29 15:45 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/89288808281.shtml)
-- 2026-06-29 15:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/3767045.shtml)
-- 2026-06-29 15:48 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/325109826105.shtml)
+- 2026-06-29 15:51 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/126297253.shtml)
+- 2026-06-29 15:48 - [舒行钢任湖南省交通运输厅厅长](http://www.share.minike.top/Article/details/41703851.shtml)
+- 2026-06-29 16:12 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/9043539272.shtml)
+- 2026-06-29 16:01 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/568450535.shtml)
+- 2026-06-29 15:59 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/6375357800.shtml)
+- 2026-06-29 16:15 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/043146940.shtml)
+- 2026-06-29 16:01 - [请回答王牌2019](http://www.blog.minike.top/Article/details/045280599767.shtml)
+- 2026-06-29 15:50 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/125601324031.shtml)
+- 2026-06-29 16:03 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/6066988.shtml)
+- 2026-06-29 15:51 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/07049.shtml)
+- 2026-06-29 16:03 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/451573554.shtml)
+- 2026-06-29 16:01 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/61576691.shtml)
+- 2026-06-29 15:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/05482.shtml)
+- 2026-06-29 15:56 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/31009.shtml)
+- 2026-06-29 15:53 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/91896.shtml)

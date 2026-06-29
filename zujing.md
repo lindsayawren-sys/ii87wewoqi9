@@ -1,46 +1,48 @@
-# 04月08日有机硅DMC价格14400.00元/吨 60天上涨3.97%
+# 建滔集团获Hallgain Management Limited增持202.95万股 每股作价35.76港元
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-据生意社监测，有机硅DMC04月08日最新价格14400.00元/吨，最近60天上涨3.97%，90天上涨5.69%。相关生产商有：鲁西化工(000830)云南能投(002053)恒星科技(002132)东岳硅材(300821)兴发集团(600141)三友化工(600409)新安股份(600596)合盛硅业(603260)等。
+香港联交所最新数据显示，4月8日，Hallgain Management Limited增持建滔集团（00148）202.95万股，每股作价35.76港元，总金额约为7257.49万港元。增持后最新持股数目约为4.85亿股，持股比例为43.76%。责任编辑：卢昱君
 
 ## 正文
 
-据生意社监测，有机硅DMC04月08日最新价格14400.00元/吨，最近60天上涨3.97%，90天上涨5.69%。
+香港联交所最新数据显示，4月8日，Hallgain Management Limited增持建滔集团（00148）202.95万股，每股作价35.76港元，总金额约为7257.49万港元。
 
-相关生产商有：鲁西化工(000830)云南能投(002053)恒星科技(002132)东岳硅材(300821)兴发集团(600141)三友化工(600409)新安股份(600596)合盛硅业(603260)等。
+增持后最新持股数目约为4.85亿股，持股比例为43.76%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:09 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 15:54 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 15:55 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 15:57 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 16:07 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 16:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 15:50 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 16:10 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 15:43 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 15:52 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 15:56 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 15:53 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 16:14 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 15:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 16:12 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 16:07 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 16:09 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 15:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 15:49 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 15:51 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 15:59 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 15:56 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 16:01 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 15:49 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/639137.shtml)
-- 2026-06-29 15:55 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/449124.shtml)
-- 2026-06-29 15:56 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/113975229.shtml)
-- 2026-06-29 16:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/27780535180.shtml)
-- 2026-06-29 16:10 - [端午节加班工资应该怎么算](https://www.share.minike.top/Article/details/596592.shtml)
-- 2026-06-29 15:49 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/72033191584.shtml)
-- 2026-06-29 15:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/53737763329.shtml)
-- 2026-06-29 16:07 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/75537297.shtml)
-- 2026-06-29 15:58 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/1648947236.shtml)
-- 2026-06-29 16:10 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/304149.shtml)
-- 2026-06-29 15:54 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/3911869.shtml)
-- 2026-06-29 16:07 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/1399647.shtml)
-- 2026-06-29 16:05 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/39807.shtml)
-- 2026-06-29 16:04 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/454736335.shtml)
-- 2026-06-29 15:47 - [沉睡花园](https://www.blog.minike.top/Article/details/919527217774.shtml)
+- 2026-06-29 15:49 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/05233.shtml)
+- 2026-06-29 16:02 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/1533685845.shtml)
+- 2026-06-29 16:01 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/529081.shtml)
+- 2026-06-29 16:04 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/499708076.shtml)
+- 2026-06-29 15:57 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/053643.shtml)
+- 2026-06-29 16:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/72400208.shtml)
+- 2026-06-29 15:55 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/828429130.shtml)
+- 2026-06-29 16:00 - [绘画区你赢了](https://www.share.minike.top/Article/details/5074865458.shtml)
+- 2026-06-29 16:11 - [金刚川](https://www.share.minike.top/Article/details/084049224.shtml)
+- 2026-06-29 16:06 - [20年前的周杰伦](https://www.share.minike.top/Article/details/24474.shtml)
+- 2026-06-29 15:56 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/269876301.shtml)
+- 2026-06-29 16:13 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/51049226362.shtml)
+- 2026-06-29 15:52 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/610126264792.shtml)
+- 2026-06-29 16:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/30348.shtml)
+- 2026-06-29 16:17 - [恋与深空失控领地](https://www.share.minike.top/Article/details/37395682.shtml)

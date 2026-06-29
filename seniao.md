@@ -1,61 +1,50 @@
-# 中国车企能否推动钢铁行业走向更绿色？
+# 今年一季度全国共侦办妨害国（边）境管理犯罪案件5507起
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-尤晓莺：大型车企和钢铁企业表示将深化减碳合作，但在汽车制造中使用更低碳的钢材仍处于起步阶段。文 | 尤晓莺为环境网站“对话地球”撰稿今年早些时候，中国汽车制造商和钢铁企业在上海聚首，共同探讨行业发展新路径。他们承诺携手推进减排，降低钢铁生产过程中产生的碳排放。双方企业、核心行业协会及研究机构共同签署联合声明，要加快车企大规模采用“低碳”钢材，并最终推动中国制造业的绿色转型。这一
+中新网4月10日电 据“国家移民管理局”微信公众号消息，4月10日，国家移民管理局召开新闻发布会，发布2026年一季度移民管理工作主要数据。 一季度，全国移民管理机构扎实统筹推进打击整治移民管理领域违法犯罪，共侦办妨害国(边)境管理犯罪案件5507起，抓获犯罪嫌疑人10487人，打掉犯罪团伙67个，挂牌督办重特大案件37起。依法严厉打击口岸边境涉枪爆、贩毒走私等违法犯罪，破获毒
 
 ## 正文
 
-尤晓莺：大型车企和钢铁企业表示将深化减碳合作，但在汽车制造中使用更低碳的钢材仍处于起步阶段。
+中新网4月10日电 据“国家移民管理局”微信公众号消息，4月10日，国家移民管理局召开新闻发布会，发布2026年一季度移民管理工作主要数据。
 
-文 | 尤晓莺为环境网站“对话地球”撰稿今年早些时候，中国汽车制造商和钢铁企业在上海聚首，共同探讨行业发展新路径。
+一季度，全国移民管理机构扎实统筹推进打击整治移民管理领域违法犯罪，共侦办妨害国(边)境管理犯罪案件5507起，抓获犯罪嫌疑人10487人，打掉犯罪团伙67个，挂牌督办重特大案件37起。
 
-他们承诺携手推进减排，降低钢铁生产过程中产生的碳排放。
-
-双方企业、核心行业协会及研究机构共同签署联合声明，要加快车企大规模采用“低碳”钢材，并最终推动中国制造业的绿色转型。
-
-这一声明与中国“十五五”规划方向一致，该规划3月12日于北京由立法机关通过，描绘了中国总体经济蓝图。
-
-规划指出，未来五年，国家必须推动“重点行业”实现碳减排。
-
-鉴于中国钢铁行业产量居全球首位、碳排放量位列全国第二，它很可能被纳入重点减排领域。
-
-尽管中国汽车制造商在采用绿钢方面仍处于起步阶段，但总部位于赫尔辛基的智库——能源与清洁空气研究中心（Centre for Research on Energy and Clean Air，简称CREA）钢铁研究员沈昕一指出，汽车业实际上有潜力成为推动中国钢铁行业减排的先锋力量。
+依法严厉打击口岸边境涉枪爆、贩毒走私等违法犯罪，破获毒品案件109起，抓获犯罪嫌疑人172人，缴获各类毒品约1.5吨，破获万克以上案件16起；查缴各类枪支342支，子弹1.3万余发。
 
 ## 相关推荐
 
-- 2026-06-29 15:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 16:10 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 15:52 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 16:03 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 15:54 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 16:06 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 15:53 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 15:56 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 15:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 15:58 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 15:44 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 15:59 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 15:49 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 15:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 15:56 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 16:11 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 15:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 15:48 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 15:53 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 15:55 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 15:53 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 16:07 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 16:06 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 16:06 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 15:57 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 16:13 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 16:15 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 16:07 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 16:06 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:03 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/45103435971.shtml)
-- 2026-06-29 15:47 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/042538.shtml)
-- 2026-06-29 16:02 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/52728732.shtml)
-- 2026-06-29 16:07 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/9454275113.shtml)
-- 2026-06-29 16:02 - [沙丘](http://www.blog.minike.top/Article/details/4012145299.shtml)
-- 2026-06-29 15:44 - [重度抑郁女孩没钱去做心理咨询](http://www.share.kurohicncr.top/Article/details/598894.shtml)
-- 2026-06-29 15:50 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/70339693.shtml)
-- 2026-06-29 15:57 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/637135.shtml)
-- 2026-06-29 16:10 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/9304520.shtml)
-- 2026-06-29 16:00 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/987340933.shtml)
-- 2026-06-29 15:58 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/44654.shtml)
-- 2026-06-29 16:02 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/536762712588.shtml)
-- 2026-06-29 16:11 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/52490.shtml)
-- 2026-06-29 16:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/2299038.shtml)
-- 2026-06-29 15:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/57759.shtml)
+- 2026-06-29 15:53 - [毒液2](http://www.share.minike.top/Article/details/1847676.shtml)
+- 2026-06-29 16:08 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/371585.shtml)
+- 2026-06-29 15:54 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/660334.shtml)
+- 2026-06-29 16:17 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/9111919691.shtml)
+- 2026-06-29 16:05 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/28538725.shtml)
+- 2026-06-29 16:04 - [毒液2](https://www.blog.minike.top/Article/details/484850877.shtml)
+- 2026-06-29 16:15 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/359261504.shtml)
+- 2026-06-29 15:52 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/697758142.shtml)
+- 2026-06-29 16:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/8485901070.shtml)
+- 2026-06-29 16:02 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/2617260728.shtml)
+- 2026-06-29 16:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/8782342687.shtml)
+- 2026-06-29 16:06 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/72699384043.shtml)
+- 2026-06-29 15:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/981806.shtml)
+- 2026-06-29 16:14 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/943920.shtml)
+- 2026-06-29 16:03 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/81270904.shtml)

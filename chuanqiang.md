@@ -1,60 +1,60 @@
-# 丰田因补贴政策改变市场格局而领先 补贴赋予该公司明显的定价优势
+# 亚行上调韩国今年经济增长预期至1.9%
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-丰田在日本电动车市场开始超越比亚迪，而目前两者的差异非常简单：定价。 这一差距是由政府补贴推动的。丰田的电动车最高可获得130万日元（约合8188美元）的补贴，而比亚迪的车型仅能获得约35万至45万日元（约合2200至2800美元）。两者相差近6000美元，这对于任何实际购车的消费者来说都是一个巨大的差异。这使得丰田的产品看起来更具吸引力，甚至在考虑配置或品牌之前就已经如此。
+韩国财政部周五表示，亚洲开发银行（亚行）已将韩国今年的经济增长预期上调至1.9%，原因是出口增长和私人消费改善。 这一数字较亚行去年12月做出的预测上调了0.2个百分点。 亚行的最新预测与国际货币基金组织及韩国开发研究院的预测一致，这两家机构也都预测今年韩国经济增长率为1.9%。韩国央行则预测韩国经济增长率为2%。 亚行将此次预测上调归因于全球半导体行业上行周期中强劲的半导体出
 
 ## 正文
 
-丰田在日本电动车市场开始超越比亚迪，而目前两者的差异非常简单：定价。
+韩国财政部周五表示，亚洲开发银行（亚行）已将韩国今年的经济增长预期上调至1.9%，原因是出口增长和私人消费改善。
 
-这一差距是由政府补贴推动的。
+这一数字较亚行去年12月做出的预测上调了0.2个百分点。
 
-丰田的电动车最高可获得130万日元（约合8188美元）的补贴，而比亚迪的车型仅能获得约35万至45万日元（约合2200至2800美元）。
+亚行的最新预测与国际货币基金组织及韩国开发研究院的预测一致，这两家机构也都预测今年韩国经济增长率为1.9%。
 
-两者相差近6000美元，这对于任何实际购车的消费者来说都是一个巨大的差异。
+韩国央行则预测韩国经济增长率为2%。
 
-这使得丰田的产品看起来更具吸引力，甚至在考虑配置或品牌之前就已经如此。
+亚行将此次预测上调归因于全球半导体行业上行周期中强劲的半导体出口，以及对扩张性财政政策和关键利率下调有望在今年提振国内需求的预期。
 
-你已经可以看到这种转变正在发生。
+该机构还提到，韩国政府在半导体、国防和生物技术等战略领域增加支出预计将产生积极影响。
 
-2026年2月，丰田售出了超过2000辆bZ4X，连续第四个月位居日本国内电动车市场榜首。
+然而，该行也指出了一些下行风险，包括美国可能采取额外关税措施、建筑业活动低迷以及人工智能（AI）相关芯片需求的不确定性。
 
-而不久前情况正好相反。
+韩国财政部解释说，亚行的展望反映的是中东紧张局势在一个月内趋于稳定的情景。
 
 ## 相关推荐
 
-- 2026-06-29 15:43 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 16:04 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 15:49 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 15:57 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 15:54 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 15:51 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 15:58 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 15:57 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 15:50 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 15:50 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 15:54 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 16:09 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 15:52 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 15:48 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 15:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 16:04 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 16:11 - [T1 KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 16:02 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 16:00 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 15:48 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 16:12 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 16:03 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 16:03 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 16:13 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 16:15 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 15:57 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 16:00 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 15:58 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [逆天祖国人](http://www.blog.minike.top/Article/details/20518049433.shtml)
-- 2026-06-29 15:50 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/6738741539.shtml)
-- 2026-06-29 16:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/0286494.shtml)
-- 2026-06-29 15:46 - [速度与激情9](http://www.blog.minike.top/Article/details/885549516976.shtml)
-- 2026-06-29 15:49 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.minike.top/Article/details/9000717784.shtml)
-- 2026-06-29 15:56 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/473161349709.shtml)
-- 2026-06-29 15:52 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/26579.shtml)
-- 2026-06-29 15:54 - [中国战机大片上新](https://www.share.minike.top/Article/details/96701.shtml)
-- 2026-06-29 15:58 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/792480788270.shtml)
-- 2026-06-29 16:03 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/308737472.shtml)
-- 2026-06-29 15:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/407276784434.shtml)
-- 2026-06-29 15:54 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/004213.shtml)
-- 2026-06-29 16:05 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/479144810.shtml)
-- 2026-06-29 16:00 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/020144.shtml)
-- 2026-06-29 16:02 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/8434821494.shtml)
+- 2026-06-29 15:56 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/7977008.shtml)
+- 2026-06-29 15:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/0675482631.shtml)
+- 2026-06-29 15:49 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/779116232.shtml)
+- 2026-06-29 16:05 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/2956167.shtml)
+- 2026-06-29 16:00 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/38716935.shtml)
+- 2026-06-29 15:51 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/57452395.shtml)
+- 2026-06-29 16:08 - [媒体：中国田径压力与期待并存](https://www.blog.minike.top/Article/details/1171732.shtml)
+- 2026-06-29 15:58 - [恋与深空失控领地](http://www.share.minike.top/Article/details/699817123.shtml)
+- 2026-06-29 16:04 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/55372741614.shtml)
+- 2026-06-29 15:48 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/41641754.shtml)
+- 2026-06-29 16:02 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/6767424.shtml)
+- 2026-06-29 15:49 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/1022966782.shtml)
+- 2026-06-29 16:00 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/841813580282.shtml)
+- 2026-06-29 16:07 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/8678735839.shtml)
+- 2026-06-29 16:11 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/678280.shtml)

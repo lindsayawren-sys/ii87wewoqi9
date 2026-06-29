@@ -1,54 +1,47 @@
-# 美国驻巴林大使馆要求美国公民就地避难
+# 真主党呼吁黎巴嫩政府不要向以色列做出“无条件让步”
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-美国驻巴林首都麦纳麦大使馆要求在这个海湾国家的所有美国政府工作人员就地避难，并建议巴林境内所有其他美国公民 “照此执行”。 美国国务院领事事务办公室在 X 平台发文称：“尽可能留在安全建筑内，远离窗户。备好食物、水、药品及其他必需物资。” 该办公室补充表示，大使馆已 “暂停所有常规领事服务”。 在与伊朗的战争期间，巴林已多次遭到伊朗方面的袭击。这个波斯湾西南海岸外的小岛国通过跨
+据Al-Manar电视台报道，真主党秘书长Naim Qasem在一封信中呼吁黎巴嫩政府停止向以色列做出“无条件让步”。 在对抗以色列的战争中，“抵抗将持续下去，直到剩下最后一口气”。责任编辑：刘明亮
 
 ## 正文
 
-美国驻巴林首都麦纳麦大使馆要求在这个海湾国家的所有美国政府工作人员就地避难，并建议巴林境内所有其他美国公民 “照此执行”。
+据Al-Manar电视台报道，真主党秘书长Naim Qasem在一封信中呼吁黎巴嫩政府停止向以色列做出“无条件让步”。
 
-美国国务院领事事务办公室在 X 平台发文称：“尽可能留在安全建筑内，远离窗户。
+在对抗以色列的战争中，“抵抗将持续下去，直到剩下最后一口气”。
 
-备好食物、水、药品及其他必需物资。
-
-” 该办公室补充表示，大使馆已 “暂停所有常规领事服务”。
-
-在与伊朗的战争期间，巴林已多次遭到伊朗方面的袭击。
-
-这个波斯湾西南海岸外的小岛国通过跨海大桥与沙特阿拉伯相连，也是美国海军第五舰队的驻地。
-
-责任编辑：郭明煜
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 15:43 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 15:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 15:56 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 15:56 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 15:42 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 15:56 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 15:43 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 15:52 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 15:46 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 15:48 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 16:12 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 15:56 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 16:02 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 16:06 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 15:56 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 16:03 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 15:49 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 16:10 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 16:04 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 15:56 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 16:17 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:57 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/17019223403.shtml)
-- 2026-06-29 16:05 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/8204053.shtml)
-- 2026-06-29 15:53 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/62481959039.shtml)
-- 2026-06-29 16:09 - [金刚川](http://www.blog.minike.top/Article/details/64814545209.shtml)
-- 2026-06-29 16:04 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/7439533938.shtml)
-- 2026-06-29 16:09 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/40972599175.shtml)
-- 2026-06-29 16:01 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/988089589.shtml)
-- 2026-06-29 15:54 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/2632046.shtml)
-- 2026-06-29 15:51 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/758438302662.shtml)
-- 2026-06-29 15:47 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/85778961.shtml)
-- 2026-06-29 15:58 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/322910.shtml)
-- 2026-06-29 16:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/5007079.shtml)
-- 2026-06-29 16:10 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/291185266409.shtml)
-- 2026-06-29 16:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/96415.shtml)
-- 2026-06-29 15:56 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/902974501390.shtml)
+- 2026-06-29 15:57 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/4799737.shtml)
+- 2026-06-29 15:50 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/9742844629.shtml)
+- 2026-06-29 16:05 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/693585308.shtml)
+- 2026-06-29 16:15 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/17354.shtml)
+- 2026-06-29 16:04 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/2217098120.shtml)
+- 2026-06-29 16:05 - [男孩复读一年减重20斤涨分111分](https://www.share.kurohicncr.top/Article/details/95631046596.shtml)
+- 2026-06-29 16:14 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/74616254.shtml)
+- 2026-06-29 16:15 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/01094.shtml)
+- 2026-06-29 16:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/6539108.shtml)
+- 2026-06-29 16:01 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/443782118722.shtml)
+- 2026-06-29 16:01 - [斗破苍穹](https://www.blog.minike.top/Article/details/24721.shtml)
+- 2026-06-29 15:48 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/102319405585.shtml)
+- 2026-06-29 15:49 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/45566689538.shtml)
+- 2026-06-29 16:16 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/61955.shtml)
+- 2026-06-29 16:04 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/4047303002.shtml)

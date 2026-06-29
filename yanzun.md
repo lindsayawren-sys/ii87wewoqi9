@@ -1,61 +1,60 @@
-# 金价飙涨，油价重挫！后市怎么走？
+# 世界黄金协会解密：美伊战火下，黄金为何反遭抛售？
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 4月8日，全球大宗商品市场呈现鲜明分化：黄金强势拉升，原油爆跌，两大核心品种走势反差强烈。 黄金市场方面，现货与期货同步走高。截至发稿，伦敦金现报4790.72美元/盎司，日内上涨1.9%，盘中最高触及4857.55美元/盎司；COMEX黄金期货日内涨幅达2.65%，报4809美元/盎司，
+文章来源：金十数据 今年3月，国际金价遭遇重挫，单月跌幅达12%，报收4608美元/盎司，创下2013年6月以来最疲软的单月表现。 在美伊冲突加剧、通胀压力高企的背景下，作为避险资产的黄金为何逆市暴跌？ 世界黄金协会（WGC）在最新报告中指出，这并非黄金基本面的崩塌，而是一场由流动性需求驱动的“去杠杆”风暴。 在正常的市场逻辑中，地缘政治动荡和通胀预期是金价的强力支撑。但3月的
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+文章来源：金十数据 今年3月，国际金价遭遇重挫，单月跌幅达12%，报收4608美元/盎司，创下2013年6月以来最疲软的单月表现。
 
-来源：国际金融报 4月8日，全球大宗商品市场呈现鲜明分化：黄金强势拉升，原油爆跌，两大核心品种走势反差强烈。
+在美伊冲突加剧、通胀压力高企的背景下，作为避险资产的黄金为何逆市暴跌？
 
-黄金市场方面，现货与期货同步走高。
+世界黄金协会（WGC）在最新报告中指出，这并非黄金基本面的崩塌，而是一场由流动性需求驱动的“去杠杆”风暴。
 
-截至发稿，伦敦金现报4790.72美元/盎司，日内上涨1.9%，盘中最高触及4857.55美元/盎司；COMEX黄金期货日内涨幅达2.65%，报4809美元/盎司，盘中最高上探至4888美元/盎司，与现货市场形成共振，推动金价持续走高。
+在正常的市场逻辑中，地缘政治动荡和通胀预期是金价的强力支撑。
 
-与黄金强势形成鲜明对比，国际原油期货市场当日遭遇重挫。
+但3月的市场表现却极度反直觉。
 
-截至发稿，WTI原油暴跌16.18%，报94.67美元/桶，盘中最低触及91.05美元/桶；布伦特原油期货同步跳水13.95%，报94.03美元/桶，盘中最低触及91.7美元/桶。
+WGC分析认为，黄金被抛售是因为交易员在面临跨资产抛售潮时，为了回补其他资产（如美股）的保证金或缓解资金链压力，不得不卖出流动性最好的黄金来筹集现金。
 
-局势转机 记者获悉，这波行情剧烈波动的核心诱因是中东局势出现重大转机。
+“投资者是在卖出他们‘能卖掉’的东西，而不是他们‘想卖掉’的东西。
 
-消息面上，北京时间4月8日清晨，美国总统特朗普宣布，基于巴基斯坦总理斡旋请求，同意暂停对伊朗的轰炸和袭击行动两周，前提是伊朗全面、立即且安全地开放霍尔木兹海峡，构成“双向停火”。
+”报告指出，3月前三周，尽管避险情绪高涨，但大规模的去杠杆和流动性需求打破了供需平衡。
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 16:09 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 16:03 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 15:48 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 15:42 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 15:51 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 15:49 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 15:52 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 16:03 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 16:06 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 15:50 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 16:08 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 15:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 15:42 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 16:05 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 15:57 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 16:06 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 15:55 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 16:10 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 16:05 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 16:05 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 15:50 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 16:15 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 16:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 16:13 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 15:55 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 16:13 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 15:52 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 16:06 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/717965200.shtml)
-- 2026-06-29 15:50 - [一生一世](http://www.blog.kurohicncr.top/Article/details/628762.shtml)
-- 2026-06-29 16:11 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/66002700.shtml)
-- 2026-06-29 15:48 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/370690234077.shtml)
-- 2026-06-29 15:56 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/21664285.shtml)
-- 2026-06-29 15:52 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/21873174929.shtml)
-- 2026-06-29 15:58 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/749318530673.shtml)
-- 2026-06-29 15:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/4886547565.shtml)
-- 2026-06-29 16:06 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/6914354.shtml)
-- 2026-06-29 16:03 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/05599.shtml)
-- 2026-06-29 16:11 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/4164570670.shtml)
-- 2026-06-29 15:44 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/30778.shtml)
-- 2026-06-29 15:57 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/51916757884.shtml)
-- 2026-06-29 16:01 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/67662.shtml)
-- 2026-06-29 15:56 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/27336043.shtml)
+- 2026-06-29 16:14 - [世界杯上那些封神的门将](http://www.blog.minike.top/Article/details/27189516263.shtml)
+- 2026-06-29 16:13 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/61411438229.shtml)
+- 2026-06-29 15:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/445981244177.shtml)
+- 2026-06-29 15:49 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/87518104.shtml)
+- 2026-06-29 15:53 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/2141813.shtml)
+- 2026-06-29 15:56 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/55315958.shtml)
+- 2026-06-29 15:59 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/236836740138.shtml)
+- 2026-06-29 16:05 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/06241347.shtml)
+- 2026-06-29 15:49 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/87143487.shtml)
+- 2026-06-29 16:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/995841921.shtml)
+- 2026-06-29 15:59 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/2130906279.shtml)
+- 2026-06-29 16:12 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/234321.shtml)
+- 2026-06-29 16:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/00480823594.shtml)
+- 2026-06-29 16:12 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/58808855.shtml)
+- 2026-06-29 15:51 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/83907.shtml)

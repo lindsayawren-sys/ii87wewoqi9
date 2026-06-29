@@ -1,59 +1,56 @@
-# 大昌微线集团主要股东Spring Global出售17.36%股权
+# “苏超”球员年轻化 新赛季延长1个月覆盖多个节假日
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-大昌微线集团（00567）发布公告，于2026年4月2日，本公司董事会获主要股东Spring Global告知，其（作为卖方）已与金安智能科技有限公司（金安智能）（作为买方）订立买卖协议，内容有关买卖2.8亿股股份（占本公司于本公告日期全部已发行股本约17.36%）（转让事项）。 股份转让事项在买卖协议签署当日已正式完成。 金安智能由孙景安博士（孙博士）及 马莹女士（马女士）实
+中新网南京4月9日电 (记者 朱晓颖)11日，2026年江苏省城市足球联赛(下称“苏超”)将开幕，常州队主场对阵南通队的比赛将作为常规赛揭幕战。江苏省人民政府9日在南京召开新闻发布会，会间透露，“苏超”球员更趋年轻化，新赛季延长1个月覆盖多个节假日。 江苏省体育局副局长刘彤介绍，赛制设计上，相较于2025赛季“常规赛单循环+淘汰赛单回合”赛制，2026赛季微调为“常规赛单循环+
 
 ## 正文
 
-大昌微线集团（00567）发布公告，于2026年4月2日，本公司董事会获主要股东Spring Global告知，其（作为卖方）已与金安智能科技有限公司（金安智能）（作为买方）订立买卖协议，内容有关买卖2.8亿股股份（占本公司于本公告日期全部已发行股本约17.36%）（转让事项）。
+中新网南京4月9日电 (记者 朱晓颖)11日，2026年江苏省城市足球联赛(下称“苏超”)将开幕，常州队主场对阵南通队的比赛将作为常规赛揭幕战。
 
-股份转让事项在买卖协议签署当日已正式完成。
+江苏省人民政府9日在南京召开新闻发布会，会间透露，“苏超”球员更趋年轻化，新赛季延长1个月覆盖多个节假日。
 
-金安智能由孙景安博士（孙博士）及 马莹女士（马女士）实益拥有。
+江苏省体育局副局长刘彤介绍，赛制设计上，相较于2025赛季“常规赛单循环+淘汰赛单回合”赛制，2026赛季微调为“常规赛单循环+淘汰赛主客场双回合”赛制，常规赛仍为78场，每队6主6客；淘汰赛共13场，较去年增加6场，其中8进4、4进2实行主客场双回合，冠亚军决赛仍为一场定胜负。
 
-马女士为孙博士的配偶。
+赛程安排上，4月11日当天共4场比赛。
 
-孙博士为金安智能的唯一董事及北京金安具身智能系统有限公司（北京金安）的法定代表。
+今年“苏超”的所有比赛统一安排在周六进行，整个赛季覆盖“五一”、端午节、中秋节、国庆节等节假日，较2025年“苏超”赛季延长1个月。
 
-本集团已与北京金安及北京伟航奕宁健康管理集团有限公司共同成立金安奕宁（深圳）具身智能有限公司（合资公司）。
+球员资格上，今年的“苏超”突出城市属性和年轻化，更加注重球员与城市强关联，更加注重赛事观赏性，更加注重给年轻球员更多锻炼机会。
 
-合资公司为本公司 60%非全资附属公司及主要从事人工智能及智能机械人于医疗、康复及安老领域的商业应用与研发业务。
+从参赛球员情况看，江苏各地基本是满额报名，最终有效报名人数共647人，球员平均年龄为22.32岁，较2025赛季下降1.77岁，其中22岁以下球员达430人，占比66.46%。
 
-紧接转让事项完成前，Spring Global为本公司主要股东，且为吴文灿先生（吴先生）的全资附属公司。
+赛风赛纪方面，根据国家体育总局、中国足球协会最新规定，江苏省城市足球联赛组委会修订《江苏省城市足球联赛道德与纪律准则》，对弄虚作假、暴力行为等严重违规情形，进一步细化认定标准与处罚权限，补充完善赛区纪律责任条款，并优化调整申诉程序。
 
 ## 相关推荐
 
-- 2026-06-29 16:03 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 16:03 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 15:58 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 15:48 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 15:52 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 15:54 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 15:42 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 15:47 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 16:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 16:08 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 15:42 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 16:10 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 15:43 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 15:56 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 15:48 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 16:03 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 16:05 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 16:17 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 15:49 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 16:09 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 15:50 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 16:07 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 16:13 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/7178527694.shtml)
-- 2026-06-29 15:51 - [差点没看懂白鹿丞磊这段意识流](http://www.share.minike.top/Article/details/7264621.shtml)
-- 2026-06-29 15:57 - [博主：全球股市进入“AI极端共振”](https://www.blog.kurohicncr.top/Article/details/4568024.shtml)
-- 2026-06-29 15:50 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/9408650894.shtml)
-- 2026-06-29 15:59 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/54981744677.shtml)
-- 2026-06-29 16:07 - [滾石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/98419776111.shtml)
-- 2026-06-29 15:55 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/14760668.shtml)
-- 2026-06-29 16:10 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/914319816872.shtml)
-- 2026-06-29 15:52 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/7427516.shtml)
-- 2026-06-29 15:48 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/5874354593.shtml)
-- 2026-06-29 15:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/25067.shtml)
-- 2026-06-29 15:44 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/69121101198.shtml)
-- 2026-06-29 16:02 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/4540088061.shtml)
-- 2026-06-29 15:57 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/423094418453.shtml)
-- 2026-06-29 15:50 - [扬名立万](https://www.share.kurohicncr.top/Article/details/86620203.shtml)
+- 2026-06-29 15:56 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/9874167.shtml)
+- 2026-06-29 15:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/7047088099.shtml)
+- 2026-06-29 16:04 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/952931.shtml)
+- 2026-06-29 15:51 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/17158.shtml)
+- 2026-06-29 16:16 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/58194968.shtml)
+- 2026-06-29 16:17 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/317692.shtml)
+- 2026-06-29 15:51 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/104294.shtml)
+- 2026-06-29 16:17 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/946640095537.shtml)
+- 2026-06-29 16:16 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/36227.shtml)
+- 2026-06-29 16:02 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/230285527.shtml)
+- 2026-06-29 16:09 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/871581501.shtml)
+- 2026-06-29 15:52 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/22469235823.shtml)
+- 2026-06-29 15:53 - [扬名立万](https://www.blog.minike.top/Article/details/29384121.shtml)
+- 2026-06-29 15:57 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/08848440.shtml)
+- 2026-06-29 15:54 - [德国VS巴拉圭前瞻](http://www.share.minike.top/Article/details/7087940.shtml)

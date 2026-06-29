@@ -1,60 +1,59 @@
-# “水水中转”多式联运监管模式在黄埔口岸正式落地
+# 有人又搞事了…
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新网广州4月8日电 (许青青 曾柏臻)据黄埔海关8日消息，一批78吨自欧洲进口的牛皮纸近日在广州南沙港顺利完成换装作业，通过“水水中转”多式联运模式经内河水路运抵黄埔新港海关辖区广州集装箱码头。这是海关总署2026年第12号公告启动“水水中转”多式联运监管模式以来黄埔口岸的首票业务，标志着“一次申报、一单贯通”的“水水中转”多式联运监管模式在黄埔口岸正式落地。 据介绍，与传统
+来源：奶员外 4月9日。今天市场回落下跌，成交金额2.13万亿元。 下跌的原因，中东局势又双叒叕出现了反复。 本来美以和伊朗约定，先停火再谈判。但是，以色列袭击了黎巴嫩，说停火范围不包括这个。据说，还打死了黎巴嫩真主党领导人纳伊姆·卡西姆。 本来昨天，美国媒体披露了伊朗提出的停战十个条件。但是，特朗普发帖说，这些都是虚假的。 特朗普还说，所有美军舰船、飞机、军事人员和装备，都将
 
 ## 正文
 
-中新网广州4月8日电 (许青青 曾柏臻)据黄埔海关8日消息，一批78吨自欧洲进口的牛皮纸近日在广州南沙港顺利完成换装作业，通过“水水中转”多式联运模式经内河水路运抵黄埔新港海关辖区广州集装箱码头。
+来源：奶员外 4月9日。
 
-这是海关总署2026年第12号公告启动“水水中转”多式联运监管模式以来黄埔口岸的首票业务，标志着“一次申报、一单贯通”的“水水中转”多式联运监管模式在黄埔口岸正式落地。
+今天市场回落下跌，成交金额2.13万亿元。
 
-据介绍，与传统转关模式相比，“水水中转”多式联运改变了传统模式下多次申报、分段办理的繁琐流程。
+下跌的原因，中东局势又双叒叕出现了反复。
 
-企业仅需通过国际贸易“单一窗口”提交一份多式联运申请单即可覆盖物流全程，依托海关与港口信息互联互通即可实现多个作业环节自动办理，实现数据更精简、手续更便捷、物流更灵活的转运“无缝衔接”。
+本来美以和伊朗约定，先停火再谈判。
 
-“现在我们只需要一份多式联运申请单即可覆盖全程，中途换装不用折腾，发送电子数据即可自动办理，货物跑得顺，我们的单证工作压力也小了很多。
+但是，以色列袭击了黎巴嫩，说停火范围不包括这个。
 
-”广州鼎胜物流有限公司经理刘志伟说。
+据说，还打死了黎巴嫩真主党领导人纳伊姆·卡西姆。
 
-广州集装箱码头有限公司总经理助理鄢萍表示：“新模式进一步增强了支线港与枢纽港的联动，也给进出口企业提供了更加高效便捷的选择，进一步降低了物流成本。
+本来昨天，美国媒体披露了伊朗提出的停战十个条件。
 
-” 为保障“水水中转”多式联运模式顺利落地，黄埔海关口岸监管处联合黄埔新港海关主动对接船舶代理、码头经营单位、进出口企业等多方主体，提前开展政策宣讲和“点对点”精准业务指导，做好从备案、申报、放行等全环节的全程保障，推动首票业务顺畅落地。
+但是，特朗普发帖说，这些都是虚假的。
 
 ## 相关推荐
 
-- 2026-06-29 15:48 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 16:02 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 15:44 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 15:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 16:07 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 16:05 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 16:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 15:52 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 16:04 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 16:07 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 16:11 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 15:43 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 16:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 16:09 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 16:16 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 15:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 16:15 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 15:57 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 16:17 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 16:01 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 16:17 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 16:00 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 15:54 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 15:51 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 15:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 16:10 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 16:09 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:47 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/9910815.shtml)
-- 2026-06-29 16:07 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/21313997408.shtml)
-- 2026-06-29 16:06 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/55467867393.shtml)
-- 2026-06-29 15:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/5664671.shtml)
-- 2026-06-29 15:50 - [光与夜之恋](http://www.blog.minike.top/Article/details/63484691259.shtml)
-- 2026-06-29 16:10 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/4454758.shtml)
-- 2026-06-29 16:04 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/2940262.shtml)
-- 2026-06-29 15:55 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/251070794.shtml)
-- 2026-06-29 15:55 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/52547877.shtml)
-- 2026-06-29 16:10 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/5469120.shtml)
-- 2026-06-29 16:06 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.kurohicncr.top/Article/details/744049720.shtml)
-- 2026-06-29 16:07 - [博主：全球股市进入“AI极端共振”](https://www.share.minike.top/Article/details/380831193776.shtml)
-- 2026-06-29 16:10 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/87572275.shtml)
-- 2026-06-29 15:54 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/465572664914.shtml)
-- 2026-06-29 16:10 - [崔韩率还以为韩娱来新人了](http://www.blog.minike.top/Article/details/67596.shtml)
+- 2026-06-29 16:03 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/54254085831.shtml)
+- 2026-06-29 16:03 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/138677294523.shtml)
+- 2026-06-29 15:48 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/70504017196.shtml)
+- 2026-06-29 16:03 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/920209938.shtml)
+- 2026-06-29 15:48 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.kurohicncr.top/Article/details/816900680.shtml)
+- 2026-06-29 16:04 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/604696365.shtml)
+- 2026-06-29 15:48 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/3893188996.shtml)
+- 2026-06-29 15:54 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/521261478.shtml)
+- 2026-06-29 15:48 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/57139.shtml)
+- 2026-06-29 15:59 - [沉睡花园](http://www.blog.minike.top/Article/details/318207.shtml)
+- 2026-06-29 16:00 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/604969394603.shtml)
+- 2026-06-29 16:17 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/41026.shtml)
+- 2026-06-29 16:03 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/24956.shtml)
+- 2026-06-29 16:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/45176634.shtml)
+- 2026-06-29 16:17 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/52046.shtml)

@@ -1,59 +1,52 @@
-# 博时宏观观点：全球风险情绪对地缘扰动有所钝化
+# 西班牙谴责以色列对黎巴嫩的袭击，并重新开放驻德黑兰大使馆
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-海外方面，美联储3月新增非农大超预期，美债利率与美元再上冲。虽然短期全球市场仍受美伊战争扰动，但美元、美债对战争定价已较为充分，如果26Q2战争烈度没有进一步超预期的激化，美元流动性的进一步收紧也缺乏支撑，未来一个季度可能不再恶化、甚至可能有所缓和。 国内方面，此前春节低基数提振带来3月制造业和服务业PMI上行，供需指标均改善，若高油价持续，关注原材料价格大幅上行对中下游企业利
+西班牙外交大臣何塞・曼努埃尔・阿尔巴雷斯周四指责以色列周三对黎巴嫩发动空袭，违反了国际法以及新近达成的中东两周停火协议。 西班牙已成为西方国家中对美国和以色列在伊朗与黎巴嫩的行动发声最强烈的批评者之一，西班牙对任何参与此次战争的飞机关闭领空，并称此次战争是鲁莽且非法的。 阿尔巴雷斯在下议院对议员们表示：“昨天我们看到，以色列无视停火协议、违反国际法，向黎巴嫩投掷了数百枚炸弹。”
 
 ## 正文
 
-海外方面，美联储3月新增非农大超预期，美债利率与美元再上冲。
+西班牙外交大臣何塞・曼努埃尔・阿尔巴雷斯周四指责以色列周三对黎巴嫩发动空袭，违反了国际法以及新近达成的中东两周停火协议。
 
-虽然短期全球市场仍受美伊战争扰动，但美元、美债对战争定价已较为充分，如果26Q2战争烈度没有进一步超预期的激化，美元流动性的进一步收紧也缺乏支撑，未来一个季度可能不再恶化、甚至可能有所缓和。
+西班牙已成为西方国家中对美国和以色列在伊朗与黎巴嫩的行动发声最强烈的批评者之一，西班牙对任何参与此次战争的飞机关闭领空，并称此次战争是鲁莽且非法的。
 
-国内方面，此前春节低基数提振带来3月制造业和服务业PMI上行，供需指标均改善，若高油价持续，关注原材料价格大幅上行对中下游企业利润的挤压。
+阿尔巴雷斯在下议院对议员们表示：“昨天我们看到，以色列无视停火协议、违反国际法，向黎巴嫩投掷了数百枚炸弹。
 
-市场策略方面，债券方面，上周PMI超预期、二季度国债发行落地以及地缘冲突持续扰动下，债市短端上涨后小幅回调，长端窄幅震荡，超长端整体下跌。
+” 周四早些时候，阿尔巴雷斯宣布西班牙将重新开放驻德黑兰大使馆，以期实现该地区的和平。
 
-3月末跨季资金面平稳宽松，跨季后DR001降至1.23%新低，在内部基本面仍偏疲软、外部地缘风险持续的背景下，货币政策预计有望维持宽松态度，中短久期品种具有配置价值。
+阿尔巴雷斯对记者表示：“我已指示我国驻德黑兰大使返回、重新就任并开放大使馆，让我们从各个方面，包括伊朗首都本身，参与到这场争取和平的努力中来。
 
-长端利率仍处于风偏走弱和通胀回升、基本面修复的博弈中，短期预计有望维持震荡格局。
-
-A股方面，外部局势不确定性仍大，波动率或难以快速下降，市场对短期时间催化敏感，需耐心等待新的共识的出现。
-
-全球市场来看，冲击下A股市场相对韧性，目前市场的情绪低点已基本清晰、微观流动性基本稳定，后续继续维持降波消化的过程。
+”责任编辑：李肇孚
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 15:57 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 15:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 15:48 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 15:49 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 15:59 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 16:10 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 15:52 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 16:03 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 15:42 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 15:53 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 15:45 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 15:59 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 16:15 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 15:53 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 15:54 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 16:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 16:08 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 16:12 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 15:48 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 16:06 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 16:04 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 16:03 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:10 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/0197659.shtml)
-- 2026-06-29 16:08 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/724022183.shtml)
-- 2026-06-29 15:49 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/45920413792.shtml)
-- 2026-06-29 15:50 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/638897332.shtml)
-- 2026-06-29 15:53 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/03164277905.shtml)
-- 2026-06-29 16:08 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/059105284072.shtml)
-- 2026-06-29 15:45 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/123859507.shtml)
-- 2026-06-29 15:47 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/82749151.shtml)
-- 2026-06-29 16:02 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/275873168.shtml)
-- 2026-06-29 15:44 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/60942.shtml)
-- 2026-06-29 15:57 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/301266.shtml)
-- 2026-06-29 16:07 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/5454192.shtml)
-- 2026-06-29 15:55 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/26150970.shtml)
-- 2026-06-29 15:54 - [东方风云榜](http://www.share.minike.top/Article/details/062394865331.shtml)
-- 2026-06-29 16:03 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/496023.shtml)
+- 2026-06-29 16:16 - [爸爸当家](https://www.blog.minike.top/Article/details/062287.shtml)
+- 2026-06-29 16:12 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/269979721334.shtml)
+- 2026-06-29 15:49 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/04083259110.shtml)
+- 2026-06-29 15:57 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/98003.shtml)
+- 2026-06-29 16:15 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/56636212.shtml)
+- 2026-06-29 16:13 - [上班主打一个薪尽自然凉](https://www.share.kurohicncr.top/Article/details/67063.shtml)
+- 2026-06-29 16:02 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/92237.shtml)
+- 2026-06-29 16:01 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/07987027656.shtml)
+- 2026-06-29 16:04 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/21854234317.shtml)
+- 2026-06-29 16:04 - [Agent带来token消耗爆炸](https://www.blog.minike.top/Article/details/98320.shtml)
+- 2026-06-29 16:14 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/56754.shtml)
+- 2026-06-29 16:17 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/32207907251.shtml)
+- 2026-06-29 15:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/67818202.shtml)
+- 2026-06-29 15:53 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/8313136.shtml)
+- 2026-06-29 15:54 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/967710989366.shtml)

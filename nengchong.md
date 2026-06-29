@@ -1,56 +1,58 @@
-# 新一届管理团队首秀！直击浙商银行业绩会，没有过度关注短期业绩“赚快钱”
+# 【能源观察家】绿氢成本破局
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-近日，浙商银行2025年度业绩说明会在杭州举行。 这是该行新一届管理团队的资本市场“首秀”。董事长陈海强、行长吕临华（拟任）及一众高管直面市场关切，回应了8个现场提问。 上一年，该行实现营业收入625.1亿元、归母净利润129.3亿元，同比有所下滑；年末总资产3.48万亿元，不良贷款率连续四年下降，至1.36%。“完成了董事会预算目标。”陈海强称。 他指出，在息差持续收窄、行业
+文：绿氢成本破局：从示范走向规模化的关键窗口期“十五五”规划纲要提出，瞄准引领未来发展重点领域，构建未来产业全链条培育体系，推动氢能和核聚变能等成为新的经济增长点。这一战略部署为氢能产业锚定长期发展方向。近期，工信部、财政部、国家发改委联合印发《关于开展氢能综合应用试点工作的通知》（以下简称《通知》），进一步将顶层设计转化为可落地、可量化的行动方案。《通知》明确，2030年终端
 
 ## 正文
 
-近日，浙商银行2025年度业绩说明会在杭州举行。
+文：绿氢成本破局：从示范走向规模化的关键窗口期“十五五”规划纲要提出，瞄准引领未来发展重点领域，构建未来产业全链条培育体系，推动氢能和核聚变能等成为新的经济增长点。
 
-这是该行新一届管理团队的资本市场“首秀”。
+这一战略部署为氢能产业锚定长期发展方向。
 
-董事长陈海强、行长吕临华（拟任）及一众高管直面市场关切，回应了8个现场提问。
+近期，工信部、财政部、国家发改委联合印发《关于开展氢能综合应用试点工作的通知》（以下简称《通知》），进一步将顶层设计转化为可落地、可量化的行动方案。
 
-上一年，该行实现营业收入625.1亿元、归母净利润129.3亿元，同比有所下滑；年末总资产3.48万亿元，不良贷款率连续四年下降，至1.36%。
+《通知》明确，2030年终端用氢平均价格降至25元/千克以下、优势地区力争15元/千克的量化目标，为产业发展划定清晰路线图。
 
-“完成了董事会预算目标。
+如何跨越绿氢与灰氢的成本鸿沟、打通全链条经济性堵点，成为绿氢产业从政策驱动转向市场驱动的核心命题。
 
-”陈海强称。
+1成本鸿沟：绿氢与传统制氢的现实差距绿氢发展的核心梗阻是成本竞争力不足。
 
-他指出，在息差持续收窄、行业竞争加剧、风险防控承压的环境下，浙商银行没有一味追求规模情结，没有过度关注短期业绩“赚快钱”，没有走“垒大户”的老路，而是坚持长期主义，夯基础、调结构、强合规、控风险。
+中国氢能联盟研究院数据显示，2025年6月底，全国生产侧氢价指数约27.5元/千克，消费侧则高达45元/千克，近18元的差价凸显出从生产到终端的成本传导堵点，也让25元/千克的目标面临挑战。
 
-同时，陈海强以“三个确定性”传递新一届班子带领全行穿越周期的信心和决心，包括资产质量不断边际改善的确定性、增长动能的确定性、资本回报提升的确定性。
+电力成本是绿氢成本的核心，占比达60%—70%。
 
 ## 相关推荐
 
-- 2026-06-29 15:54 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 15:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 15:49 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 15:47 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 15:57 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 15:54 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 15:54 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 16:10 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 16:06 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 16:00 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 16:12 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 16:10 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 16:04 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 15:57 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 16:02 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 16:04 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 16:17 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 16:02 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 16:04 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 15:55 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 15:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 15:55 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:49 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/44477.shtml)
-- 2026-06-29 16:04 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/6170471952.shtml)
-- 2026-06-29 15:45 - [女生雨天开车发现雨刮条被掰走](https://www.blog.kurohicncr.top/Article/details/49046.shtml)
-- 2026-06-29 15:53 - [美人鱼](https://www.blog.minike.top/Article/details/11391198.shtml)
-- 2026-06-29 15:57 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/488746097370.shtml)
-- 2026-06-29 15:58 - [南非老帅布罗斯的梦没能做完](https://www.share.kurohicncr.top/Article/details/780048153069.shtml)
-- 2026-06-29 16:02 - [乔家的儿女](https://www.blog.minike.top/Article/details/338376774.shtml)
-- 2026-06-29 15:45 - [四川宜宾地震](https://www.share.kurohicncr.top/Article/details/4228298828.shtml)
-- 2026-06-29 15:54 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/74306071.shtml)
-- 2026-06-29 15:55 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/766799333.shtml)
-- 2026-06-29 15:58 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/682707998.shtml)
-- 2026-06-29 15:55 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/22324902601.shtml)
-- 2026-06-29 15:45 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/7217741.shtml)
-- 2026-06-29 16:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/08430.shtml)
-- 2026-06-29 16:02 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/69494.shtml)
+- 2026-06-29 16:14 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/66632151.shtml)
+- 2026-06-29 16:02 - [宜宾发生5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/59566.shtml)
+- 2026-06-29 16:13 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/5284640831.shtml)
+- 2026-06-29 15:51 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/22542.shtml)
+- 2026-06-29 16:11 - [普京承认俄出现燃料危机](https://www.blog.kurohicncr.top/Article/details/8668043569.shtml)
+- 2026-06-29 15:52 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/0508251206.shtml)
+- 2026-06-29 15:53 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/58200070600.shtml)
+- 2026-06-29 16:03 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/546480838069.shtml)
+- 2026-06-29 15:51 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/1068948271.shtml)
+- 2026-06-29 16:05 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/299841538.shtml)
+- 2026-06-29 16:01 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/78803.shtml)
+- 2026-06-29 15:54 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/9196883193.shtml)
+- 2026-06-29 16:09 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.kurohicncr.top/Article/details/01395.shtml)
+- 2026-06-29 16:09 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/263172531748.shtml)
+- 2026-06-29 16:15 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/730876.shtml)

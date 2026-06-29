@@ -1,58 +1,61 @@
-# 特朗普最后期限将至，美、以、伊加速相互打击
+# 甘肃农商银行第二批吸收合并提上日程，涉及省内25家机构
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-周二，随着结束伊朗战争的协议愈发渺茫，各方轰炸节奏全面加快。以色列打击了伊朗境内 8 座公路与铁路桥梁，美国则袭击了波斯湾哈尔克岛的军事设施。伊朗随即反击，试图打击沙特阿拉伯与阿联酋的能源设施。 据三名要求匿名的伊朗高级官员透露，此次局势升级缘于伊朗退出与美国的谈判。伊朗做出这一决定，是回应特朗普总统的威胁：若伊朗领导人不在美国东部时间晚 8 点的最后期限前接受其要求，他将摧毁
+来源：华夏时报 自3月20日正式挂牌开业后，新成立的甘肃农商银行迅速启动了下一阶段的整合工作。 4月7日，该行发布通知，拟召开2026年第一次临时股东会议，审议包括吸收合并25家涉改机构在内的一系列议案，标志着其第二批吸收合并工作正式提上日程。 甘肃农商银行是在甘肃省农村信用合作联社等66家涉改机构（含结算中心）的基础上，以新设合并方式组建而成的省级统一法人农商银行。甘肃农信系
 
 ## 正文
 
-周二，随着结束伊朗战争的协议愈发渺茫，各方轰炸节奏全面加快。
+来源：华夏时报 自3月20日正式挂牌开业后，新成立的甘肃农商银行迅速启动了下一阶段的整合工作。
 
-以色列打击了伊朗境内 8 座公路与铁路桥梁，美国则袭击了波斯湾哈尔克岛的军事设施。
+4月7日，该行发布通知，拟召开2026年第一次临时股东会议，审议包括吸收合并25家涉改机构在内的一系列议案，标志着其第二批吸收合并工作正式提上日程。
 
-伊朗随即反击，试图打击沙特阿拉伯与阿联酋的能源设施。
+甘肃农商银行是在甘肃省农村信用合作联社等66家涉改机构（含结算中心）的基础上，以新设合并方式组建而成的省级统一法人农商银行。
 
-据三名要求匿名的伊朗高级官员透露，此次局势升级缘于伊朗退出与美国的谈判。
+甘肃农信系统并未一次性完成全省农信机构的整合，为后续推进第二批吸收合并埋下伏笔。
 
-伊朗做出这一决定，是回应特朗普总统的威胁：若伊朗领导人不在美国东部时间晚 8 点的最后期限前接受其要求，他将摧毁伊朗的 “整个文明”。
+同日，甘肃金融控股集团有限公司（下称“甘肃金控”）也发布公告，披露其根据省政府相关方案，向甘肃农商银行完成240亿元注资，持股比例为53.43%，成为该行第一大股东。
 
-据知情的美以官员匿名透露，美以正加大打击力度，试图迫使伊朗开放霍尔木兹海峡这一战略航道，这也是特朗普松口的核心条件。
+第二批25家机构整合在即 今年2月，国家金融监督管理总局批复同意筹建甘肃农商银行。
 
-以色列的打击范围遍及伊朗全境，多数目标为交通基础设施，至少有一次袭击针对设拉子市的一处石化设施。
+随后，筹建工作高效推进，该行于3月17日完成工商注册登记，并于3月20日正式挂牌开业。
 
-过去数日，以色列还打击了其他多处石化设施，并称伊朗利用这些设施生产炸药及弹道导弹原料。
+根据开业时披露的信息，甘肃农商银行是在66家机构的基础上，通过新设合并方式组建而成。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 16:01 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 16:04 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 16:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 15:56 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 15:47 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 16:00 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 15:46 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 15:46 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 16:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 15:47 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 16:02 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 16:15 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 16:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 16:03 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 16:07 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 15:52 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 15:55 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 16:13 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 16:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 15:57 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 15:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 16:02 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 16:01 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 15:53 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 16:13 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 16:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:56 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/44865163.shtml)
-- 2026-06-29 15:58 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/206396931.shtml)
-- 2026-06-29 16:07 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/36403100.shtml)
-- 2026-06-29 15:56 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/108105.shtml)
-- 2026-06-29 15:59 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/19707.shtml)
-- 2026-06-29 15:48 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/3236188.shtml)
-- 2026-06-29 15:49 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/50432.shtml)
-- 2026-06-29 15:53 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/37135.shtml)
-- 2026-06-29 16:00 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/631536847012.shtml)
-- 2026-06-29 15:48 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/09658544387.shtml)
-- 2026-06-29 15:44 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/463939.shtml)
-- 2026-06-29 16:04 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/6589884.shtml)
-- 2026-06-29 15:56 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/49631.shtml)
-- 2026-06-29 15:56 - [广东一地发现极危植物新物种](https://www.share.kurohicncr.top/Article/details/30941969.shtml)
-- 2026-06-29 15:56 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/943108.shtml)
+- 2026-06-29 16:00 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/751061383.shtml)
+- 2026-06-29 16:11 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/2145877.shtml)
+- 2026-06-29 16:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/76310.shtml)
+- 2026-06-29 15:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/123945665.shtml)
+- 2026-06-29 15:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/26904.shtml)
+- 2026-06-29 15:57 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/28688799154.shtml)
+- 2026-06-29 16:16 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/9244795.shtml)
+- 2026-06-29 16:07 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/957140.shtml)
+- 2026-06-29 16:14 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/3334961.shtml)
+- 2026-06-29 15:56 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/76482170716.shtml)
+- 2026-06-29 16:02 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/340471896455.shtml)
+- 2026-06-29 15:58 - [周生如故](https://www.blog.minike.top/Article/details/80228970286.shtml)
+- 2026-06-29 15:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/819974.shtml)
+- 2026-06-29 15:48 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/712854900.shtml)
+- 2026-06-29 15:49 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/254752.shtml)

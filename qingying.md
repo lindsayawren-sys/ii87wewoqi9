@@ -1,45 +1,56 @@
-# 真主党呼吁民众等待官方停火公告
+# 41亿，“宁王”开始布局算电协同
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-真主党呼吁民众在官方宣布停火之前，不要返回受袭地区，如黎巴嫩南部和贝鲁特郊区。责任编辑：江学思
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：界面新闻 记者：高菁 宁德时代（300750.SZ）投资版图再扩张。 4月8日，数字能源公司中恒电气（002364.SZ）公告，公司控股股东杭州中恒科技投资有限公司（下称中恒科技投资），拟接受宁德时代对其进行增资，以促进宁德时代与中恒电气围绕绿色ICT基础设施、交通电动化、新型电力系统（算电协同）等领
 
 ## 正文
 
-真主党呼吁民众在官方宣布停火之前，不要返回受袭地区，如黎巴嫩南部和贝鲁特郊区。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-责任编辑：江学思
+来源：界面新闻 记者：高菁 宁德时代（300750.SZ）投资版图再扩张。
+
+4月8日，数字能源公司中恒电气（002364.SZ）公告，公司控股股东杭州中恒科技投资有限公司（下称中恒科技投资），拟接受宁德时代对其进行增资，以促进宁德时代与中恒电气围绕绿色ICT基础设施、交通电动化、新型电力系统（算电协同）等领域开展相关业务及战略合作。
+
+宁德时代计划，以约41亿元认购中恒科技投资新增注册资本。
+
+其中，宁德时代拟以其所持时代天源（深圳）科技有限公司（下称时代天源）99.697%股权作价11.96亿元，其余增资对价则通过现金支付。
+
+这意味着，宁德时代将加码算电协同布局。
+
+今年政府工作报告首次提及“算电协同”，被列为与超大规模智算集群并列的“新基建工程”核心内容，标志着行业正式从探索期进入规模化落地期。
+
+算电协同的本质是电力与算力的双向赋能。
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 16:06 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 16:04 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 15:57 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 16:06 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 15:56 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 16:04 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 15:42 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 15:51 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 15:58 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 16:01 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 15:56 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 15:57 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 16:02 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 16:14 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 16:04 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 16:11 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 16:17 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 15:58 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 16:03 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 16:08 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/56807.shtml)
-- 2026-06-29 15:42 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/374214641.shtml)
-- 2026-06-29 15:45 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/02934548.shtml)
-- 2026-06-29 16:02 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/267442.shtml)
-- 2026-06-29 16:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/80629.shtml)
-- 2026-06-29 15:56 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/15769053.shtml)
-- 2026-06-29 15:45 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/53909521.shtml)
-- 2026-06-29 15:48 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/77761506433.shtml)
-- 2026-06-29 15:58 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/3819695.shtml)
-- 2026-06-29 16:08 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/259603661.shtml)
-- 2026-06-29 16:10 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/014477.shtml)
-- 2026-06-29 15:48 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.minike.top/Article/details/01738955.shtml)
-- 2026-06-29 15:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/22622622440.shtml)
-- 2026-06-29 15:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/0830454.shtml)
-- 2026-06-29 15:58 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/472853352.shtml)
+- 2026-06-29 15:56 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/832079.shtml)
+- 2026-06-29 15:57 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/21601105759.shtml)
+- 2026-06-29 16:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/91472579050.shtml)
+- 2026-06-29 15:50 - [爸爸当家](http://www.blog.minike.top/Article/details/911587.shtml)
+- 2026-06-29 15:53 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/285367.shtml)
+- 2026-06-29 15:48 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/91934.shtml)
+- 2026-06-29 15:57 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/13399.shtml)
+- 2026-06-29 16:15 - [欧盟为什么越来越倾向贸易保护](http://www.share.kurohicncr.top/Article/details/45636922243.shtml)
+- 2026-06-29 16:08 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/559209360.shtml)
+- 2026-06-29 16:01 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/00552487125.shtml)
+- 2026-06-29 15:55 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/537255361.shtml)
+- 2026-06-29 16:13 - [84岁英国教授成中国网红](https://www.share.kurohicncr.top/Article/details/044993276.shtml)
+- 2026-06-29 15:52 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/28184.shtml)
+- 2026-06-29 15:53 - [Canna纳尔8-0对位单杀Doran](https://www.share.minike.top/Article/details/71440454170.shtml)
+- 2026-06-29 15:49 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.kurohicncr.top/Article/details/2510259336.shtml)

@@ -1,60 +1,59 @@
-# 中东突发！刚刚，大逆转！
+# 建行上海市分行行长刘军退休 接任者来自河北省分行
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】国际油价突发跳水，美股三大股指期货拉升翻红；中东局势最新消息 中国基金报记者 晨曦 刚刚，全线大逆转！ 4月7日下午，国际油价直线下挫，美油、布油双双跳水翻绿，抹去前期高位涨幅；美国天然气同步走低。 现货黄金突然走强，盘中突破4690美元/盎司。 市场对美伊协议达成的乐观情绪升温，美股三大指数期货直
+21世纪经济报道记者周炎炎 原标题：21独家|建行上海市分行行长刘军退休 接任者来自河北省分行 21世纪经济报道记者独家获悉，近期中国建设银行上海市分行原行长刘军正式退休，而接任者已经到岗工作，为建行河北省分行行长周辉东。待监管核准其任职资格后，周辉东将正式出任上海市分行行长。 这一人事变动发生在3月末4月初。建行上海市分行原行长刘军出生于1965年，今年已达退休年龄，因此这一
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+21世纪经济报道记者周炎炎 原标题：21独家|建行上海市分行行长刘军退休 接任者来自河北省分行 21世纪经济报道记者独家获悉，近期中国建设银行上海市分行原行长刘军正式退休，而接任者已经到岗工作，为建行河北省分行行长周辉东。
 
-【导读】国际油价突发跳水，美股三大股指期货拉升翻红；中东局势最新消息 中国基金报记者 晨曦 刚刚，全线大逆转！
+待监管核准其任职资格后，周辉东将正式出任上海市分行行长。
 
-4月7日下午，国际油价直线下挫，美油、布油双双跳水翻绿，抹去前期高位涨幅；美国天然气同步走低。
+这一人事变动发生在3月末4月初。
 
-现货黄金突然走强，盘中突破4690美元/盎司。
+建行上海市分行原行长刘军出生于1965年，今年已达退休年龄，因此这一重要分行人事的补位也在情理之中。
 
-市场对美伊协议达成的乐观情绪升温，美股三大指数期货直线拉升翻红。
+对科技金融“情有独钟”的行长 刘军在建行已经工作了超过30年。
 
-此前，特朗普要求伊朗在周二晚8点（北京时间上午8点）前重新开放霍尔木兹海峡，以恢复这一全球能源供应关键通道的通行——并警告称，如果未能在该期限前满足要求，美国将在4小时内摧毁所有桥梁和发电厂。
+他1986年毕业于安徽大学法学专业，2003年获香港浸会大学工商管理硕士学位。
 
-随着“最后通牒”进入倒计时，市场判断开始陷入分歧。
+他1993年开始在建行工作，2006年6月开始任建行广东省分行行长助理，2008年9月任广东省分行副行长，2011年4月起担任深圳市分行行长，2014年升任广东省分行行长，8年后的2022年7月担任建信基金董事长，2023年2月起担任上海市分行行长。
 
-一些美国官员称，特朗普私下对达成协议的前景已不那么乐观。
+2024年3月，在接受21世纪经济报道一次深度访谈时，时任上海市分行行长的刘军直言“在众多的银行业务中，我对科技金融情有独钟”。
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 16:07 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 15:46 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 15:56 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 15:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 15:58 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 15:51 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 16:07 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 15:50 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 15:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 15:49 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 15:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 16:01 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 15:51 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 16:17 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 16:15 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 15:49 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 15:58 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 16:06 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 15:59 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 16:05 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 15:51 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 16:14 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 15:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 15:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 16:06 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 16:04 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:45 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/2015528.shtml)
-- 2026-06-29 16:04 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/197339264.shtml)
-- 2026-06-29 15:54 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/160105.shtml)
-- 2026-06-29 16:03 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/1544084.shtml)
-- 2026-06-29 15:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/6351396.shtml)
-- 2026-06-29 15:48 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/16334554.shtml)
-- 2026-06-29 15:45 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/240919.shtml)
-- 2026-06-29 15:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/2673206.shtml)
-- 2026-06-29 15:51 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/834417644.shtml)
-- 2026-06-29 16:07 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/300675.shtml)
-- 2026-06-29 15:54 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/913010.shtml)
-- 2026-06-29 15:46 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/295812203975.shtml)
-- 2026-06-29 15:53 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/938494.shtml)
-- 2026-06-29 16:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/7335776301.shtml)
-- 2026-06-29 15:43 - [世界杯上那些封神的门将](https://www.blog.minike.top/Article/details/7150880205.shtml)
+- 2026-06-29 16:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/216974.shtml)
+- 2026-06-29 16:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/1063837482.shtml)
+- 2026-06-29 16:07 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/92721.shtml)
+- 2026-06-29 16:10 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/17109.shtml)
+- 2026-06-29 15:55 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/4217561.shtml)
+- 2026-06-29 15:58 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/068131546220.shtml)
+- 2026-06-29 16:14 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/78452135.shtml)
+- 2026-06-29 16:10 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/66356.shtml)
+- 2026-06-29 15:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/00908443869.shtml)
+- 2026-06-29 15:55 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/867578810.shtml)
+- 2026-06-29 16:16 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/485770.shtml)
+- 2026-06-29 15:52 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/438637595742.shtml)
+- 2026-06-29 16:06 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/522070224.shtml)
+- 2026-06-29 15:59 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/248374826894.shtml)
+- 2026-06-29 16:16 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/53135.shtml)

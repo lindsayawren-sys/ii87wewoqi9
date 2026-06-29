@@ -1,46 +1,42 @@
-# 宁德时代遭贝莱德减持约10.61万股 每股作价约630.74港元
+# 瑞芯微业绩快报：2025年度归母净利润10.4亿元，同比增长74.82%
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月2日，贝莱德减持宁德时代（03750）10.6128万股，每股作价630.7433港元，总金额约为6693.95万港元。减持后最新持股数目约为929.12万股，持股比例为5.96%。责任编辑：卢昱君
+瑞芯微4月9日发布2025年度业绩快报，报告期内实现营业总收入44.02亿元，同比增长40.36%；归属于上市公司股东的净利润10.4亿元，同比增长74.82%；基本每股收益2.48元。
 
 ## 正文
 
-香港联交所最新数据显示，4月2日，贝莱德减持宁德时代（03750）10.6128万股，每股作价630.7433港元，总金额约为6693.95万港元。
-
-减持后最新持股数目约为929.12万股，持股比例为5.96%。
-
-责任编辑：卢昱君
+瑞芯微4月9日发布2025年度业绩快报，报告期内实现营业总收入44.02亿元，同比增长40.36%；归属于上市公司股东的净利润10.4亿元，同比增长74.82%；基本每股收益2.48元。
 
 ## 相关推荐
 
-- 2026-06-29 15:57 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 16:05 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 15:48 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 15:51 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 15:51 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 15:55 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 15:55 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 15:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 15:56 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 15:42 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 15:53 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 15:58 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 16:07 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 16:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 15:54 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 16:00 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 16:14 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 16:10 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 16:17 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 16:16 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/8681493.shtml)
-- 2026-06-29 16:10 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/762535578644.shtml)
-- 2026-06-29 15:58 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/368258.shtml)
-- 2026-06-29 15:57 - [千与千寻](https://www.share.minike.top/Article/details/69608.shtml)
-- 2026-06-29 15:45 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/081235530726.shtml)
-- 2026-06-29 16:06 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/5053698847.shtml)
-- 2026-06-29 15:42 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/5317916.shtml)
-- 2026-06-29 15:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/734089702049.shtml)
-- 2026-06-29 15:55 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/3169004.shtml)
-- 2026-06-29 16:09 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/479998990.shtml)
-- 2026-06-29 15:55 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/3116712.shtml)
-- 2026-06-29 15:45 - [南非老帅布罗斯的梦没能做完](http://www.share.minike.top/Article/details/7533486567.shtml)
-- 2026-06-29 15:43 - [崔韩率还以为韩娱来新人了](http://www.share.minike.top/Article/details/27787350887.shtml)
-- 2026-06-29 15:50 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/656275666.shtml)
-- 2026-06-29 15:45 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.kurohicncr.top/Article/details/480680.shtml)
+- 2026-06-29 15:57 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/3795768149.shtml)
+- 2026-06-29 15:54 - [人形机器人](https://www.blog.minike.top/Article/details/16562591879.shtml)
+- 2026-06-29 15:58 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/428572.shtml)
+- 2026-06-29 16:17 - [行程万里不忘初心](http://www.share.minike.top/Article/details/03854.shtml)
+- 2026-06-29 16:11 - [森保一坚信日本能赢巴西](http://www.share.minike.top/Article/details/3478914.shtml)
+- 2026-06-29 16:03 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/613295880.shtml)
+- 2026-06-29 16:07 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/160251.shtml)
+- 2026-06-29 16:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/11803989798.shtml)
+- 2026-06-29 15:59 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/572412.shtml)
+- 2026-06-29 15:49 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/366130482.shtml)
+- 2026-06-29 15:50 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/050875184.shtml)
+- 2026-06-29 16:04 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/791341551.shtml)
+- 2026-06-29 16:15 - [端午节加班工资应该怎么算](https://www.blog.kurohicncr.top/Article/details/6158494.shtml)
+- 2026-06-29 16:15 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/34525778615.shtml)
+- 2026-06-29 16:10 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/38882840.shtml)

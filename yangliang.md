@@ -1,42 +1,56 @@
-# 贵州省卫生健康委员会党组成员石永忠接受审查调查
+# 现场直击郑丽文上海参访 感受两岸交流带来蓬勃生机
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新网4月3日电 据贵州省纪委监委消息：贵州省卫生健康委员会党组成员、省计生协会专职副会长石永忠涉嫌严重违纪违法，目前正接受贵州省纪委监委纪律审查和监察调查。
+发布时间：2026年04月10日 09:51 来源：中国新闻网 4月9日下午，中国国民党主席郑丽文一行结束江苏、上海参访，飞抵北京。 随团采访中，郑丽文多次提到要用AI赋能实体经济。在美团总部，她收到了无人机送来的还温热着的奶茶，她感慨大陆是服务业与AI融合发展的实证，为台湾提供了重要参考。在滨江书苑，听到台青真诚分享上海发展机遇多，她直言“太棒了！” 访问团还走进洋山港、中国
 
 ## 正文
 
-中新网4月3日电 据贵州省纪委监委消息：贵州省卫生健康委员会党组成员、省计生协会专职副会长石永忠涉嫌严重违纪违法，目前正接受贵州省纪委监委纪律审查和监察调查。
+发布时间：2026年04月10日 09:51 来源：中国新闻网 4月9日下午，中国国民党主席郑丽文一行结束江苏、上海参访，飞抵北京。
+
+随团采访中，郑丽文多次提到要用AI赋能实体经济。
+
+在美团总部，她收到了无人机送来的还温热着的奶茶，她感慨大陆是服务业与AI融合发展的实证，为台湾提供了重要参考。
+
+在滨江书苑，听到台青真诚分享上海发展机遇多，她直言“太棒了！
+
+” 访问团还走进洋山港、中国商飞，感受东方大港的繁忙与国产大飞机的硬核实力。
+
+短短一天，从智能经济到青年交流，上海的现代化发展给访问团留下了深刻印象。
+
+如果说南京拜谒中山陵，是为两岸种下和平的种子，那上海之行，便让我们看到交流合作带来的蓬勃生机。
+
+如今郑丽文即将开启在北京的重要行程，期待此行凝聚更多共识，深化两岸互利合作，为两岸同胞带来更多实实在在的利好。
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 16:09 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 15:43 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 16:09 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 16:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 15:58 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 15:46 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 16:07 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 15:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 15:55 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 16:14 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 15:55 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 16:17 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 15:54 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 16:00 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 16:07 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 16:08 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 15:59 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 15:48 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 16:06 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:46 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.minike.top/Article/details/3049153800.shtml)
-- 2026-06-29 16:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/15609602.shtml)
-- 2026-06-29 15:49 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/145735416.shtml)
-- 2026-06-29 15:56 - [梅朗雄主张法国退出北约](https://www.blog.minike.top/Article/details/70284.shtml)
-- 2026-06-29 15:56 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/42028095.shtml)
-- 2026-06-29 15:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/0010972.shtml)
-- 2026-06-29 16:06 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/68686677936.shtml)
-- 2026-06-29 16:06 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.minike.top/Article/details/786095495.shtml)
-- 2026-06-29 15:53 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/026888.shtml)
-- 2026-06-29 15:53 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/52984182.shtml)
-- 2026-06-29 15:52 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/533087252938.shtml)
-- 2026-06-29 16:11 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/9107594.shtml)
-- 2026-06-29 16:00 - [一生一世](http://www.share.kurohicncr.top/Article/details/29223125817.shtml)
-- 2026-06-29 15:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/356086754.shtml)
-- 2026-06-29 15:44 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/16689.shtml)
+- 2026-06-29 16:17 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/165782593.shtml)
+- 2026-06-29 15:52 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/51452783.shtml)
+- 2026-06-29 15:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/576687559.shtml)
+- 2026-06-29 16:03 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/34433.shtml)
+- 2026-06-29 16:00 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/202313932.shtml)
+- 2026-06-29 16:01 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/43243415959.shtml)
+- 2026-06-29 16:16 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/277733376.shtml)
+- 2026-06-29 16:02 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/8683481.shtml)
+- 2026-06-29 16:14 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/190633.shtml)
+- 2026-06-29 16:13 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/360705143.shtml)
+- 2026-06-29 15:53 - [7款商保创新药“转道”](https://www.blog.minike.top/Article/details/382885.shtml)
+- 2026-06-29 16:05 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/178961072156.shtml)
+- 2026-06-29 16:11 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/183159.shtml)
+- 2026-06-29 16:12 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/53091615471.shtml)
+- 2026-06-29 16:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/563711707010.shtml)

@@ -1,56 +1,57 @@
-# 台媒：民进党有意征召沈伯洋选台北市长
+# 美伊两周停火难阻滞胀冲击，欧元区2026增长预测或下调0.6个百分点
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电(燕新台) 民进党布局2026年台湾地区县市长选举提名已进入最后阶段，其中台北市长人选却面临“难产”局面。据台媒报道，民进党有意征召该党民意代表沈伯洋参选。 台湾《联合报》称，沈伯洋近日首度松口表态，称“若民进党需要，他一定配合”。台湾“中央社”引述“知情人士”消息表示，民进党是否征召沈伯洋挑战现任中国国民党籍台北市长蒋万安，预计一两周内将作出决定。 台湾“中时
+汇通财经APP讯——根据 汇通财经APP 报道，欧盟委员会执行副主席东布罗夫斯基斯警告称，尽管美伊达成两周停火协议，欧盟仍将遭受低增长和通胀上升带来的滞胀冲击。由于中东冲突的后果仍具有高度不确定性，欧盟委员会正准备下调今年的增长预测。 东布罗夫斯基斯近日指出：“这无疑是迈向降温的可喜一步，也有望缓解能源危机。”但他同时强调，“关于伊朗战争对经济的影响，当然仍面临高度不确定性”，
 
 ## 正文
 
-中新网4月8日电(燕新台) 民进党布局2026年台湾地区县市长选举提名已进入最后阶段，其中台北市长人选却面临“难产”局面。
+汇通财经APP讯——根据 汇通财经APP 报道，欧盟委员会执行副主席东布罗夫斯基斯警告称，尽管美伊达成两周停火协议，欧盟仍将遭受低增长和通胀上升带来的滞胀冲击。
 
-据台媒报道，民进党有意征召该党民意代表沈伯洋参选。
+由于中东冲突的后果仍具有高度不确定性，欧盟委员会正准备下调今年的增长预测。
 
-台湾《联合报》称，沈伯洋近日首度松口表态，称“若民进党需要，他一定配合”。
+东布罗夫斯基斯近日指出：“这无疑是迈向降温的可喜一步，也有望缓解能源危机。
 
-台湾“中央社”引述“知情人士”消息表示，民进党是否征召沈伯洋挑战现任中国国民党籍台北市长蒋万安，预计一两周内将作出决定。
+”但他同时强调，“关于伊朗战争对经济的影响，当然仍面临高度不确定性”，且“显然我们正面临滞胀冲击”。
 
-台湾“中时新闻网”7日发表时评指出，面对蒋万安这一强劲对手，沈伯洋的参选安排，凸显出绿营在台北市长人选上“找不出人选”的窘境。
+欧盟委员会将于5月更新官方GDP预测，此前在冲突爆发前预计今年经济增长维持在1.4%，2027年为1.5%。
 
-民进党内部对该安排反应两极。
+最新情景分析显示，如果能源价格到2026年底回落至战前水平，今年经济增长可能放缓多达0.4个百分点；若回落时间更长，今明两年经济增长则可能分别放缓0.6个百分点。
 
-台湾“风传媒”报道称，绿营支持者担忧沈伯洋的“仇恨值”过高。
+这一测算与3月底委员会内部评估高度一致，反映出能源进口依赖度高的欧盟经济对中东地缘风险的脆弱性。
 
-另有岛内舆论分析，民进党盘算借沈伯洋所谓“母鸡效应”巩固在台北市的基本盘，但就怕变成“小鸡被自家母鸡踩死”的悲剧。
+当前市场数据显示，截至2026年4月9日，布伦特原油价格徘徊在97美元/桶附近，虽较冲突高峰有所回落，但仍处于高位区间，运河物流恢复尚无法完全抵消前期供应中断带来的成本压力。
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 16:04 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 16:07 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 15:52 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 16:09 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 15:58 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 16:10 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 15:48 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 15:52 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 16:05 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 16:08 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 15:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 16:01 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 15:52 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 16:14 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 16:01 - [T1 KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 15:57 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 16:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 16:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 16:11 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 16:07 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:58 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/8330167107.shtml)
-- 2026-06-29 16:05 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/8238827443.shtml)
-- 2026-06-29 15:53 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/5238801797.shtml)
-- 2026-06-29 15:44 - [毒液2](https://www.blog.minike.top/Article/details/52602.shtml)
-- 2026-06-29 15:57 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/56950.shtml)
-- 2026-06-29 16:10 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/72553568599.shtml)
-- 2026-06-29 15:42 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/74967069.shtml)
-- 2026-06-29 15:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/437982875228.shtml)
-- 2026-06-29 16:08 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/34767.shtml)
-- 2026-06-29 15:47 - [东方风云榜红毯](http://www.share.minike.top/Article/details/799066421.shtml)
-- 2026-06-29 15:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/05143492685.shtml)
-- 2026-06-29 16:05 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/307203768567.shtml)
-- 2026-06-29 16:07 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/34050830.shtml)
-- 2026-06-29 16:06 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/373735773948.shtml)
-- 2026-06-29 16:01 - [小说《无悔追踪》翻红](http://www.share.minike.top/Article/details/687151389.shtml)
+- 2026-06-29 15:50 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/37100972906.shtml)
+- 2026-06-29 15:59 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/803447.shtml)
+- 2026-06-29 16:03 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.kurohicncr.top/Article/details/448275437363.shtml)
+- 2026-06-29 16:09 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/766147112.shtml)
+- 2026-06-29 15:52 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/630437654.shtml)
+- 2026-06-29 15:56 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/18361510.shtml)
+- 2026-06-29 15:49 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/66575381322.shtml)
+- 2026-06-29 16:09 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/484838911100.shtml)
+- 2026-06-29 16:03 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/506195.shtml)
+- 2026-06-29 15:56 - [东方风云榜红毯](https://www.share.minike.top/Article/details/554806888767.shtml)
+- 2026-06-29 16:03 - [AG 宫斗](https://www.share.minike.top/Article/details/2360196586.shtml)
+- 2026-06-29 16:10 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.kurohicncr.top/Article/details/90369.shtml)
+- 2026-06-29 15:57 - [剧宣天才虞书欣发力了](https://www.blog.kurohicncr.top/Article/details/09759.shtml)
+- 2026-06-29 16:11 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/76730.shtml)
+- 2026-06-29 15:56 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/4515450580.shtml)

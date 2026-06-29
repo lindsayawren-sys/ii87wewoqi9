@@ -1,61 +1,50 @@
-# 涉案金额5000万！佰维存储遭专利诉讼
+# 全国电视频道全面清除虚假宣传医药广告
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-来源：财联社 财联社4月8日讯，存储龙头佰维存储今日披露了一则自愿性公告，称其作为被告涉及两起侵害发明专利权纠纷案件，原告合计索赔5000万元。 根据公告，原告埃姆梯尔公司就两起侵害发明专利权纠纷向法院起诉公司及相关主体。两起案件涉及两项发明专利，专利号分别为ZL201510093389.3和ZL200980106241.1，名称均为“存储设备的扩展利用区域”。原告主张这两项专
+中新网4月9日电 据国家广播电视总局微信公众号消息，针对广播电视医药广告一度存在的虚假宣传、夸张夸大、用疗效作证明、宣传治愈率有效率等损害人民群众权益问题，国家广播电视总局自2025年8月起在全国范围内开展集中整治，会同省级广电行政部门制定专门工作方案，采取投诉受理、监测排查、研判认定、督促整改等措施，加大处置力度，加强协同治理，确保对违规广告及时发现、准确识别、有效处理。截至
 
 ## 正文
 
-来源：财联社 财联社4月8日讯，存储龙头佰维存储今日披露了一则自愿性公告，称其作为被告涉及两起侵害发明专利权纠纷案件，原告合计索赔5000万元。
+中新网4月9日电 据国家广播电视总局微信公众号消息，针对广播电视医药广告一度存在的虚假宣传、夸张夸大、用疗效作证明、宣传治愈率有效率等损害人民群众权益问题，国家广播电视总局自2025年8月起在全国范围内开展集中整治，会同省级广电行政部门制定专门工作方案，采取投诉受理、监测排查、研判认定、督促整改等措施，加大处置力度，加强协同治理，确保对违规广告及时发现、准确识别、有效处理。
 
-根据公告，原告埃姆梯尔公司就两起侵害发明专利权纠纷向法院起诉公司及相关主体。
+截至今年3月底，全国电视频道已经全面清除虚假宣传医药广告。
 
-两起案件涉及两项发明专利，专利号分别为ZL201510093389.3和ZL200980106241.1，名称均为“存储设备的扩展利用区域”。
-
-原告主张这两项专利是JEDEC协会制定的eMMC标准的必要专利，所有符合eMMC标准的产品均落入专利保护范围。
-
-原告认为，佰维存储未经许可制造、销售和许诺销售了侵害涉案专利权的Biwin eMMC产品，而被告二金震公司销售的“畅行50”手机以该产品作为零部件，均构成侵权。
-
-每起案件原告主张的赔偿金额为2500万元，合计5000万元。
-
-值得注意的是，这并非双方首次交锋。
-
-公告提到，2025年9月埃姆梯尔公司已基于同一专利包中的两项专利向公司提起诉讼，案号分别为（2025）苏01民初2174号和（2025）苏01民初2175号，两案已于2026年4月2日、3日首次开庭，目前仍在审理中。
+下一步，广电总局将会同省级广电行政部门，持续开展监测排查，畅通电话、电子邮件、官网、微信公众号等广告投诉受理渠道，坚决维护广大人民群众合法权益，并通过加强法治建设切实巩固集中整治成果，坚决防止问题反弹。
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 15:48 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 16:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 15:46 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 16:03 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 15:51 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 15:44 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 16:08 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 15:52 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 16:02 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 15:45 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 15:54 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 15:56 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 15:58 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 16:05 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 16:11 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 15:52 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 16:07 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 15:55 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 15:52 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 15:58 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 16:00 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 15:57 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 16:05 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 16:04 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 15:52 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 16:00 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 15:58 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 15:51 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:47 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/866778.shtml)
-- 2026-06-29 15:57 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/51885335.shtml)
-- 2026-06-29 15:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/902461986728.shtml)
-- 2026-06-29 16:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/005640701.shtml)
-- 2026-06-29 15:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/77932076.shtml)
-- 2026-06-29 15:55 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/54584.shtml)
-- 2026-06-29 15:44 - [抓特务票房破亿](http://www.blog.kurohicncr.top/Article/details/856776.shtml)
-- 2026-06-29 15:57 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/886256.shtml)
-- 2026-06-29 16:07 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/45155177739.shtml)
-- 2026-06-29 15:51 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/10010.shtml)
-- 2026-06-29 15:43 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/6949320.shtml)
-- 2026-06-29 15:58 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/55994.shtml)
-- 2026-06-29 15:59 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/170622234355.shtml)
-- 2026-06-29 15:44 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/2232986249.shtml)
-- 2026-06-29 15:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/33680.shtml)
+- 2026-06-29 15:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/622618419.shtml)
+- 2026-06-29 15:49 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/9068670.shtml)
+- 2026-06-29 16:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/13111359.shtml)
+- 2026-06-29 15:49 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/20436224.shtml)
+- 2026-06-29 15:53 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/756066386.shtml)
+- 2026-06-29 15:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/79430.shtml)
+- 2026-06-29 15:59 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/0457995.shtml)
+- 2026-06-29 15:49 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/587526.shtml)
+- 2026-06-29 15:58 - [当地回应林区违规放羊遭豹啃食](https://www.blog.minike.top/Article/details/8358201.shtml)
+- 2026-06-29 16:00 - [一见倾心](http://www.blog.minike.top/Article/details/425139.shtml)
+- 2026-06-29 16:02 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/74953534526.shtml)
+- 2026-06-29 15:48 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/5322498123.shtml)
+- 2026-06-29 16:00 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/2154540.shtml)
+- 2026-06-29 15:52 - [世界杯十大帅哥必吃榜](https://www.share.kurohicncr.top/Article/details/041244779566.shtml)
+- 2026-06-29 15:59 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/370775.shtml)

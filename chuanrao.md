@@ -1,57 +1,56 @@
-# 深夜，全线拉升！中国资产，大爆发！
+# 开局起步“十五五”：海南稳步推进高水平开放
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！欧美股市大涨。 当地时间周三，美股三大指数大幅高开，截至发稿，纳指涨2.83%，标普500指数涨2.35%，道指涨2.73%。 芯片存储板块普涨，美光科技、闪迪涨超9%，西部数据、希捷科技涨超7%。英伟达股价上涨3.68%，谷歌-A股价上涨4.71%，苹果股价上涨1.73%，微软股价上涨3.02%，亚马逊股
+中新网海口4月10日电 (记者 王子谦)海南省省长刘小明10日在海口表示，“十五五”时期是海南自贸港建设的关键五年，海南将稳步扩大制度型开放，深入推进商品和要素流动型开放，打造国际人才开放高地。 “开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会当天在海口举行，刘小明在发布会上回答记者提问时表示，“十五五”时期对于海南自贸港建设，具有承前启后的重要地位；海南将全面
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网海口4月10日电 (记者 王子谦)海南省省长刘小明10日在海口表示，“十五五”时期是海南自贸港建设的关键五年，海南将稳步扩大制度型开放，深入推进商品和要素流动型开放，打造国际人才开放高地。
 
-欧美股市大涨。
+“开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会当天在海口举行，刘小明在发布会上回答记者提问时表示，“十五五”时期对于海南自贸港建设，具有承前启后的重要地位；海南将全面落实《海南自由贸易港建设总体方案》，深入实施《中华人民共和国海南自由贸易港法》，高标准建设海南自由贸易港，助力全国构建新发展格局。
 
-当地时间周三，美股三大指数大幅高开，截至发稿，纳指涨2.83%，标普500指数涨2.35%，道指涨2.73%。
+“把海南自由贸易港打造成为引领我国新时代对外开放的重要门户”，是建设海南自由贸易港的战略目标。
 
-芯片存储板块普涨，美光科技、闪迪涨超9%，西部数据、希捷科技涨超7%。
+锚定目标，海南将“高标准建设海南自由贸易港”列为“十五五”时期的首要任务，在更好服务国家高水平对外开放大局方面作出部署和安排。
 
-英伟达股价上涨3.68%，谷歌-A股价上涨4.71%，苹果股价上涨1.73%，微软股价上涨3.02%，亚马逊股价上涨5.07%，Meta Platforms Inc Class A股价上涨4.46%，特斯拉股价上涨3.64%，奈飞股价上涨0.26%。
+一是稳步扩大制度型开放。
 
-美股航空股集体飙升，美国航空上涨10.2%，美国西南航空上涨12%，阿拉斯加航空集团上涨12.5%，达美航空上涨12%。
+着力推动规则、规制、管理、标准相通相容，推动RCEP条款率先落地，主动对接CPTPP、DEPA等国际高标准经贸规则，全面落实中国—东盟自贸区3.0版升级议定书条款，持续推进国际规则对接、规制协调、标准互认和监管协同，稳步开展制度型开放试点。
 
-纳斯达克中国金龙指数大涨，截至发稿涨3.77%。
+二是深入推进商品和要素流动型开放。
 
-欧股方面，欧洲斯托克50指数涨5.37%，报5935.7点；英国富时100指数涨2.80%，报10638.48点；法国CAC40指数涨5.01%，报8304.81点；德国DAX30指数涨5.19%，报24111.58点；富时意大利MIB指数涨4.12%，报47282.25点。
+进一步破除商品和要素跨境流动的“藩篱”，不断减少制约要素流动的“边境上”和“边境后”壁垒，着力擦亮“投资自贸港”品牌，创新发展数字贸易，积极发展离岸贸易，有序扩大金融业开放，建立更加自由开放的航运制度，构建高效便捷安全的数据跨境流动机制，更好促进生产要素跨境流动。
 
 ## 相关推荐
 
-- 2026-06-29 16:10 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 15:53 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 15:52 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 15:56 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 15:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 15:42 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 15:59 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 15:45 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 16:00 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 15:54 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 15:45 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 16:04 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 15:48 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 16:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 16:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 16:05 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 16:07 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 16:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 15:58 - [新一代影后杨紫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 16:02 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 16:10 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:05 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/26465959.shtml)
-- 2026-06-29 15:59 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/7367581.shtml)
-- 2026-06-29 15:43 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/361014901.shtml)
-- 2026-06-29 16:11 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.minike.top/Article/details/79522110937.shtml)
-- 2026-06-29 16:03 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/006290366.shtml)
-- 2026-06-29 16:01 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/7613461293.shtml)
-- 2026-06-29 15:59 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/68037172839.shtml)
-- 2026-06-29 16:08 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/05120876617.shtml)
-- 2026-06-29 15:42 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/45774283.shtml)
-- 2026-06-29 15:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/055447.shtml)
-- 2026-06-29 16:01 - [给阿嬷的情书海外口碑](https://www.blog.kurohicncr.top/Article/details/785580744675.shtml)
-- 2026-06-29 15:55 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/51381213.shtml)
-- 2026-06-29 16:09 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/529700.shtml)
-- 2026-06-29 16:09 - [普京承认俄出现燃料危机](http://www.share.kurohicncr.top/Article/details/56176.shtml)
-- 2026-06-29 16:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/68852.shtml)
+- 2026-06-29 15:51 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/3028012361.shtml)
+- 2026-06-29 15:48 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/32290326.shtml)
+- 2026-06-29 16:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/5887871306.shtml)
+- 2026-06-29 16:05 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.minike.top/Article/details/8934776556.shtml)
+- 2026-06-29 16:15 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/17314768.shtml)
+- 2026-06-29 16:00 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/588749370.shtml)
+- 2026-06-29 15:50 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/0844518.shtml)
+- 2026-06-29 16:09 - [抓特务票房破亿](https://www.blog.kurohicncr.top/Article/details/913664.shtml)
+- 2026-06-29 16:13 - [差点没看懂白鹿丞磊这段意识流](https://www.share.kurohicncr.top/Article/details/5345582027.shtml)
+- 2026-06-29 15:51 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/9302185.shtml)
+- 2026-06-29 15:57 - [7款商保创新药“转道”](http://www.share.minike.top/Article/details/80759.shtml)
+- 2026-06-29 16:09 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/0124062.shtml)
+- 2026-06-29 16:07 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/66886.shtml)
+- 2026-06-29 16:11 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/05680191.shtml)
+- 2026-06-29 15:49 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/723671298.shtml)

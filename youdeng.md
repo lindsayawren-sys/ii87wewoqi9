@@ -1,61 +1,57 @@
-# （寻味中华｜艺林）从“手上功夫”到跨界融合 千年夏布焕新生
+# 伊朗导弹命中率增长8倍，美以为何防不胜防？
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新社重庆4月8日电 题：从“手上功夫”到跨界融合 千年夏布焕新生 中新社记者 钟旖 经纬穿梭，织机吱呀，在重庆市荣昌区盘龙镇的一间老织坊里，年过六旬的李俭康端坐织机前，指尖捻起苎麻纱，牵线、穿筘、打纬，动作行云流水。 6岁启蒙、14岁掌握全套流程，作为夏布织造技艺国家级代表性传承人，这方织机李俭康已守了五十余载。 作为中国汉族地方传统织造技艺之一，夏布织造技艺的历史可溯源至东
+中新网4月9日电(记者 刁炜)美国智库摩根大通近日称，伊朗导弹对以色列目标的命中率显著上升，已从冲突最初两周的3%增至4月初的27%，这一说法得到了以方信源的间接印证。 外媒称，以色列虽宣布己方反导系统拦截率超过90%，却又坦言无法摧毁伊朗集束弹头的所有子弹药，也不能完全避免导弹碎片造成的附加伤害。 比如据《以色列时报》报道，当地时间3月29日，伊朗导弹碎片击中以色列南部一家化
 
 ## 正文
 
-中新社重庆4月8日电 题：从“手上功夫”到跨界融合 千年夏布焕新生 中新社记者 钟旖 经纬穿梭，织机吱呀，在重庆市荣昌区盘龙镇的一间老织坊里，年过六旬的李俭康端坐织机前，指尖捻起苎麻纱，牵线、穿筘、打纬，动作行云流水。
+中新网4月9日电(记者 刁炜)美国智库摩根大通近日称，伊朗导弹对以色列目标的命中率显著上升，已从冲突最初两周的3%增至4月初的27%，这一说法得到了以方信源的间接印证。
 
-6岁启蒙、14岁掌握全套流程，作为夏布织造技艺国家级代表性传承人，这方织机李俭康已守了五十余载。
+外媒称，以色列虽宣布己方反导系统拦截率超过90%，却又坦言无法摧毁伊朗集束弹头的所有子弹药，也不能完全避免导弹碎片造成的附加伤害。
 
-作为中国汉族地方传统织造技艺之一，夏布织造技艺的历史可溯源至东晋后期。
+比如据《以色列时报》报道，当地时间3月29日，伊朗导弹碎片击中以色列南部一家化工厂储存设施，引发大火和危险化学品泄漏。
 
-其以苎麻为原料，制作工序复杂且精细，因透气性好、适宜夏季穿着而得名。
+值得注意的是，2025年“12日战争”结束后，《耶路撒冷邮报》曾称以方对伊朗导弹的拦截率约为80%。
 
-荣昌产夏布在清代就已出口到朝鲜、日本及南洋一带。
+而当时，伊朗的反击没有这次强烈持久，以色列的国土反导防空网也比现在体系更严密、弹药更充足。
 
-李俭康介绍，苎麻又称“中国草”，春天播种，一年可收割三次。
+英国防务智库披露，截至3月下旬，以色列的“箭-2”“箭-3”反导拦截弹已消耗约八成，“大卫投石索”近程拦截弹则剩40%左右。
 
-鲜为人知的是，不同时期的麻织出的布也不同，“最好的麻在盛夏7月，那时阳光充足，漂出来的麻尤为白皙透亮”。
+至于新闻中曝光率很高的“铁穹”防空系统，综合各方消息来看，其每次作战少则发射2至3枚，多则发射8至20枚拦截弹，消耗速度同样十分惊人。
 
-“夏布织造技艺靠的是全手工制作。
+既然“盾”逐渐变得薄弱，那么“矛”的突防成功率随之提高，就是自然而然的事情了。
 
 ## 相关推荐
 
-- 2026-06-29 15:47 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 15:58 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 16:10 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 15:47 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 15:59 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 16:11 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 15:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 15:52 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 16:10 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 15:58 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 15:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 16:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 16:11 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 15:48 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 15:49 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 15:53 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 16:02 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 15:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 15:56 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 16:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 16:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 15:53 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 16:14 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 15:49 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 16:15 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 16:05 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:55 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/59647915835.shtml)
-- 2026-06-29 16:04 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/507123378.shtml)
-- 2026-06-29 15:47 - [时光音乐会](http://www.share.minike.top/Article/details/442806337.shtml)
-- 2026-06-29 15:49 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/431355.shtml)
-- 2026-06-29 15:55 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/268601458.shtml)
-- 2026-06-29 16:07 - [众星恭喜吴建豪](https://www.blog.kurohicncr.top/Article/details/86065745.shtml)
-- 2026-06-29 15:57 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/3817741518.shtml)
-- 2026-06-29 16:00 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/96132.shtml)
-- 2026-06-29 15:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/1126845448.shtml)
-- 2026-06-29 15:46 - [网警提醒4类高考查分陷阱考生速看](http://www.share.kurohicncr.top/Article/details/35436.shtml)
-- 2026-06-29 16:08 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/75021.shtml)
-- 2026-06-29 15:51 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/155087180.shtml)
-- 2026-06-29 16:02 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/321581.shtml)
-- 2026-06-29 15:58 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/419631.shtml)
-- 2026-06-29 15:50 - [媒体：网络测评不能只剩“生意”](http://www.blog.minike.top/Article/details/910803971060.shtml)
+- 2026-06-29 15:54 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/2002453.shtml)
+- 2026-06-29 15:52 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/16447904825.shtml)
+- 2026-06-29 15:53 - [TLAW vs DCG MSI](http://www.share.minike.top/Article/details/190406389895.shtml)
+- 2026-06-29 15:57 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/767368326490.shtml)
+- 2026-06-29 16:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/93755.shtml)
+- 2026-06-29 15:48 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/31507676.shtml)
+- 2026-06-29 15:57 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/48907073208.shtml)
+- 2026-06-29 15:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/97435.shtml)
+- 2026-06-29 15:53 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/4149906.shtml)
+- 2026-06-29 15:49 - [绘画区你赢了](https://www.share.minike.top/Article/details/48208831.shtml)
+- 2026-06-29 16:15 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/48733.shtml)
+- 2026-06-29 16:15 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/0994692.shtml)
+- 2026-06-29 16:01 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/34953.shtml)
+- 2026-06-29 15:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/225452113955.shtml)
+- 2026-06-29 16:00 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/4725787884.shtml)

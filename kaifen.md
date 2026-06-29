@@ -1,57 +1,59 @@
-# 王者领跑！华宝基金创业板人工智能ETF放量飙升9.69%直逼前高，资金涌入超2亿元！光模块双雄齐创新高！
+# 平陆运河货源对接会在广西贵港举办 推动打造服务东盟黄金水运通道
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-周三（4月8日），外围局势逆转引发A股“狂欢” ，算力、AI应用成为市场共识最强反攻方向之一，创业板人工智能猛攻超9%领涨全市场！成份股全线大涨，AI应用概念股蓝色光标20CM涨停，光模块龙头中际旭创涨超11%创历史新高，新易盛涨超9%创历史新高，IDC算力租赁概念股网宿科技、奥飞数据等多股大涨超12%。 热门ETF方面，20CM高弹性的创业板人工智能ETF华宝（159363）
+中新网贵港4月9日电 (黄麟淞 林洁琪)4月9日，广西壮族自治区发展和改革委员会党组成员、自治区能源局局长熊祥忠表示，广西将围绕船舶过闸、江铁海联运、江海联运中转换装等出台系列支持政策，把平陆运河打造成通江达海、服务东盟的黄金水运通道。 当天，由西部陆海新通道领导小组办公室主办的平陆运河货源对接会在广西贵港市举办。本次活动聚焦运河通航筹备、货源组织保障等，面向贵港及周边地区企业
 
 ## 正文
 
-周三（4月8日），外围局势逆转引发A股“狂欢” ，算力、AI应用成为市场共识最强反攻方向之一，创业板人工智能猛攻超9%领涨全市场！
+中新网贵港4月9日电 (黄麟淞 林洁琪)4月9日，广西壮族自治区发展和改革委员会党组成员、自治区能源局局长熊祥忠表示，广西将围绕船舶过闸、江铁海联运、江海联运中转换装等出台系列支持政策，把平陆运河打造成通江达海、服务东盟的黄金水运通道。
 
-成份股全线大涨，AI应用概念股蓝色光标20CM涨停，光模块龙头中际旭创涨超11%创历史新高，新易盛涨超9%创历史新高，IDC算力租赁概念股网宿科技、奥飞数据等多股大涨超12%。
+当天，由西部陆海新通道领导小组办公室主办的平陆运河货源对接会在广西贵港市举办。
 
-热门ETF方面，20CM高弹性的创业板人工智能ETF华宝（159363）跳空飙升，场内单边上扬收涨9.69%直逼前高，爆量成交超13亿元，交投居全市场AI主题类ETF首位！
+本次活动聚焦运河通航筹备、货源组织保障等，面向贵港及周边地区企业推介运河优势与物流方案。
 
-火热行情吸引资金布局，创业板人工智能ETF华宝（159363）单日净申购2.06亿份，按当日场内均价估算吸金超2亿元。
+平陆运河是西部陆海新通道骨干工程，将于今年9月正式建成通航。
 
-站在当前时点，在光模块、算力租赁及AI应用三大方向共同驱动下，创业板人工智能布局机遇凸显。
+作为全国内河主要港口城市、大西南出海重要门户，贵港地处珠江—西江经济带与平陆运河经济带交汇关键节点，区位优越、产业扎实、货源充足。
 
-光模块方面，国盛证券指出，光电路交换（OCS）技术正从谷歌的独家部署走向全行业AI基础设施的架构核心，在规模化能力、应用场景和客户生态三个维度实现突破性进展。
+熊祥忠在致辞中表示，贵港是平陆运河核心货源腹地，广西将以举办此次对接会为契机，深化政企合作，切实降低企业综合物流成本，汇聚西南货源，全力培育物流新通道。
 
-OCS规模化部署或将直接拉动两条主线：一是光模块环节，龙头厂商持续受益；二是光器件环节，相关供应商迎来从0到1的增量需求。
+贵港市市长林海波表示，贵港将抢抓平陆运河通航机遇，提档升级港口基础设施，做大做强临港产业，加速建设港园城综合体，大力发展多式联运，持续优化营商环境，借助平陆运河推动更多原料进来、产品出去。
 
-* IDC算力租赁方面，中信证券表示，伴随Agent应用和多模态生态的爆发，资本开支与算力需求错配，全球Token用量正迎来新一轮加速增长，近两年云产业链有望进入量价齐升的发展大年。
+据悉，平陆运河建成通航后，将实现西江与北部湾国际门户港直接贯通，广西及云南、贵州等西南地区货物经运河出海，可大幅缩短航程、降低物流成本。
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 16:01 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 15:55 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 15:44 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 16:08 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 16:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 15:48 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 16:03 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 16:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 16:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 15:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 15:56 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 16:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 16:15 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 16:06 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 16:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 16:04 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 15:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 16:05 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 15:54 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 15:53 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 15:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 15:59 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 16:04 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:59 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/018137.shtml)
-- 2026-06-29 15:49 - [普京介绍前线战事](https://www.blog.kurohicncr.top/Article/details/902435.shtml)
-- 2026-06-29 15:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/2231199501.shtml)
-- 2026-06-29 16:09 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/80918240405.shtml)
-- 2026-06-29 15:43 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/36155.shtml)
-- 2026-06-29 15:45 - [起风了](http://www.share.kurohicncr.top/Article/details/1058732474.shtml)
-- 2026-06-29 16:02 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/890659480300.shtml)
-- 2026-06-29 16:05 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/47638.shtml)
-- 2026-06-29 16:04 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/9451624.shtml)
-- 2026-06-29 15:56 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/7396654.shtml)
-- 2026-06-29 15:51 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/48654309053.shtml)
-- 2026-06-29 15:45 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/9657114205.shtml)
-- 2026-06-29 15:53 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/6058575670.shtml)
-- 2026-06-29 15:47 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/071786.shtml)
-- 2026-06-29 16:02 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/380996910.shtml)
+- 2026-06-29 16:17 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/074533.shtml)
+- 2026-06-29 16:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/66619070274.shtml)
+- 2026-06-29 15:51 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/707288295.shtml)
+- 2026-06-29 16:08 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/65113.shtml)
+- 2026-06-29 16:14 - [韩国国脚无缘上亿韩元奖金](http://www.blog.minike.top/Article/details/68437134624.shtml)
+- 2026-06-29 16:04 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/71575.shtml)
+- 2026-06-29 16:13 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/4345211251.shtml)
+- 2026-06-29 15:50 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/72283824.shtml)
+- 2026-06-29 15:53 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/011541781391.shtml)
+- 2026-06-29 16:01 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/149845496.shtml)
+- 2026-06-29 16:06 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/68469276924.shtml)
+- 2026-06-29 15:50 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/87596401.shtml)
+- 2026-06-29 16:17 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/113640.shtml)
+- 2026-06-29 16:16 - [绘画区你赢了](https://www.blog.minike.top/Article/details/872845126145.shtml)
+- 2026-06-29 16:12 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/196755.shtml)

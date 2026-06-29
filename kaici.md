@@ -1,59 +1,61 @@
-# 中海基金控股权“甩卖”：国联民生与外资联手退出，底价2.67亿捆绑转让
+# 江南等地有较强降水和强对流天气 内蒙古新疆等地有大风天气
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-公募基金行业控股权转让再添重磅案例。近日，上海联合产权交易所披露了两则产权转让信息：国联民生证券股份有限公司与法国爱德蒙得洛希尔银行股份有限公司联合挂牌转让所持中海基金管理有限公司全部股权，合计转让比例达58.409%。两家股东均以“清仓式”方式退出，且设置“捆绑摘牌”条件——受让方须同时摘牌两家股东的全部股权。 两年“二进宫”，股东决意清仓退出 此次挂牌并非国联民生证券首次“
+中新网4月10日电 据中央气象台网站消息，昨日，江淮西部和江南北部出现强降雨和强对流天气，海南岛、广西等地出现高温；今晨，华北和华中出现大雾。预计未来三天，江南部分地区将有较强降雨和强对流天气，关注对交通、农业生产等影响，防范局地强降雨引发的次生灾害。内蒙古和新疆等地有大风，做好防风加固及森林草原和城乡防火工作。 江南等地有较强降水和强对流天气 10日至12日，江南中部和东部等
 
 ## 正文
 
-公募基金行业控股权转让再添重磅案例。
+中新网4月10日电 据中央气象台网站消息，昨日，江淮西部和江南北部出现强降雨和强对流天气，海南岛、广西等地出现高温；今晨，华北和华中出现大雾。
 
-近日，上海联合产权交易所披露了两则产权转让信息：国联民生证券股份有限公司与法国爱德蒙得洛希尔银行股份有限公司联合挂牌转让所持中海基金管理有限公司全部股权，合计转让比例达58.409%。
+预计未来三天，江南部分地区将有较强降雨和强对流天气，关注对交通、农业生产等影响，防范局地强降雨引发的次生灾害。
 
-两家股东均以“清仓式”方式退出，且设置“捆绑摘牌”条件——受让方须同时摘牌两家股东的全部股权。
+内蒙古和新疆等地有大风，做好防风加固及森林草原和城乡防火工作。
 
-两年“二进宫”，股东决意清仓退出 此次挂牌并非国联民生证券首次“试水”。
+江南等地有较强降水和强对流天气 10日至12日，江南中部和东部等地的部分地区有中到大雨，局地暴雨或大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
 
-早在2025年12月30日，国联民生证券便发布公告，拟公开挂牌转让所持中海基金33.409%股权，首次挂牌价格不低于经国资备案的评估结果。
+中央气象台4月10日06时继续发布暴雨蓝色预警和强对流天气蓝色预警。
 
-彼时评估采用市场法，中联资产评估集团给出的估值约1.53亿元，评估增值率高达92.87%。
+预计，4月10日08时至11日08时，湖北南部、湖南中北部、江西中北部、福建西北部、重庆中部、贵州东北部、四川中部等地部分地区有大到暴雨，其中，湖南中部等地部分地区有大暴雨(100～110毫米)。
 
-但首次挂牌后并未如期寻得买家。
+江南中部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，湖南中南部、江西中东部、福建西北部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上；江南中部、西南地区东北部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，湖南中部的部分地区小时雨量大于50毫米。
 
-时隔三个月，国联民生证券改变了策略。
+内蒙古新疆等地有大风天气 10日至11日，新疆东部、内蒙古中东部、西藏中西部、云南东部等地有大风天气。
 
 ## 相关推荐
 
-- 2026-06-29 15:54 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 15:47 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 16:06 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 16:01 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 15:51 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 16:05 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 16:11 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 15:44 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 15:53 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 15:46 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 15:52 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 16:11 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 15:52 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 16:06 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 15:58 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 16:06 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 15:48 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 16:14 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 15:54 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 15:57 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 16:12 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 16:12 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 15:50 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 15:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 15:51 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 15:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 16:02 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 16:02 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:02 - [广东一地发现极危植物新物种](http://www.blog.kurohicncr.top/Article/details/926114019.shtml)
-- 2026-06-29 15:47 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/1123732743.shtml)
-- 2026-06-29 16:10 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/650391657942.shtml)
-- 2026-06-29 15:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/0768406547.shtml)
-- 2026-06-29 16:02 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/37087.shtml)
-- 2026-06-29 15:42 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/76685792258.shtml)
-- 2026-06-29 16:00 - [国家体育总局政策法规司原副司长获刑](https://www.share.minike.top/Article/details/785901211.shtml)
-- 2026-06-29 15:53 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/9006832497.shtml)
-- 2026-06-29 15:53 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/3300629.shtml)
-- 2026-06-29 15:55 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/5824189360.shtml)
-- 2026-06-29 15:54 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/51858788.shtml)
-- 2026-06-29 15:53 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/082100.shtml)
-- 2026-06-29 16:01 - [汪东城回应45岁婚约](https://www.share.minike.top/Article/details/128694.shtml)
-- 2026-06-29 16:01 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/864581166474.shtml)
-- 2026-06-29 15:44 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/4312597.shtml)
+- 2026-06-29 15:48 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/15257.shtml)
+- 2026-06-29 15:57 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/52254998.shtml)
+- 2026-06-29 16:09 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/3425696.shtml)
+- 2026-06-29 16:07 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/1344929096.shtml)
+- 2026-06-29 15:53 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/28835674171.shtml)
+- 2026-06-29 16:07 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/130716446.shtml)
+- 2026-06-29 15:52 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.kurohicncr.top/Article/details/061589879811.shtml)
+- 2026-06-29 16:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/6836018203.shtml)
+- 2026-06-29 15:48 - [大六座SUV进入黄金时代](http://www.share.minike.top/Article/details/80115.shtml)
+- 2026-06-29 16:04 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/48304004006.shtml)
+- 2026-06-29 15:51 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/66295402497.shtml)
+- 2026-06-29 15:59 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/4483314.shtml)
+- 2026-06-29 15:59 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/025325950.shtml)
+- 2026-06-29 16:11 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/332239250.shtml)
+- 2026-06-29 16:02 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/84802284865.shtml)

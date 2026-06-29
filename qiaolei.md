@@ -1,45 +1,56 @@
-# 大模型概念股午前表现强势 德适-B及智谱均涨逾15%
+# 早期太阳系有机质“快递员”如何工作？嫦娥五号和六号月壤研究揭秘
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-大模型概念股午前表现强势，德适-B上涨14.96%，报269港元；智谱上涨14.63%，报893港元；MiniMax上涨7.64%，报1022港元。责任编辑：卢昱君
+中新网北京4月9日电 (记者 孙自法)地球上与生命起源密切相关的有机质，是否存在来自早期太阳系外源输送的重要贡献？在这一过程中，被称为有机质“快递员”的小行星和彗星发挥了怎样的作用？中国科学家基于嫦娥五号、嫦娥六号采回月壤的最新研究，为这些备受关注的科学问题提供了新的证据。 月球如同一枚“时间胶囊” 记者从中国科学院地质与地球物理研究所(地质地球所)获悉，该所纳米离子探针实验室
 
 ## 正文
 
-大模型概念股午前表现强势，德适-B上涨14.96%，报269港元；智谱上涨14.63%，报893港元；MiniMax上涨7.64%，报1022港元。
+中新网北京4月9日电 (记者 孙自法)地球上与生命起源密切相关的有机质，是否存在来自早期太阳系外源输送的重要贡献？
 
-责任编辑：卢昱君
+在这一过程中，被称为有机质“快递员”的小行星和彗星发挥了怎样的作用？
+
+中国科学家基于嫦娥五号、嫦娥六号采回月壤的最新研究，为这些备受关注的科学问题提供了新的证据。
+
+月球如同一枚“时间胶囊” 记者从中国科学院地质与地球物理研究所(地质地球所)获悉，该所纳米离子探针实验室郝佳龙正高级工程师联合美国新墨西哥大学、长沙理工大学等中外机构合作者，首次在嫦娥五号和嫦娥六号采回月壤颗粒表面系统识别出多种含氮有机质，并揭示其经历了“外源递送—撞击改造—太阳风持续加工”的演化过程。
+
+这项研究表明，月球不仅记录了小行星和彗星向内太阳系输送有机质的历史，也保存了这些有机质在无大气天体表面进一步被撞击和辐照改造的证据。
+
+相关成果论文北京时间4月9日在学术期刊发表。
+
+郝佳龙介绍说，在早期太阳系，小行星和彗星持续向类地行星输送有机质，以及碳、氮、氧、磷、硫等与生命化学密切相关的元素。
+
+这些外源物质可能为早期地球提供了部分可供生命起源和演化利用的化学原料。
 
 ## 相关推荐
 
-- 2026-06-29 16:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 16:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 16:10 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 15:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 15:59 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 16:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 15:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 16:00 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 15:45 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 15:44 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 15:56 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 16:03 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 15:48 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 15:57 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 15:48 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 15:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 16:09 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 15:56 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 15:53 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 16:01 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 16:09 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/1735732.shtml)
-- 2026-06-29 15:49 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/970511061638.shtml)
-- 2026-06-29 15:58 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/4276899.shtml)
-- 2026-06-29 15:59 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/66806.shtml)
-- 2026-06-29 16:05 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/67752918.shtml)
-- 2026-06-29 15:43 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/901723.shtml)
-- 2026-06-29 15:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/00762.shtml)
-- 2026-06-29 15:51 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/929460460.shtml)
-- 2026-06-29 16:10 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/47574796.shtml)
-- 2026-06-29 16:03 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/016034507485.shtml)
-- 2026-06-29 15:55 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/3606093252.shtml)
-- 2026-06-29 15:58 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/3789892848.shtml)
-- 2026-06-29 16:01 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/778679.shtml)
-- 2026-06-29 16:06 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/717751082290.shtml)
-- 2026-06-29 16:00 - [省市招考专家解读山西高考志愿政策](https://www.share.kurohicncr.top/Article/details/668899715064.shtml)
+- 2026-06-29 16:04 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/205493029.shtml)
+- 2026-06-29 16:15 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.minike.top/Article/details/28396595.shtml)
+- 2026-06-29 15:59 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/595770423.shtml)
+- 2026-06-29 16:15 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/992039646380.shtml)
+- 2026-06-29 16:01 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/09552303.shtml)
+- 2026-06-29 16:10 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/291757463241.shtml)
+- 2026-06-29 15:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/998908.shtml)
+- 2026-06-29 16:03 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/73267.shtml)
+- 2026-06-29 16:11 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/7869347.shtml)
+- 2026-06-29 16:01 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/542232776.shtml)
+- 2026-06-29 15:59 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/8911380.shtml)
+- 2026-06-29 15:55 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/3399456572.shtml)
+- 2026-06-29 16:04 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/13106196.shtml)
+- 2026-06-29 16:15 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/15346.shtml)
+- 2026-06-29 15:50 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/111155205718.shtml)

@@ -1,57 +1,60 @@
-# 湖北茶产业综合产值突破千亿元
+# 大疆汪滔：世界蠢得不可思议，包括我自己
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新网宜昌4月8日电 (董晓斌 李缘 郑玮玮)湖北茶产业成功迈入“千亿级产业”行列。记者从8日举行的湖北省茶叶产业链建设工作推进会上获悉，2025年，该省茶园面积为584.5万亩，茶叶出口量3.08万吨，综合产值达1010亿元。 湖北自古便是全国主要产茶区之一。近年来，湖北通过良种创新、生态茶园建设，打造“楚天好”省域公用品牌，形成“省域+区域+企业+产品”品牌矩阵。2025年
+来源：晚点LatePost 大疆之路，汪滔的 20 年。 文丨小晚 汪滔上一次公开露面是在十年前，此后彻底消失在公众视野，只留下一句被反复引用的话：世界蠢得不可思议。 十年后，《晚点》独家访谈了大疆创始人、董事长汪滔。他补上了这句话的后半句——“世界蠢得不可思议，我也是。” 问题不只在世界，也在自己。这或许是汪滔对自己漫长创业生涯最简短的概括。 2006 年，还在香港科技大学读
 
 ## 正文
 
-中新网宜昌4月8日电 (董晓斌 李缘 郑玮玮)湖北茶产业成功迈入“千亿级产业”行列。
+来源：晚点LatePost 大疆之路，汪滔的 20 年。
 
-记者从8日举行的湖北省茶叶产业链建设工作推进会上获悉，2025年，该省茶园面积为584.5万亩，茶叶出口量3.08万吨，综合产值达1010亿元。
+文丨小晚 汪滔上一次公开露面是在十年前，此后彻底消失在公众视野，只留下一句被反复引用的话：世界蠢得不可思议。
 
-湖北自古便是全国主要产茶区之一。
+十年后，《晚点》独家访谈了大疆创始人、董事长汪滔。
 
-近年来，湖北通过良种创新、生态茶园建设，打造“楚天好”省域公用品牌，形成“省域+区域+企业+产品”品牌矩阵。
+他补上了这句话的后半句——“世界蠢得不可思议，我也是。
 
-2025年，该省7个重点区域品牌总价值达228亿元，同比增长10%。
+” 问题不只在世界，也在自己。
 
-品质提升方面，湖北高标准建设生态茶园200万亩，茶叶质量合格率连续保持在99%以上；新建改造生产线480条以上；积极开发抹茶、新茶饮等多元化产品；全省茶叶社会化服务组织发展到605个，服务茶园面积超150万亩。
+这或许是汪滔对自己漫长创业生涯最简短的概括。
 
-市场拓展方面，湖北大力培育壮大经营主体，国家级、省级龙头企业分别达到10家和157家；创新开展楚天好茶“边疆行”“沿海行”等推广活动，达成订单超8亿元；举办驻华使节品鉴推介会等活动；推进茶文旅融合发展，推出35条精品旅游线路。
+2006 年，还在香港科技大学读研究生的汪滔创立了大疆。
 
-科研转化方面，湖北推进茶树良种创新推广，20个茶树品种通过国家级品种审定；强化农业农村部茶树资源综合利用重点实验室等科研平台建设，推动红茶、青砖茶加工等关键技术转化应用；推进院士专家科技服务茶产业链“515”行动。
+它从深圳莲花村的一处民居中起步，20 年时间，成长为一家以原创产品引领全球市场的中国科技企业。
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 16:01 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 15:46 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 15:44 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 15:57 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 15:58 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 15:46 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 15:56 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 15:45 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 15:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 15:49 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 16:11 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 16:07 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 15:48 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 16:10 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 15:59 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 15:52 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 15:48 - [工作靠AI算不算职场作弊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 15:59 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 16:08 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 16:11 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 15:57 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 16:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 16:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 16:04 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/61237.shtml)
-- 2026-06-29 15:56 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/4404427.shtml)
-- 2026-06-29 16:00 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/9563316.shtml)
-- 2026-06-29 15:57 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/1238458964.shtml)
-- 2026-06-29 15:45 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/409601788.shtml)
-- 2026-06-29 15:48 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/9017740363.shtml)
-- 2026-06-29 15:45 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/417743806691.shtml)
-- 2026-06-29 15:47 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/0836225.shtml)
-- 2026-06-29 15:55 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/348361.shtml)
-- 2026-06-29 15:56 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/61142943.shtml)
-- 2026-06-29 15:55 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/72074674051.shtml)
-- 2026-06-29 15:57 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/0341322.shtml)
-- 2026-06-29 16:05 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/8502356.shtml)
-- 2026-06-29 15:51 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/0437506.shtml)
-- 2026-06-29 16:05 - [周生如故](http://www.share.minike.top/Article/details/489519.shtml)
+- 2026-06-29 16:13 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/988562547.shtml)
+- 2026-06-29 15:56 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/0706425.shtml)
+- 2026-06-29 16:02 - [速度与激情9](http://www.share.minike.top/Article/details/113145660973.shtml)
+- 2026-06-29 16:03 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/51438222.shtml)
+- 2026-06-29 15:49 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/2355863282.shtml)
+- 2026-06-29 15:52 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/8358479553.shtml)
+- 2026-06-29 15:59 - [南非老帅布罗斯的梦没能做完](http://www.share.minike.top/Article/details/831179.shtml)
+- 2026-06-29 16:04 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/15337.shtml)
+- 2026-06-29 16:11 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/4178641.shtml)
+- 2026-06-29 16:02 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/45829.shtml)
+- 2026-06-29 16:05 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/87686.shtml)
+- 2026-06-29 16:12 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/58883.shtml)
+- 2026-06-29 16:00 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/171767678192.shtml)
+- 2026-06-29 16:05 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/87913.shtml)
+- 2026-06-29 15:56 - [斗破苍穹](https://www.blog.minike.top/Article/details/80712957.shtml)

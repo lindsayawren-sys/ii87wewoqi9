@@ -1,61 +1,45 @@
-# 4月7日龙虎榜，机构青睐这12股
+# 润泽科技：一季度归母净利润5.82亿元，同比增长35.35%
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-4月7日沪指上涨0.26%，盘后龙虎榜数据显示，机构现身24只个股龙虎榜，净买入12只，净卖出12只。证券时报·数据宝统计显示，4月7日机构专用席位现身24只个股龙虎榜，合计净买入3.21亿元。个股来看，净买入12只，净卖出12只。机构龙虎榜净买卖个股机构专用席位净买入金额最多的是航天电器，该股今日收盘涨停，全天换手率为7.34%，成交额为21.77亿元。因日涨幅偏离值达9.2
+润泽科技4月9日公告，2026年第一季度实现营业收入18.4亿元，同比增长53.55%；归属于上市公司股东的净利润5.82亿元，同比增长35.35%；基本每股收益0.36元。
 
 ## 正文
 
-4月7日沪指上涨0.26%，盘后龙虎榜数据显示，机构现身24只个股龙虎榜，净买入12只，净卖出12只。
-
-证券时报·数据宝统计显示，4月7日机构专用席位现身24只个股龙虎榜，合计净买入3.21亿元。
-
-个股来看，净买入12只，净卖出12只。
-
-机构龙虎榜净买卖个股机构专用席位净买入金额最多的是航天电器，该股今日收盘涨停，全天换手率为7.34%，成交额为21.77亿元。
-
-因日涨幅偏离值达9.20%上榜龙虎榜，前五大买卖营业部中有4家机构专用席位，为买一、买二、买四、卖一，合计净买入20601.67万元。
-
-资金流向方面，该股全天资金净流入1.48亿元。
-
-柏诚股份，今日收盘涨停，全天换手率为28.78%，成交额为9.04亿元。
-
-因日换手率达28.78%上榜龙虎榜，前五大买卖营业部中有1家机构专用席位，为买一，合计净买入8474.77万元。
+润泽科技4月9日公告，2026年第一季度实现营业收入18.4亿元，同比增长53.55%；归属于上市公司股东的净利润5.82亿元，同比增长35.35%；基本每股收益0.36元。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 15:47 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 15:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 16:02 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 15:59 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 15:48 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 15:51 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 16:01 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 15:55 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 15:42 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 15:55 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 16:10 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 15:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 15:48 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 16:07 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 16:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 16:13 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 16:00 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 15:58 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 15:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 16:08 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 15:59 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 16:03 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 16:05 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 16:01 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 16:16 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 15:52 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 16:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.kurohicncr.top/Article/details/598771949.shtml)
-- 2026-06-29 16:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/89111780810.shtml)
-- 2026-06-29 15:48 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/2823653.shtml)
-- 2026-06-29 15:52 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/583517672294.shtml)
-- 2026-06-29 15:54 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/8778131.shtml)
-- 2026-06-29 16:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/393051486787.shtml)
-- 2026-06-29 16:04 - [周杰伦演唱会真的好多人啊](https://www.blog.minike.top/Article/details/233599.shtml)
-- 2026-06-29 15:56 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/040169361.shtml)
-- 2026-06-29 15:55 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/84950624489.shtml)
-- 2026-06-29 15:54 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/3788991.shtml)
-- 2026-06-29 15:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/76798418.shtml)
-- 2026-06-29 15:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/797088.shtml)
-- 2026-06-29 15:52 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/905158434573.shtml)
-- 2026-06-29 16:04 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/2979281.shtml)
-- 2026-06-29 15:59 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/05418619.shtml)
+- 2026-06-29 16:17 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/423874764118.shtml)
+- 2026-06-29 15:59 - [NBA交易](https://www.share.kurohicncr.top/Article/details/57140137877.shtml)
+- 2026-06-29 15:53 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/972470.shtml)
+- 2026-06-29 15:49 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/203159381.shtml)
+- 2026-06-29 16:13 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/60400.shtml)
+- 2026-06-29 16:08 - [刘扬任湖南省副省长](http://www.share.kurohicncr.top/Article/details/35884.shtml)
+- 2026-06-29 15:49 - [爱很美味](https://www.share.minike.top/Article/details/6406482.shtml)
+- 2026-06-29 15:58 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/61020.shtml)
+- 2026-06-29 16:10 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/8802127.shtml)
+- 2026-06-29 16:01 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/657606550600.shtml)
+- 2026-06-29 15:58 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/285445.shtml)
+- 2026-06-29 15:49 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/86786673.shtml)
+- 2026-06-29 16:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/8869848515.shtml)
+- 2026-06-29 16:16 - [恋与深空发放补偿未得到玩家认可](http://www.blog.kurohicncr.top/Article/details/462675.shtml)
+- 2026-06-29 16:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/5113756258.shtml)

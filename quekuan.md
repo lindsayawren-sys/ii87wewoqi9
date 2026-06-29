@@ -1,60 +1,60 @@
-# AI网络企业Aria Networks完成1.25亿美元融资
+# 权威回应：从未发放“2026年度综合补贴”（2026·04·09）
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-Aria Networks 周二宣布，其首轮系列融资已筹集 1.25 亿美元。这家初创企业正致力于开发 AI 网络基础设施，以应对人工智能快速普及背景下急剧增长的算力容量需求。 Aria 的网络方案可适配市面上任意一款 AI 芯片，包括英伟达与谷歌旗下产品，这让企业能够灵活升级或更换硬件，无需全面改造现有网络基础设施。 Aria Networks 成立于 2025 年，投资方包
+辟谣 点链接领“2026年度综合补贴”？别信别点 详情：近日，有网民反映收到“综合补贴申领认证通知”。该通知声称，“人社部针对生育津贴、医保补贴、住房补贴等综合补贴开展申领认证”，需“点击链接，登录官方网址办理领取补贴金”。点击链接后，跳转到的页面与人力资源社会保障部官方网站的界面非常相似，但实际为不法分子伪造的诈骗网站。对此，人力资源和社会保障部表示，从未发放过所谓的“202
 
 ## 正文
 
-Aria Networks 周二宣布，其首轮系列融资已筹集 1.25 亿美元。
+辟谣 点链接领“2026年度综合补贴”？
 
-这家初创企业正致力于开发 AI 网络基础设施，以应对人工智能快速普及背景下急剧增长的算力容量需求。
+别信别点 详情：近日，有网民反映收到“综合补贴申领认证通知”。
 
-Aria 的网络方案可适配市面上任意一款 AI 芯片，包括英伟达与谷歌旗下产品，这让企业能够灵活升级或更换硬件，无需全面改造现有网络基础设施。
+该通知声称，“人社部针对生育津贴、医保补贴、住房补贴等综合补贴开展申领认证”，需“点击链接，登录官方网址办理领取补贴金”。
 
-Aria Networks 成立于 2025 年，投资方包括萨特希尔风险投资、阿特莱德斯管理公司、瓦勒尔股权合伙公司以及日蚀创投。
+点击链接后，跳转到的页面与人力资源社会保障部官方网站的界面非常相似，但实际为不法分子伪造的诈骗网站。
 
-阿特莱德斯管理合伙人加文・贝克，连同萨特希尔的斯特凡・迪克罗夫特及 Aria 联合创始人，已加入 Aria 董事会。
+对此，人力资源和社会保障部表示，从未发放过所谓的“2026年度综合补贴”。
 
-该公司同时宣布推出其号称全球首款原生 AI 网络，旨在提升 AI 数据中心运行效率、降低运营成本，核心聚焦 “令牌效率”—— 即数据中心 AI 算力产出与运营成本的比值。
+上述通知为不实信息且涉嫌诈骗。
 
-公司表示，本轮 A 轮融资所得将用于打造这款被称作 “会思考的网络” 的产品。
+重要提醒： 人力资源社会保障部门发布的通知不会让您提供银行卡、密码、手机验证码等个人信息。
 
-令牌是衡量 AI 模型单次交互中可处理或记忆文本量的单位，一个令牌大致对应一小段文本，比如单词的一部分。
+收到类似“点击网站链接或扫描二维码领取补贴”的信息，一定要提高警惕，切勿随意在陌生网站上填写身份证号、银行卡号、银行卡密码等个人信息，更不能按其提示进行转账汇款等操作，防止造成财产损失。
 
 ## 相关推荐
 
-- 2026-06-29 15:49 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 15:42 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 15:52 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 15:53 - [驻日美军航母沦为“毒窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 15:50 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 15:48 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 15:51 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 15:43 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 16:03 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 15:54 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 15:46 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 16:02 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 15:53 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 16:07 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 15:59 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 16:12 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 16:05 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 15:53 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 15:56 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 16:09 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 16:06 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 15:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 16:05 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 16:00 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 15:57 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 16:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 15:53 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 16:00 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/765605372912.shtml)
-- 2026-06-29 15:43 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/677168177767.shtml)
-- 2026-06-29 15:54 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/92659393.shtml)
-- 2026-06-29 15:56 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/8562115859.shtml)
-- 2026-06-29 16:11 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/1264458.shtml)
-- 2026-06-29 16:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/74879.shtml)
-- 2026-06-29 15:45 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/02901814.shtml)
-- 2026-06-29 15:43 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/41779834.shtml)
-- 2026-06-29 16:11 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/51130955584.shtml)
-- 2026-06-29 16:09 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/2879936.shtml)
-- 2026-06-29 15:45 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/7907085.shtml)
-- 2026-06-29 16:03 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/22224230.shtml)
-- 2026-06-29 15:59 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/337169145306.shtml)
-- 2026-06-29 15:43 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/250845.shtml)
-- 2026-06-29 15:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/985084189895.shtml)
+- 2026-06-29 16:03 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/59493829.shtml)
+- 2026-06-29 16:16 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/57609.shtml)
+- 2026-06-29 15:48 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/994522718.shtml)
+- 2026-06-29 16:00 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/348047.shtml)
+- 2026-06-29 16:01 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/96371585032.shtml)
+- 2026-06-29 15:50 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/248121444.shtml)
+- 2026-06-29 15:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/683273771.shtml)
+- 2026-06-29 15:58 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/162912.shtml)
+- 2026-06-29 16:13 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/28960.shtml)
+- 2026-06-29 16:03 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/796040243868.shtml)
+- 2026-06-29 15:58 - [重度抑郁女孩没钱去做心理咨询](http://www.blog.kurohicncr.top/Article/details/5764283618.shtml)
+- 2026-06-29 16:17 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/669566.shtml)
+- 2026-06-29 15:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/6087493.shtml)
+- 2026-06-29 16:11 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/581797804580.shtml)
+- 2026-06-29 15:56 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/0326525.shtml)

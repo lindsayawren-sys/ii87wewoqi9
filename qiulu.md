@@ -1,49 +1,58 @@
-# 国家能源局：截至2月底，全国可再生能源发电装机达23.81亿千瓦
+# 多重利好叠加，一季度我国汽车出口222.6万辆同比增长56.7%
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新网4月8日电 据国家能源局网站消息，3月31日，国家能源局召开全国可再生能源电力开发建设月度(3月)调度会。 会议指出，2026年1—2月，我国可再生能源发展势头良好，装机规模、发电量稳步增长，绿色电力供给能力持续增强。截至2月底，全国可再生能源发电装机达23.81亿千瓦、占全国电力总装机的60.3%；新增装机4497万千瓦，占全部新增装机的68.4%；发电量5707亿千瓦
+记者今天（10日）从中国汽车工业协会了解到，今年3月份，我国汽车市场活跃度提升，汽车产销环比大幅回升。此外，一季度出口延续强劲增长态势。 最新数据显示，今年3月，我国汽车产销分别完成291.7万辆和289.9万辆，环比分别增长74.4%和60.6%。专家表示，3月份，汽车产销环比快速增长，既符合季节性历史规律，也与各地方补贴细则全面落地、春季车展促销启动、车企新品陆续上市有直接
 
 ## 正文
 
-中新网4月8日电 据国家能源局网站消息，3月31日，国家能源局召开全国可再生能源电力开发建设月度(3月)调度会。
+记者今天（10日）从中国汽车工业协会了解到，今年3月份，我国汽车市场活跃度提升，汽车产销环比大幅回升。
 
-会议指出，2026年1—2月，我国可再生能源发展势头良好，装机规模、发电量稳步增长，绿色电力供给能力持续增强。
+此外，一季度出口延续强劲增长态势。
 
-截至2月底，全国可再生能源发电装机达23.81亿千瓦、占全国电力总装机的60.3%；新增装机4497万千瓦，占全部新增装机的68.4%；发电量5707亿千瓦时，占全社会用电量34.5%。
+最新数据显示，今年3月，我国汽车产销分别完成291.7万辆和289.9万辆，环比分别增长74.4%和60.6%。
 
-其中，风电光伏装机累计并网18.83亿千瓦(风电6.51亿千瓦，光伏发电12.32亿千瓦)，发电量合计3756亿千瓦时，占全社会用电量比重达到22.7%，对能源绿色转型支撑作用更加突出。
+专家表示，3月份，汽车产销环比快速增长，既符合季节性历史规律，也与各地方补贴细则全面落地、春季车展促销启动、车企新品陆续上市有直接的关系。
+
+另外，3月汽车出口也呈现超预期增长。
+
+3月汽车出口87.5万辆，环比增长30.2%，同比增长72.7%。
+
+其中，新能源汽车出口37.1万辆，同比增长1.3倍。
+
+不仅如此，1—3月，汽车出口222.6万辆，同比增长56.7%。
 
 ## 相关推荐
 
-- 2026-06-29 16:02 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 16:00 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 16:07 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 16:09 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 16:01 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 16:01 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 15:43 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 15:52 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 16:09 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 16:10 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 15:44 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 16:04 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 16:16 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 16:02 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 16:13 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 15:48 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 16:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 16:03 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 15:59 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 15:56 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 16:07 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 15:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 15:57 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:45 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/12421982270.shtml)
-- 2026-06-29 15:58 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/867400409.shtml)
-- 2026-06-29 15:48 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/2266723.shtml)
-- 2026-06-29 16:10 - [沙丘](https://www.blog.minike.top/Article/details/30042225.shtml)
-- 2026-06-29 16:06 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/62790.shtml)
-- 2026-06-29 15:58 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/5479033765.shtml)
-- 2026-06-29 16:01 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/001742052788.shtml)
-- 2026-06-29 15:42 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/943853820463.shtml)
-- 2026-06-29 15:57 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/7561693735.shtml)
-- 2026-06-29 16:06 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/6601184703.shtml)
-- 2026-06-29 16:08 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/0544517.shtml)
-- 2026-06-29 15:53 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/0065525.shtml)
-- 2026-06-29 16:08 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/743051.shtml)
-- 2026-06-29 15:42 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/3191030023.shtml)
-- 2026-06-29 15:47 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/16796536654.shtml)
+- 2026-06-29 15:59 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/11163591.shtml)
+- 2026-06-29 15:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/024223209552.shtml)
+- 2026-06-29 16:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/546171971.shtml)
+- 2026-06-29 15:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/473455381.shtml)
+- 2026-06-29 16:07 - [乔家的儿女](https://www.blog.minike.top/Article/details/948351339476.shtml)
+- 2026-06-29 15:49 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/491367289.shtml)
+- 2026-06-29 15:57 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/3862528.shtml)
+- 2026-06-29 16:14 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/1838553.shtml)
+- 2026-06-29 16:09 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/319292408.shtml)
+- 2026-06-29 16:07 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/9694877768.shtml)
+- 2026-06-29 16:04 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/32129413.shtml)
+- 2026-06-29 15:59 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/58550674232.shtml)
+- 2026-06-29 15:59 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/39477012954.shtml)
+- 2026-06-29 16:01 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/597464.shtml)
+- 2026-06-29 16:17 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/8428290814.shtml)

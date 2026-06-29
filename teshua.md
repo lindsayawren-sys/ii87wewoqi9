@@ -1,56 +1,56 @@
-# 甲骨文在加州裁员超700人——这只是"血洗"的第一波，或波及全美数万员工
+# 中巴“五点倡议”的建设性作用
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-科技巨头甲骨文（Oracle）正在推进一场大规模裁员，根据提交给加州就业发展部的《工人调整和再培训通知法》文件，该公司已在加州裁减超过700个岗位。而这可能只是第一波，根据多家媒体报道和分析师预测，甲骨文此次全球裁员总数预计将达到2万至3万人，约占其全球16.2万名员工的18%。 这轮大规模裁员正值甲骨文全力转向人工智能基础设施之际。公司正推进与OpenAI合作的“星门”项目，
+中国新闻周刊作者：朱兆一 发于总第1231期《中国新闻周刊》杂志 北京时间4月8日早晨，美国和伊朗宣布停火并开启为期两周的谈判。美国总统特朗普在社交媒体发文称，与巴基斯坦方面通话后，他同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡，并强调，“这将是一次双向停火”。伊朗最高国家安全委员会发表声明称，根据最高领袖穆杰塔巴的建议和最高国家安全委员
 
 ## 正文
 
-科技巨头甲骨文（Oracle）正在推进一场大规模裁员，根据提交给加州就业发展部的《工人调整和再培训通知法》文件，该公司已在加州裁减超过700个岗位。
+中国新闻周刊作者：朱兆一 发于总第1231期《中国新闻周刊》杂志 北京时间4月8日早晨，美国和伊朗宣布停火并开启为期两周的谈判。
 
-而这可能只是第一波，根据多家媒体报道和分析师预测，甲骨文此次全球裁员总数预计将达到2万至3万人，约占其全球16.2万名员工的18%。
+美国总统特朗普在社交媒体发文称，与巴基斯坦方面通话后，他同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡，并强调，“这将是一次双向停火”。
 
-这轮大规模裁员正值甲骨文全力转向人工智能基础设施之际。
+伊朗最高国家安全委员会发表声明称，根据最高领袖穆杰塔巴的建议和最高国家安全委员会的批准，伊朗将同美方举行为期两周的谈判，但伊方对美方“抱有完全的不信任”。
 
-公司正推进与OpenAI合作的“星门”项目，计划建设多个大型数据中心，整体投入高达数百亿美元。
+经双方同意，谈判时间可以延长。
 
-尽管甲骨文最新季度营收达到172亿美元，同比增长22%，但由于AI数据中心的巨额资本支出——本财年预计达500亿美元——公司正面临严峻的自由现金流压力。
+巴基斯坦总理夏巴兹当天证实，伊朗和美国以及双方各自盟友同意在包括黎巴嫩和其他地区在内的所有地点立即停火，即日起生效。
 
-过去十二个月，甲骨文自由现金流录得负247亿美元，为三十余年来首度连续陷入负值区间。
+他还邀请伊美双方代表团于4月10日在伊斯兰堡进一步谈判，以达成解决所有争端的最终协议。
 
-分析人士指出，甲骨文正在用传统业务赚来的钱“输血”AI基建，而裁员节省下来的成本将用于购买昂贵的AI芯片和建设数据中心。
+此前，中国外长王毅与巴基斯坦副总理兼外长达尔在北京联合发表关于恢复海湾和中东地区和平稳定的五点倡议，呼吁立即停止敌对行动、尽快开启和谈、确保非军事目标安全、确保航道安全、确保联合国宪章的首要地位。
 
-高管高薪引发争议 值得注意的是，就在裁员的同时，甲骨文供公司于4月6日宣布任命Hilary Maxson为新任首席财务官，其年薪为95万美元，并有资格获得250万美元的绩效奖金，同时获得价值高达2600万美元的股权授予。
+这一倡议是在局势持续升级、民用设施被不断卷入战争之际，尝试提供一套可供国际社会援引的降级框架，防止冲突进一步突破底线，滑向更严重的人道灾难，导致地区局势进一步失控。
 
 ## 相关推荐
 
-- 2026-06-29 16:05 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 15:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 16:01 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 16:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 15:59 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 16:07 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 15:47 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 16:05 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 15:58 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 16:03 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 16:08 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 15:51 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 16:02 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 16:04 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 16:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 16:06 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 16:03 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 15:48 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 16:14 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 15:58 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:00 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/054149.shtml)
-- 2026-06-29 16:10 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/675764346.shtml)
-- 2026-06-29 16:01 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/556367560.shtml)
-- 2026-06-29 16:02 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/98110229140.shtml)
-- 2026-06-29 15:59 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/458790.shtml)
-- 2026-06-29 16:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/455309263.shtml)
-- 2026-06-29 16:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/802507818.shtml)
-- 2026-06-29 15:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/68263778.shtml)
-- 2026-06-29 15:58 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/214515.shtml)
-- 2026-06-29 15:57 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/742105010.shtml)
-- 2026-06-29 15:49 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/786087234.shtml)
-- 2026-06-29 16:08 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/03530148126.shtml)
-- 2026-06-29 15:51 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/585708532.shtml)
-- 2026-06-29 15:49 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/319904343265.shtml)
-- 2026-06-29 16:05 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/741630.shtml)
+- 2026-06-29 16:15 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/56976233338.shtml)
+- 2026-06-29 16:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/746724.shtml)
+- 2026-06-29 16:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/21869.shtml)
+- 2026-06-29 15:50 - [中国战机大片上新](http://www.blog.minike.top/Article/details/294365811.shtml)
+- 2026-06-29 16:11 - [永远有话聊的原因](http://www.share.minike.top/Article/details/22931.shtml)
+- 2026-06-29 16:09 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/6773139.shtml)
+- 2026-06-29 15:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/8228911.shtml)
+- 2026-06-29 15:53 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/333992.shtml)
+- 2026-06-29 16:02 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/89021231073.shtml)
+- 2026-06-29 15:58 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/0558659254.shtml)
+- 2026-06-29 16:09 - [波兰创该国高温纪录](https://www.blog.minike.top/Article/details/8912242.shtml)
+- 2026-06-29 16:07 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/222890467450.shtml)
+- 2026-06-29 15:56 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/466976898.shtml)
+- 2026-06-29 16:17 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/858763221931.shtml)
+- 2026-06-29 15:54 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/80834.shtml)

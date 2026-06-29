@@ -1,61 +1,61 @@
-# 中信建投期货：4月8日黑色系早报
+# 顺丰硬核链通“江门制造”向新向远
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-钢材早报：成本支撑疲软，期钢震荡偏弱 市场信息： 1、 美国总统特朗普7日表示，同意在两周内暂停对伊朗的轰炸和袭击。特朗普称，“我们收到了伊朗提出的十点建议，并认为这是谈判的可行基础。美国和伊朗几乎就过去争论的各个要点达成了共识，但两周的时间将使协议得以最终确定和完成。” 白宫官员表示，以色列也已同意临时停火。消息公布后，早盘WTI原油跌幅超17%，国际贵金属、美股股指期货涨幅
+为助力江门市制造业与服务业高质量协同发展，搭建政企联动、产业融合、资源共享的高效对接合作平台，4月8日，江门市制造业与服务业协同发展推进会在江门顺利举行。本次活动由江门市发展和改革局、江门市工业和信息化局、江门市投资促进局联合主办，顺丰速运有限公司承办，江门市邮政管理局、广东省现代物流研究院提供支持。市政府领导、各相关单位负责人及企业代表出席会议，共商产业发展、共推合作落地。会
 
 ## 正文
 
-钢材早报：成本支撑疲软，期钢震荡偏弱 市场信息： 1、 美国总统特朗普7日表示，同意在两周内暂停对伊朗的轰炸和袭击。
+为助力江门市制造业与服务业高质量协同发展，搭建政企联动、产业融合、资源共享的高效对接合作平台，4月8日，江门市制造业与服务业协同发展推进会在江门顺利举行。
 
-特朗普称，“我们收到了伊朗提出的十点建议，并认为这是谈判的可行基础。
+本次活动由江门市发展和改革局、江门市工业和信息化局、江门市投资促进局联合主办，顺丰速运有限公司承办，江门市邮政管理局、广东省现代物流研究院提供支持。
 
-美国和伊朗几乎就过去争论的各个要点达成了共识，但两周的时间将使协议得以最终确定和完成。
+市政府领导、各相关单位负责人及企业代表出席会议，共商产业发展、共推合作落地。
 
-” 白宫官员表示，以色列也已同意临时停火。
+会上，江门市政府副秘书长汪世雷指出，本次推进会是江门市推动制造业与服务业深度融合、加快建设万亿工业强市的重要举措。
 
-消息公布后，早盘WTI原油跌幅超17%，国际贵金属、美股股指期货涨幅扩大。
+当前江门正全力构建“13158”新型工业体系，打造珠江西岸先进制造产业集群和综合物流枢纽城市，亟需现代化、数智化、一体化的供应链体系提供有力支撑。
 
-2、 据上海房产交易中心官网，3月上海二手房（含商业）累计网签31215套，创近5年的最高纪录。
+希望以此次活动为契机，持续深化政企协作、企业联动，推动物流、制造、商贸、跨境电商等产业高效协同，为江门产业转型升级、扩大对外开放、实现高质量发展注入强劲动能。
 
-上海中原地产数据显示，3月上海新建商品住宅成交面积56.3万平方米，环比激增251.6%，反弹力度空前。
+顺丰速运粤西区总经理王宁表示，顺丰长期深耕粤港澳大湾区，高度重视江门产业布局与发展机遇，将充分发挥全球综合物流、数智化供应链、全场景行业解决方案、全球化跨境服务四大核心优势，全面对接江门制造业升级、现代服务业融合、企业跨境出海等核心需求，以全链条、一体化、高安全的供应链服务，为江门打造万亿工业强市、建设综合物流枢纽贡献力量。
 
-3、 3月份，我国制造业、非制造业和综合PMI产出指数均重返扩张区间，分别为50.4%、50.1%和50.5%，比上月上升1.4个、0.6个和1个百分点。
+现场，顺丰围绕整体供应链能力、高科技、工业设备、跨境出海等作主题分享，展示多领域定制化服务及全球化物贸一体化实力。
 
 ## 相关推荐
 
-- 2026-06-29 16:05 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 16:02 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 15:49 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 16:07 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 16:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 16:09 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 15:45 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 15:47 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 15:43 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 15:44 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 16:06 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 15:55 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 16:04 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 16:01 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 15:57 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 16:04 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 16:13 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 16:04 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 15:56 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 16:08 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 16:16 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 15:57 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 15:56 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 15:53 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 15:56 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 15:48 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 15:56 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 15:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 16:13 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 15:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [普京介绍前线战事](https://www.share.minike.top/Article/details/90941338.shtml)
-- 2026-06-29 15:59 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/8603344.shtml)
-- 2026-06-29 15:58 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/35814547083.shtml)
-- 2026-06-29 16:02 - [血糖高的人能吃西瓜吗](https://www.blog.kurohicncr.top/Article/details/2037894653.shtml)
-- 2026-06-29 15:52 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/854929421.shtml)
-- 2026-06-29 15:56 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/230671920.shtml)
-- 2026-06-29 15:52 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/482825775.shtml)
-- 2026-06-29 15:53 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/4750809.shtml)
-- 2026-06-29 15:53 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/47563974701.shtml)
-- 2026-06-29 15:51 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/468345026002.shtml)
-- 2026-06-29 15:52 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/16795509.shtml)
-- 2026-06-29 16:00 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/476661356683.shtml)
-- 2026-06-29 15:57 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/13694246059.shtml)
-- 2026-06-29 15:55 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/5269055.shtml)
-- 2026-06-29 15:59 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/73479.shtml)
+- 2026-06-29 15:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/14283.shtml)
+- 2026-06-29 15:58 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/45822310.shtml)
+- 2026-06-29 16:00 - [天道](https://www.blog.kurohicncr.top/Article/details/293864286.shtml)
+- 2026-06-29 15:48 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.minike.top/Article/details/987354.shtml)
+- 2026-06-29 15:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/45441.shtml)
+- 2026-06-29 15:56 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/983873.shtml)
+- 2026-06-29 16:17 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/805207.shtml)
+- 2026-06-29 16:07 - [斗破苍穹](https://www.share.minike.top/Article/details/99136.shtml)
+- 2026-06-29 16:00 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/2435849.shtml)
+- 2026-06-29 16:02 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/287776439573.shtml)
+- 2026-06-29 16:08 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/231610448.shtml)
+- 2026-06-29 16:11 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/595382502444.shtml)
+- 2026-06-29 16:16 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/8349207025.shtml)
+- 2026-06-29 16:09 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/9908048404.shtml)
+- 2026-06-29 16:13 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/6979116109.shtml)

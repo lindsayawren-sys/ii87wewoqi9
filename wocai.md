@@ -1,61 +1,58 @@
-# 为何科技巨头股票突然显得估值偏低
+# 第二十九届哈佛中国论坛将于4月启幕 聚焦商业、科技创新、可持续发展等多元议题
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-或许是时候在你的投资组合中纳入几只科技股了。 高盛策略师彼得・奥本海默在周二一份最新报告中写道：“科技板块表现持续偏弱，也开始为投资者创造出颇具吸引力的估值机会。该板块相对于市场一致预期增速的估值水平，已跌至全球整体市场估值之下。” 奥本海默补充道：“这些因素为科技板块打开了布局窗口 —— 板块增速依然强劲，但估值目前已处于低位。在美国，头部云服务商科技企业的估值溢价已回落至与
+专题：第二十九届哈佛中国论坛 新浪财经讯 第二十九届哈佛中国论坛将于2026年4月11日至12日在哈佛校园举行。本届论坛以“百川异源，汇于今朝”为主题，延续其作为北美地区规模最大、历史最悠久的中国主题学生主导峰会之一的定位，汇聚来自学界、商界、政界与科技领域的代表人物，围绕全球议题展开交流。新浪财经将作为合作伙伴到场报道。 自1997年创立以来，哈佛中国论坛每年吸引逾千名与会者
 
 ## 正文
 
-或许是时候在你的投资组合中纳入几只科技股了。
+专题：第二十九届哈佛中国论坛 新浪财经讯 第二十九届哈佛中国论坛将于2026年4月11日至12日在哈佛校园举行。
 
-高盛策略师彼得・奥本海默在周二一份最新报告中写道：“科技板块表现持续偏弱，也开始为投资者创造出颇具吸引力的估值机会。
+本届论坛以“百川异源，汇于今朝”为主题，延续其作为北美地区规模最大、历史最悠久的中国主题学生主导峰会之一的定位，汇聚来自学界、商界、政界与科技领域的代表人物，围绕全球议题展开交流。
 
-该板块相对于市场一致预期增速的估值水平，已跌至全球整体市场估值之下。
+新浪财经将作为合作伙伴到场报道。
 
-” 奥本海默补充道：“这些因素为科技板块打开了布局窗口 —— 板块增速依然强劲，但估值目前已处于低位。
+自1997年创立以来，哈佛中国论坛每年吸引逾千名与会者及百余位嘉宾参与，逐步发展为连接中美思想界与产业界的重要平台。
 
-在美国，头部云服务商科技企业的估值溢价已回落至与市场其他板块基本持平的水平。
+论坛通过主题演讲、圆桌讨论及跨界对话等形式，探讨在经济发展、科技创新与全球治理等领域面临的机遇与挑战。
 
-” 2026 年对科技股而言并不友好，背后原因众多。
+在议题设置上，本届论坛将重点聚焦多项前沿方向，包括人工智能与前沿科技驱动下的产业重构、全球资本流动与金融体系演进、气候变化与可持续发展路径、生物科技创新及其伦理边界、媒体与信息传播格局变迁，以及地缘政治与国际关系的新变量等。
 
-微软、亚马逊等头部云服务商大幅增加资本开支，引发市场担忧：这些企业的巨额投入能否实现相应的投资回报。
+主办方表示，这些议题不仅反映当下全球关注的核心问题，也将成为影响未来十年的关键变量。
 
-投资者也开始担心，此类投资成本正严重侵蚀企业现金流与资产负债表空间。
+据主办方介绍，本届论坛主题“百川异源，汇于今朝”取意于中国古籍《淮南子·氾论训》“百川异源，而皆归于海”，旨在强调多元视角与差异背景下的交流价值。
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 15:43 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 15:56 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 16:02 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 16:02 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 15:46 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 15:45 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 16:05 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 15:44 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 15:52 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 15:54 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 15:46 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 16:03 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 15:48 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 16:00 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 15:53 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 15:51 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 15:51 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 16:15 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 15:55 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 16:10 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 16:05 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 16:04 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 16:03 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 16:10 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 16:02 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 16:16 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:07 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/16999.shtml)
-- 2026-06-29 16:05 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/1133366846.shtml)
-- 2026-06-29 16:09 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/90910158.shtml)
-- 2026-06-29 15:58 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/96817.shtml)
-- 2026-06-29 15:44 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.minike.top/Article/details/1064952.shtml)
-- 2026-06-29 16:06 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/2942595087.shtml)
-- 2026-06-29 15:44 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/51498772.shtml)
-- 2026-06-29 16:06 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/6779736935.shtml)
-- 2026-06-29 15:46 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/55641.shtml)
-- 2026-06-29 15:52 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/365884202749.shtml)
-- 2026-06-29 15:48 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/9928488.shtml)
-- 2026-06-29 15:47 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/517185250106.shtml)
-- 2026-06-29 16:09 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/92859649.shtml)
-- 2026-06-29 15:49 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/284567575040.shtml)
-- 2026-06-29 16:06 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/811286314038.shtml)
+- 2026-06-29 15:58 - [挪威王储妃长子2次强奸被判4年](https://www.blog.minike.top/Article/details/431743.shtml)
+- 2026-06-29 16:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/536845797.shtml)
+- 2026-06-29 15:55 - [工作靠AI算不算职场作弊](https://www.share.minike.top/Article/details/70053523.shtml)
+- 2026-06-29 16:06 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/86578.shtml)
+- 2026-06-29 15:59 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/14922542548.shtml)
+- 2026-06-29 15:51 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/17497396.shtml)
+- 2026-06-29 15:48 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/2445820304.shtml)
+- 2026-06-29 16:12 - [发反科学内容为何会有200万粉丝](https://www.share.minike.top/Article/details/5672784.shtml)
+- 2026-06-29 16:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/9863998.shtml)
+- 2026-06-29 16:12 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/180872.shtml)
+- 2026-06-29 15:50 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/614593626.shtml)
+- 2026-06-29 15:52 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/6781233.shtml)
+- 2026-06-29 16:17 - [人形机器人](https://www.share.minike.top/Article/details/24326612.shtml)
+- 2026-06-29 16:17 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/09166173895.shtml)
+- 2026-06-29 16:00 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/42996795425.shtml)

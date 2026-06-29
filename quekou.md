@@ -1,46 +1,61 @@
-# 04月08日镁17550.00元/吨 60天上涨6.69%
+# 全线拉升！中东大消息
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-据生意社监测，镁04月08日最新价格17550.00元/吨，最近60天上涨6.69%，20天上涨4.85%。相关生产商有：宝武镁业(002182)藏格矿业(000408)盐湖股份(000792)西部矿业(601168)盛新锂能(002240)等。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】美股收高，原油、黄金价格走高，美伊谈判最新进展 中国基金报记者 赵刚 综合整理 美东时间4月9日，美股收高，主要股指连续两个交易日上涨。美伊停火未缓解市场对供应前景的担忧，原油价格走高。 美股延续反弹 供应担忧推动油价走高 道指涨275.88点，涨幅为0.58%，报48185.80点；纳指涨187.
 
 ## 正文
 
-据生意社监测，镁04月08日最新价格17550.00元/吨，最近60天上涨6.69%，20天上涨4.85%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-相关生产商有：宝武镁业(002182)藏格矿业(000408)盐湖股份(000792)西部矿业(601168)盛新锂能(002240)等。
+【导读】美股收高，原油、黄金价格走高，美伊谈判最新进展 中国基金报记者 赵刚 综合整理 美东时间4月9日，美股收高，主要股指连续两个交易日上涨。
+
+美伊停火未缓解市场对供应前景的担忧，原油价格走高。
+
+美股延续反弹 供应担忧推动油价走高 道指涨275.88点，涨幅为0.58%，报48185.80点；纳指涨187.42点，涨幅为0.83%，报22822.42点；标普500指数涨41.85点，涨幅为0.62%，报6824.66点。
+
+原油价格继续走高，5月WTI在逾7美元区间波动后，收于近每桶98美元；6月布伦特小幅上涨，收于每桶96美元下方。
+
+据央视新闻报道，美国和伊朗将于当地时间4月11日上午在巴基斯坦首都伊斯兰堡举行首轮会谈。
+
+但目前，美国和伊朗在停战条款上存在明显分歧，主要集中在伊朗铀浓缩活动、霍尔木兹海峡通航、黎巴嫩停火问题等方面。
+
+美国总统特朗普称，所有美军舰船及飞机与军事人员和装备都将留在伊朗周边，直至达成“真正协议”并得到全面履行。
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 16:03 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 15:58 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 16:05 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 15:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 15:59 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 15:42 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 16:06 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 15:55 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 15:43 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 15:42 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 15:42 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 16:00 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 16:07 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 16:10 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 15:49 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 16:16 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 15:49 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 15:52 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 16:10 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 16:14 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 15:51 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 15:56 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 16:09 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 16:10 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 15:56 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 15:59 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/141670.shtml)
-- 2026-06-29 15:45 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/529342238.shtml)
-- 2026-06-29 16:00 - [速度与激情9](https://www.share.minike.top/Article/details/065620.shtml)
-- 2026-06-29 15:58 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/79684.shtml)
-- 2026-06-29 15:53 - [首尔商铺禁止洪明甫入内](http://www.blog.kurohicncr.top/Article/details/814809260.shtml)
-- 2026-06-29 15:42 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/555544104811.shtml)
-- 2026-06-29 15:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/978217387.shtml)
-- 2026-06-29 15:49 - [斛珠夫人](http://www.blog.minike.top/Article/details/029401337599.shtml)
-- 2026-06-29 16:03 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/316131863810.shtml)
-- 2026-06-29 16:08 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/036256378.shtml)
-- 2026-06-29 15:43 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/18627.shtml)
-- 2026-06-29 15:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/0157821.shtml)
-- 2026-06-29 15:47 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/645181015653.shtml)
-- 2026-06-29 16:00 - [网约车司机转账15000元后被乘客拉黑](http://www.share.minike.top/Article/details/00708183493.shtml)
-- 2026-06-29 15:55 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/637596500246.shtml)
+- 2026-06-29 16:13 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/790809901.shtml)
+- 2026-06-29 15:56 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/358001279.shtml)
+- 2026-06-29 15:58 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.minike.top/Article/details/87914997449.shtml)
+- 2026-06-29 16:08 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/7398818.shtml)
+- 2026-06-29 16:07 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/65779.shtml)
+- 2026-06-29 16:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/451086518.shtml)
+- 2026-06-29 16:17 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/345726337039.shtml)
+- 2026-06-29 15:51 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/7932301094.shtml)
+- 2026-06-29 15:57 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/0153769.shtml)
+- 2026-06-29 16:09 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/437342.shtml)
+- 2026-06-29 16:02 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/5723532.shtml)
+- 2026-06-29 16:10 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/12684036185.shtml)
+- 2026-06-29 16:04 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/05543504.shtml)
+- 2026-06-29 15:51 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/69138.shtml)
+- 2026-06-29 15:56 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/3326279.shtml)

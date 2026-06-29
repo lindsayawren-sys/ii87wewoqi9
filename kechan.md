@@ -1,57 +1,43 @@
-# 叙乡情促产业振兴 汕头市邀海内外乡贤共话发展
+# 惠而浦：2025年归母净利润同比增长157.55%
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新社汕头4月7日电 (记者 李怡青)2026年汕头市海内外潮商企业家座谈会暨重点产业招商引资活动7日在广东汕头举行，海内外乡贤齐聚一堂，共叙乡情，共谋发展。 香港潮属社团总会主席胡定旭称，汕头目前致力于发展“三新两特一大”(“三新”即新能源、新材料、新一代电子信息产业，“两特”即纺织服装、玩具创意特色传统产业，“一大”即大健康产业)，与香港及海外潮商的资源优势高度契合。汕头医
+每经AI快讯，惠而浦4月9日公告，2025年实现营业收入44.97亿元，同比增长23.23%；归属于上市公司股东的净利润5.2亿元，同比增长157.55%；基本每股收益0.68元。
 
 ## 正文
 
-中新社汕头4月7日电 (记者 李怡青)2026年汕头市海内外潮商企业家座谈会暨重点产业招商引资活动7日在广东汕头举行，海内外乡贤齐聚一堂，共叙乡情，共谋发展。
-
-香港潮属社团总会主席胡定旭称，汕头目前致力于发展“三新两特一大”(“三新”即新能源、新材料、新一代电子信息产业，“两特”即纺织服装、玩具创意特色传统产业，“一大”即大健康产业)，与香港及海外潮商的资源优势高度契合。
-
-汕头医疗资源底蕴深厚，香港则具有国际临床试验学院(筹备)和生物医药融资中心优势。
-
-他希望通过“研发在港、转化在汕”模式，吸引专业人才回乡设立实验室或生产基地。
-
-上海潮汕联谊会荣誉会长蔡彤说，汕头正规划建设绿色新材料产业园区，重点发展高端储能化学品、电子化学品、高端精细化学品等方向。
-
-其将通过该联谊会桥梁，推动“上海研发、汕头制造”的协同模式。
-
-现场，汕头相关负责人进行该市重点园区招商推介，汕头高新区、汕头综合保税区、汕头华侨经济文化合作试验区(下称“汕头华侨试验区”)代表分别介绍汕头科学城与六合产业园、临港经济区、跨境数字经济产业园的产业优势与合作机遇。
-
-其中，汕头华侨试验区依托中国最大的国际海缆登陆站、海上风电绿能等核心优势，叠加开展“来数加工”业务试点，重点打造900亩跨境数字经济产业园，为海内外潮商布局总部经济、算力建设等领域提供重要载体与发展支撑。
+每经AI快讯，惠而浦4月9日公告，2025年实现营业收入44.97亿元，同比增长23.23%；归属于上市公司股东的净利润5.2亿元，同比增长157.55%；基本每股收益0.68元。
 
 ## 相关推荐
 
-- 2026-06-29 15:59 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 16:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 16:01 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 16:04 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 16:09 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 16:09 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 15:50 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 15:44 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 16:06 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 16:05 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 15:55 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 16:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 15:53 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 15:57 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 15:51 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 16:01 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 16:17 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 15:49 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 16:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 16:11 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 15:55 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 16:13 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:07 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/46872265.shtml)
-- 2026-06-29 15:43 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/9824056.shtml)
-- 2026-06-29 15:45 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/75479.shtml)
-- 2026-06-29 15:43 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/74452878.shtml)
-- 2026-06-29 15:49 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/582875577.shtml)
-- 2026-06-29 15:57 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/9404973251.shtml)
-- 2026-06-29 15:46 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/365673.shtml)
-- 2026-06-29 15:47 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/8786443.shtml)
-- 2026-06-29 15:46 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/827243.shtml)
-- 2026-06-29 16:06 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/62544929.shtml)
-- 2026-06-29 15:58 - [普京介绍前线战事](http://www.share.minike.top/Article/details/10711128250.shtml)
-- 2026-06-29 16:00 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/83484.shtml)
-- 2026-06-29 15:54 - [葛军谈AI时代理科生出路](http://www.blog.kurohicncr.top/Article/details/19979.shtml)
-- 2026-06-29 15:51 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/26626908.shtml)
-- 2026-06-29 16:10 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/31194659.shtml)
+- 2026-06-29 15:55 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/7775844876.shtml)
+- 2026-06-29 16:06 - [恋与深空 731](https://www.share.minike.top/Article/details/324710.shtml)
+- 2026-06-29 16:13 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/35978497.shtml)
+- 2026-06-29 15:56 - [南昌市委书记调整](https://www.blog.kurohicncr.top/Article/details/77175022599.shtml)
+- 2026-06-29 16:14 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/444587104388.shtml)
+- 2026-06-29 16:03 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/2094949.shtml)
+- 2026-06-29 16:13 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/4262007478.shtml)
+- 2026-06-29 16:11 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/19226393.shtml)
+- 2026-06-29 15:56 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/95881.shtml)
+- 2026-06-29 15:52 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/44106955289.shtml)
+- 2026-06-29 16:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/4942594.shtml)
+- 2026-06-29 16:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/0441759.shtml)
+- 2026-06-29 15:58 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/211835434707.shtml)
+- 2026-06-29 16:09 - [送你一朵小红花](https://www.share.minike.top/Article/details/82907.shtml)
+- 2026-06-29 15:58 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/4212580789.shtml)

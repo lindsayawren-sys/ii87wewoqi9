@@ -1,60 +1,60 @@
-# 中国球员杨舒予加盟澳大利亚墨尔本老虎女篮
+# 厦门举办境外经贸机构联席会共话合作新机遇
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新社墨尔本4月7日电 澳大利亚NBL1联赛墨尔本老虎队7日宣布，中国女篮球员杨舒予加盟该队，将出战2026赛季NBL1南区联赛。 现年24岁的杨舒予司职后卫，这是她个人职业生涯的首个海外联赛征程。杨舒予曾在东京奥运会上助力中国女子三人篮球队夺得铜牌，在2023年女篮亚洲杯中随中国队获得冠军。她此前效力于中国女子篮球联赛(WCBA)东莞队，帮助球队夺得2025年亚洲女子篮球联赛
+中新社厦门4月10日电 (吴冠标)“境外经贸机构是厦门连接全球的重要桥梁。”厦门市贸促会会长、厦门国际商会会长邱尖10日表示，厦门因开放而兴，合作共赢是发展大势。 厦门当天举办2026年境外经贸机构联席会，活动以“融通金砖·链动全球”为主题，吸引泰国、新加坡、菲律宾、墨西哥等多个国家和地区的经贸机构代表参会。 爱国侨领陈嘉庚曾孙、亚洲影响力有限公司执行董事陈铭认为，东盟仍充满发
 
 ## 正文
 
-中新社墨尔本4月7日电 澳大利亚NBL1联赛墨尔本老虎队7日宣布，中国女篮球员杨舒予加盟该队，将出战2026赛季NBL1南区联赛。
+中新社厦门4月10日电 (吴冠标)“境外经贸机构是厦门连接全球的重要桥梁。
 
-现年24岁的杨舒予司职后卫，这是她个人职业生涯的首个海外联赛征程。
+”厦门市贸促会会长、厦门国际商会会长邱尖10日表示，厦门因开放而兴，合作共赢是发展大势。
 
-杨舒予曾在东京奥运会上助力中国女子三人篮球队夺得铜牌，在2023年女篮亚洲杯中随中国队获得冠军。
+厦门当天举办2026年境外经贸机构联席会，活动以“融通金砖·链动全球”为主题，吸引泰国、新加坡、菲律宾、墨西哥等多个国家和地区的经贸机构代表参会。
 
-她此前效力于中国女子篮球联赛(WCBA)东莞队，帮助球队夺得2025年亚洲女子篮球联赛冠军，并在决赛中当选最有价值球员。
+爱国侨领陈嘉庚曾孙、亚洲影响力有限公司执行董事陈铭认为，东盟仍充满发展机遇，新加坡可作为中国企业通向东盟市场的重要“门户”。
 
-作为新任中国女篮队长，杨舒予在3月进行的女篮世界杯预选赛中，率领中国队在武汉赛区取得4胜1负战绩，以小组第二晋级世界杯正赛，个人入选赛区最佳阵容。
+陈铭说，海外华人网络遍布全球，依托信任关系、灵活的资本和高效执行力形成独特优势，新加坡正处于这一网络的核心位置，兼具制度优势与信任基础。
 
-墨尔本老虎队主教练卡莱布·斯克莱特表示，杨舒予拥有顶尖的篮球天赋、国际大赛经验和强烈竞争意识，期待她在本赛季为球队带来积极影响。
+印度工商联合会执行董事阿都尔表示，多年来印度和福建的经贸往来始终保持良好态势，期待福建企业组团赴印度考察，深挖双方合作潜力，进一步推动双边贸易发展，共同发掘优质投资机会。
 
-根据NBL1官网赛程，墨尔本老虎女篮将于4月12日主场对阵巴拉瑞特矿工队。
+现场，厦门市贸促会与通用技术金砖(厦门)投资发展有限公司签订企业出海生态合作协议，与亚洲影响力有限公司、欧中健康联合促进总会、澳大利亚福建总商会等多家企业、机构签署友好合作协议。
 
-(完)
+邱尖表示，2026年厦门市贸促会将持续扩大境外经贸合作“朋友圈”，新增境外经贸合作机构，搭建覆盖重点市场的联络体系，为企业搭建稳定高效的对外合作桥梁。
 
 ## 相关推荐
 
-- 2026-06-29 15:46 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 15:45 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 16:08 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 15:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 16:10 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 15:53 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 15:45 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 15:51 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 15:56 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 15:45 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 16:08 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 16:02 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 15:59 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 16:04 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 16:02 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 16:08 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 16:05 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 15:51 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 15:59 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 16:02 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 16:14 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 16:05 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 16:05 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 16:15 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 15:50 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 15:59 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 16:11 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 15:54 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/359967116.shtml)
-- 2026-06-29 15:43 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/68108675826.shtml)
-- 2026-06-29 16:01 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/995965.shtml)
-- 2026-06-29 15:44 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/472472.shtml)
-- 2026-06-29 16:08 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/340010079988.shtml)
-- 2026-06-29 16:00 - [差点没看懂白鹿丞磊这段意识流](http://www.share.minike.top/Article/details/249851514520.shtml)
-- 2026-06-29 15:51 - [黄金也扛不住了](https://www.share.minike.top/Article/details/15073168.shtml)
-- 2026-06-29 15:48 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/748314761562.shtml)
-- 2026-06-29 15:53 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/404944293719.shtml)
-- 2026-06-29 16:00 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/44694255344.shtml)
-- 2026-06-29 16:08 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/5365641380.shtml)
-- 2026-06-29 15:59 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/4878902.shtml)
-- 2026-06-29 16:00 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/12901.shtml)
-- 2026-06-29 15:52 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/570189929.shtml)
-- 2026-06-29 15:50 - [周杰伦演唱会真的好多人啊](https://www.blog.minike.top/Article/details/55610627.shtml)
+- 2026-06-29 15:48 - [新能源车能当外接空调用吗](https://www.share.kurohicncr.top/Article/details/2680158743.shtml)
+- 2026-06-29 15:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/39917188.shtml)
+- 2026-06-29 16:08 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/186539441.shtml)
+- 2026-06-29 15:50 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/418010.shtml)
+- 2026-06-29 16:14 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/3695414.shtml)
+- 2026-06-29 16:11 - [东方风云榜](http://www.share.minike.top/Article/details/44022239.shtml)
+- 2026-06-29 15:53 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/8704596979.shtml)
+- 2026-06-29 15:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/528797656010.shtml)
+- 2026-06-29 15:52 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/53818.shtml)
+- 2026-06-29 15:58 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/38210.shtml)
+- 2026-06-29 16:00 - [血糖高的人能吃西瓜吗](https://www.blog.minike.top/Article/details/75682.shtml)
+- 2026-06-29 15:48 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/57840.shtml)
+- 2026-06-29 16:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/61703766.shtml)
+- 2026-06-29 15:54 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/21460808797.shtml)
+- 2026-06-29 16:00 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/4343546.shtml)

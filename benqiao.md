@@ -1,55 +1,59 @@
-# 伊朗与阿曼将收取霍尔木兹海峡通行费？中方回应
+# 邦达亚洲:多重利空因素打压 美元指数承压下挫
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。 有记者提问：伊朗打算向每艘通过霍尔木兹海峡的船只收取通行费用，并与阿曼分享收入，中方对此持何立场？ 毛宁：霍尔木兹海峡是重要的国际货物和能源贸易通道，维护这一地区的安全稳定和畅通，符合国际社会的共同利益。我们希望各方共同努力，推动海峡早日恢复正常通行。(完)
+4月9日，地缘政治冲突、能源成本高企以及需求疲软正共同拖累欧元区建筑业，短期内复苏前景不容乐观。根据标普全球（S&P Global）4月8日发布的欧元区建筑业采购经理指数（PMI）报告，2026年3月，欧元区建筑业出现五个月以来最强劲的收缩，成本压力则大幅上升至40个月以来的最高点。 数据显示，欧元区3月建筑业PMI从2月的46.0进一步降至44.6，连续第47个月处于50.0
 
 ## 正文
 
-中新网北京4月8日电(记者 郭超凯)中国外交部发言人毛宁4月8日主持例行记者会。
+4月9日，地缘政治冲突、能源成本高企以及需求疲软正共同拖累欧元区建筑业，短期内复苏前景不容乐观。
 
-有记者提问：伊朗打算向每艘通过霍尔木兹海峡的船只收取通行费用，并与阿曼分享收入，中方对此持何立场？
+根据标普全球（S&P Global）4月8日发布的欧元区建筑业采购经理指数（PMI）报告，2026年3月，欧元区建筑业出现五个月以来最强劲的收缩，成本压力则大幅上升至40个月以来的最高点。
 
-毛宁：霍尔木兹海峡是重要的国际货物和能源贸易通道，维护这一地区的安全稳定和畅通，符合国际社会的共同利益。
+数据显示，欧元区3月建筑业PMI从2月的46.0进一步降至44.6，连续第47个月处于50.0的荣枯线以下，表明行业活动持续且加速萎缩。
 
-我们希望各方共同努力，推动海峡早日恢复正常通行。
+新订单数量也遭遇自去年10月以来最大幅度的下降，需求端疲软态势明显。
 
-(完)
+报告指出，中东战事致能源价格飙升，是推动成本上涨的关键因素。
+
+受此影响，企业对未来一年经营前景的看法转为悲观，逆转了2月份短暂出现的积极情绪。
+
+标普全球市场财智公司经济学家乌萨马·巴蒂表示，“欧元区建筑业前景已明显转弱。
+
+” 另外，美联储最新公布的3月货币政策会议纪要显示，一些央行官员们认为伊朗战事给美国经济带来了“双向风险”。
 
 ## 相关推荐
 
-- 2026-06-29 16:01 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 15:44 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 16:04 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 15:54 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 15:51 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 15:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 15:45 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 15:44 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 16:07 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 15:50 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 15:51 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 16:00 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 15:58 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 15:57 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 15:53 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 15:51 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 16:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 15:53 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 15:52 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 15:56 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 15:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 16:07 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 16:05 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 15:55 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 15:54 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 15:52 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 16:03 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 15:53 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:53 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/030995423684.shtml)
-- 2026-06-29 15:47 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/364019.shtml)
-- 2026-06-29 15:42 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/4040903.shtml)
-- 2026-06-29 16:04 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/273451724785.shtml)
-- 2026-06-29 15:55 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/26237.shtml)
-- 2026-06-29 15:45 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/531029.shtml)
-- 2026-06-29 15:50 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/709620255251.shtml)
-- 2026-06-29 15:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/8089177295.shtml)
-- 2026-06-29 15:57 - [东方风云榜红毯](http://www.share.minike.top/Article/details/220705.shtml)
-- 2026-06-29 16:08 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/838633264.shtml)
-- 2026-06-29 16:11 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/5632418776.shtml)
-- 2026-06-29 16:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/157837164417.shtml)
-- 2026-06-29 16:06 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/25981007388.shtml)
-- 2026-06-29 16:05 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.kurohicncr.top/Article/details/7746626.shtml)
-- 2026-06-29 16:04 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/632737.shtml)
+- 2026-06-29 16:04 - [斛珠夫人](http://www.share.minike.top/Article/details/6682474869.shtml)
+- 2026-06-29 16:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/907932.shtml)
+- 2026-06-29 15:51 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/88118558.shtml)
+- 2026-06-29 15:50 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/32964.shtml)
+- 2026-06-29 15:57 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/014445294.shtml)
+- 2026-06-29 15:56 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/37085916.shtml)
+- 2026-06-29 16:07 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/290029185254.shtml)
+- 2026-06-29 16:07 - [博主：全球股市进入“AI极端共振”](https://www.blog.minike.top/Article/details/848346.shtml)
+- 2026-06-29 16:12 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.minike.top/Article/details/9604084.shtml)
+- 2026-06-29 16:14 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/82294882306.shtml)
+- 2026-06-29 15:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/723461371505.shtml)
+- 2026-06-29 16:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/81312316094.shtml)
+- 2026-06-29 15:57 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/3704273550.shtml)
+- 2026-06-29 15:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/6441675.shtml)
+- 2026-06-29 16:13 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/363528550.shtml)

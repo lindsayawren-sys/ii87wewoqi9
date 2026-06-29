@@ -1,59 +1,57 @@
-# 微盟集团早盘涨近7% 公司宣布推出首面向零售行业专属AI Skill
+# 恒信东方（300081）被预处罚，股民索赔可期
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-微盟集团（02013）早盘涨近7%，截至发稿，股价上涨6.85%，现报1.56港元，成交额4375.06万港元。 据微盟集团官微消息，4月8日，微盟宣布推出首个面向零售行业的专属AI Skill——“Weimob Admin Skills”，并接入OpenClaw（“龙虾”）生态。这款专属Skill将在微盟官网开放入口，可适配包括QClaw在内各大厂商推出的“本地版龙虾”，是中
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月4日，恒信东方文化股份有限公司（简称：恒信东方，代码：300081）发布《关于收到中国证券监督管理委员会北京监管局行政处罚事先告知书的公告》。 经中国证监会北京监管局查明，恒信东方涉嫌违法的事实如下：2022年，恒信东方与创意信息技术股份有限公司（以下简称创意信息）、诺比侃人工智能科技（成都）股份有限公司（以下简称
 
 ## 正文
 
-微盟集团（02013）早盘涨近7%，截至发稿，股价上涨6.85%，现报1.56港元，成交额4375.06万港元。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月4日，恒信东方文化股份有限公司（简称：恒信东方，代码：300081）发布《关于收到中国证券监督管理委员会北京监管局行政处罚事先告知书的公告》。
 
-据微盟集团官微消息，4月8日，微盟宣布推出首个面向零售行业的专属AI Skill——“Weimob Admin Skills”，并接入OpenClaw（“龙虾”）生态。
+经中国证监会北京监管局查明，恒信东方涉嫌违法的事实如下：2022年，恒信东方与创意信息技术股份有限公司（以下简称创意信息）、诺比侃人工智能科技（成都）股份有限公司（以下简称诺比侃）开展算力系统集成及技术服务业务，向创意信息销售服务器及相关软件，向诺比侃销售软件。
 
-这款专属Skill将在微盟官网开放入口，可适配包括QClaw在内各大厂商推出的“本地版龙虾”，是中国SaaS行业首个面向垂直领域的专属AI Skill。
+恒信东方从事创意信息业务和诺比侃部分业务（以下简称案涉业务）时不具有对商品的控制权，在知悉案涉业务交易模式的情形下仍采用总额法确认收入，不符合《企业会计准则第14号——收入》（财会\[2017\]22号）第三十四条的规定，导致恒信东方披露的2022年年度报告存在虚假记载，2022年虚增营业收入18，161.14万元，占当期披露营业收入的37.12%。
 
-AI正在从“工具”演变为商家的“智能经营伙伴”。
+2024年10月25日，公司披露《关于前期差错更正情况的说明》，对相关财务数据进行更正。
 
-未来AI的核心价值不仅在于生成素材或建站，而在于帮助商家完成经营决策与自动化执行。
+故中国证监会北京监管局拟决定：恒信东方及相关责任人员给予警告，并各处以罚款。
 
-通过构建“Agent+Skills”架构，AI可以像“工作经验丰富的专家型助理”一样，理解业务逻辑、拉取多平台数据、自动生成策略并执行营销、库存等关键动作，真正实现经营自动化。
+之前，2025年8月13日，恒信东方发布《关于收到中国证券监督管理委员会立案告知书的公告》。
 
-基于这一理念，微盟正在全面推进底层技术架构升级，从“基于Workflow的Agent”转型为“基于Skill调度的Agent ”。
+经公司自查，公司2022年年报存在会计差错，公司对相关会计差错事项采用了追溯重述法调整。
 
-责任编辑：卢昱君
+具体情况可参照2024年10月25日公司披露的《关于前期差错更正情况的说明》《关于2022年度会计差错更正后的财务报表及相关附注的公告》。
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 16:05 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 15:47 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 15:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 15:43 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 16:09 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 15:53 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 16:03 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 15:59 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 16:07 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 16:03 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 15:54 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 16:09 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 16:12 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 16:16 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 16:17 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 16:14 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 15:58 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 16:02 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 15:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 16:10 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 16:00 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 16:01 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 16:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/7917114886.shtml)
-- 2026-06-29 16:05 - [流金岁月](https://www.share.kurohicncr.top/Article/details/02989.shtml)
-- 2026-06-29 15:42 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/003394042.shtml)
-- 2026-06-29 15:55 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/386572582.shtml)
-- 2026-06-29 15:59 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/977326483.shtml)
-- 2026-06-29 16:06 - [工作靠AI算不算职场作弊](https://www.blog.kurohicncr.top/Article/details/11771470.shtml)
-- 2026-06-29 16:09 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/992353306909.shtml)
-- 2026-06-29 15:51 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/375310925347.shtml)
-- 2026-06-29 16:04 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/46353703.shtml)
-- 2026-06-29 16:11 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/8293917789.shtml)
-- 2026-06-29 15:49 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/18183491630.shtml)
-- 2026-06-29 15:42 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/798707079.shtml)
-- 2026-06-29 15:44 - [疑似吴建豪老婆正脸照](http://www.blog.minike.top/Article/details/012458570.shtml)
-- 2026-06-29 15:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/424191527.shtml)
-- 2026-06-29 15:44 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/357808823207.shtml)
+- 2026-06-29 15:50 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/429992584010.shtml)
+- 2026-06-29 15:53 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/717805381884.shtml)
+- 2026-06-29 16:17 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/088892679.shtml)
+- 2026-06-29 16:17 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/50125.shtml)
+- 2026-06-29 16:08 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/846871.shtml)
+- 2026-06-29 16:09 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/52585429.shtml)
+- 2026-06-29 16:06 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/59242110.shtml)
+- 2026-06-29 16:09 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/64522501.shtml)
+- 2026-06-29 16:12 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/27306635512.shtml)
+- 2026-06-29 15:50 - [新能源车能当外接空调用吗](http://www.blog.minike.top/Article/details/84482109860.shtml)
+- 2026-06-29 15:56 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/6858122.shtml)
+- 2026-06-29 16:11 - [绘画区你赢了](https://www.blog.minike.top/Article/details/532647968.shtml)
+- 2026-06-29 15:57 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/58322.shtml)
+- 2026-06-29 16:00 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/16332488.shtml)
+- 2026-06-29 16:08 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/254018.shtml)

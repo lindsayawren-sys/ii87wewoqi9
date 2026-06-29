@@ -1,54 +1,45 @@
-# 著名考古学家王克林逝世 享年91岁
+# 绿茶集团于4月9日斥资1385.59万港元回购168.44万股
 
-> 更新时间：2026-06-29 16:12:02 UTC+8
+> 更新时间：2026-06-29 16:18:02 UTC+8
 
 ## 摘要
 
-中新网太原4月7日电 (记者 杨静 胡健)记者7日从山西省考古研究院获悉，中国共产党党员、著名考古学家、原山西省考古研究所所长王克林先生，因病于2026年4月6日在太原逝世，享年91岁。 王克林1935年生于四川邛崃，1956年毕业于北京大学历史系考古专业，系中国首批考古专业本科生之一。他曾参与三门峡庙底沟、安阳殷墟等重要遗址发掘，1961年起扎根山西，主持侯马晋国遗址、北齐库
+绿茶集团（06831）发布公告，于2026年4月9日斥资1385.59万港元回购168.44万股。责任编辑：卢昱君
 
 ## 正文
 
-中新网太原4月7日电 (记者 杨静 胡健)记者7日从山西省考古研究院获悉，中国共产党党员、著名考古学家、原山西省考古研究所所长王克林先生，因病于2026年4月6日在太原逝世，享年91岁。
+绿茶集团（06831）发布公告，于2026年4月9日斥资1385.59万港元回购168.44万股。
 
-王克林1935年生于四川邛崃，1956年毕业于北京大学历史系考古专业，系中国首批考古专业本科生之一。
-
-他曾参与三门峡庙底沟、安阳殷墟等重要遗址发掘，1961年起扎根山西，主持侯马晋国遗址、北齐库狄回洛墓等多项重大考古工作。
-
-1984年至1992年，王克林任山西省考古研究所所长期间，推动山西考古事业规范化、系统化发展。
-
-王克林深耕新石器时代、夏商周等考古研究领域，著有《夏族与文化的起源》等多部重要专著，为中华文明探源和三晋考古作出突出贡献。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:42 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 15:46 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 16:10 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 15:58 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 15:56 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 16:07 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 15:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 16:07 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 16:06 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 15:51 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 16:09 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 16:02 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 16:01 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 16:10 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 16:14 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 15:48 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 16:05 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 16:10 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 16:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 15:50 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 16:16 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 15:49 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 15:48 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:50 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/923243647516.shtml)
-- 2026-06-29 15:53 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/74979973.shtml)
-- 2026-06-29 15:51 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/055498.shtml)
-- 2026-06-29 16:04 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/884060635679.shtml)
-- 2026-06-29 16:00 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/8591273905.shtml)
-- 2026-06-29 15:47 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/60875104.shtml)
-- 2026-06-29 16:01 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/7320901.shtml)
-- 2026-06-29 16:10 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/07666511288.shtml)
-- 2026-06-29 15:51 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/67960.shtml)
-- 2026-06-29 15:57 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/80799986878.shtml)
-- 2026-06-29 15:47 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/92817913599.shtml)
-- 2026-06-29 15:44 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/71719.shtml)
-- 2026-06-29 15:44 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/754086447.shtml)
-- 2026-06-29 15:42 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/603941259509.shtml)
-- 2026-06-29 16:06 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/087786297.shtml)
+- 2026-06-29 16:01 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/355343498192.shtml)
+- 2026-06-29 16:01 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/235245.shtml)
+- 2026-06-29 16:12 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/8064814.shtml)
+- 2026-06-29 16:08 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/672512094949.shtml)
+- 2026-06-29 16:08 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.minike.top/Article/details/081100920115.shtml)
+- 2026-06-29 15:51 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/84317.shtml)
+- 2026-06-29 15:53 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/126765.shtml)
+- 2026-06-29 16:02 - [《贺子珍》](https://www.blog.minike.top/Article/details/330829921544.shtml)
+- 2026-06-29 16:04 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/136946218.shtml)
+- 2026-06-29 16:11 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.kurohicncr.top/Article/details/724334898.shtml)
+- 2026-06-29 16:12 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/386004588.shtml)
+- 2026-06-29 16:14 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/46950459375.shtml)
+- 2026-06-29 15:48 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/82736608448.shtml)
+- 2026-06-29 16:05 - [爸爸当家](https://www.share.minike.top/Article/details/647073.shtml)
+- 2026-06-29 16:04 - [新能源车能当外接空调用吗](http://www.share.minike.top/Article/details/90092057220.shtml)
