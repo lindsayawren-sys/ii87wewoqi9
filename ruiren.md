@@ -1,61 +1,56 @@
-# 中方：日本刻意渲染周边紧张局势，意在欺骗日本民众和国际社会
+# 日股日经225指数收跌逾3% 受科技股及中东局势影响
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月10日电(记者 邢翀)中国外交部发言人林剑10日主持例行记者会。 有记者提问：据报道，日本自民党9日召开总务会，通过了该党拟向政府提交的修订“安保三文件”建议草案。中方对此有何评论？ 林剑：有关草案再次暴露了日本一些势力搞“再军事化”，推动突破战后规范，大肆强军扩武的企图与妄动，包括中国在内的国际社会对此高度关切和警惕。我们也注意到，日本国内的有识之士和反战团体也
+日股日经指数周一创下三个月来最大跌幅，日元兑美元升逾160日元，受科技股估值担忧重燃及中东局势再度紧张影响。 日经指数挫跌3.85%，收于64024.60点，创下3月9日以来的最大单日跌幅。东证股价指数下跌2.45%，收于3852.38点。 美国科技股周五大幅下挫，因一份火热的5月就业报告引发市场担忧，认为美联储可能转向更偏鹰派的政策立场。费城半导体指数创下自2020年3月以来
 
 ## 正文
 
-中新网北京6月10日电(记者 邢翀)中国外交部发言人林剑10日主持例行记者会。
+日股日经指数周一创下三个月来最大跌幅，日元兑美元升逾160日元，受科技股估值担忧重燃及中东局势再度紧张影响。
 
-有记者提问：据报道，日本自民党9日召开总务会，通过了该党拟向政府提交的修订“安保三文件”建议草案。
+日经指数挫跌3.85%，收于64024.60点，创下3月9日以来的最大单日跌幅。
 
-中方对此有何评论？
+东证股价指数下跌2.45%，收于3852.38点。
 
-林剑：有关草案再次暴露了日本一些势力搞“再军事化”，推动突破战后规范，大肆强军扩武的企图与妄动，包括中国在内的国际社会对此高度关切和警惕。
+美国科技股周五大幅下挫，因一份火热的5月就业报告引发市场担忧，认为美联储可能转向更偏鹰派的政策立场。
 
-我们也注意到，日本国内的有识之士和反战团体也以不同的形式表达了忧虑和反对。
+费城半导体指数创下自2020年3月以来的最大单日跌幅。
 
-日方草案无端指责抹黑中国正常的军事活动，刻意渲染周边紧张局势，目的无非是欺骗日本民众和国际社会，为自身加速推进“再军事化”制造借口。
+周一油价跳升，此前以色列周末对贝鲁特发动攻击后，引发伊朗向以色列目标发射一连串导弹作为回应。
 
-日本右翼势力打着“加强防卫”“被动应对”的幌子，实际上却大肆发展主动进攻的强力中远程武器，加强力量投射和前沿部署，推动日本安保政策朝着进攻性、扩张性的方向转变，妄图将军事扩张和备战深度嵌入国家制度、经济产业和社会舆论，一步一步突破日本宪法和国际法、国内法规制，背弃自身背负的国际义务，挑战战后国际秩序，这一动向日益明显、十分危险。
+美国总统特朗普周日表示，以色列与伊朗的新一轮攻击不会影响其政府与德黑兰之间的和平谈判。
 
-国际社会必须高度警惕，防患未然。
+野村证券股票策略师Maki Sawada表示，“除了科技类股下跌外，地缘政治风险似乎也在拖累市场。
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 00:20 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 00:31 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 00:36 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 00:34 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 00:44 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 00:25 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 00:29 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 00:26 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 00:41 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 00:44 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 00:27 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 00:29 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 00:31 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 00:45 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 00:53 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 00:42 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 00:29 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 00:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 00:51 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 00:46 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 00:50 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 00:43 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 00:47 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 00:43 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:44 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/455926.shtml)
-- 2026-06-30 00:45 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/188770260.shtml)
-- 2026-06-30 00:44 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/2672883376.shtml)
-- 2026-06-30 00:30 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/6082148020.shtml)
-- 2026-06-30 00:29 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/51702364.shtml)
-- 2026-06-30 00:29 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/7947164.shtml)
-- 2026-06-30 00:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/0804660548.shtml)
-- 2026-06-30 00:21 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/68636331.shtml)
-- 2026-06-30 00:39 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/600597580670.shtml)
-- 2026-06-30 00:33 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/75917659690.shtml)
-- 2026-06-30 00:40 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/19327.shtml)
-- 2026-06-30 00:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/04461.shtml)
-- 2026-06-30 00:45 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/45183.shtml)
-- 2026-06-30 00:44 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/279778449.shtml)
-- 2026-06-30 00:19 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/77556066.shtml)
+- 2026-06-30 00:51 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/2407361556.shtml)
+- 2026-06-30 00:52 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/588899499859.shtml)
+- 2026-06-30 00:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/11997.shtml)
+- 2026-06-30 00:30 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/842252.shtml)
+- 2026-06-30 00:26 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/9542906.shtml)
+- 2026-06-30 00:36 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/6025540.shtml)
+- 2026-06-30 00:46 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/9798311114.shtml)
+- 2026-06-30 00:28 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/41709256964.shtml)
+- 2026-06-30 00:53 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/7592851739.shtml)
+- 2026-06-30 00:53 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/907953.shtml)
+- 2026-06-30 00:32 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/90042.shtml)
+- 2026-06-30 00:34 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/73867.shtml)
+- 2026-06-30 00:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/1263102670.shtml)
+- 2026-06-30 00:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/47824902.shtml)
+- 2026-06-30 00:32 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/85889.shtml)

@@ -1,47 +1,56 @@
-# 近镜头｜习近平和金正恩共植枞树
+# 茅台酱香酒线上渠道显著扩张！吃喝板块逆市显韧性，华宝基金食品饮料ETF（515710）收跌1.41%
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月10日 14:50 来源：新华社 责任编辑：【杨彦宇】
+吃喝板块逆市显韧性。反映吃喝板块整体走势的食品饮料ETF华宝（515710）早盘一度翻红，随后随市回落，截至收盘，场内价格跌1.41%。 成份股方面，白酒、大众品均表现不佳。截至收盘，酒鬼酒跌5.17%，天味食品跌4.24%，养元饮品、金种子酒、燕京啤酒等亦跌幅居前，拖累板块走势。 消息面上，近日，茅台酱香酒公司更新七大主流电商平台官方授权店铺名单。对比去年7月名单发现，从店铺
 
 ## 正文
 
-发布时间：2026年06月10日 14:50 来源：新华社 责任编辑：【杨彦宇】
+吃喝板块逆市显韧性。
+
+反映吃喝板块整体走势的食品饮料ETF华宝（515710）早盘一度翻红，随后随市回落，截至收盘，场内价格跌1.41%。
+
+成份股方面，白酒、大众品均表现不佳。
+
+截至收盘，酒鬼酒跌5.17%，天味食品跌4.24%，养元饮品、金种子酒、燕京啤酒等亦跌幅居前，拖累板块走势。
+
+消息面上，近日，茅台酱香酒公司更新七大主流电商平台官方授权店铺名单。
+
+对比去年7月名单发现，从店铺名称来看，其线上渠道版图迎来显著扩张，今年授权店铺共206家，较去年净增加63家。
+
+其中，抖音成扩张主力，官方授权店铺从去年的28家猛增至63家，净增长35家；微信视频号平台店铺数量由6家增长至22家，两大内容平台成为茅台酱香酒直面消费者的核心阵地。
+
+东海证券表示，受到2025年5月政策影响，在低基数背景下预计消费场景将持续修复。
 
 ## 相关推荐
 
-- 2026-06-30 00:25 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 00:43 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 00:22 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 00:46 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 00:45 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 00:29 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 00:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 00:21 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 00:34 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 00:22 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 00:40 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 00:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 00:28 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 00:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 00:47 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 00:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 00:50 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 00:39 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 00:37 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 00:48 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 00:49 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 00:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 00:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-30 00:38 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 00:53 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:22 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/808234398.shtml)
-- 2026-06-30 00:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/6010059.shtml)
-- 2026-06-30 00:23 - [货车司机恶意闯卡逃费被行拘](https://www.share.minike.top/Article/details/415550.shtml)
-- 2026-06-30 00:46 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/25752.shtml)
-- 2026-06-30 00:43 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/3309291.shtml)
-- 2026-06-30 00:25 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/069720456685.shtml)
-- 2026-06-30 00:32 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/9027290540.shtml)
-- 2026-06-30 00:28 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/843736071034.shtml)
-- 2026-06-30 00:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/8624566832.shtml)
-- 2026-06-30 00:40 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/55864121.shtml)
-- 2026-06-30 00:30 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/49729.shtml)
-- 2026-06-30 00:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/2926681255.shtml)
-- 2026-06-30 00:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/7304404.shtml)
-- 2026-06-30 00:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/071101.shtml)
-- 2026-06-30 00:21 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/63339588975.shtml)
+- 2026-06-30 00:51 - [速度与激情9](http://www.blog.minike.top/Article/details/1083027.shtml)
+- 2026-06-30 00:51 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/266011147.shtml)
+- 2026-06-30 00:43 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/4622384.shtml)
+- 2026-06-30 00:24 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/67843.shtml)
+- 2026-06-30 00:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/322805210.shtml)
+- 2026-06-30 00:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/000072.shtml)
+- 2026-06-30 00:29 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/03190325.shtml)
+- 2026-06-30 00:44 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/25812001960.shtml)
+- 2026-06-30 00:29 - [月亮](http://www.share.minike.top/Article/details/62846.shtml)
+- 2026-06-30 00:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/95634258.shtml)
+- 2026-06-30 00:48 - [急先锋](http://www.blog.kurohicncr.top/Article/details/810799.shtml)
+- 2026-06-30 00:24 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/7210638826.shtml)
+- 2026-06-30 00:35 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/74511686.shtml)
+- 2026-06-30 00:48 - [送你一朵小红花](https://www.blog.minike.top/Article/details/14236895.shtml)
+- 2026-06-30 00:31 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/99377176561.shtml)

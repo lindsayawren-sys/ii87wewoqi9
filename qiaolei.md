@@ -1,56 +1,57 @@
-# 江苏宜兴杨梅迎丰收 游客采摘制酒解锁田园新趣
+# 香港家乡市集风味纷呈 各国人士乐享中华美食
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-三峡水运新通道“新”在何处？金价大跌！有人越跌越买，有人变现94万离场《论语》为何说“有教无类”，而非“有诲无类”？保险公司用“赔付过泰坦尼克号”证明实力？客服回应南方多地高考撞上强降雨，雨水还将持续多久？手机广告弹窗乱象不断，别让App偷走用户的“拒绝权”买文创竟然如此“上头”，年轻人为何爱文创？收钱审核松、退款要举证……未成年网络消费“退款难”揭秘捷克政客执意再次窜台：反华
+中新社香港6月7日电 (记者 戴小橦)6月3日至7日，第四届同乡社团家乡市集嘉年华在香港举行。不仅香港本地市民得以品尝来自中国各地的风味，不少外籍人士也穿梭在超370个市集摊位间，尝美食、购特产、品民俗，乐享中华美食文化。 香港河南联谊总会摊位前，工作人员正向来自韩国的智雅讲解红枣的功效。智雅表示，她经同事推荐专程前来逛市集，“我知道中国红枣，但不知道有这么多吃法”。最终，她选
 
 ## 正文
 
-三峡水运新通道“新”在何处？
+中新社香港6月7日电 (记者 戴小橦)6月3日至7日，第四届同乡社团家乡市集嘉年华在香港举行。
 
-金价大跌！
+不仅香港本地市民得以品尝来自中国各地的风味，不少外籍人士也穿梭在超370个市集摊位间，尝美食、购特产、品民俗，乐享中华美食文化。
 
-有人越跌越买，有人变现94万离场《论语》为何说“有教无类”，而非“有诲无类”？
+香港河南联谊总会摊位前，工作人员正向来自韩国的智雅讲解红枣的功效。
 
-保险公司用“赔付过泰坦尼克号”证明实力？
+智雅表示，她经同事推荐专程前来逛市集，“我知道中国红枣，但不知道有这么多吃法”。
 
-客服回应南方多地高考撞上强降雨，雨水还将持续多久？
+最终，她选购了3袋枣夹核桃及一箱红枣莲子银耳羹，打算带回家与妈妈分享，“她一直很喜欢中国的养生文化”。
 
-手机广告弹窗乱象不断，别让App偷走用户的“拒绝权”买文创竟然如此“上头”，年轻人为何爱文创？
+“好想你”品牌摊位负责人曹东晓告诉中新社记者，本届市集带来新鲜红枣、红枣零食、即食养生枣品等丰富品类，产品种类较往年更加丰富，适配香港市民及海内外游客休闲食用、日常养生等多元需求。
 
-收钱审核松、退款要举证……未成年网络消费“退款难”揭秘捷克政客执意再次窜台：反华利益链上的“角色扮演”住建部：优化路网结构，补齐停车设施短板中消协提示：抵制“三无”空调产品，拒绝无证施工全球航司大幅下调2026年盈利预期，“票价很可能会居高不下”“I look look”，义乌，怎么就成“世界义乌”了？
+连日来摊位销量火爆，多款产品早早售罄。
 
-局势骤然升级！
+本届市集上，香港济南同乡会带来的山东特产蓝莓酱，凭借原生态品质及乡村振兴产业特色，获评“最受欢迎产品”。
 
 ## 相关推荐
 
-- 2026-06-30 00:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 00:26 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 00:41 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 00:33 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 00:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 00:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 00:42 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 00:31 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 00:39 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 00:38 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 00:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 00:47 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 00:42 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 00:43 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 00:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 00:45 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 00:36 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 00:38 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 00:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 00:51 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 00:46 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:33 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/136086491795.shtml)
-- 2026-06-30 00:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/85082652.shtml)
-- 2026-06-30 00:31 - [千与千寻](https://www.share.minike.top/Article/details/92123850.shtml)
-- 2026-06-30 00:22 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/819620322517.shtml)
-- 2026-06-30 00:20 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/33266.shtml)
-- 2026-06-30 00:25 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/143990802.shtml)
-- 2026-06-30 00:20 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/61716.shtml)
-- 2026-06-30 00:39 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/29804.shtml)
-- 2026-06-30 00:41 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/74040.shtml)
-- 2026-06-30 00:41 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/73412129.shtml)
-- 2026-06-30 00:37 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/20456.shtml)
-- 2026-06-30 00:41 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/83048447062.shtml)
-- 2026-06-30 00:41 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/78484307.shtml)
-- 2026-06-30 00:42 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/464877034.shtml)
-- 2026-06-30 00:37 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/8259907.shtml)
+- 2026-06-30 00:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/916198.shtml)
+- 2026-06-30 00:34 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/154266239472.shtml)
+- 2026-06-30 00:32 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/368762772694.shtml)
+- 2026-06-30 00:48 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/77087.shtml)
+- 2026-06-30 00:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/442940975.shtml)
+- 2026-06-30 00:26 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/582554866862.shtml)
+- 2026-06-30 00:49 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/442873843.shtml)
+- 2026-06-30 00:26 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/305564.shtml)
+- 2026-06-30 00:38 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/2499425280.shtml)
+- 2026-06-30 00:32 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/116469264.shtml)
+- 2026-06-30 00:51 - [金刚川](https://www.share.kurohicncr.top/Article/details/11868.shtml)
+- 2026-06-30 00:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/6164308945.shtml)
+- 2026-06-30 00:42 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/78982.shtml)
+- 2026-06-30 00:46 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/64863.shtml)
+- 2026-06-30 00:40 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/444247.shtml)

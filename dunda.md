@@ -1,56 +1,59 @@
-# 天数智芯午前涨超10% 日前正式进入港股通标的名单
+# 习近平同格鲁吉亚总统卡韦拉什维利就中格建交34周年互致贺电并共同宣布将双边关系提升为全面战略伙伴关系
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-天数智芯（09903）午前涨超10%，截至发稿，股价上涨10.61%，现报511港元，成交额6.23亿港元。 6月8日，香港交易所宣布，根据快速纳入机制，天数智芯将获纳入至香港交易所科技100指数，该纳入将于6月12日收市后实施，并于6月15日起生效。此外，6月8日起，天数智芯被正式纳入港股通标的名单。此举有助于优化公司港股的交易流动性、拓宽内地机构与个人投资者覆盖面，深化公司
+新华社北京6月9日电 6月9日，国家主席习近平同格鲁吉亚总统卡韦拉什维利互致贺电，庆祝两国建交34周年。 习近平指出，34年来，中格两国始终秉持互尊互信、合作共赢原则，推动双边关系健康稳定发展，各领域合作取得丰硕成果。2023年中格两国建立战略伙伴关系后，双方政治互信愈加牢固，务实合作加速推进，多边协作更富成效。 习近平强调，无论国际形势如何变化，中方始终从战略高度和长远角度看
 
 ## 正文
 
-天数智芯（09903）午前涨超10%，截至发稿，股价上涨10.61%，现报511港元，成交额6.23亿港元。
+新华社北京6月9日电 6月9日，国家主席习近平同格鲁吉亚总统卡韦拉什维利互致贺电，庆祝两国建交34周年。
 
-6月8日，香港交易所宣布，根据快速纳入机制，天数智芯将获纳入至香港交易所科技100指数，该纳入将于6月12日收市后实施，并于6月15日起生效。
+习近平指出，34年来，中格两国始终秉持互尊互信、合作共赢原则，推动双边关系健康稳定发展，各领域合作取得丰硕成果。
 
-此外，6月8日起，天数智芯被正式纳入港股通标的名单。
+2023年中格两国建立战略伙伴关系后，双方政治互信愈加牢固，务实合作加速推进，多边协作更富成效。
 
-此举有助于优化公司港股的交易流动性、拓宽内地机构与个人投资者覆盖面，深化公司和内地资本市场的联动。
+习近平强调，无论国际形势如何变化，中方始终从战略高度和长远角度看待中格关系。
 
-天数智芯是国内领先的通用GPU产品及AI算力解决方案提供商，业务聚焦AI训练GPU、AI推理GPU、AI算力服务器/集群及配套软件生态。
+借此机会，我愿同卡韦拉什维利总统共同宣布，将中格关系提升为全面战略伙伴关系。
 
-该公司2025年收入实现高增，其中，通用GPU产品成主要增长引擎。
+相信这将为中格关系发展开辟新前景，为两国传统友谊续写新篇章，为双方互利合作注入强劲动力，为中格人民创造更多福祉。
 
-国泰海通证券预计公司2026至28年各年收入分别为25.78亿、50.02亿及83.23亿元人民币。
+卡韦拉什维利表示，回顾过去30余年，格中建立了长久友谊，双边关系在相互尊重、相互信任、建设性合作的基础上取得显著成就。
 
-按照市销率（PS）估值，给予公司2026年50倍PS，目标价588.16港元。
+在两国建交34周年之际，我们共同决定将格中关系提升至全面战略伙伴水平。
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 00:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 00:36 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 00:26 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 00:19 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 00:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 00:38 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 00:33 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 00:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 00:33 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 00:29 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 00:40 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 00:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 00:24 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 00:41 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 00:29 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 00:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 00:25 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 00:37 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 00:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 00:51 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 00:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 00:48 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:32 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/368565.shtml)
-- 2026-06-30 00:34 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/727567447.shtml)
-- 2026-06-30 00:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/639311390.shtml)
-- 2026-06-30 00:34 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/4352575.shtml)
-- 2026-06-30 00:25 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/062812882.shtml)
-- 2026-06-30 00:40 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/08693634.shtml)
-- 2026-06-30 00:45 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/28067872.shtml)
-- 2026-06-30 00:22 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/0769285.shtml)
-- 2026-06-30 00:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/17888.shtml)
-- 2026-06-30 00:46 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/6797936.shtml)
-- 2026-06-30 00:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/4080749.shtml)
-- 2026-06-30 00:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/0262939.shtml)
-- 2026-06-30 00:47 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/131489881087.shtml)
-- 2026-06-30 00:47 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/91881.shtml)
-- 2026-06-30 00:44 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/39797414.shtml)
+- 2026-06-30 00:51 - [美股](http://www.share.kurohicncr.top/Article/details/1113083163.shtml)
+- 2026-06-30 00:29 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/519888.shtml)
+- 2026-06-30 00:28 - [天道](https://www.share.kurohicncr.top/Article/details/47414942.shtml)
+- 2026-06-30 00:38 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/7351878.shtml)
+- 2026-06-30 00:36 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/07558870.shtml)
+- 2026-06-30 00:47 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/66861860.shtml)
+- 2026-06-30 00:37 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/537497858984.shtml)
+- 2026-06-30 00:49 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/35535225.shtml)
+- 2026-06-30 00:53 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/835866.shtml)
+- 2026-06-30 00:36 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/501936605501.shtml)
+- 2026-06-30 00:33 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/227621.shtml)
+- 2026-06-30 00:28 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/828168951.shtml)
+- 2026-06-30 00:53 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/644735104.shtml)
+- 2026-06-30 00:46 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/212045.shtml)
+- 2026-06-30 00:32 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/77135304545.shtml)

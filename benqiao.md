@@ -1,61 +1,60 @@
-# Badger Meter被指虚增业绩，投资者集体诉讼申请截至8月3日
+# 酒价内参6月9日价格发布：青花郎上涨3元，收获二连涨
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-知名股东权益诉讼律师事务所The Schall Law Firm近日提醒Badger Meter， Inc．（纽约证券交易所代码：BMI）的投资者，针对该公司的证券欺诈集体诉讼中，申请担任首席原告的截止日期为2026年8月3日。 该诉讼代表在2024年4月18日至2026年4月16日期间购买Badger Meter普通股的投资者提起，指控该公司及其高管在此期间违反了联邦证券法，
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月9日整体再度明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9895元，较昨日大幅下跌23元，重返9900元下方。市场在前三日连续明显回升后步入回调，终端交投情绪偏谨慎，核心单品的涨跌分化显著。 今日11大白酒单品三涨八跌，输家占据绝对优势。上涨方面，国窖1573涨幅居前，上涨5元/
 
 ## 正文
 
-知名股东权益诉讼律师事务所The Schall Law Firm近日提醒Badger Meter， Inc．（纽约证券交易所代码：BMI）的投资者，针对该公司的证券欺诈集体诉讼中，申请担任首席原告的截止日期为2026年8月3日。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月9日整体再度明显走弱。
 
-该诉讼代表在2024年4月18日至2026年4月16日期间购买Badger Meter普通股的投资者提起，指控该公司及其高管在此期间违反了联邦证券法，作出了重大虚假和误导性陈述。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9895元，较昨日大幅下跌23元，重返9900元下方。
 
-诉讼的核心争议在于Badger Meter对其业绩增长动力的描述。
+市场在前三日连续明显回升后步入回调，终端交投情绪偏谨慎，核心单品的涨跌分化显著。
 
-据指控，公司在集体诉讼期内一直向投资者宣称，其创纪录的财务业绩反映了“持续向好的行业趋势”、“长期增长驱动因素”和“稳健的运营执行”。
+今日11大白酒单品三涨八跌，输家占据绝对优势。
 
-公司高管同样吹捧需求“强劲”，并表示看到了“稳健的订单节奏和强大的竞标管线”，且公司拥有“很长的”增长跑道。
+上涨方面，国窖1573涨幅居前，上涨5元/瓶，终结此前五连阴，但价格仍囿于月内次低位；青花郎上涨3元/瓶收获二连涨；飞天茅台上涨2元/瓶，四连阳后价格升至月内次高位。
 
-然而，诉讼指控称这些陈述存在重大虚假和误导性。
+下跌方面，五粮液普五八代、古井贡古20与习酒君品均下跌6元/瓶，其中普五八代再度失守810元，古井贡古20回吐前一日全部涨幅，习酒君品连续两日回落，价格快速下探创月内新低，近一个月其价格中枢持续下移；精品茅台下跌5元/瓶，此前三连阳的强劲涨势告终；洋河梦之蓝M6+下跌3元/瓶，平月内次低价位；青花汾20下跌3元/瓶，回落至370元下方；五粮液1618与水晶剑南春均下跌2元/瓶，其中前者创下月内最低价纪录。
 
-实际上，Badger Meter的财务业绩至少部分归因于公司将客户订单“提前”以尽早确认收入的做法，这一做法掩盖了需求减弱和短期订单趋势恶化的事实。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-这种做法还消耗了原本可供未来期间使用的收入，最终导致公司随后报告了令人失望的财务业绩。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-30 00:33 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 00:23 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 00:18 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 00:23 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 00:23 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 00:26 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 00:30 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 00:31 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 00:40 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 00:47 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-30 00:29 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 00:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 00:22 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 00:31 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 00:30 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 00:42 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 00:27 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 00:44 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 00:40 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 00:42 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 00:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 00:25 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 00:47 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 00:35 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 00:50 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 00:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 00:37 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 00:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 00:48 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:20 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/851114.shtml)
-- 2026-06-30 00:30 - [绘画区你赢了](https://www.blog.minike.top/Article/details/22512945.shtml)
-- 2026-06-30 00:24 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/229111035726.shtml)
-- 2026-06-30 00:25 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/586972701.shtml)
-- 2026-06-30 00:28 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/80660446.shtml)
-- 2026-06-30 00:25 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/79270688613.shtml)
-- 2026-06-30 00:38 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/6106008.shtml)
-- 2026-06-30 00:32 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/580786963.shtml)
-- 2026-06-30 00:43 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/67217738.shtml)
-- 2026-06-30 00:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/46040779.shtml)
-- 2026-06-30 00:23 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/85622537.shtml)
-- 2026-06-30 00:30 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/704895.shtml)
-- 2026-06-30 00:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/01972383001.shtml)
-- 2026-06-30 00:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/886755.shtml)
-- 2026-06-30 00:45 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/52366907.shtml)
+- 2026-06-30 00:25 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/4814414527.shtml)
+- 2026-06-30 00:34 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/478409593.shtml)
+- 2026-06-30 00:52 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/837702.shtml)
+- 2026-06-30 00:50 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/463851462.shtml)
+- 2026-06-30 00:30 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/684974.shtml)
+- 2026-06-30 00:35 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/504460957869.shtml)
+- 2026-06-30 00:25 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/50335514.shtml)
+- 2026-06-30 00:25 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/478737.shtml)
+- 2026-06-30 00:54 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/4891072.shtml)
+- 2026-06-30 00:38 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/40345351782.shtml)
+- 2026-06-30 00:48 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/909572134175.shtml)
+- 2026-06-30 00:28 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/617359486879.shtml)
+- 2026-06-30 00:35 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/9283238142.shtml)
+- 2026-06-30 00:46 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/4952770.shtml)
+- 2026-06-30 00:30 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/9822685.shtml)

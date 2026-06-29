@@ -1,57 +1,52 @@
-# 5月CPI总体平稳PPI继续上涨！红利低波ETF华泰柏瑞（512890）近20个交易日逆市吸金25亿！红利价值仍有空间
+# 苹果发布macOS新版本“Golden Gate”：App 启动提速30%，云端硬盘传输提升5倍
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-6月10日，市场早盘震荡调整，创业板指跌超2%，沪指跌0.58%。在此背景下，红利低波ETF华泰柏瑞（512890）逆市涨0.60%，报1.171元，换手率1.72%，半日成交额5.74亿元，居同类标的ETF首位。 消息面上，国家统计局数据显示，5月份，居民消费市场运行总体平稳，居民消费价格指数（CPI）环比下降0.1%，同比上涨1.2%，扣除食品和能源价格的核心CPI同比上涨
+专题：WWDC26苹果开发者大会 新浪科技讯 6月9日凌晨，苹果召开 WWDC26 全球开发者大会。会上，苹果公布了全新macOS版本——macOS Golden Gate。 苹果表示，该版本系统动画更流畅，很多功能运行速度也更快。iPhone 和 iPad 应用的启动速度提升高达30%，系统内容加载速度更快，照片在图库中的显示速度提升了70%，隔空投送速度提升了80%，云端硬
 
 ## 正文
 
-6月10日，市场早盘震荡调整，创业板指跌超2%，沪指跌0.58%。
+专题：WWDC26苹果开发者大会 新浪科技讯 6月9日凌晨，苹果召开 WWDC26 全球开发者大会。
 
-在此背景下，红利低波ETF华泰柏瑞（512890）逆市涨0.60%，报1.171元，换手率1.72%，半日成交额5.74亿元，居同类标的ETF首位。
+会上，苹果公布了全新macOS版本——macOS Golden Gate。
 
-消息面上，国家统计局数据显示，5月份，居民消费市场运行总体平稳，居民消费价格指数（CPI）环比下降0.1%，同比上涨1.2%，扣除食品和能源价格的核心CPI同比上涨1.1%。
+苹果表示，该版本系统动画更流畅，很多功能运行速度也更快。
 
-受国内部分行业需求增加以及国际大宗商品价格波动传导等因素影响，工业生产者出厂价格指数（PPI）环比上涨0.5%，同比上涨3.9%。
+iPhone 和 iPad 应用的启动速度提升高达30%，系统内容加载速度更快，照片在图库中的显示速度提升了70%，隔空投送速度提升了80%，云端硬盘传输速度提升了 5 倍，所有能运行iOS26的iPhone也都适配。
 
-另外，年度分红季来袭，上市银行近日密集披露2025年度权益分派实施公告。
-
-数据显示，A股上市银行2025年全年合计现金分红约6456亿元，再创历史新高。
-
-6大国有行分红总额高达4274亿元，分红率普遍维持在30%及以上。
-
-资金面上，红利低波ETF华泰柏瑞（512890）长期受资金青睐，近5个交易日资金净流入9.5亿元，近20个交易日资金净流入25.4亿元，近60个交易日资金净流入33亿元。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 00:47 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 00:40 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 00:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 00:42 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 00:40 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 00:24 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 00:18 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 00:35 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 00:43 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 00:43 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-30 00:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 00:34 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 00:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 00:28 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 00:28 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 00:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 00:39 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 00:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 00:24 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 00:46 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 00:36 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 00:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 00:35 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:21 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/457727977003.shtml)
-- 2026-06-30 00:30 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/406492331571.shtml)
-- 2026-06-30 00:25 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/4618937768.shtml)
-- 2026-06-30 00:43 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/728334.shtml)
-- 2026-06-30 00:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/630606466141.shtml)
-- 2026-06-30 00:28 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/715379474827.shtml)
-- 2026-06-30 00:30 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/853854609072.shtml)
-- 2026-06-30 00:22 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/494773971.shtml)
-- 2026-06-30 00:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/29269931.shtml)
-- 2026-06-30 00:26 - [周生如故](https://www.blog.minike.top/Article/details/681374.shtml)
-- 2026-06-30 00:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/71226992223.shtml)
-- 2026-06-30 00:39 - [周生如故](http://www.blog.kurohicncr.top/Article/details/16281862.shtml)
-- 2026-06-30 00:34 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/315718392.shtml)
-- 2026-06-30 00:42 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/665572101.shtml)
-- 2026-06-30 00:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/9386823595.shtml)
+- 2026-06-30 00:30 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/49649805816.shtml)
+- 2026-06-30 00:24 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/967544326210.shtml)
+- 2026-06-30 00:31 - [锐评T1零封KC](https://www.share.minike.top/Article/details/319944.shtml)
+- 2026-06-30 00:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/66228.shtml)
+- 2026-06-30 00:53 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/2922380933.shtml)
+- 2026-06-30 00:41 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/98173.shtml)
+- 2026-06-30 00:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/1761262961.shtml)
+- 2026-06-30 00:39 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/502117530498.shtml)
+- 2026-06-30 00:27 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/597644395649.shtml)
+- 2026-06-30 00:52 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/184737114117.shtml)
+- 2026-06-30 00:40 - [房价什么时候能涨](http://www.share.minike.top/Article/details/35909708810.shtml)
+- 2026-06-30 00:25 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/0324929.shtml)
+- 2026-06-30 00:26 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/05947033.shtml)
+- 2026-06-30 00:36 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/885142.shtml)
+- 2026-06-30 00:47 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/08027749257.shtml)

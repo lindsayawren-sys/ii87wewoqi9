@@ -1,60 +1,56 @@
-# 《老年音乐照料服务规范》团体标准发布会在京举行
+# 海底珊瑚监测、废弃渔网回收 珠澳携手保护海洋生态
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月9日电 中国社会福利与养老服务协会《老年音乐照料服务规范》团体标准发布会日前在京举行，并同期举办首期“老年音乐照料”培训。 中国社会福利与养老服务协会副会长韩华表示，此次发布的《老年音乐照料服务规范》团体标准，经协会团体标准技术委员会严格立项审查与编制论证，已于今年5月正式实施，填补了我国老年音乐照料服务领域的标准化空白，成为行业发展的重要里程碑。协会后续将联合各
+6月8日是世界海洋日。这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。 在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。 此外，当地还开展了为期两
 
 ## 正文
 
-中新网北京6月9日电 中国社会福利与养老服务协会《老年音乐照料服务规范》团体标准发布会日前在京举行，并同期举办首期“老年音乐照料”培训。
+6月8日是世界海洋日。
 
-中国社会福利与养老服务协会副会长韩华表示，此次发布的《老年音乐照料服务规范》团体标准，经协会团体标准技术委员会严格立项审查与编制论证，已于今年5月正式实施，填补了我国老年音乐照料服务领域的标准化空白，成为行业发展的重要里程碑。
+这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。
 
-协会后续将联合各地养老服务机构全面开展标准宣贯与试点应用工作，通过示范引领推动标准从文本转化为服务实践，切实提升老年群体的生活幸福感与获得感。
+在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。
 
-云南德宏职业学院副校长王根瑭代表团标起草单位发言。
+巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。
 
-他表示，老年音乐照料作为融合老年照护、音乐艺术与康复医学的跨学科复合技能，对从业人员的综合素养提出了更高要求。
+此外，当地还开展了为期两天的“海洋小卫士”亲子研学营，许多亲子家庭参与了海洋科普课堂、潜水知识分享、贝壳归海等研学活动，在沉浸式体验中学习珊瑚保护、海洋垃圾治理和生物多样性保护。
 
-学院将以团体标准为指引，把标准核心内容有机融入专业课程体系，开发“老年音乐照料实务”等特色课程模块，共建标准化实训基地。
-
-团标核心起草人、中央音乐学院音乐治疗专业讲师林思思详细介绍了团标的内容，明确界定了老年音乐照护与老年音乐治疗的不同，特别强调了服务原则和对服务人员的岗位要求、伦理要求，并对服务流程、服务保障和督导要求进行了明确界定。
-
-首期“老年音乐照料”培训当天开班，课程内容涵盖音乐与健康基础理论、老年音乐照料服务流程、音乐照护与音乐治疗的区别与联系、临床实践观摩等多个模块。
+未来，当地还将持续开展珊瑚监测、海底保育、海滩清洁和跨境海洋科普研学等公益行动，推动粤港澳大湾区海洋生态保护和生态文明建设不断深化。
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 00:34 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 00:23 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 00:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 00:25 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 00:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 00:43 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 00:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 00:44 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 00:43 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 00:37 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 00:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 00:44 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 00:36 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 00:33 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 00:48 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 00:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 00:50 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 00:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 00:52 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 00:49 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 00:30 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 00:29 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 00:33 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 00:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 00:24 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 00:51 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 00:43 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:27 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/469572514.shtml)
-- 2026-06-30 00:37 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/304839.shtml)
-- 2026-06-30 00:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/520988398379.shtml)
-- 2026-06-30 00:23 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/1136594901.shtml)
-- 2026-06-30 00:19 - [请回答王牌2019](http://www.blog.minike.top/Article/details/57136602541.shtml)
-- 2026-06-30 00:34 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/410779160.shtml)
-- 2026-06-30 00:22 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/3499326947.shtml)
-- 2026-06-30 00:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/0443121554.shtml)
-- 2026-06-30 00:28 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/936603212890.shtml)
-- 2026-06-30 00:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/796707720.shtml)
-- 2026-06-30 00:25 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/96474736905.shtml)
-- 2026-06-30 00:22 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/09094760109.shtml)
-- 2026-06-30 00:45 - [天道](http://www.share.kurohicncr.top/Article/details/4809846.shtml)
-- 2026-06-30 00:21 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/6279190541.shtml)
-- 2026-06-30 00:24 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/6810533497.shtml)
+- 2026-06-30 00:50 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/76327390.shtml)
+- 2026-06-30 00:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/70788.shtml)
+- 2026-06-30 00:50 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/44128.shtml)
+- 2026-06-30 00:34 - [美股](http://www.share.minike.top/Article/details/049105.shtml)
+- 2026-06-30 00:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/657407.shtml)
+- 2026-06-30 00:34 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/27699963821.shtml)
+- 2026-06-30 00:41 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/4233605.shtml)
+- 2026-06-30 00:53 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/5287544.shtml)
+- 2026-06-30 00:29 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/7493231.shtml)
+- 2026-06-30 00:27 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/95087163214.shtml)
+- 2026-06-30 00:43 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/58492451004.shtml)
+- 2026-06-30 00:50 - [《贺子珍》](http://www.blog.minike.top/Article/details/67314225491.shtml)
+- 2026-06-30 00:40 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/772700175174.shtml)
+- 2026-06-30 00:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/68315.shtml)
+- 2026-06-30 00:30 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/84097.shtml)

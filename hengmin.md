@@ -1,56 +1,52 @@
-# 特朗普纽约观看NBA总决赛 尼克斯主场不敌马刺
+# 瑞昌国际控股获控股股东陆波增持137万股
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新社纽约6月9日电 (记者 王帆)美国总统特朗普8日应邀观看在纽约举行的美国男子职业篮球联赛(NBA)总决赛第三场。这是NBA总决赛历史上首次有现任总统到场观赛。 当晚的比赛由纽约尼克斯队主场迎战圣安东尼奥马刺队。比赛中，尼克斯111比115不敌马刺。不过，凭借前两个客场胜利，尼克斯在七场四胜制的赛程中仍以总比分2比1领先。 据美国多家媒体报道，特朗普的出现引发部分球迷的不满
+瑞昌国际控股（01334）发布公告，董事会获悉，公司控股股东、执行董事、行政总裁兼董事会主席陆波先生透过其控制法团于2026年6月5日及2026年6月8日在公开市场上购入本公司137万股股份（增持股份）。增持股份的总代价约为143.845万港元。 诚如陆波先生所告知，增持股份显示其对本公司内在价值的肯定，以及其对本公司发展前景及增长潜力的坚定信心。陆波先生不排除于适当时候根据适
 
 ## 正文
 
-中新社纽约6月9日电 (记者 王帆)美国总统特朗普8日应邀观看在纽约举行的美国男子职业篮球联赛(NBA)总决赛第三场。
+瑞昌国际控股（01334）发布公告，董事会获悉，公司控股股东、执行董事、行政总裁兼董事会主席陆波先生透过其控制法团于2026年6月5日及2026年6月8日在公开市场上购入本公司137万股股份（增持股份）。
 
-这是NBA总决赛历史上首次有现任总统到场观赛。
+增持股份的总代价约为143.845万港元。
 
-当晚的比赛由纽约尼克斯队主场迎战圣安东尼奥马刺队。
+诚如陆波先生所告知，增持股份显示其对本公司内在价值的肯定，以及其对本公司发展前景及增长潜力的坚定信心。
 
-比赛中，尼克斯111比115不敌马刺。
+陆波先生不排除于适当时候根据适用法律及法规进一步增持本公司股份的可能性。
 
-不过，凭借前两个客场胜利，尼克斯在七场四胜制的赛程中仍以总比分2比1领先。
-
-据美国多家媒体报道，特朗普的出现引发部分球迷的不满。
-
-当美国国歌奏响，现场大屏幕显示特朗普与尼克斯老板多兰等现身包厢的画面时，比赛场馆麦迪逊广场花园响起了嘘声。
-
-报道称，作为尼克斯时隔27年重返NBA总决赛的首个主场比赛，本场门票需求旺盛。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:25 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 00:35 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 00:32 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 00:34 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 00:37 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 00:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 00:20 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 00:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 00:27 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 00:44 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 00:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 00:52 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 00:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 00:43 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 00:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 00:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 00:25 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 00:37 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 00:49 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 00:35 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 00:53 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 00:25 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/308322574.shtml)
-- 2026-06-30 00:24 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/115870156416.shtml)
-- 2026-06-30 00:45 - [女心理师](http://www.share.kurohicncr.top/Article/details/3931053.shtml)
-- 2026-06-30 00:26 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/39266.shtml)
-- 2026-06-30 00:44 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/448539055.shtml)
-- 2026-06-30 00:45 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/669983089757.shtml)
-- 2026-06-30 00:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/1691849337.shtml)
-- 2026-06-30 00:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/94455.shtml)
-- 2026-06-30 00:24 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/391881.shtml)
-- 2026-06-30 00:31 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/163477975.shtml)
-- 2026-06-30 00:47 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/895550179.shtml)
-- 2026-06-30 00:40 - [存储三巨头被告了](http://www.share.minike.top/Article/details/3099148263.shtml)
-- 2026-06-30 00:25 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/1795767.shtml)
-- 2026-06-30 00:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/32699.shtml)
-- 2026-06-30 00:38 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/155190426.shtml)
+- 2026-06-30 00:26 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/773461500.shtml)
+- 2026-06-30 00:49 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/6845487.shtml)
+- 2026-06-30 00:29 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/42340520694.shtml)
+- 2026-06-30 00:31 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/35714612.shtml)
+- 2026-06-30 00:34 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/980267045115.shtml)
+- 2026-06-30 00:24 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/981454.shtml)
+- 2026-06-30 00:34 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/886170125.shtml)
+- 2026-06-30 00:30 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/664440.shtml)
+- 2026-06-30 00:31 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/6224868210.shtml)
+- 2026-06-30 00:39 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/561981108700.shtml)
+- 2026-06-30 00:43 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/79057881692.shtml)
+- 2026-06-30 00:51 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/988589632.shtml)
+- 2026-06-30 00:39 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/68393.shtml)
+- 2026-06-30 00:24 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/303311547020.shtml)
+- 2026-06-30 00:53 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/403384201921.shtml)

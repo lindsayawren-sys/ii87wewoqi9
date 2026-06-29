@@ -1,59 +1,60 @@
-# 广东认证认可检验检测体系综合实力全国领跑
+# 广西公开遴选1400名“头雁” 带动乡村产业振兴
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新网广州6月9日电 (记者 许青青)记者从9日在广州南沙举行的第三届认证认可大会服务“一带一路”软联通专题会议上了解到，广东持续优化营商环境，集聚全球优质检测认证资源，打造全国规模最大、高度活跃的认证认可检验检测服务生态。目前，广东认证认可检验检测服务体系持续优化，综合实力全国领跑。 中检集团、中汽中心等央企机构，SGS、欧陆、必维、德凯、天祥、南德、莱茵、UL等国际机构，以
+中新网南宁6月8日电(杨陈 李贤宇 罗雪娇)广西农业农村厅8日介绍，2026年乡村产业振兴带头人“头雁”项目学员遴选工作日前正式启动，计划面向广西公开遴选1400名“头雁”培育对象。这也是当地“头雁”项目实施以来培育规模最大、覆盖领域最广的一次遴选，旨在育强“千雁万群”，带动“千家万户”共同发展。据了解，自2022年农业农村部、财政部启动“头雁”项目以来，广西已累计培育国家级“
 
 ## 正文
 
-中新网广州6月9日电 (记者 许青青)记者从9日在广州南沙举行的第三届认证认可大会服务“一带一路”软联通专题会议上了解到，广东持续优化营商环境，集聚全球优质检测认证资源，打造全国规模最大、高度活跃的认证认可检验检测服务生态。
+中新网南宁6月8日电(杨陈 李贤宇 罗雪娇)广西农业农村厅8日介绍，2026年乡村产业振兴带头人“头雁”项目学员遴选工作日前正式启动，计划面向广西公开遴选1400名“头雁”培育对象。
 
-目前，广东认证认可检验检测服务体系持续优化，综合实力全国领跑。
+这也是当地“头雁”项目实施以来培育规模最大、覆盖领域最广的一次遴选，旨在育强“千雁万群”，带动“千家万户”共同发展。
 
-中检集团、中汽中心等央企机构，SGS、欧陆、必维、德凯、天祥、南德、莱茵、UL等国际机构，以及香港品质保证局、香港标检中心等港澳机构纷纷在粤布局设点，形成内外资机构优势互补、协同发展的良好格局。
+据了解，自2022年农业农村部、财政部启动“头雁”项目以来，广西已累计培育国家级“头雁”2800名，辐射带动农户54.4万户，形成了“头雁领航、群雁齐飞”的生动局面。
 
-目前，广东建成国家质检中心89个，培育检测认证上市企业27家、“专精特新”企业282家、高新技术企业870家，形成了覆盖传统优势产业、新兴产业和未来产业重点领域的检测认证服务体系；国家检验检测高技术服务业集聚区(广州)2025年营收达384亿元，位居全国首位。
+2026年，广西将培育名额从往年的700名翻倍至1400名，标志着“头雁”项目迈入扩面提质的新阶段。
 
-2025年，全省CMA资质认定检验检测机构营业收入突破800亿元，从业人员超过18万人，出具CMA检验检测报告超过1亿份，有效期内认证证书78.04万张、获证组织18.03万家，多项核心指标持续领跑全国。
+本次遴选坚持“优中选优、带农为要”的原则，重点面向农民专业合作社理事长、家庭农场主、农村集体经济组织负责人、市县级农业产业化龙头企业负责人、种养大户等乡村产业带头人。
 
-本次专题会议聚焦跨境认证认可合作，达成了一系列合作，惠及多个重点产业领域。
+特别值得关注的是，遴选政策显著向“新农人”倾斜，鼓励善于运用智慧农业、人工智能等新技术的“农创客”，从事乡村运营、文旅发展、电商直播的“乡村运营师”，以及传承非遗技艺、传统手工技艺的“乡村工匠”积极申报。
 
-如埃及进出口控制总局为威凯检测技术有限公司、深圳市计量质量检测研究院等4家广东机构授权，粤企输埃相关产品在本地即可办理埃及海关采信的COI入境证书，能够为企业平均缩短检测认证周期50%以上、降低检测认证成本30%以上。
+凡年龄在55周岁以下、高中(中专)以上学历，身心健康(无明显基础性疾病)，具备外出参训身体条件，诚信经营、遵纪守法，从事当地特色产业3年以上、近3年累计带动30户或100名以上农民增收致富的带头人，均可报名。
 
-印度尼西亚车辆验证认证中心、摩洛哥标准化研究所分别与中汽研汽车检验中心(广州)有限公司、威凯认证检测有限公司签署合作协议，深化新能源汽车、智能家电等广东支柱产业标准协同与检测认证结果互认。
+广西农业农村厅相关负责人表示，“头雁”项目不是普通的培训，而是一套“集中培训+导师跟踪+金融扶持+项目支持”的全链条培育体系。
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 00:35 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-30 00:23 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 00:34 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 00:37 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 00:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 00:39 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 00:24 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 00:32 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 00:20 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 00:28 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 00:18 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 00:24 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 00:50 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 00:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 00:40 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 00:48 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 00:33 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-30 00:53 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 00:26 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 00:49 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 00:41 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 00:30 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 00:44 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 00:30 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 00:30 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 00:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:31 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/01264729.shtml)
-- 2026-06-30 00:38 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/368172283.shtml)
-- 2026-06-30 00:39 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/74653891606.shtml)
-- 2026-06-30 00:21 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/2627336779.shtml)
-- 2026-06-30 00:35 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/889328.shtml)
-- 2026-06-30 00:38 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/479638.shtml)
-- 2026-06-30 00:47 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/77936.shtml)
-- 2026-06-30 00:37 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/194425690406.shtml)
-- 2026-06-30 00:30 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/425438217.shtml)
-- 2026-06-30 00:32 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/77106604914.shtml)
-- 2026-06-30 00:45 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/20367660.shtml)
-- 2026-06-30 00:27 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/4153844489.shtml)
-- 2026-06-30 00:37 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/397077309.shtml)
-- 2026-06-30 00:22 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/63167543107.shtml)
-- 2026-06-30 00:26 - [明星大侦探第一季](http://www.share.minike.top/Article/details/8100125926.shtml)
+- 2026-06-30 00:39 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/77096274.shtml)
+- 2026-06-30 00:49 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/80030.shtml)
+- 2026-06-30 00:36 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/075732614247.shtml)
+- 2026-06-30 00:37 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/1480535.shtml)
+- 2026-06-30 00:39 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/973358535960.shtml)
+- 2026-06-30 00:48 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/512922657208.shtml)
+- 2026-06-30 00:34 - [毒液2](http://www.share.kurohicncr.top/Article/details/978243939141.shtml)
+- 2026-06-30 00:42 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/92714571.shtml)
+- 2026-06-30 00:24 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/269032.shtml)
+- 2026-06-30 00:40 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/29697547.shtml)
+- 2026-06-30 00:51 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/111092148.shtml)
+- 2026-06-30 00:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/0959365481.shtml)
+- 2026-06-30 00:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/51179.shtml)
+- 2026-06-30 00:51 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/90602073.shtml)
+- 2026-06-30 00:52 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/591531.shtml)

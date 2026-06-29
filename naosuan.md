@@ -1,59 +1,42 @@
-# 20倍大牛股，重要股东突然宣布减持，套现额有望达到50亿元！公司总市值1876亿元，去年净利润2.02亿元
+# 云南省科学技术协会党组成员、副主席彭山接受审查调查
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-每经编辑|金冥羽 6月9日，电子布概念牛股宏和科技（603256.SH）公告称，股东SHARPTONE因资金需求，拟通过集中竞价方式减持不超过904.59万股，占总股本1%；UNICORNACE因资金需求，拟通过大宗交易方式减持不超过1809.17万股，占总股本2%。减持期间为公告披露之日起15个交易日后的3个月内。 截至3月31日，UNICORN ACE LIMITED、SH
+中新网6月9日电 据云南省纪委监委消息：云南省科学技术协会党组成员、副主席彭山涉嫌严重违纪违法，目前正接受云南省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-每经编辑|金冥羽 6月9日，电子布概念牛股宏和科技（603256.SH）公告称，股东SHARPTONE因资金需求，拟通过集中竞价方式减持不超过904.59万股，占总股本1%；UNICORNACE因资金需求，拟通过大宗交易方式减持不超过1809.17万股，占总股本2%。
-
-减持期间为公告披露之日起15个交易日后的3个月内。
-
-截至3月31日，UNICORN ACE LIMITED、SHARP TONE INTERNATIONAL LIMITED分别位列宏和科技第二和第三大股东，持股比例分别为3.18%、2.87%。
-
-公开资料显示，宏和科技主要从事中高端电子级玻璃纤维布的研发、生产和销售的高新技术企业。
-
-公司主要产品为中高端电子级玻璃纤维布系列产品，主要包括极薄型、超薄型、薄型电子级玻璃纤维布。
-
-据央视财经，电子布，全称电子级玻璃纤维布，是电子工业中的关键材料，主要用于覆铜板和印制电路板的制造，再应用于数据中心服务器、智能手机等各类电子产品。
-
-今年以来，算力需求爆发，带动电子布价格大幅上涨。
-
-截至6月初，市场上常用规格的电子布已经完成年内5轮提价，均价达7.4元/米，与去年三季度的低点相比，涨幅达到100%。
+中新网6月9日电 据云南省纪委监委消息：云南省科学技术协会党组成员、副主席彭山涉嫌严重违纪违法，目前正接受云南省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 00:43 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 00:42 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 00:20 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 00:43 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 00:41 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 00:31 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 00:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 00:32 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 00:46 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 00:30 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 00:34 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 00:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 00:37 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 00:32 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 00:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 00:53 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 00:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 00:44 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 00:34 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 00:40 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 00:48 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 00:25 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:22 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/6223595.shtml)
-- 2026-06-30 00:27 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/64001409705.shtml)
-- 2026-06-30 00:43 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/04337865582.shtml)
-- 2026-06-30 00:20 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/402661408298.shtml)
-- 2026-06-30 00:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/029276044967.shtml)
-- 2026-06-30 00:25 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/12898.shtml)
-- 2026-06-30 00:44 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/25602.shtml)
-- 2026-06-30 00:39 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/754651460.shtml)
-- 2026-06-30 00:47 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/064500314.shtml)
-- 2026-06-30 00:43 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/5547545380.shtml)
-- 2026-06-30 00:25 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/3627067331.shtml)
-- 2026-06-30 00:39 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/06976825269.shtml)
-- 2026-06-30 00:45 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/0888759.shtml)
-- 2026-06-30 00:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/0585078.shtml)
-- 2026-06-30 00:38 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/508980.shtml)
+- 2026-06-30 00:29 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/867444244892.shtml)
+- 2026-06-30 00:27 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/606002594.shtml)
+- 2026-06-30 00:46 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/2793993.shtml)
+- 2026-06-30 00:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/85717380855.shtml)
+- 2026-06-30 00:41 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/395956995.shtml)
+- 2026-06-30 00:50 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/9865496411.shtml)
+- 2026-06-30 00:50 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/117683824912.shtml)
+- 2026-06-30 00:31 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/148262.shtml)
+- 2026-06-30 00:29 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/01710506486.shtml)
+- 2026-06-30 00:38 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/427375777.shtml)
+- 2026-06-30 00:34 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/6240006440.shtml)
+- 2026-06-30 00:53 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/6171678010.shtml)
+- 2026-06-30 00:25 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/7653917.shtml)
+- 2026-06-30 00:33 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/61532.shtml)
+- 2026-06-30 00:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/13343550.shtml)

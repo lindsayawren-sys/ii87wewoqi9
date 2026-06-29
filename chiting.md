@@ -1,58 +1,60 @@
-# 日本批发通胀加速攀升，创三年新高，能源价格大幅上涨
+# 诺和诺德减肥口服药上市以来处方量已达300万份
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-受中东局势影响，物价上行压力进一步扩散，日本5月批发通胀创下三年来最大涨幅，这也加大了日本央行后续加息的必要性。 日本央行将于下周召开货币政策会议。由于日元走弱、地区冲突推高能源价格，通胀压力持续加剧，市场预计该行将自去年12月以来再度加息。 日本央行周三公布的数据显示，5月生产者物价指数（PPI）同比上涨6.3%，高于市场预期的5.5%，4月该指数修正后同比涨幅为5.3%。
+诺和诺德（Novo Nordisk）表示，其减肥口服药维秀美（Wegovy）自1月初上市以来，处方量已超过300万份。 这家丹麦制药商周日晚间表示，该口服药在美国药店和在线供应商上架12周后，处方量达到100万份，并在随后的10周内又开出了200万份处方。 维秀美口服药超过80%的新处方是开给首次使用GLP-1类药物的患者。该公司表示，这表明新的口服剂型正在扩大肥胖症治疗市场，
 
 ## 正文
 
-受中东局势影响，物价上行压力进一步扩散，日本5月批发通胀创下三年来最大涨幅，这也加大了日本央行后续加息的必要性。
+诺和诺德（Novo Nordisk）表示，其减肥口服药维秀美（Wegovy）自1月初上市以来，处方量已超过300万份。
 
-日本央行将于下周召开货币政策会议。
+这家丹麦制药商周日晚间表示，该口服药在美国药店和在线供应商上架12周后，处方量达到100万份，并在随后的10周内又开出了200万份处方。
 
-由于日元走弱、地区冲突推高能源价格，通胀压力持续加剧，市场预计该行将自去年12月以来再度加息。
+维秀美口服药超过80%的新处方是开给首次使用GLP-1类药物的患者。
 
-日本央行周三公布的数据显示，5月生产者物价指数（PPI）同比上涨6.3%，高于市场预期的5.5%，4月该指数修正后同比涨幅为5.3%。
+该公司表示，这表明新的口服剂型正在扩大肥胖症治疗市场，而不是取代现有的注射疗法。
 
-本轮涨幅为2023年3月以来最高。
+在最初于美国推出维秀美口服药后，诺和诺德上周宣布该药物在阿联酋上市，并表示正准备在今年下半年进行更多地区的上市。
 
-受霍尔木兹海峡航运近乎中断影响，原油、石脑油价格走高，带动有色金属、化工及石油制品价格上涨，成为推高指数的主要因素。
+该制药商近期还推出了一款更高剂量的维秀美减肥注射剂，并称该药在上市初期也显示出强劲的需求。
 
-凯投宏观亚太区资深经济学家阿比吉特・苏里亚表示：“生产者物价通胀持续走高，基本可以确定日本央行将在下周会议上加息。
+Wegovy HD是一种每周注射一次的针剂，含有7.2毫克的活性成分司美格鲁肽（semaglutide）。
 
-” “我们同时预计，该行后续会加快政策收紧节奏，此后大约每四个月加息一次。
+该公司曾表示，这是迄今为止所有维秀美注射剂中减重效果最强的。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 00:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 00:22 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 00:43 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 00:36 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 00:23 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 00:31 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 00:33 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 00:47 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 00:38 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 00:41 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 00:18 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 00:26 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 00:50 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 00:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 00:29 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 00:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 00:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 00:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 00:32 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 00:47 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 00:49 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 00:42 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 00:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 00:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 00:28 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:37 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/7107125.shtml)
-- 2026-06-30 00:46 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/833865347424.shtml)
-- 2026-06-30 00:36 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/7738142222.shtml)
-- 2026-06-30 00:45 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/85965976404.shtml)
-- 2026-06-30 00:25 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/7424678.shtml)
-- 2026-06-30 00:37 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/78693.shtml)
-- 2026-06-30 00:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/974263971.shtml)
-- 2026-06-30 00:40 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/41012607903.shtml)
-- 2026-06-30 00:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/63982007223.shtml)
-- 2026-06-30 00:20 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/62795101.shtml)
-- 2026-06-30 00:25 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/8380292.shtml)
-- 2026-06-30 00:21 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/1823474.shtml)
-- 2026-06-30 00:37 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/4027026.shtml)
-- 2026-06-30 00:22 - [扫黑风暴](http://www.share.minike.top/Article/details/247144.shtml)
-- 2026-06-30 00:22 - [女心理师](http://www.blog.minike.top/Article/details/27155747.shtml)
+- 2026-06-30 00:27 - [田曦薇没招了](https://www.blog.minike.top/Article/details/8817458233.shtml)
+- 2026-06-30 00:46 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/1446148445.shtml)
+- 2026-06-30 00:28 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/5955687.shtml)
+- 2026-06-30 00:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/3499954811.shtml)
+- 2026-06-30 00:53 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/30205.shtml)
+- 2026-06-30 00:52 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/27825318622.shtml)
+- 2026-06-30 00:26 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/4312406599.shtml)
+- 2026-06-30 00:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/870675.shtml)
+- 2026-06-30 00:51 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/63884.shtml)
+- 2026-06-30 00:28 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/89342957.shtml)
+- 2026-06-30 00:47 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/054501.shtml)
+- 2026-06-30 00:53 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/72703811881.shtml)
+- 2026-06-30 00:42 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/65825997.shtml)
+- 2026-06-30 00:26 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/902008845.shtml)
+- 2026-06-30 00:28 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/871941802.shtml)

@@ -1,58 +1,55 @@
-# 掌握以下要点 这个夏天放心享受荔枝的甜蜜，为健康加分
+# 渝农商行：2025年度A股每股派发现金红利0.11755元 将于6月16日派息
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-它是“百果之王”，养肝补血、美容养颜～既是水果也是药，但每天食用超过这个数可能会出事 “日啖荔枝三百颗，不辞长作岭南人” 作为“南国四大果品”之一 荔枝不仅是水果 还是一味中药 合理食用能养肝补血、补脾益胃 为健康加分 但需特别提醒 ⚠️儿童每日≤5颗 ⚠️成人每日≤15颗 空腹大量食用新鲜荔枝可能引发“荔枝病” 出现头晕、心慌甚至昏迷 严重时可危及生命！ 掌握以下要点 这个夏
+6月8日金融一线消息，渝农商行今日发布2025年年度A股权益分派实施公告。本次利润分配以方案实施前的本行总股本11，357，000，000股为基数（其中A股股本为8，843，663，959股），每股派发现金红利人民币0.11755元（含税），共计派发现金红利人民币1，335，015，350元（含税），其中派发A股现金红利人民币1，039，572，698.38元（含税）。除权（息
 
 ## 正文
 
-它是“百果之王”，养肝补血、美容养颜～既是水果也是药，但每天食用超过这个数可能会出事 “日啖荔枝三百颗，不辞长作岭南人” 作为“南国四大果品”之一 荔枝不仅是水果 还是一味中药 合理食用能养肝补血、补脾益胃 为健康加分 但需特别提醒 ⚠️儿童每日≤5颗 ⚠️成人每日≤15颗 空腹大量食用新鲜荔枝可能引发“荔枝病” 出现头晕、心慌甚至昏迷 严重时可危及生命！
+6月8日金融一线消息，渝农商行今日发布2025年年度A股权益分派实施公告。
 
-掌握以下要点 这个夏天放心享受“岭南佳果”的甜蜜吧～ 01“百果之王”的营养密码 健脑安神： 荔枝中含有色氨酸，能抑制大脑过度兴奋，帮助睡眠，常食能改善失眠、健忘、神疲等症状。
+本次利润分配以方案实施前的本行总股本11，357，000，000股为基数（其中A股股本为8，843，663，959股），每股派发现金红利人民币0.11755元（含税），共计派发现金红利人民币1，335，015，350元（含税），其中派发A股现金红利人民币1，039，572，698.38元（含税）。
 
-开胃健脾： 荔枝果实中的有机酸具有帮助消化、软化血管和促进微量元素吸收等多种功能。
+除权（息）日为2026年6月16日。
 
-荔枝甘甜多汁，含水量较高，可刺激唾液分泌，有助于生津止渴、开胃健脾，可增强食欲，尤其适宜口干舌燥、食欲不佳者食用。
+重庆渝富资本运营集团有限公司、重庆市城市建设投资（集团）有限公司、重庆发展置业管理有限公司、重庆市水利投资（集团）有限公司、重庆水务集团股份有限公司及本行未确认持有人证券专用账户的现金红利由本行按照相关规定自行发放。
 
-美容养颜： 荔枝富含糖类、蛋白质、有机酸、维生素、矿物质及多种生物活性物质，如单宁、花青素等，这些营养成分能够抑制胶原蛋白、弹性蛋白和透明质酸的分解，防止肌肤松弛、产生皱纹等衰老现象，同时还可以减少色素沉着，从而使肌肤保持年轻态。
-
-现代医学研究也证明，食用荔枝能够加速毒素排出，促进细胞生成，使皮肤细嫩。
-
-补充能量： 荔枝果肉中含丰富的葡萄糖、蔗糖，含糖量高，具有补充能量和补充营养的作用。
-
-02 中医眼中的荔枝：纯阳之果 温养全身 在中医典籍中，荔枝被誉为“果中美玉”和“纯阳之果”。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 00:29 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 00:31 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 00:22 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 00:40 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 00:22 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 00:19 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 00:45 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 00:18 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 00:25 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 00:34 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 00:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 00:31 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 00:49 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 00:48 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 00:32 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 00:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 00:33 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 00:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 00:35 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 00:47 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 00:33 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 00:39 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 00:46 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 00:52 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 00:31 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 00:25 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/439908902.shtml)
-- 2026-06-30 00:42 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/629618200062.shtml)
-- 2026-06-30 00:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/5777551.shtml)
-- 2026-06-30 00:30 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/25095040.shtml)
-- 2026-06-30 00:19 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/34918149717.shtml)
-- 2026-06-30 00:46 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/205259933453.shtml)
-- 2026-06-30 00:25 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/1713706.shtml)
-- 2026-06-30 00:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/7131786.shtml)
-- 2026-06-30 00:45 - [美股](http://www.blog.kurohicncr.top/Article/details/78791.shtml)
-- 2026-06-30 00:24 - [TOP Prada](http://www.blog.minike.top/Article/details/74547277045.shtml)
-- 2026-06-30 00:35 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/65279.shtml)
-- 2026-06-30 00:23 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/4932739.shtml)
-- 2026-06-30 00:33 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/3087688939.shtml)
-- 2026-06-30 00:18 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/94379144.shtml)
-- 2026-06-30 00:24 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/409023329.shtml)
+- 2026-06-30 00:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/945001621.shtml)
+- 2026-06-30 00:36 - [沙丘](http://www.share.minike.top/Article/details/64560795.shtml)
+- 2026-06-30 00:43 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/5074303610.shtml)
+- 2026-06-30 00:37 - [千香](http://www.share.minike.top/Article/details/112261.shtml)
+- 2026-06-30 00:29 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/5524224801.shtml)
+- 2026-06-30 00:29 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/247545509788.shtml)
+- 2026-06-30 00:48 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/646399848.shtml)
+- 2026-06-30 00:25 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/83035054528.shtml)
+- 2026-06-30 00:32 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/79265225073.shtml)
+- 2026-06-30 00:28 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/301803028690.shtml)
+- 2026-06-30 00:50 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/12560606354.shtml)
+- 2026-06-30 00:30 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/73942.shtml)
+- 2026-06-30 00:44 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/59507751104.shtml)
+- 2026-06-30 00:52 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/448051058520.shtml)
+- 2026-06-30 00:49 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/35139150079.shtml)

@@ -1,51 +1,43 @@
-# 王传福：比亚迪今年海外销量有望超预期
+# 伊朗打击以色列刺激国际油价明显走高
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-6月9日，比亚迪董事长兼总裁王传福在公司2025年度股东会上表示，随着公司技术、产品力提升及海外基地持续释放产量，比亚迪全年海外销量有望超预期。 据了解，比亚迪此前制定的海外销量目标为150万辆。2025年，公司海外销量约105万辆。责任编辑：刘万里 SF014
+发布时间：2026年06月08日 20:30 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-6月9日，比亚迪董事长兼总裁王传福在公司2025年度股东会上表示，随着公司技术、产品力提升及海外基地持续释放产量，比亚迪全年海外销量有望超预期。
-
-据了解，比亚迪此前制定的海外销量目标为150万辆。
-
-2025年，公司海外销量约105万辆。
-
-责任编辑：刘万里 SF014
+发布时间：2026年06月08日 20:30 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 00:19 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 00:37 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 00:34 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-30 00:45 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 00:46 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 00:19 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 00:18 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 00:30 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 00:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 00:33 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 00:22 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 00:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 00:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 00:28 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 00:30 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 00:33 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 00:47 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 00:50 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 00:26 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 00:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 00:25 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 00:26 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 00:39 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 00:53 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [千与千寻](https://www.share.minike.top/Article/details/84040.shtml)
-- 2026-06-30 00:40 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/018054373907.shtml)
-- 2026-06-30 00:25 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/168316.shtml)
-- 2026-06-30 00:39 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/5388076.shtml)
-- 2026-06-30 00:33 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/1494651962.shtml)
-- 2026-06-30 00:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/95637.shtml)
-- 2026-06-30 00:43 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/58391643706.shtml)
-- 2026-06-30 00:22 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/4402116.shtml)
-- 2026-06-30 00:37 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/44941.shtml)
-- 2026-06-30 00:35 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/234559106.shtml)
-- 2026-06-30 00:18 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/3021544.shtml)
-- 2026-06-30 00:42 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/89473705.shtml)
-- 2026-06-30 00:38 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/03148992.shtml)
-- 2026-06-30 00:45 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/671421.shtml)
-- 2026-06-30 00:45 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/24400511833.shtml)
+- 2026-06-30 00:31 - [流金岁月](https://www.share.minike.top/Article/details/0730242051.shtml)
+- 2026-06-30 00:36 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/909877218510.shtml)
+- 2026-06-30 00:41 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/34977.shtml)
+- 2026-06-30 00:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/5439750140.shtml)
+- 2026-06-30 00:29 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/8916954434.shtml)
+- 2026-06-30 00:34 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/47429.shtml)
+- 2026-06-30 00:51 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/9947400213.shtml)
+- 2026-06-30 00:43 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/753265823469.shtml)
+- 2026-06-30 00:43 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/88490.shtml)
+- 2026-06-30 00:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/519962478015.shtml)
+- 2026-06-30 00:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/86377593294.shtml)
+- 2026-06-30 00:40 - [周生如故](http://www.share.minike.top/Article/details/883627968285.shtml)
+- 2026-06-30 00:53 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/2387609.shtml)
+- 2026-06-30 00:27 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/2714127.shtml)
+- 2026-06-30 00:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/605520.shtml)

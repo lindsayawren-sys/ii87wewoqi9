@@ -1,59 +1,57 @@
-# 西北民歌《尕连手》走红 古老花儿唱出最潮音
+# 钦州港海关机关大楼南面车位维修项目协商谈判采购公告
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 07:55 来源：中国新闻网 近日，融合传统民歌底蕴与现代音乐风格的作品《尕连手》刷屏全网，魔性的节奏与原汁原味的西北风情碰撞出强烈火花，不仅让这首民歌成为新晋“洗脑神曲”，更让“中国花儿之乡”甘肃临夏再次走进全国观众的视野。 对此，歌曲《尕连手》原创作者、甘肃临夏州康乐县音乐人、国家级非遗代表性项目花儿(莲花山花儿会)县级代表性传承人段兴华受
+钦州港海关需对机关大楼南面车位维修项目进行采购，采用协商谈判的方式择优选择施工单位，现将有关采购情况公告如下： 一、项目名称：钦州港海关机关大楼南面车位维修项目 二、报价内容：参照钦州港海关机关大楼南面车位维修工程量清单(附件1)进行报价。 三、项目预算金额(人民币)：68860.15万元。四、报价人资格： (一)国内注册(指按国家有关规定要求注册的)，符合《中华人民共和国政府
 
 ## 正文
 
-发布时间：2026年06月09日 07:55 来源：中国新闻网 近日，融合传统民歌底蕴与现代音乐风格的作品《尕连手》刷屏全网，魔性的节奏与原汁原味的西北风情碰撞出强烈火花，不仅让这首民歌成为新晋“洗脑神曲”，更让“中国花儿之乡”甘肃临夏再次走进全国观众的视野。
+钦州港海关需对机关大楼南面车位维修项目进行采购，采用协商谈判的方式择优选择施工单位，现将有关采购情况公告如下： 一、项目名称：钦州港海关机关大楼南面车位维修项目 二、报价内容：参照钦州港海关机关大楼南面车位维修工程量清单(附件1)进行报价。
 
-对此，歌曲《尕连手》原创作者、甘肃临夏州康乐县音乐人、国家级非遗代表性项目花儿(莲花山花儿会)县级代表性传承人段兴华受邀在兰州开展专题讲座，围绕古老“花儿”的艺术魅力和“老歌新唱”路径，探讨“花儿”如何在守正与创新之间，凝聚起跨越民族与地域的文化认同。
+三、项目预算金额(人民币)：68860.15万元。
 
-【同期】观众 陈媛媛 能在现场听到段兴华老师唱的花儿，我感觉到非常舒服，能感受到我们民间音乐的一种魅力。
+四、报价人资格： (一)国内注册(指按国家有关规定要求注册的)，符合《中华人民共和国政府采购法》第二十二条资格条件，具备法人资格的供应商。
 
-【同期】观众 蒲峰 (花儿)它扎根于民间，扎根于生活，它有鲜活的生命力。
+(二)参加政府采购活动前三年内，在“信用中国”网站(www.creditchina.gov.cn)、中国政府采购网(www.ccgp.gov.cn)等渠道未被列入失信被执行人、重大税收违法案件当事人名单、政府采购严重违法失信行为记录名单及无其他不符合《中华人民共和国政府采购法》第二十二条规定条件。
 
-随着人们的这个开发挖掘，以及人们对这个认知的不断提高，对传统的这些非遗的这个深入的了解，还有人的这个文化生活质量和水平的提高，它是他一定会越来越受到欢迎的。
+五、报价文件要求： (一)报价文件(需提交正本一份，副本二份，见附件2)。
 
-【同期】甘肃音乐人段兴华 这改编很好啊，改编非常好。
+(二)报价文件复印件须加盖封面章或骑缝章。
 
-我知道它可能会通过综艺会火一下，但没想到这么火。
+所有报价文件需按报价文件目录顺序装订成册，且须装在一个密封袋内，密封袋的封口处应加贴封条并加盖报价人单位公章以示密封。
 
-什么守正创新呢，就是先守正再创新啊。
+六、协商须知： (一)报价文件必须满足机关大楼南面车位维修项目采购需求。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 00:39 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 00:45 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 00:27 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 00:45 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 00:30 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 00:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 00:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 00:25 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 00:45 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 00:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 00:21 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 00:23 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 00:28 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 00:52 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 00:53 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 00:26 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 00:53 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 00:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 00:33 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 00:27 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 00:46 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 00:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 00:24 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/62584.shtml)
-- 2026-06-30 00:37 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/9594179.shtml)
-- 2026-06-30 00:18 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/85947903.shtml)
-- 2026-06-30 00:24 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/00735284405.shtml)
-- 2026-06-30 00:42 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/25616663926.shtml)
-- 2026-06-30 00:32 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/424228530.shtml)
-- 2026-06-30 00:34 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/36416.shtml)
-- 2026-06-30 00:18 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/7408113.shtml)
-- 2026-06-30 00:20 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/15899.shtml)
-- 2026-06-30 00:26 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/712393798361.shtml)
-- 2026-06-30 00:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/76853.shtml)
-- 2026-06-30 00:25 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/96878683782.shtml)
-- 2026-06-30 00:31 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/945094703.shtml)
-- 2026-06-30 00:32 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/492540.shtml)
-- 2026-06-30 00:25 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/962099836282.shtml)
+- 2026-06-30 00:52 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/33057.shtml)
+- 2026-06-30 00:47 - [美股](http://www.blog.kurohicncr.top/Article/details/15179963.shtml)
+- 2026-06-30 00:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/574324544.shtml)
+- 2026-06-30 00:25 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/81580858.shtml)
+- 2026-06-30 00:26 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/38151.shtml)
+- 2026-06-30 00:39 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/4602221936.shtml)
+- 2026-06-30 00:49 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/9145673.shtml)
+- 2026-06-30 00:43 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/159549.shtml)
+- 2026-06-30 00:29 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/19753686.shtml)
+- 2026-06-30 00:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/36809378108.shtml)
+- 2026-06-30 00:31 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/040629590.shtml)
+- 2026-06-30 00:28 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/17951.shtml)
+- 2026-06-30 00:28 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/4477773914.shtml)
+- 2026-06-30 00:49 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/14525223321.shtml)
+- 2026-06-30 00:52 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/052262267.shtml)

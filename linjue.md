@@ -1,58 +1,57 @@
-# 曾毓群：很多人想进入电池行业，第一件事情就是找到宁德时代挖人
+# 长江有色：紧平衡但库存压力高企，9日碳酸锂或涨跌有限
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-编者按：近日《财经》杂志执行主编马克在宁德时代总部与曾毓群先生做了一场对话。 《财经》：一位光伏龙头公司的老总认为原因有两个：第一个是光伏的技术主要沉淀在设备上，而设备商是设备卖得越多越好，导致技术迅速扩散；第二个就是光伏行业刚起来的时候，市场无边，考虑的是如何满足客户需求，而不是保护知识产权，当大家意识到这个问题的时候已经晚了。好像电池行业是很早就意识到这个问题，没有产生这种
+长江有色金属网 【行情数据】 截至2026年6月9日09：04，广期所碳酸锂主力合约（LC主力）早盘维持窄幅震荡整理态势，多空双方在当前价位博弈激烈。 • 碳酸锂主力 （lc_ZL）：最新报价报 161720元/吨，较前一交易日结算价微跌 1120元/吨，跌幅 0.69%。 • 盘口表现：成交量为12303手，持仓量增加163600手至362720手。早盘阶段持仓量显著增加，表
 
 ## 正文
 
-编者按：近日《财经》杂志执行主编马克在宁德时代总部与曾毓群先生做了一场对话。
+长江有色金属网 【行情数据】 截至2026年6月9日09：04，广期所碳酸锂主力合约（LC主力）早盘维持窄幅震荡整理态势，多空双方在当前价位博弈激烈。
 
-《财经》：一位光伏龙头公司的老总认为原因有两个：第一个是光伏的技术主要沉淀在设备上，而设备商是设备卖得越多越好，导致技术迅速扩散；第二个就是光伏行业刚起来的时候，市场无边，考虑的是如何满足客户需求，而不是保护知识产权，当大家意识到这个问题的时候已经晚了。
+• 碳酸锂主力 （lc_ZL）：最新报价报 161720元/吨，较前一交易日结算价微跌 1120元/吨，跌幅 0.69%。
 
-好像电池行业是很早就意识到这个问题，没有产生这种恶果。
+• 盘口表现：成交量为12303手，持仓量增加163600手至362720手。
 
-曾毓群：也有啊。
+早盘阶段持仓量显著增加，表明有大量新资金入场博弈，市场分歧加大，资金正在积极寻找方向。
 
-很多人想进入电池行业，第一件事情就是找到宁德时代挖人，或者偷一点技术，然后再到设备厂商，再到材料厂商，人家有什么配方，然后合在一起说我有钱投，就进去了。
+【基本面分析】 当前碳酸锂市场正处于“强现实”与“弱预期”的深度博弈阶段，基本面呈现供需紧平衡但库存压力高企的矛盾格局。
 
-人家去模仿你，模仿的水平可能百分之六七十，但是他就用低价来竞争。
+• 供应端：短期边际改善，增量预期压制盘面。
 
-低价为什么可行？
+随着前期受扰动的非洲津巴布韦锂精矿出口逐步恢复，以及海运周期的推进，预计6月份将有更多的锂精矿集中到港 。
 
-因为很多人是浮躁的。
+与此同时，国内江西等地的锂云母矿复产进度也在持续推进，原料端供应逐步宽松，上游锂盐开工率有所修复，市场前期“供给紧缺”的一致预期被打破 。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 00:42 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 00:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 00:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 00:30 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 00:37 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 00:37 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 00:19 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 00:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 00:22 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 00:33 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 00:42 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 00:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 00:51 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 00:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 00:44 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 00:37 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 00:35 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 00:39 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 00:36 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 00:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 00:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 00:24 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/220811079517.shtml)
-- 2026-06-30 00:35 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/5086108.shtml)
-- 2026-06-30 00:23 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/539199982.shtml)
-- 2026-06-30 00:32 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/0267058630.shtml)
-- 2026-06-30 00:41 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/307114.shtml)
-- 2026-06-30 00:26 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/8421302590.shtml)
-- 2026-06-30 00:43 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/8474705570.shtml)
-- 2026-06-30 00:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/40316058913.shtml)
-- 2026-06-30 00:41 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/233294965598.shtml)
-- 2026-06-30 00:39 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/792776348929.shtml)
-- 2026-06-30 00:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/49906446586.shtml)
-- 2026-06-30 00:45 - [TOP Prada](http://www.share.minike.top/Article/details/04014762.shtml)
-- 2026-06-30 00:21 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/4526249533.shtml)
-- 2026-06-30 00:24 - [小娘惹](https://www.share.kurohicncr.top/Article/details/8313692328.shtml)
-- 2026-06-30 00:40 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/95952010111.shtml)
+- 2026-06-30 00:24 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/030838678.shtml)
+- 2026-06-30 00:42 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/094847.shtml)
+- 2026-06-30 00:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/1967303.shtml)
+- 2026-06-30 00:38 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/316786689073.shtml)
+- 2026-06-30 00:28 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/665420385.shtml)
+- 2026-06-30 00:30 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/20630.shtml)
+- 2026-06-30 00:31 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/9004773.shtml)
+- 2026-06-30 00:45 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/14083023.shtml)
+- 2026-06-30 00:30 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/134828.shtml)
+- 2026-06-30 00:45 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/46639.shtml)
+- 2026-06-30 00:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/17642749034.shtml)
+- 2026-06-30 00:46 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/893584027.shtml)
+- 2026-06-30 00:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/869547046136.shtml)
+- 2026-06-30 00:34 - [金牌调解](https://www.blog.minike.top/Article/details/70596057322.shtml)
+- 2026-06-30 00:35 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/036053052.shtml)

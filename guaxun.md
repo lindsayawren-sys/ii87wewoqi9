@@ -1,60 +1,57 @@
-# UHG证券欺诈诉讼首席原告申请周二夜间截止
+# 守护“耕地中的大熊猫”！“黑土粮仓”科技会战这些进展值得关注
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-投资者权益律师事务所Faruqi & Faruqi， LLP近日提醒投资者，针对United Homes Group， Inc．（纳斯达克代码：UHG）的证券集体诉讼首席原告申请截止日期为2026年6月9日。在2025年5月19日至2026年2月22日期间购买或持有UHG证券并遭受损失的投资者，需在此日期前向法院申请担任首席原告。 此次诉讼源于2026年2月23日UHG宣布的收
+中国科学院“黑土粮仓”科技会战系列科技成果昨天正式发布，涵盖五年来在黑土地保护与利用领域的理论突破、技术创新、模式构建及装备研发等全维度成果。经过5年攻关，形成了从科学认知到产品装备、从关键技术到模式集成，从示范验证到全域推广的系统解决方案，打造了一支高水平、建制化科研队伍，为黑土地保护事业注入了持久动力。其中一个重要的成果便是构建了黑土地资源本底与变化“一张图”，相当于给黑土
 
 ## 正文
 
-投资者权益律师事务所Faruqi & Faruqi， LLP近日提醒投资者，针对United Homes Group， Inc．（纳斯达克代码：UHG）的证券集体诉讼首席原告申请截止日期为2026年6月9日。
+中国科学院“黑土粮仓”科技会战系列科技成果昨天正式发布，涵盖五年来在黑土地保护与利用领域的理论突破、技术创新、模式构建及装备研发等全维度成果。
 
-在2025年5月19日至2026年2月22日期间购买或持有UHG证券并遭受损失的投资者，需在此日期前向法院申请担任首席原告。
+经过5年攻关，形成了从科学认知到产品装备、从关键技术到模式集成，从示范验证到全域推广的系统解决方案，打造了一支高水平、建制化科研队伍，为黑土地保护事业注入了持久动力。
 
-此次诉讼源于2026年2月23日UHG宣布的收购交易。
+其中一个重要的成果便是构建了黑土地资源本底与变化“一张图”，相当于给黑土地近40年的变化拍了一张张前后对比照。
 
-控股股东兼创始人Michael Nieri以每股1.18美元的价格将公司出售给Stanley Martin Homes，较公告前一日收盘价折价50%。
+同时，基于这张图，创建了多种区域治理模式，取得明显效果。
 
-而在2025年5月19日，公司曾宣布董事会已任命独立董事特别委员会，启动“战略选择审查”，以“探索实现股东价值最大化的方式”，包括出售公司、出售资产及再融资等选项。
+那么，这张图为我们提供了黑土地怎样的“诊断书”？
 
-2025年10月20日，特别委员会宣布“继续作为独立上市公司执行公司战略计划最符合公司及股东的最佳利益”。
+创建的治理模式又将为这片沃土带来哪些新机遇？
 
-然而同日，公司披露除Nieri外全部六名董事会成员准备辞职，条件是“公司现有管理团队被充分授权执行战略计划”且“Nieri先生辞去执行主席职务并放弃其剩余现金补偿”。
+黑土地是我国粮食安全的压舱石。
 
-Nieri拒绝接受上述条件，六名董事随即集体辞职，导致公司股价当日暴跌约52%。
+全球四块黑土地，我国东北地区就占了一块。
 
 ## 相关推荐
 
-- 2026-06-30 00:21 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 00:35 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 00:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 00:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 00:46 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 00:34 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 00:40 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 00:30 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 00:30 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 00:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 00:33 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 00:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 00:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 00:25 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 00:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 00:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 00:26 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 00:46 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 00:30 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 00:32 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 00:30 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 00:32 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 00:41 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 00:47 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 00:50 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:37 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/52645248513.shtml)
-- 2026-06-30 00:40 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/4200263.shtml)
-- 2026-06-30 00:30 - [千香](https://www.share.minike.top/Article/details/3487761.shtml)
-- 2026-06-30 00:27 - [扫黑风暴](http://www.blog.minike.top/Article/details/870162096.shtml)
-- 2026-06-30 00:23 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/0941328854.shtml)
-- 2026-06-30 00:20 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/416885661.shtml)
-- 2026-06-30 00:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/155526.shtml)
-- 2026-06-30 00:26 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/9979546221.shtml)
-- 2026-06-30 00:32 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/1849047.shtml)
-- 2026-06-30 00:20 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/1526933571.shtml)
-- 2026-06-30 00:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/87442056816.shtml)
-- 2026-06-30 00:46 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/35695216916.shtml)
-- 2026-06-30 00:46 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/83534102070.shtml)
-- 2026-06-30 00:39 - [存储三巨头被告了](https://www.share.minike.top/Article/details/0639113176.shtml)
-- 2026-06-30 00:34 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/416819544.shtml)
+- 2026-06-30 00:48 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/609783910865.shtml)
+- 2026-06-30 00:29 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/41832161.shtml)
+- 2026-06-30 00:48 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/647616363883.shtml)
+- 2026-06-30 00:52 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/712060779.shtml)
+- 2026-06-30 00:45 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/807439965978.shtml)
+- 2026-06-30 00:52 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/754437.shtml)
+- 2026-06-30 00:47 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/40459754472.shtml)
+- 2026-06-30 00:46 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/6772562.shtml)
+- 2026-06-30 00:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/4069712101.shtml)
+- 2026-06-30 00:42 - [千与千寻](https://www.share.kurohicncr.top/Article/details/232261.shtml)
+- 2026-06-30 00:24 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/117210142.shtml)
+- 2026-06-30 00:24 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/44594025717.shtml)
+- 2026-06-30 00:49 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/2967382602.shtml)
+- 2026-06-30 00:43 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/26994094854.shtml)
+- 2026-06-30 00:38 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/015670.shtml)

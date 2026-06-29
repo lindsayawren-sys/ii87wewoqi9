@@ -1,57 +1,59 @@
-# 副总裁自曝离职钉钉：重现辉煌的代价，不应该是所有人用工作时长换油尽灯枯
+# 连续两年财务造假！这家公司被“ST”！
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-近日，来自阿里移动办公平台“钉钉”员工发布的万字离职信刷屏网络，引发职场群体广泛共鸣。 6月8日，钉钉副总裁、AI表格负责人马锐拉在个人公众号发布《置身钉外》一文，分享了自己读完阿里内网爆款长文《置身钉内》后的所思所感。他同时透露，自己已于5月15日正式办完离职手续，结束三年阿里生涯，离开钉钉。 就在上周，阿里内网一篇长达7.5万字的文章《置身钉内》引发全网围观。作者是钉钉“O
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：IPO日报 6月7日晚间，西安派瑞功率半导体变流技术股份有限公司（下称“派瑞股份”，300831）发布公告称，公司于6月5日收到陕西证监局下发的《行政处罚事先告知书》。 派瑞股份2024年年度报告和2025年半年度报告存在虚假记载，但涉及的违法违规行为未触及《深圳证券交易所创业板股票上市规则》第十章第
 
 ## 正文
 
-近日，来自阿里移动办公平台“钉钉”员工发布的万字离职信刷屏网络，引发职场群体广泛共鸣。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-6月8日，钉钉副总裁、AI表格负责人马锐拉在个人公众号发布《置身钉外》一文，分享了自己读完阿里内网爆款长文《置身钉内》后的所思所感。
+来源：IPO日报 6月7日晚间，西安派瑞功率半导体变流技术股份有限公司（下称“派瑞股份”，300831）发布公告称，公司于6月5日收到陕西证监局下发的《行政处罚事先告知书》。
 
-他同时透露，自己已于5月15日正式办完离职手续，结束三年阿里生涯，离开钉钉。
+派瑞股份2024年年度报告和2025年半年度报告存在虚假记载，但涉及的违法违规行为未触及《深圳证券交易所创业板股票上市规则》第十章第五节规定的重大违法强制退市的情形。
 
-就在上周，阿里内网一篇长达7.5万字的文章《置身钉内》引发全网围观。
+公司股票将自6月8日（星期一）开市起停牌一天，将于6月9日（星期二）开市起复牌并被实行“其他风险警示”处理，股票简称由“派瑞股份”变更为“ST派瑞（维权）”。
 
-作者是钉钉“ONE”项目（钉钉8.0推出的旗舰AI工作首页）核心产品经理滕雅辛（花名“幽素”），在这篇长文中，她复盘了钉钉“ONE”这款AI产品从立项、DAU直冲300万，再到留存率断崖式下跌，最终收缩、拆分的全过程。
+张力制图 平滑业绩 根据《行政处罚事先告知书》，公司为平滑业绩，通过篡改商品验收单据的方式延迟确认销售收入。
 
-ONE项目是钉钉创始人陈航（花名“无招”）回归后主推的首个AI原生战略项目。
+这导致公司2024年年度报告虚减营业收入2271.50万元、虚减利润总额1711.73万元，分别占当期报告披露金额的11.84%和26.18%。
 
-去年8月，陈航发布该产品，期待其能通过Agent驱动的方式重组工作信息流，改变传统“人找事”的办公模式，由AI按优先级整理后，以信息流卡片的形式清晰呈现给用户。
+而2025年半年度报告中，公司虚增营业收入2271.50万元，虚增利润总额1711.73万元，分别占当期报告披露金额的26.87%和50.02%。
 
-按照上述7.5万字刷屏文章《置身钉内》的说法，该项目最终因定位迷失、底层基因冲突、设计逻辑脱节、组织内部高压管理等多重矛盾后走向收缩。
+2025年12月，公司已披露《关于前期会计差错更正及追溯调整的公告》，对受影响的相关定期报告中有关财务数据进行了更正调整。
 
 ## 相关推荐
 
-- 2026-06-30 00:18 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 00:24 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 00:24 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 00:38 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 00:28 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 00:36 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 00:39 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 00:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 00:23 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 00:38 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 00:46 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 00:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 00:49 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 00:25 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 00:41 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 00:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 00:40 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 00:50 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 00:53 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 00:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 00:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 00:41 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 00:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 00:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:29 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/483768692877.shtml)
-- 2026-06-30 00:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/90689876477.shtml)
-- 2026-06-30 00:27 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/95354.shtml)
-- 2026-06-30 00:43 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/790846485.shtml)
-- 2026-06-30 00:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/5376921806.shtml)
-- 2026-06-30 00:22 - [巴西vs日本](http://www.blog.minike.top/Article/details/6136293.shtml)
-- 2026-06-30 00:26 - [逃狱兄弟](https://www.blog.minike.top/Article/details/0983752557.shtml)
-- 2026-06-30 00:31 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/32737620013.shtml)
-- 2026-06-30 00:25 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/7511550057.shtml)
-- 2026-06-30 00:45 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/30452452.shtml)
-- 2026-06-30 00:35 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/96317.shtml)
-- 2026-06-30 00:23 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/1793160.shtml)
-- 2026-06-30 00:22 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/2358546668.shtml)
-- 2026-06-30 00:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/64621666222.shtml)
-- 2026-06-30 00:20 - [金牌调解](https://www.share.minike.top/Article/details/5334428.shtml)
+- 2026-06-30 00:38 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/91719305230.shtml)
+- 2026-06-30 00:48 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/85016023.shtml)
+- 2026-06-30 00:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/8087913.shtml)
+- 2026-06-30 00:24 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/08284970935.shtml)
+- 2026-06-30 00:33 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/866192726.shtml)
+- 2026-06-30 00:48 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/60694313455.shtml)
+- 2026-06-30 00:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/2261833.shtml)
+- 2026-06-30 00:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/421137.shtml)
+- 2026-06-30 00:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/6086786.shtml)
+- 2026-06-30 00:36 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/13164481586.shtml)
+- 2026-06-30 00:28 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/594750362.shtml)
+- 2026-06-30 00:38 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/9751069561.shtml)
+- 2026-06-30 00:45 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/33488.shtml)
+- 2026-06-30 00:29 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/42394121172.shtml)
+- 2026-06-30 00:53 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/02235.shtml)

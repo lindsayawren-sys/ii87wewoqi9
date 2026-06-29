@@ -1,56 +1,48 @@
-# 中国首条“电力天路”完成扩容后首次年检
+# 摩根大通将10年期美债收益率预期上调至4.70%
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月10日 12:31 来源：中国新闻网 近日，青藏联网工程±400千伏柴拉直流系统2026年度检修工作圆满完成。此次检修是该工程2025年扩容升级后的首次年检，也是中国首台套双极四阀组并联运行的直流工程首次系统性“体检”。 为期14天的年检，不仅实现检修设备数量翻倍，并首次实现换流变压器等四大类设备自主检修。 青藏联网工程是首条通往西藏的“电力天路”，也
+据6月6日的一份报告，摩根大通策略师建议维持做空美国国债、做多德国国债的策略。“我们目前预计2年期和10年期美债收益率将分别升至4.20%和4.70%，较我们之前的预测高出30个基点和20个基点，” Jay Barry等该行策略师写道。过去一年美国劳动力市场在“稳健增长”的背景下趋稳，引发了市场对当前货币政策立场是否“实际上具有紧缩性”的质疑。责任编辑：王永生
 
 ## 正文
 
-发布时间：2026年06月10日 12:31 来源：中国新闻网 近日，青藏联网工程±400千伏柴拉直流系统2026年度检修工作圆满完成。
+据6月6日的一份报告，摩根大通策略师建议维持做空美国国债、做多德国国债的策略。
 
-此次检修是该工程2025年扩容升级后的首次年检，也是中国首台套双极四阀组并联运行的直流工程首次系统性“体检”。
+“我们目前预计2年期和10年期美债收益率将分别升至4.20%和4.70%，较我们之前的预测高出30个基点和20个基点，” Jay Barry等该行策略师写道。
 
-为期14天的年检，不仅实现检修设备数量翻倍，并首次实现换流变压器等四大类设备自主检修。
+过去一年美国劳动力市场在“稳健增长”的背景下趋稳，引发了市场对当前货币政策立场是否“实际上具有紧缩性”的质疑。
 
-青藏联网工程是首条通往西藏的“电力天路”，也是西藏电网接入国家大电网的核心通道。
-
-工程自2011年投运以来，已累计双向输送电量269.9亿千瓦时，有效提升了中国西部地区电力资源优化配置水平。
-
-(李隽 制作 徐妙巧 视频来源 国家电网青海省电力公司） 责任编辑：【苏亦瑜】
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 00:32 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 00:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 00:18 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 00:25 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 00:44 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 00:35 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 00:45 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 00:33 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 00:32 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 00:44 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 00:18 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 00:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 00:33 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 00:18 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 00:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 00:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 00:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 00:34 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 00:52 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 00:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 00:48 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 00:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 00:45 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 00:43 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:27 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/25620906979.shtml)
-- 2026-06-30 00:23 - [斗破苍穹](http://www.share.minike.top/Article/details/3941716909.shtml)
-- 2026-06-30 00:19 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/4418546710.shtml)
-- 2026-06-30 00:20 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/2134012.shtml)
-- 2026-06-30 00:38 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/02897927.shtml)
-- 2026-06-30 00:34 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/01002486325.shtml)
-- 2026-06-30 00:43 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/47127321822.shtml)
-- 2026-06-30 00:44 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/994999220056.shtml)
-- 2026-06-30 00:47 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/06081.shtml)
-- 2026-06-30 00:27 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/0112593531.shtml)
-- 2026-06-30 00:47 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/520318101.shtml)
-- 2026-06-30 00:26 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/998403823056.shtml)
-- 2026-06-30 00:24 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/0736066.shtml)
-- 2026-06-30 00:47 - [乔家的儿女](http://www.share.minike.top/Article/details/13754849.shtml)
-- 2026-06-30 00:24 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/84965321.shtml)
+- 2026-06-30 00:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/78736.shtml)
+- 2026-06-30 00:29 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/951662784925.shtml)
+- 2026-06-30 00:34 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/596310819073.shtml)
+- 2026-06-30 00:37 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/702073376302.shtml)
+- 2026-06-30 00:24 - [金刚川](https://www.blog.minike.top/Article/details/263248327.shtml)
+- 2026-06-30 00:36 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/90091943236.shtml)
+- 2026-06-30 00:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/2894054.shtml)
+- 2026-06-30 00:40 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/80069.shtml)
+- 2026-06-30 00:49 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/6825927.shtml)
+- 2026-06-30 00:25 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/8150797405.shtml)
+- 2026-06-30 00:31 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/649963823.shtml)
+- 2026-06-30 00:33 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/429604.shtml)
+- 2026-06-30 00:33 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/2829001.shtml)
+- 2026-06-30 00:49 - [刘念回应](http://www.share.kurohicncr.top/Article/details/524893.shtml)
+- 2026-06-30 00:34 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/41518.shtml)

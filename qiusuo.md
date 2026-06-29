@@ -1,54 +1,58 @@
-# 浙江中欧班列市场采购定制班列发车 目的地阿富汗
+# 城市更新聚焦23项重点任务（权威发布）
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新网义乌6月8日电(董易鑫 刘明明)6月8日，在位于浙江的义乌铁路西站，一列满载110标箱货物的浙江中欧班列市场采购定制班列鸣笛启程，后续将经新疆霍尔果斯口岸出境，直达阿富汗。 据悉，市场采购定制班列的货源主要依托市场采购贸易方式。该方式于2013年在义乌启动试点，是中国国家级首创，源于全球客商日益增长的采购需求。 近三年来，义乌通过该方式实现的出口值占义乌全市年出口总值的约
+建设“好房子”，改造老旧小区、老旧街区厂区…… 城市更新聚焦23项重点任务(权威发布) 人民日报 本报记者 李心萍当前，我国城镇化正从快速增长期转向稳定发展期，城市发展正从大规模增量扩张阶段转向存量提质增效为主的阶段，城市更新已成为城市工作的重要抓手。 近日，城市更新领域第一部国家级专项规划《城市更新“十五五”规划》(以下简称《规划》)印发，围绕10项主要指标，提出推进“好房子
 
 ## 正文
 
-中新网义乌6月8日电(董易鑫 刘明明)6月8日，在位于浙江的义乌铁路西站，一列满载110标箱货物的浙江中欧班列市场采购定制班列鸣笛启程，后续将经新疆霍尔果斯口岸出境，直达阿富汗。
+建设“好房子”，改造老旧小区、老旧街区厂区…… 城市更新聚焦23项重点任务(权威发布) 人民日报 本报记者 李心萍当前，我国城镇化正从快速增长期转向稳定发展期，城市发展正从大规模增量扩张阶段转向存量提质增效为主的阶段，城市更新已成为城市工作的重要抓手。
 
-据悉，市场采购定制班列的货源主要依托市场采购贸易方式。
+近日，城市更新领域第一部国家级专项规划《城市更新“十五五”规划》(以下简称《规划》)印发，围绕10项主要指标，提出推进“好房子”建设、持续推动城镇老旧小区改造、加快建设完整社区等23项重点任务。
 
-该方式于2013年在义乌启动试点，是中国国家级首创，源于全球客商日益增长的采购需求。
+未来5年，城市更新具体怎么干？
 
-近三年来，义乌通过该方式实现的出口值占义乌全市年出口总值的约80%。
+6月8日，国务院新闻办举行政策例行吹风会，介绍《规划》相关情况。
 
-值得一提的是，这一改革成果已从浙江出发，在中国22个省份的39个专业市场复制推广。
+城市更新建什么 城市的核心是人，做好城市更新工作，根本目的就是让人民群众生活得更方便、更舒心、更美好。
 
-当前，浙江中欧班列的运营方正依托当地的金华(义乌)中欧班列集结中心，持续深耕“实体市场+市场采购+中欧班列”一体化业态，就地归集来自义乌市场的零散小单并实现集约化拼箱组列，进一步降低综合物流成本，利好海内外客户。
+住房城乡建设部副部长秦海翔介绍，《规划》从建设好房子、好小区、好社区、好城区4个方面，对提高居民居住和生活品质作出部署。
 
-(完)
+聚焦好房子建设，实施房屋品质提升工程。
+
+“好房子的特点是安全、舒适、绿色、智慧。
 
 ## 相关推荐
 
-- 2026-06-30 00:26 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 00:40 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 00:26 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 00:39 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-30 00:21 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 00:23 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 00:31 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 00:40 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 00:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 00:23 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 00:53 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 00:24 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 00:35 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-30 00:24 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 00:27 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 00:48 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 00:49 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 00:29 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 00:52 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 00:30 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 00:38 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 00:53 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:32 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/360297.shtml)
-- 2026-06-30 00:37 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/54132297.shtml)
-- 2026-06-30 00:30 - [扬名立万](https://www.blog.minike.top/Article/details/35865.shtml)
-- 2026-06-30 00:27 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/77892649.shtml)
-- 2026-06-30 00:32 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/69516887.shtml)
-- 2026-06-30 00:31 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/99054056109.shtml)
-- 2026-06-30 00:29 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/868284.shtml)
-- 2026-06-30 00:24 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/0274831.shtml)
-- 2026-06-30 00:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/0579685207.shtml)
-- 2026-06-30 00:33 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/303241.shtml)
-- 2026-06-30 00:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/452030536875.shtml)
-- 2026-06-30 00:37 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/93167.shtml)
-- 2026-06-30 00:28 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/92680151.shtml)
-- 2026-06-30 00:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/782078148460.shtml)
-- 2026-06-30 00:34 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/92310491.shtml)
+- 2026-06-30 00:43 - [第一炉香](http://www.blog.minike.top/Article/details/3004863.shtml)
+- 2026-06-30 00:44 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/6470420.shtml)
+- 2026-06-30 00:26 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/4433856.shtml)
+- 2026-06-30 00:35 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/8987072341.shtml)
+- 2026-06-30 00:36 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/8026874.shtml)
+- 2026-06-30 00:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/11566393.shtml)
+- 2026-06-30 00:52 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/65071202.shtml)
+- 2026-06-30 00:33 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/2730899581.shtml)
+- 2026-06-30 00:46 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/80931.shtml)
+- 2026-06-30 00:43 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/7659865.shtml)
+- 2026-06-30 00:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/52500813.shtml)
+- 2026-06-30 00:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/93256.shtml)
+- 2026-06-30 00:44 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/344790276546.shtml)
+- 2026-06-30 00:35 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/4966489.shtml)
+- 2026-06-30 00:38 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/7785040626.shtml)

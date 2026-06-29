@@ -1,59 +1,56 @@
-# 特朗普贸易团队欲重建关税壁垒，专家：警惕301关税调查
+# 女子滥用“减肥神药”致切肠 医生提醒：别将任何泻药当控制体重的手段
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-“中方一贯反对各种形式的单边关税措施。” 伴随美国法院系统的一系列判决，特朗普政府贸易团队正加紧重建关税壁垒的步伐。 近期美国贸易代表办公室（USTR）宣布了3项同301条款调查相关的决定，分别是拟对巴西加征25%关税，启动对越南的301条款调查以及以一项以301调查为由，拟对60个经济体额外征收10%~12.5%的关税措施。 据第一财经记者整理，截至6月9日，特朗普政府在20
+日服“减肥神药”800粒，女子不得不切肠 医生提醒别将任何泻药当作控制体重的手段 本报讯(记者李晨琰)从每天1粒、5粒，到10粒、100粒，最高时一天800粒……日前，上海市第十人民医院接诊了一名特殊的患者，27岁女子滥用网红“减肥神药”小粉丸四年之久，导致严重电解质紊乱、肾功能受损，最终不得不切除结肠。 医生提醒，近年来此类病例激增，市面上以“清宿便”“排毒”“促排减重”“天
 
 ## 正文
 
-“中方一贯反对各种形式的单边关税措施。
+日服“减肥神药”800粒，女子不得不切肠 医生提醒别将任何泻药当作控制体重的手段 本报讯(记者李晨琰)从每天1粒、5粒，到10粒、100粒，最高时一天800粒……日前，上海市第十人民医院接诊了一名特殊的患者，27岁女子滥用网红“减肥神药”小粉丸四年之久，导致严重电解质紊乱、肾功能受损，最终不得不切除结肠。
 
-” 伴随美国法院系统的一系列判决，特朗普政府贸易团队正加紧重建关税壁垒的步伐。
+医生提醒，近年来此类病例激增，市面上以“清宿便”“排毒”“促排减重”“天然植物”“温和草本”等为宣传话术的通便茶、丸、酵素等产品很多，消费者切勿将任何泻药当作控制体重或日常养生的手段。
 
-近期美国贸易代表办公室（USTR）宣布了3项同301条款调查相关的决定，分别是拟对巴西加征25%关税，启动对越南的301条款调查以及以一项以301调查为由，拟对60个经济体额外征收10%~12.5%的关税措施。
+据介绍，这名年轻的女患者长期受便秘困扰，还伴有体重控制焦虑，大约在四年前开始服用网红“减肥神药”小粉丸，其主要成分为比沙可啶。
 
-据第一财经记者整理，截至6月9日，特朗普政府在2026年有4项“301调查”的结果待公布。
+最初，她每日仅需1粒即可通便，然而随着时间推移，她对小粉丸的依赖日益加深，剂量逐步增至5粒、10粒、100粒，直至此次入院前惊人的每日800粒。
 
-彭博经济研究认为，特朗普政府的最新关税提案似乎旨在取代将于7⽉下旬到期的第122条款临时关税。
+一旦停止服药，她便几乎无法自主排便，并出现全身水肿、乏力、尿量减少及血肌酐水平异常升高，一度超过300微摩尔/升，肾功能受到严重威胁。
 
-“如果按预期实施，新关税会使美国的平均关税税率在当前⽔平上提高0.6个百分点，升至约11%。
+入院后经评估，十院功能肠道外科陈启仪团队发现她不仅存在顽固的泻药依赖，还伴有显著的结肠动力丧失、营养不良以及电解质紊乱，血钾、血钠等指标均明显偏低。
 
-这仍将远低于最高法院裁定特朗普政府此前关税制度违法前的13.5%，不过，鉴于一些调查尚未完成，关税税率仍有可能进一步上调。
+面对持续四年多的恶性循环，以及药物对肾脏等多脏器造成的持续损害，医疗团队经审慎评估并与患者及家属充分沟通后，为她成功实施“腹腔镜结肠切除+结肠直肠吻合术”，切除了神经丛“枯萎”、肌层明显萎缩、蠕动功能几乎丧失的一段结肠，帮助患者摆脱“服药—排便—便秘—加药”的恶性循环。
 
-” 道岳法律咨询反倾销财务专家严光普对第一财经记者表示，近期USTR针对越南和巴西等一系列301调查的动向表明，美方继续将301条款调查作为贸易战略核心要素的策略。
+术后经严密监护、生活方式调整、心理疏导，患者恢复顺利，肾功能指标显著改善，逐渐恢复了自主排便功能，目前已出院并进入后续康复阶段。
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 00:47 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 00:28 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 00:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 00:26 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 00:18 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 00:33 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 00:28 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-30 00:40 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 00:31 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 00:47 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 00:30 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 00:19 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 00:26 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 00:37 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 00:26 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 00:39 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 00:30 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 00:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 00:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 00:27 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 00:35 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 00:41 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:36 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/2478140.shtml)
-- 2026-06-30 00:27 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/203339176134.shtml)
-- 2026-06-30 00:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/662857410852.shtml)
-- 2026-06-30 00:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/611900.shtml)
-- 2026-06-30 00:30 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/3016222.shtml)
-- 2026-06-30 00:46 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/2483895.shtml)
-- 2026-06-30 00:30 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/913258654.shtml)
-- 2026-06-30 00:27 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/255426615484.shtml)
-- 2026-06-30 00:22 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/218194296.shtml)
-- 2026-06-30 00:31 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/4353861.shtml)
-- 2026-06-30 00:47 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/78938439.shtml)
-- 2026-06-30 00:44 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/415237.shtml)
-- 2026-06-30 00:39 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/32013054700.shtml)
-- 2026-06-30 00:38 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/26943.shtml)
-- 2026-06-30 00:38 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/35614.shtml)
+- 2026-06-30 00:49 - [我们的少年时代2](http://www.share.minike.top/Article/details/542986.shtml)
+- 2026-06-30 00:40 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/32470.shtml)
+- 2026-06-30 00:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/68699.shtml)
+- 2026-06-30 00:49 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/124769160380.shtml)
+- 2026-06-30 00:51 - [勇敢的心第二部](http://www.share.minike.top/Article/details/76875458.shtml)
+- 2026-06-30 00:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/558188194587.shtml)
+- 2026-06-30 00:27 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/15417026.shtml)
+- 2026-06-30 00:43 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/037501467.shtml)
+- 2026-06-30 00:51 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/068952.shtml)
+- 2026-06-30 00:44 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/9581722830.shtml)
+- 2026-06-30 00:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/346940887.shtml)
+- 2026-06-30 00:32 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/71322.shtml)
+- 2026-06-30 00:48 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/199756059614.shtml)
+- 2026-06-30 00:40 - [斛珠夫人](http://www.share.minike.top/Article/details/189149820899.shtml)
+- 2026-06-30 00:38 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/942625.shtml)

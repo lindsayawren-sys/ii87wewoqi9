@@ -1,46 +1,57 @@
-# 菲律宾群岛地区发生7.9级地震 我驻达沃总领事馆：暂无中国公民伤亡报告
+# 美国联合服务汽车协会将向佛罗里达州客户返还近10亿美元资金
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 16:06 来源：央视新闻 责任编辑：【李骏】
+美国联合服务汽车协会 CEO 解读向佛罗里达客户返还近 100 亿资金：核心归功于本州侵权法改革 CNBC 独家消息，美国联合服务汽车协会（USAA）宣布，将向符合条件的佛罗里达州客户发放总额近 10 亿美元的优惠与返现，其中包含 5 亿美元分红。 这家保险企业表示，佛罗里达州推行的民事诉讼与侵权制度改革，是其能够向投保人返还资金的核心原因。佛罗里达州出台政策整治保险行业口中长
 
 ## 正文
 
-发布时间：2026年06月09日 16:06 来源：央视新闻 责任编辑：【李骏】
+美国联合服务汽车协会 CEO 解读向佛罗里达客户返还近 100 亿资金：核心归功于本州侵权法改革 CNBC 独家消息，美国联合服务汽车协会（USAA）宣布，将向符合条件的佛罗里达州客户发放总额近 10 亿美元的优惠与返现，其中包含 5 亿美元分红。
+
+这家保险企业表示，佛罗里达州推行的民事诉讼与侵权制度改革，是其能够向投保人返还资金的核心原因。
+
+佛罗里达州出台政策整治保险行业口中长期存在的司法滥用乱象后，USAA 的法务成本大幅下降。
+
+2023 年，佛罗里达州落地侵权改革法案：诉讼时效缩短至 2 年、取消所谓 “虚拟损害赔偿金”、废止仅由保险公司承担律师费的单向赔付规则。
+
+系列改革旨在减少过度诉讼的动机，保险理赔纠纷是整治重点。
+
+改革落地后，诉讼数量出现断崖式下滑。
+
+USAA 援引精算咨询机构米利曼（Milliman）的白皮书数据：汽车玻璃相关诉讼从 2023 年二季度约 2.4 万起，骤降至 2024 年同期约 2600 起。
+
+米利曼数据显示，2009 至 2022 年间，佛罗里达州 “天价赔偿判决” 赔付规模全美第二，2024 年已下滑至第十位。
 
 ## 相关推荐
 
-- 2026-06-30 00:27 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 00:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 00:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 00:41 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 00:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 00:41 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 00:34 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 00:19 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 00:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 00:45 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 00:43 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 00:31 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 00:24 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 00:31 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 00:24 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 00:48 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 00:45 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 00:32 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 00:46 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 00:39 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 00:41 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 00:26 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 00:37 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 00:40 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 00:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:42 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/659707339.shtml)
-- 2026-06-30 00:32 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/46893.shtml)
-- 2026-06-30 00:28 - [啊啊啊](http://www.blog.minike.top/Article/details/2996743.shtml)
-- 2026-06-30 00:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/813875879.shtml)
-- 2026-06-30 00:21 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/40880596473.shtml)
-- 2026-06-30 00:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/49016.shtml)
-- 2026-06-30 00:33 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/63132765628.shtml)
-- 2026-06-30 00:19 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/456838588.shtml)
-- 2026-06-30 00:40 - [起风了](https://www.blog.kurohicncr.top/Article/details/872898650.shtml)
-- 2026-06-30 00:36 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/89109.shtml)
-- 2026-06-30 00:21 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/939976.shtml)
-- 2026-06-30 00:32 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/86563.shtml)
-- 2026-06-30 00:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/357375059.shtml)
-- 2026-06-30 00:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/47451.shtml)
-- 2026-06-30 00:25 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/292209341297.shtml)
+- 2026-06-30 00:42 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/83220.shtml)
+- 2026-06-30 00:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/033699508234.shtml)
+- 2026-06-30 00:27 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/00978.shtml)
+- 2026-06-30 00:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/9834082.shtml)
+- 2026-06-30 00:24 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/3714843880.shtml)
+- 2026-06-30 00:50 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/7561328.shtml)
+- 2026-06-30 00:28 - [世界杯](http://www.share.kurohicncr.top/Article/details/708140550635.shtml)
+- 2026-06-30 00:32 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/34761812.shtml)
+- 2026-06-30 00:44 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/7299396.shtml)
+- 2026-06-30 00:53 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/48087277544.shtml)
+- 2026-06-30 00:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/628448712826.shtml)
+- 2026-06-30 00:28 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/829817098.shtml)
+- 2026-06-30 00:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/99724373287.shtml)
+- 2026-06-30 00:48 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/45686.shtml)
+- 2026-06-30 00:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/601444757.shtml)

@@ -1,58 +1,61 @@
-# 中东冲突导致霍尔木兹海峡流量骤降 全球油市现“秘密流动”维持相对平稳
+# SpaceX即将创下历史最大IPO，估值将达1.77万亿美元
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-尽管中东冲突导致全球最关键的能源通道霍尔木兹海峡遭遇历史性供应冲击，但国际石油期货市场近期并未出现此前预测的剧烈飙升，整体表现相对平稳。分析人士指出，部分原油通过非公开渠道及替代管线流出波斯湾，有效缓解了全球能源系统的供应压力。 美伊冲突爆发至今已有三个月，霍尔木兹海峡受战争波及，其作为全球主要海上能源枢纽的功能遭到严重削弱。摩根大通最新监测数据显示，目前通过该海峡的可见船舶流
+SpaceX正在筹备一场史无前例的首次公开募股。根据其向美国证券交易委员会提交的最新招股文件，该公司计划于6月12日在纳斯达克挂牌上市，股票代码SPCX，发行价定为每股135美元，拟发行约5.556亿股，基础募资规模达750亿美元，整体估值约1.77万亿美元。 这一规模将打破沙特阿美2019年创下的290亿美元募资纪录，成为全球资本市场历史上最大的IPO。若承销商行使超额配售权
 
 ## 正文
 
-尽管中东冲突导致全球最关键的能源通道霍尔木兹海峡遭遇历史性供应冲击，但国际石油期货市场近期并未出现此前预测的剧烈飙升，整体表现相对平稳。
+SpaceX正在筹备一场史无前例的首次公开募股。
 
-分析人士指出，部分原油通过非公开渠道及替代管线流出波斯湾，有效缓解了全球能源系统的供应压力。
+根据其向美国证券交易委员会提交的最新招股文件，该公司计划于6月12日在纳斯达克挂牌上市，股票代码SPCX，发行价定为每股135美元，拟发行约5.556亿股，基础募资规模达750亿美元，整体估值约1.77万亿美元。
 
-美伊冲突爆发至今已有三个月，霍尔木兹海峡受战争波及，其作为全球主要海上能源枢纽的功能遭到严重削弱。
+这一规模将打破沙特阿美2019年创下的290亿美元募资纪录，成为全球资本市场历史上最大的IPO。
 
-摩根大通最新监测数据显示，目前通过该海峡的可见船舶流量仍然极其稀少，降至仅为战前水平的15%左右，这一极度受限的航运状态此前在国际能源界被普遍视为“噩梦场景”。
+若承销商行使超额配售权，总募资额最高可达862.5亿美元。
 
-针对在如此严重的供应危机下国际油价并未失控的谜团，能源专家分析认为，当前存在大量“秘密流动”的原油规避了霍尔木兹海峡的双重封锁。
+上市后，SpaceX市值将超越特斯拉，跻身全美上市公司市值第七位，马斯克仍持有超过82%的投票权。
 
-相关油轮可能通过关闭船舶自动识别系统（AIS）应答器等手段隐匿航迹，从而成功将原油运出波斯湾，在很大程度上吸收了本轮历史性冲击。
+SpaceX目前拥有三大业务板块：以猎鹰9号火箭为核心的航天发射业务、星链卫星互联网服务，以及今年2月正式并入的人工智能子公司xAI。
 
-除海上隐秘通道外，既有的陆路替代能源基础设施同样发挥了关键的缓冲作用。
+其中星链是当前最强劲的盈利来源，2025年实现运营利润约44亿美元。
 
-能源咨询机构派珀·桑德勒（Piper Sandler）测算显示，目前每天约有450万桶原油通过其他陆路或管线途径流出波斯湾地区，其中主要依赖于连接沙特阿拉伯东部油田与红海沿岸延布港的“东西管道”（East-West Pipeline）。
+然而，合并后的xAI正成为巨大的资金消耗源，该部门2025年运营亏损约63.99亿美元，仅今年第一季度资本支出就高达77亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 00:31 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 00:28 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 00:35 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 00:33 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 00:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 00:35 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-30 00:35 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 00:30 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 00:33 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 00:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 00:26 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 00:37 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 00:43 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 00:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 00:46 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 00:42 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 00:46 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 00:51 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 00:24 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 00:36 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 00:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 00:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 00:27 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 00:28 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 00:41 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 00:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 00:29 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:23 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/767246442.shtml)
-- 2026-06-30 00:47 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/450535044.shtml)
-- 2026-06-30 00:38 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/464452.shtml)
-- 2026-06-30 00:29 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/5180375.shtml)
-- 2026-06-30 00:46 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/2259142952.shtml)
-- 2026-06-30 00:29 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/81989083590.shtml)
-- 2026-06-30 00:44 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/97881.shtml)
-- 2026-06-30 00:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/69031.shtml)
-- 2026-06-30 00:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/21810441659.shtml)
-- 2026-06-30 00:44 - [《贺子珍》](http://www.blog.minike.top/Article/details/834396137.shtml)
-- 2026-06-30 00:30 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/74836518.shtml)
-- 2026-06-30 00:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/695927708906.shtml)
-- 2026-06-30 00:26 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/85937.shtml)
-- 2026-06-30 00:38 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/589869435.shtml)
-- 2026-06-30 00:31 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/62557917149.shtml)
+- 2026-06-30 00:49 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/87746916.shtml)
+- 2026-06-30 00:47 - [世界杯](http://www.share.kurohicncr.top/Article/details/31000127414.shtml)
+- 2026-06-30 00:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/272305.shtml)
+- 2026-06-30 00:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/53146.shtml)
+- 2026-06-30 00:34 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/88315828745.shtml)
+- 2026-06-30 00:32 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/46452851.shtml)
+- 2026-06-30 00:26 - [刘念回应](https://www.blog.minike.top/Article/details/334846.shtml)
+- 2026-06-30 00:52 - [小娘惹](https://www.blog.minike.top/Article/details/3666802869.shtml)
+- 2026-06-30 00:37 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/01993.shtml)
+- 2026-06-30 00:53 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/14414078600.shtml)
+- 2026-06-30 00:35 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/151101.shtml)
+- 2026-06-30 00:37 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/568280.shtml)
+- 2026-06-30 00:26 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/961310911499.shtml)
+- 2026-06-30 00:24 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/54752.shtml)
+- 2026-06-30 00:47 - [存储三巨头被告了](https://www.share.minike.top/Article/details/35993.shtml)

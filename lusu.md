@@ -1,57 +1,47 @@
-# 穆迪：美国寿险公司持有8070亿美元流动性最差信贷资产
+# 欧盟内部围绕推动俄乌谈判存在分歧
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-穆迪公司一项最新研究显示，去年美国寿险公司持有的流动性最差的固定收益工具规模约为8070亿美元，引发市场对该行业整体流动性以及资产集中度的担忧。 根据周一发布的报告，截至2025年底，此类资产占寿险行业4万亿美元固定收益投资组合的20%，高于前一年的18%。在进行数据测算时，所涉及的证券具有私募信用评级（PLR），但未获第三方机构的正式评级或无法通过可观察到的市场价格进行估值。
+发布时间：2026年06月09日 09:38 来源：央视新闻 责任编辑：【李骏】
 
 ## 正文
 
-穆迪公司一项最新研究显示，去年美国寿险公司持有的流动性最差的固定收益工具规模约为8070亿美元，引发市场对该行业整体流动性以及资产集中度的担忧。
-
-根据周一发布的报告，截至2025年底，此类资产占寿险行业4万亿美元固定收益投资组合的20%，高于前一年的18%。
-
-在进行数据测算时，所涉及的证券具有私募信用评级（PLR），但未获第三方机构的正式评级或无法通过可观察到的市场价格进行估值。
-
-信用评级是保险业财务稳健的关键要素，因为评级决定了保险公司需要预留的资本规模，以确保能够履行对保单持有人的承诺，有时这些承诺的期限可能长达数十年。
-
-“这一增长是由结构性和周期性因素共同推动的，其中包括在利率高企但波动剧烈的环境下，市场对更高风险调整后收益率的持续需求，以及私募信贷供应的增加。
-
-”以Manoj Jethani为首的穆迪分析师团队在报告中指出。
-
-由于保险公司在私募信贷等另类投资中的持仓不断增加，目前正面临来自监管机构的审查。
-
-美国财政部已与直接监管该行业的各州监管机构会面，讨论保险公司对这一资产类别的风险敞口问题。
+发布时间：2026年06月09日 09:38 来源：央视新闻 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 00:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 00:36 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 00:46 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 00:42 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 00:45 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 00:23 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 00:41 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 00:33 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 00:20 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 00:25 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 00:40 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 00:39 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 00:26 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 00:27 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 00:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 00:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 00:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 00:45 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 00:50 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 00:35 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 00:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 00:35 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 00:46 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 00:32 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 00:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/45516212.shtml)
-- 2026-06-30 00:46 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/633907762966.shtml)
-- 2026-06-30 00:18 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/43304.shtml)
-- 2026-06-30 00:42 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/86955049559.shtml)
-- 2026-06-30 00:43 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/30934328.shtml)
-- 2026-06-30 00:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/561354623365.shtml)
-- 2026-06-30 00:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/180097.shtml)
-- 2026-06-30 00:22 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/369110.shtml)
-- 2026-06-30 00:19 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/31286.shtml)
-- 2026-06-30 00:37 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/66266724.shtml)
-- 2026-06-30 00:46 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/49358603.shtml)
-- 2026-06-30 00:32 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/66980295.shtml)
-- 2026-06-30 00:33 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/102225276.shtml)
-- 2026-06-30 00:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/4833536.shtml)
-- 2026-06-30 00:40 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/746123.shtml)
+- 2026-06-30 00:45 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/8679947.shtml)
+- 2026-06-30 00:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/297017738.shtml)
+- 2026-06-30 00:25 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/887776029.shtml)
+- 2026-06-30 00:40 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/857463203.shtml)
+- 2026-06-30 00:38 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/78571436985.shtml)
+- 2026-06-30 00:38 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/68507399.shtml)
+- 2026-06-30 00:31 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/230926944.shtml)
+- 2026-06-30 00:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/8556957274.shtml)
+- 2026-06-30 00:31 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/69356241.shtml)
+- 2026-06-30 00:46 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/861622930.shtml)
+- 2026-06-30 00:36 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/9457019060.shtml)
+- 2026-06-30 00:34 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/170770.shtml)
+- 2026-06-30 00:30 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/64325036.shtml)
+- 2026-06-30 00:28 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/9828868.shtml)
+- 2026-06-30 00:27 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/00623925129.shtml)

@@ -1,50 +1,60 @@
-# 沃尔玛又一位高管离职
+# 国家顶层部署“六张网”，数万亿元投资新机遇
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-随著新领导层对公司进行改革，沃尔玛更多高管相继离职。 沃尔玛计划在周一下午宣布戴安娜·马歇尔（Diana Marshall）的离职，马歇尔是沃尔玛旗下仓储式会员店山姆会员商店的现任首席体验官，也是一位在公司工作了数十年的老员工，她将于本月底离职。 山姆会员商店首席执行官拉特里斯·沃特金斯（Latriece Watkins）表示，马歇尔“做出了离开山姆会员商店的个人决定”。自沃尔
+(央视财经《经济信息联播》)近期召开的中共中央政治局会议明确提出，要深入挖掘内需潜力，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等“六张网”的规划建设，这也是“六张网”建设首次被纳入国家顶层部署。从一系列重磅会议的明确部署，再到国家发展改革委的统筹规划，“六张网”建设正在加速从蓝图迈向现实。 >>> “六张网”如何稳定经济大盘？ ·水网 甘甜的丹江水，沿着南
 
 ## 正文
 
-随著新领导层对公司进行改革，沃尔玛更多高管相继离职。
+(央视财经《经济信息联播》)近期召开的中共中央政治局会议明确提出，要深入挖掘内需潜力，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等“六张网”的规划建设，这也是“六张网”建设首次被纳入国家顶层部署。
 
-沃尔玛计划在周一下午宣布戴安娜·马歇尔（Diana Marshall）的离职，马歇尔是沃尔玛旗下仓储式会员店山姆会员商店的现任首席体验官，也是一位在公司工作了数十年的老员工，她将于本月底离职。
+从一系列重磅会议的明确部署，再到国家发展改革委的统筹规划，“六张网”建设正在加速从蓝图迈向现实。
 
-山姆会员商店首席执行官拉特里斯·沃特金斯（Latriece Watkins）表示，马歇尔“做出了离开山姆会员商店的个人决定”。
+>>> “六张网”如何稳定经济大盘？
 
-自沃尔玛新任首席执行官约翰·弗纳（John Furner）于今年2月上任以来，沃尔玛已有多位高管离职，其中包括公司前国际业务首席执行官凯思·麦克莱（Kath McLay）、山姆会员商店首席运营官汤姆·沃德（Tom Ward）以及沃尔玛门店运营主管塞德里克·克拉克（Cedric Clark）。
+·水网 甘甜的丹江水，沿着南水北调这条水网大动脉一路北上，进入千家万户。
 
-责任编辑：李桐
+然而，这条大动脉的核心水源——汉江，也面临自身“吃紧”的难题。
+
+为了保障水资源调配的稳定，一条新的脉络正在水网之上加速显影。
+
+2022年，引江补汉工程正式开工，作为国家水网主骨架建设的关键工程，这个项目建成后，中线北调水量可由年均95亿立方米增加到115.1亿立方米，大幅提升供水能力和保证率。
+
+当水网的骨架在江河之间合龙，崭新的能量也开始在节点之间流动。
 
 ## 相关推荐
 
-- 2026-06-30 00:41 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 00:31 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 00:20 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 00:21 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 00:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 00:27 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 00:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 00:21 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 00:44 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 00:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 00:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 00:48 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 00:30 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 00:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 00:41 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 00:31 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 00:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 00:25 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 00:31 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 00:44 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 00:38 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 00:44 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 00:33 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 00:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/072161.shtml)
-- 2026-06-30 00:22 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/684449855336.shtml)
-- 2026-06-30 00:40 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/95304616.shtml)
-- 2026-06-30 00:42 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/906552068611.shtml)
-- 2026-06-30 00:37 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/1048290229.shtml)
-- 2026-06-30 00:19 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/54032880.shtml)
-- 2026-06-30 00:35 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/778788515.shtml)
-- 2026-06-30 00:41 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/806762.shtml)
-- 2026-06-30 00:44 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/338311937.shtml)
-- 2026-06-30 00:41 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/866253256927.shtml)
-- 2026-06-30 00:24 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/0855038.shtml)
-- 2026-06-30 00:23 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/56643430.shtml)
-- 2026-06-30 00:46 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/1208276317.shtml)
-- 2026-06-30 00:39 - [我和我的家乡](https://www.share.minike.top/Article/details/69661793.shtml)
-- 2026-06-30 00:28 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/8952860158.shtml)
+- 2026-06-30 00:43 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/00460111007.shtml)
+- 2026-06-30 00:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/14991134688.shtml)
+- 2026-06-30 00:36 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/859810923.shtml)
+- 2026-06-30 00:37 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/307102.shtml)
+- 2026-06-30 00:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/5316905078.shtml)
+- 2026-06-30 00:38 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/79128441311.shtml)
+- 2026-06-30 00:53 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/61716558679.shtml)
+- 2026-06-30 00:47 - [扬名立万](http://www.share.minike.top/Article/details/4734337.shtml)
+- 2026-06-30 00:42 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/29183.shtml)
+- 2026-06-30 00:32 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/67626481759.shtml)
+- 2026-06-30 00:36 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/2967610.shtml)
+- 2026-06-30 00:40 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/8337844.shtml)
+- 2026-06-30 00:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/04184539069.shtml)
+- 2026-06-30 00:27 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/67698289.shtml)
+- 2026-06-30 00:27 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/34904.shtml)

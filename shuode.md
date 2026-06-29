@@ -1,59 +1,46 @@
-# 15年来宁德时代花时间最多的一次决策是什么？曾毓群揭晓答案
+# 伊朗总统称在任何威胁面前都不会退缩
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-编者按：近日《财经》杂志执行主编马克在宁德时代总部与曾毓群先生做了一场对话。 《财经》：宁德时代成立快15年了，这15年来宁德时代花时间最多的一次决策是什么？ 曾毓群：你讲的决策是行政决策、技术决策还是人事决策、商业决策？ 《财经》：都包括。 曾毓群：那花时间最多的是技术路线决策。 《财经》：能讲具体一点吗？ 曾毓群：就是该走哪条路。比如说钠电池该不该做，比如说固态该不该做？这
+发布时间：2026年06月09日 09:38 来源：央视新闻 责任编辑：【李骏】
 
 ## 正文
 
-编者按：近日《财经》杂志执行主编马克在宁德时代总部与曾毓群先生做了一场对话。
-
-《财经》：宁德时代成立快15年了，这15年来宁德时代花时间最多的一次决策是什么？
-
-曾毓群：你讲的决策是行政决策、技术决策还是人事决策、商业决策？
-
-《财经》：都包括。
-
-曾毓群：那花时间最多的是技术路线决策。
-
-《财经》：能讲具体一点吗？
-
-曾毓群：就是该走哪条路。
-
-比如说钠电池该不该做，比如说固态该不该做？
+发布时间：2026年06月09日 09:38 来源：央视新闻 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 00:45 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 00:19 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 00:42 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-30 00:45 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 00:39 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 00:46 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 00:25 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 00:25 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 00:40 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 00:31 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-30 00:18 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 00:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 00:47 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 00:48 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 00:36 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-30 00:32 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 00:33 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 00:44 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 00:45 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 00:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 00:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 00:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 00:36 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 00:54 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 00:49 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 00:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 00:44 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:28 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/909927.shtml)
-- 2026-06-30 00:32 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/65284124932.shtml)
-- 2026-06-30 00:27 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/10119.shtml)
-- 2026-06-30 00:34 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/30685386.shtml)
-- 2026-06-30 00:22 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/956522.shtml)
-- 2026-06-30 00:40 - [美人鱼](https://www.blog.minike.top/Article/details/6984537.shtml)
-- 2026-06-30 00:21 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/9609178840.shtml)
-- 2026-06-30 00:47 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/08802253.shtml)
-- 2026-06-30 00:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/12818904.shtml)
-- 2026-06-30 00:34 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/694691928664.shtml)
-- 2026-06-30 00:41 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/11819028327.shtml)
-- 2026-06-30 00:19 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/464778.shtml)
-- 2026-06-30 00:27 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/741182018.shtml)
-- 2026-06-30 00:25 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/22493796196.shtml)
-- 2026-06-30 00:22 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/48474148.shtml)
+- 2026-06-30 00:45 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/326000078576.shtml)
+- 2026-06-30 00:26 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/86339733.shtml)
+- 2026-06-30 00:46 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/221372.shtml)
+- 2026-06-30 00:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/56847919089.shtml)
+- 2026-06-30 00:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/39185.shtml)
+- 2026-06-30 00:53 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/709216255.shtml)
+- 2026-06-30 00:31 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/103701917327.shtml)
+- 2026-06-30 00:44 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/568856.shtml)
+- 2026-06-30 00:33 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/36738790.shtml)
+- 2026-06-30 00:35 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/108041.shtml)
+- 2026-06-30 00:29 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/92409767.shtml)
+- 2026-06-30 00:42 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/307337143.shtml)
+- 2026-06-30 00:27 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/956852.shtml)
+- 2026-06-30 00:53 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/61437749190.shtml)
+- 2026-06-30 00:32 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/37332802044.shtml)

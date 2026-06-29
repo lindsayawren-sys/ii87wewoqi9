@@ -1,59 +1,56 @@
-# （经济观察）三峡水运新通道开工 中国扩容长江黄金水道
+# 亚太股市，全线大跌，两大原因
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新社北京6月8日电 题：三峡水运新通道开工 中国扩容长江黄金水道 中新社记者 王恩博 随着一项总投资约772亿元人民币的重大工程开工，中国的长江黄金水道即将迎来扩容。 三峡水运新通道工程开工仪式8日在湖北宜昌举行。这是三峡工程之后长江干线上集水利、航运、生态等功能于一体的最大综合性工程，也是“十五五”时期开工建设的首个国家重大标志性工程。 “黄金水道”长江，不仅是一条水道，更
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！继美股上周五大跌后，周一亚洲股市普遍走弱。今日，日经225指数收跌3.85%，报64024.60点；韩国KOSPI指数收跌8.29%，报7484.41点，盘中触发市场熔断。 面对剧烈波动，韩国交易所于6月8日紧急召开市场研判会议，复盘美股大跌、隔夜期货走势等外部因素，全面评估当前行情，并研讨各类维稳举措，保
 
 ## 正文
 
-中新社北京6月8日电 题：三峡水运新通道开工 中国扩容长江黄金水道 中新社记者 王恩博 随着一项总投资约772亿元人民币的重大工程开工，中国的长江黄金水道即将迎来扩容。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-三峡水运新通道工程开工仪式8日在湖北宜昌举行。
+继美股上周五大跌后，周一亚洲股市普遍走弱。
 
-这是三峡工程之后长江干线上集水利、航运、生态等功能于一体的最大综合性工程，也是“十五五”时期开工建设的首个国家重大标志性工程。
+今日，日经225指数收跌3.85%，报64024.60点；韩国KOSPI指数收跌8.29%，报7484.41点，盘中触发市场熔断。
 
-“黄金水道”长江，不仅是一条水道，更是一条经济走廊。
+面对剧烈波动，韩国交易所于6月8日紧急召开市场研判会议，复盘美股大跌、隔夜期货走势等外部因素，全面评估当前行情，并研讨各类维稳举措，保障市场平稳运行。
 
-长江经济带覆盖11省市，其人口和生产总值均超过中国的40%，全国500强企业有近200家分布在沿江地带。
+今天，A股三大指数集体收跌。
 
-支撑这一经济带高效运转的重要基础，正是长江航运，其货运量长期稳居全球内河第一，沿江85%铁矿石、83%电煤和85%外贸货物运输依靠长江航运实现。
+上证指数跌1.7%，报3959.34点，深证成指跌3.22%，创业板指跌3.69%，科创综指跌3.46%，北证50逆势上涨1.33%。
 
-2003年三峡库区蓄水后，长江航道条件显著改善，航运能力持续释放。
+全市场4591只个股下跌，899只个股上涨，全天成交额28233亿元，较上一交易日减少2773亿元。
 
-2011年，三峡枢纽通过货运量突破1亿吨，提前19年达到规划运量。
+港股方面，截至15：57，恒生指数跌1.32%，恒生科技指数跌3.12%。
 
 ## 相关推荐
 
-- 2026-06-30 00:42 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 00:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 00:47 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 00:34 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 00:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 00:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 00:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 00:37 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 00:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 00:40 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 00:42 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 00:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 00:30 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 00:31 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 00:53 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 00:27 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 00:24 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 00:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 00:36 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 00:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 00:37 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 00:40 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 00:26 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/82155751831.shtml)
-- 2026-06-30 00:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/09901617084.shtml)
-- 2026-06-30 00:33 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/09495.shtml)
-- 2026-06-30 00:42 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/37542.shtml)
-- 2026-06-30 00:37 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/408977184.shtml)
-- 2026-06-30 00:27 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/87659.shtml)
-- 2026-06-30 00:21 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/728863138.shtml)
-- 2026-06-30 00:46 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/308729211561.shtml)
-- 2026-06-30 00:20 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/318324855409.shtml)
-- 2026-06-30 00:30 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/28729238.shtml)
-- 2026-06-30 00:40 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/8136956.shtml)
-- 2026-06-30 00:37 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/315639962.shtml)
-- 2026-06-30 00:18 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/72914.shtml)
-- 2026-06-30 00:44 - [第一炉香](http://www.share.kurohicncr.top/Article/details/062311.shtml)
-- 2026-06-30 00:29 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/110940.shtml)
+- 2026-06-30 00:34 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/41040541.shtml)
+- 2026-06-30 00:27 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/71465.shtml)
+- 2026-06-30 00:50 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/474107675.shtml)
+- 2026-06-30 00:32 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/58644615560.shtml)
+- 2026-06-30 00:52 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/65534842.shtml)
+- 2026-06-30 00:43 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/2542409.shtml)
+- 2026-06-30 00:47 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/656516505.shtml)
+- 2026-06-30 00:28 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/141105888.shtml)
+- 2026-06-30 00:29 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/37775328.shtml)
+- 2026-06-30 00:52 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/01588.shtml)
+- 2026-06-30 00:39 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/69018209.shtml)
+- 2026-06-30 00:24 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/54717.shtml)
+- 2026-06-30 00:35 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/751132458.shtml)
+- 2026-06-30 00:28 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/15088.shtml)
+- 2026-06-30 00:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/22601.shtml)

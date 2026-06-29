@@ -1,59 +1,59 @@
-# Sportradar遭集体诉讼，被指业务模式非法致市值蒸发8亿美元
+# 大厂疯抢AI人：平均月薪13万，35岁成香饽饽
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-体育数据巨头Sportradar Group AG正面临证券欺诈集体诉讼。此前做空机构指控该公司明知故犯地与黑市赌博运营商合作以增加收入，导致股价暴跌逾22%，市值蒸发约8亿美元。 诉讼已提交至美国纽约南区联邦地区法院。被告包括Sportradar及首席执行官Carsten Koerl等高管，依据1934年《证券交易法》提出索赔。诉讼覆盖在2024年11月7日至2026年4月2
+除了程序员，其他工种先不用担心被AI替代。 文|《中国企业家》记者 孙欣 见习编辑|李原编辑|何伊凡 头图来源|视觉中国 AI人才的入场券，越来越昂贵了，“不计成本。” 一位从业约20年的猎头告诉《中国企业家》，2026开年以来，阿里、腾讯、字节跳动等大厂在抢夺Agent开发人才上，预算几乎都没有上限，“感受到了大厂久违的狼性。” 从2023年开始，AI人才的年薪天花板从百万元
 
 ## 正文
 
-体育数据巨头Sportradar Group AG正面临证券欺诈集体诉讼。
+除了程序员，其他工种先不用担心被AI替代。
 
-此前做空机构指控该公司明知故犯地与黑市赌博运营商合作以增加收入，导致股价暴跌逾22%，市值蒸发约8亿美元。
+文|《中国企业家》记者 孙欣 见习编辑|李原编辑|何伊凡 头图来源|视觉中国 AI人才的入场券，越来越昂贵了，“不计成本。
 
-诉讼已提交至美国纽约南区联邦地区法院。
+” 一位从业约20年的猎头告诉《中国企业家》，2026开年以来，阿里、腾讯、字节跳动等大厂在抢夺Agent开发人才上，预算几乎都没有上限，“感受到了大厂久违的狼性。
 
-被告包括Sportradar及首席执行官Carsten Koerl等高管，依据1934年《证券交易法》提出索赔。
+” 从2023年开始，AI人才的年薪天花板从百万元、千万元到过亿，每年都会增加一个“0”。
 
-诉讼覆盖在2024年11月7日至2026年4月21日期间购买该公司A类普通股的投资者。
+“今年明显的变化是，身边应届的学姐、学长进入腾讯、阿里等，年薪总包都达到了大几百万。
 
-事件的导火索是2026年4月22日，知名做空机构浑水研究和Callisto Research同日发布报告。
+”一位清华姚班本科生告诉《中国企业家》。
 
-浑水在报告中直言：“该公司在全球黑市和灰色市场中积极协助和教唆非法赌博，这不是意外或疏忽，而是一种商业策略。
+围绕核心人才和大模型主帅的争夺，更加疯狂。
 
-”浑水估计，非法运营商贡献了Sportradar总收入的20%至40%。
+据脉脉报告，2026年1~4⽉，AI科学家/负责⼈平均月薪已达到132，796元，断层式领先第⼆名的算法研究员（74，441元）。
 
 ## 相关推荐
 
-- 2026-06-30 00:37 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-30 00:43 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 00:44 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 00:41 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 00:41 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 00:33 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 00:37 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 00:40 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 00:34 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 00:46 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 00:37 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 00:40 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 00:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 00:39 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 00:52 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 00:26 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 00:50 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 00:32 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 00:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 00:33 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 00:50 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 00:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 00:48 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 00:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 00:50 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 00:31 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:21 - [炽夏](https://www.share.minike.top/Article/details/2375291.shtml)
-- 2026-06-30 00:39 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/57710102788.shtml)
-- 2026-06-30 00:18 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/24003.shtml)
-- 2026-06-30 00:25 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/851981181951.shtml)
-- 2026-06-30 00:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/5638997.shtml)
-- 2026-06-30 00:37 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/69686293466.shtml)
-- 2026-06-30 00:46 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/93994298.shtml)
-- 2026-06-30 00:21 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/33365.shtml)
-- 2026-06-30 00:27 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/633154741029.shtml)
-- 2026-06-30 00:18 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/63509767.shtml)
-- 2026-06-30 00:24 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/77180.shtml)
-- 2026-06-30 00:44 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/10850.shtml)
-- 2026-06-30 00:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/888157437509.shtml)
-- 2026-06-30 00:47 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/3376780.shtml)
-- 2026-06-30 00:43 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/20087646650.shtml)
+- 2026-06-30 00:44 - [起风了](http://www.share.kurohicncr.top/Article/details/245435.shtml)
+- 2026-06-30 00:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/275359703.shtml)
+- 2026-06-30 00:38 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/574720307.shtml)
+- 2026-06-30 00:41 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/00320905807.shtml)
+- 2026-06-30 00:39 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/935002.shtml)
+- 2026-06-30 00:53 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/44301068421.shtml)
+- 2026-06-30 00:24 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/560059.shtml)
+- 2026-06-30 00:40 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/056363.shtml)
+- 2026-06-30 00:44 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/04996835.shtml)
+- 2026-06-30 00:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/03219.shtml)
+- 2026-06-30 00:26 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/26354759017.shtml)
+- 2026-06-30 00:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/53228961067.shtml)
+- 2026-06-30 00:42 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/60750566.shtml)
+- 2026-06-30 00:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/57751.shtml)
+- 2026-06-30 00:32 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/785335.shtml)

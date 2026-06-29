@@ -1,61 +1,61 @@
-# 长安期货范磊：冲突重新升温，关注油价后续下行可能
+# “智绘想象·AIGC创意表达”赛道等你来投稿！金视频奖·第三届金融机构短视频评选大赛火热进行中
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-近期原油价格维持宽幅震荡，上周后半程时间依然受美伊局势变化影响，导致油价出现一定程度的下行。就近期的地缘局面来看，影响油价的核心因素仍是中东地区的地缘变化情况，其中我们此前提到了三点要素仍是判断地缘局势的核心变化要点： 其一，在停火谈判方面，上周美伊停火协议进展在后半程时间出现了较大的变化。其中，特朗普上周表示正致力于与伊朗达成协议，并称伊朗已同意不拥核，愿与伊朗最高领袖会面，
+从大模型到生成式AI，人工智能正深刻改变金融行业的运行逻辑与表达方式。智能客服、自动化投研、虚拟数字人、AI生成的投教内容——AIGC技术不仅提升了效率，也为金融创新打开了前所未有的想象空间。 为了鼓励金融机构探索人工智能与金融融合的无限可能，新浪财经“金视频奖·第三届金融机构短视频评选大赛”活动特设“智绘想象·AIGC创意表达”赛道。欢迎各金融机构踊跃参赛，用AIGC释放创意
 
 ## 正文
 
-近期原油价格维持宽幅震荡，上周后半程时间依然受美伊局势变化影响，导致油价出现一定程度的下行。
+从大模型到生成式AI，人工智能正深刻改变金融行业的运行逻辑与表达方式。
 
-就近期的地缘局面来看，影响油价的核心因素仍是中东地区的地缘变化情况，其中我们此前提到了三点要素仍是判断地缘局势的核心变化要点： 其一，在停火谈判方面，上周美伊停火协议进展在后半程时间出现了较大的变化。
+智能客服、自动化投研、虚拟数字人、AI生成的投教内容——AIGC技术不仅提升了效率，也为金融创新打开了前所未有的想象空间。
 
-其中，特朗普上周表示正致力于与伊朗达成协议，并称伊朗已同意不拥核，愿与伊朗最高领袖会面，较前期来看，双方态度已出现明显转向，这在一定程度上为后续谈判创造了更积极的氛围。
+为了鼓励金融机构探索人工智能与金融融合的无限可能，新浪财经“金视频奖·第三届金融机构短视频评选大赛”活动特设“智绘想象·AIGC创意表达”赛道。
 
-然而从伊朗的表态来看，以色列与黎巴嫩之间的冲突仍是核心议题。
+欢迎各金融机构踊跃参赛，用AIGC释放创意，描绘金融未来图景，期待您的佳作！
 
-上周伊朗公开表态，若以色列攻击贝鲁特，伊朗将果断回应，同时可以看到的是黎巴嫩于周四明确拒绝了与以色列的停火协议，并且以色列也强硬表示绝不从黎巴嫩撤军，这极有可能在后续对特朗普积极推进的停火协议造成阻碍。
+一、大赛主题 本届大赛设四大主题奖项，参赛机构可根据视频内容自主选择对应赛道申报。
 
-但值得注意的是，进入本周之后，特朗普公开在社交媒体上要求以色列立刻停止对黎巴嫩的军事行动，这或导致黎以之间的冲突再难有明显的升级可能，但具体情况需保持关注。
+主题类型： 1．五篇大文章：聚焦科技金融、绿色金融、普惠金融、养老金融、数字金融五个细分领域，展现金融机构在服务国家战略、民生福祉和可持续发展中的系统性创新成果。
 
-其二，在伊核问题的处理方面，上周特朗普曾表示伊朗已经同意不拥核，若特朗普的言论得到落实，那么这将意味着伊朗在谈判过程当中做出了重大让步。
+2．金融知识科普与安全：聚焦金融机构面向社会公众开展的金融知识普及与安全教育工作，围绕明晰基础金融知识、防范电信网络诈骗、识别非法金融活动等重点内容。
 
-但从伊朗此前的表态来看，伊朗曾公开表示美方协议草案未涉及铀材料的处置问题，且从伊朗官方一贯态度来看，伊朗在核问题的立场始终强调其不可剥夺的权利，即便此前有消息传出伊朗同意将浓缩铀运输出国，这一表态也未得到伊朗官方正式确认。
+3．金融为民故事：聚焦金融机构及一线员工服务人民群众的感人事迹与温暖故事，展现金融工作的人民性底色和金融从业者的责任担当与职业情怀。
 
 ## 相关推荐
 
-- 2026-06-30 00:30 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 00:33 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 00:32 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 00:24 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 00:47 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 00:19 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 00:46 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 00:34 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 00:41 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 00:35 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 00:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 00:29 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 00:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 00:36 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 00:20 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 00:27 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 00:28 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 00:29 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 00:25 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 00:28 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 00:53 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 00:50 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 00:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 00:53 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 00:49 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 00:45 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 00:26 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 00:27 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 00:34 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 00:34 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:39 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/4338152206.shtml)
-- 2026-06-30 00:38 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/75686909.shtml)
-- 2026-06-30 00:38 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/9185447615.shtml)
-- 2026-06-30 00:19 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/75600190.shtml)
-- 2026-06-30 00:47 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/67093.shtml)
-- 2026-06-30 00:19 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/91668847489.shtml)
-- 2026-06-30 00:37 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/50863.shtml)
-- 2026-06-30 00:21 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/866096.shtml)
-- 2026-06-30 00:41 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/04366410.shtml)
-- 2026-06-30 00:19 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/936342931.shtml)
-- 2026-06-30 00:42 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/67598347.shtml)
-- 2026-06-30 00:35 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/8277063248.shtml)
-- 2026-06-30 00:42 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/4586055.shtml)
-- 2026-06-30 00:21 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/83128722897.shtml)
-- 2026-06-30 00:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/05987941643.shtml)
+- 2026-06-30 00:41 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/085547.shtml)
+- 2026-06-30 00:43 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/1366723102.shtml)
+- 2026-06-30 00:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/80541.shtml)
+- 2026-06-30 00:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/4032743.shtml)
+- 2026-06-30 00:32 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/880279455.shtml)
+- 2026-06-30 00:50 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/5119227178.shtml)
+- 2026-06-30 00:40 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/28227231.shtml)
+- 2026-06-30 00:39 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/447767362196.shtml)
+- 2026-06-30 00:46 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/760751.shtml)
+- 2026-06-30 00:24 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/022210.shtml)
+- 2026-06-30 00:47 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/451068.shtml)
+- 2026-06-30 00:45 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/70739354.shtml)
+- 2026-06-30 00:33 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/368632972830.shtml)
+- 2026-06-30 00:38 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/2746662951.shtml)
+- 2026-06-30 00:30 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/254406.shtml)

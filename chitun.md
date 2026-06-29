@@ -1,42 +1,60 @@
-# 德媒报道称德法停止联合研发战斗机
+# 英伟达与LG集团共建AI工厂，深化机器人及自动驾驶合作
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 19:27 来源：央视新闻 责任编辑：【王祎】
+英伟达与韩国LG集团近日宣布达成战略合作，双方将共同建设一座人工智能工厂，以加速LG集团在机器人、自动驾驶、数据中心技术和GPU云服务等领域的新一轮AI驱动型业务发展。 此次合作融合了英伟达的全栈式端到端AI工厂平台与LG集团在消费电子、机器人、移动出行组件、智能空间和数据中心技术领域的深厚积累。双方将把AI模型开发、物理AI数据生成、机器人仿真训练、边缘部署以及工厂级数字孪生
 
 ## 正文
 
-发布时间：2026年06月09日 19:27 来源：央视新闻 责任编辑：【王祎】
+英伟达与韩国LG集团近日宣布达成战略合作，双方将共同建设一座人工智能工厂，以加速LG集团在机器人、自动驾驶、数据中心技术和GPU云服务等领域的新一轮AI驱动型业务发展。
+
+此次合作融合了英伟达的全栈式端到端AI工厂平台与LG集团在消费电子、机器人、移动出行组件、智能空间和数据中心技术领域的深厚积累。
+
+双方将把AI模型开发、物理AI数据生成、机器人仿真训练、边缘部署以及工厂级数字孪生整合为统一的工作流程，用于构建完整的物理人工智能系统。
+
+在物理AI与机器人领域，LG电子计划全面采用英伟达的Isaac Sim和Isaac Lab机器人框架，在虚拟环境中对机器人进行仿真、训练和验证后再部署至现实场景。
+
+同时，双方还将基于英伟达的Isaac GR00T人形机器人AI平台，共同开发参考机器人，并打造一个物理AI数据工厂，利用英伟达Cosmos世界基础模型生成合成数据，以解决机器人训练数据获取难题。
+
+在基础设施方面，LG电子正在推进其冷却解决方案和模块化设计系统的认证，以匹配英伟达DSX AI工厂平台。
+
+LG Uplus和LG CNS计划基于英伟达的DSX参考设计构建AI数据中心，LG能源解决方案则正在商谈为这些数据中心提供800伏电力系统。
+
+在移动出行领域，LG电子将与英伟达在高级驾驶辅助系统、自动驾驶技术和软件定义汽车方面展开协作，将其车载信息娱乐系统与英伟达的Drive Hyperion自动驾驶平台相结合。
 
 ## 相关推荐
 
-- 2026-06-30 00:42 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 00:20 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 00:26 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 00:21 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 00:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 00:33 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 00:28 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 00:20 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 00:31 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 00:39 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 00:42 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 00:50 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 00:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 00:49 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 00:35 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 00:26 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-30 00:31 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 00:50 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 00:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 00:44 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 00:39 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 00:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 00:38 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 00:29 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:47 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/534801962297.shtml)
-- 2026-06-30 00:47 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/3805012.shtml)
-- 2026-06-30 00:35 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/2419901818.shtml)
-- 2026-06-30 00:24 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/0289724672.shtml)
-- 2026-06-30 00:27 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/501031.shtml)
-- 2026-06-30 00:27 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/812022804.shtml)
-- 2026-06-30 00:42 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/60793503461.shtml)
-- 2026-06-30 00:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/7205124488.shtml)
-- 2026-06-30 00:32 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/531503928.shtml)
-- 2026-06-30 00:19 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/29366707.shtml)
-- 2026-06-30 00:34 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/86524917703.shtml)
-- 2026-06-30 00:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/5274133.shtml)
-- 2026-06-30 00:22 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/05189.shtml)
-- 2026-06-30 00:29 - [第一炉香](https://www.share.kurohicncr.top/Article/details/585303818314.shtml)
-- 2026-06-30 00:28 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/86949.shtml)
+- 2026-06-30 00:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/387612776706.shtml)
+- 2026-06-30 00:45 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/51885.shtml)
+- 2026-06-30 00:26 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/180081023.shtml)
+- 2026-06-30 00:43 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/996630.shtml)
+- 2026-06-30 00:53 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/0074081.shtml)
+- 2026-06-30 00:38 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/196370205.shtml)
+- 2026-06-30 00:46 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/679613492.shtml)
+- 2026-06-30 00:30 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/0913516.shtml)
+- 2026-06-30 00:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/7916829414.shtml)
+- 2026-06-30 00:25 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/493053222.shtml)
+- 2026-06-30 00:27 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/442940764960.shtml)
+- 2026-06-30 00:52 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/536027168423.shtml)
+- 2026-06-30 00:53 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/0472507.shtml)
+- 2026-06-30 00:36 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/11089671.shtml)
+- 2026-06-30 00:41 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/36176.shtml)

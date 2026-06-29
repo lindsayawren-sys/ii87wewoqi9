@@ -1,59 +1,58 @@
-# 中国12家科技社团倡议推动团体标准高质量发展行动
+# 中国驻菲律宾大使馆提醒在菲中国公民防范地震灾害
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新网北京6月8日电 (记者 孙自法)为更好发挥团体标准在科技创新、产业升级与国际竞争中的作用，中国汽车工程学会等12家科技社团，在国家市场监督管理总局和中国科学技术协会指导下，自愿发起并共同倡议“推动团体标准高质量发展行动”。倡议主要包括“锚定战略方向，服务科技创新和产业创新深度融合”“强化组织自律，共同营造团体标准化事业发展良好环境”“健全体制机制，持续提升标准管理能力水平
+中新网马尼拉6月8日电 中国驻菲律宾大使馆8日发布公告，提醒在菲中国公民防范地震灾害。 公告说，据中国地震台网测定，北京时间6月8日7时37分菲律宾棉兰老岛海域发生7.9级地震，震源深度40千米(菲火山地震研究所报：震级7.8级，震源深度33公里)。截至6月8日15时，菲方已记录逾百次余震，萨兰加尼省、苏丹库达拉省等沿海地区发生海啸，已有人员伤亡报道。菲方预计未来几周内，震中附
 
 ## 正文
 
-中新网北京6月8日电 (记者 孙自法)为更好发挥团体标准在科技创新、产业升级与国际竞争中的作用，中国汽车工程学会等12家科技社团，在国家市场监督管理总局和中国科学技术协会指导下，自愿发起并共同倡议“推动团体标准高质量发展行动”。
+中新网马尼拉6月8日电 中国驻菲律宾大使馆8日发布公告，提醒在菲中国公民防范地震灾害。
 
-倡议主要包括“锚定战略方向，服务科技创新和产业创新深度融合”“强化组织自律，共同营造团体标准化事业发展良好环境”“健全体制机制，持续提升标准管理能力水平”“加强推广应用，培育具有广泛影响的团体标准品牌”“重视效果评估，全面梳理推动存量标准焕新升级”“深化国际合作，努力提升标准国际影响力”等6项内容。
+公告说，据中国地震台网测定，北京时间6月8日7时37分菲律宾棉兰老岛海域发生7.9级地震，震源深度40千米(菲火山地震研究所报：震级7.8级，震源深度33公里)。
 
-锚定战略方向方面，深化科技创新与标准化有机互动，支持关键性、原创性、引领性重大科技成果转化为标准，适度超前布局标准体系建设，切实发挥团体标准快速响应科技创新和产业创新需求的优势，制定一批填补空白、引领发展的高质量团体标准。
+截至6月8日15时，菲方已记录逾百次余震，萨兰加尼省、苏丹库达拉省等沿海地区发生海啸，已有人员伤亡报道。
 
-强化组织自律方面，紧扣主责主业，强化自我约束和会员监督，以满足多数会员的共性需求为目标开展标准化工作，杜绝各类不符合国家涉及团体标准政策导向的行为，特别是利用编制团体标准牟利和乱收费、团体标准质量水平低、违反强制性国家标准规定、扰乱市场秩序等不良行为。
+菲方预计未来几周内，震中附近区域还将持续发生余震。
 
-同时，发挥科技社团立足科技、开放协同优势特点，加强与国家标准的有效协同，鼓励跨产业联合制定发布团体标准，带头构建团体标准事业发展良好生态。
+中国驻菲律宾使领馆提醒在菲中国公民密切关注当地预警和灾害信息，防范余震及地震导致的次生灾害；保持冷静，做好安全防护，保持通讯畅通。
 
-健全体制机制方面，建立健全标准管理制度体系，建立科学高效的标准立项评估与决策机制，完善标准起草、征求意见、技术审查、审核批准、定期复审等程序机制。
+请相关地区中国公民立即远离海边，转移至高地或内陆避险。
 
-标准制定过程透明、公开，确保会员与相关方能及时、便捷参与标准起草与意见反馈，标准工作组吸纳利益相关方有代表性会员充分参与，标准批准等关键环节建立会员民主决策机制。
+如遇紧急情况，请联系：菲律宾报警急救电话：911 菲律宾红十字会急救电话：143 中国驻菲律宾使馆领保协助电话：0063-2-82311033 中国驻宿务总领馆领保协助电话：0063-32-3430008 中国驻拉瓦格领馆领保协助电话：0063-9178051226 中国驻达沃总领馆领保协助电话：0063-9271304354 外交部全球领事保护与服务应急热线(24小时)：0086-10-12308或0086-10-65612308。
 
-标准项目经费要专款专用，并建立标准经费使用情况报告、年度经费报告等机制。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 00:21 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 00:38 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 00:47 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 00:26 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 00:18 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 00:40 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 00:35 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 00:31 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 00:23 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 00:44 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 00:32 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 00:47 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 00:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 00:45 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 00:26 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 00:53 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 00:31 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 00:47 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 00:39 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 00:33 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 00:26 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 00:25 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 00:32 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 00:40 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/506530520399.shtml)
-- 2026-06-30 00:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/57250374.shtml)
-- 2026-06-30 00:32 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/364873806273.shtml)
-- 2026-06-30 00:22 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/87644703609.shtml)
-- 2026-06-30 00:24 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/032301078.shtml)
-- 2026-06-30 00:34 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/2369157.shtml)
-- 2026-06-30 00:44 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/77634.shtml)
-- 2026-06-30 00:42 - [流金岁月](http://www.share.minike.top/Article/details/1982182989.shtml)
-- 2026-06-30 00:34 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/0498364.shtml)
-- 2026-06-30 00:30 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/763672.shtml)
-- 2026-06-30 00:42 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/34332875.shtml)
-- 2026-06-30 00:22 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/59114.shtml)
-- 2026-06-30 00:19 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/750746075.shtml)
-- 2026-06-30 00:21 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/88997763.shtml)
-- 2026-06-30 00:39 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/366092390358.shtml)
+- 2026-06-30 00:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/101238.shtml)
+- 2026-06-30 00:37 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/24163.shtml)
+- 2026-06-30 00:37 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/00636622.shtml)
+- 2026-06-30 00:34 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/2004711287.shtml)
+- 2026-06-30 00:36 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/120196301172.shtml)
+- 2026-06-30 00:37 - [沉睡花园](http://www.share.minike.top/Article/details/9885330685.shtml)
+- 2026-06-30 00:49 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/43323618.shtml)
+- 2026-06-30 00:42 - [一生一世](http://www.share.minike.top/Article/details/055611419481.shtml)
+- 2026-06-30 00:39 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/202040131843.shtml)
+- 2026-06-30 00:31 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/16663011864.shtml)
+- 2026-06-30 00:40 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/5344184.shtml)
+- 2026-06-30 00:34 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/408155423.shtml)
+- 2026-06-30 00:49 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/22575560.shtml)
+- 2026-06-30 00:42 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/43990032040.shtml)
+- 2026-06-30 00:38 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/392607.shtml)

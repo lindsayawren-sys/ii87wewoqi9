@@ -1,47 +1,60 @@
-# 1—5月全国期货市场累计成交额同比增长40.13%
+# 首钢朗泽盘中逆市涨超17% 公司有望受益SAF市场快速扩容
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中国期货业协会最新统计显示，1—5月全国期货市场累计成交量为41.66亿手，累计成交额为402.08万亿元，同比分别增长24.84%和40.13%。全国期货市场成交总体平稳，服务实体经济质效稳步提升。(总台央视记者 张道峰)
+首钢朗泽（02553）盘中逆市涨超17%，较招股价14.6港元已涨超140%。截至发稿，股价上涨4.15%，现报31.60港元，成交额6793.37万港元。 公开资料显示，首钢朗泽深耕于碳捕集、利用和封存行业（CCUS），专注于以钢铁厂、铁合金厂生产过程中产生的含碳工业尾气为原料，通过碳捕集和利用技术生产乙醇及微生物蛋白等低碳产品，并提供低碳综合性解决方案。据弗若斯特沙利文统计
 
 ## 正文
 
-中国期货业协会最新统计显示，1—5月全国期货市场累计成交量为41.66亿手，累计成交额为402.08万亿元，同比分别增长24.84%和40.13%。
+首钢朗泽（02553）盘中逆市涨超17%，较招股价14.6港元已涨超140%。
 
-全国期货市场成交总体平稳，服务实体经济质效稳步提升。
+截至发稿，股价上涨4.15%，现报31.60港元，成交额6793.37万港元。
 
-(总台央视记者 张道峰)
+公开资料显示，首钢朗泽深耕于碳捕集、利用和封存行业（CCUS），专注于以钢铁厂、铁合金厂生产过程中产生的含碳工业尾气为原料，通过碳捕集和利用技术生产乙醇及微生物蛋白等低碳产品，并提供低碳综合性解决方案。
+
+据弗若斯特沙利文统计，依照2025年数据，首钢朗泽为全球利用合成生物技术的CCUS行业中规模最大的企业。
+
+据悉，国际能源署（IEA）将CCUS列为全球实现碳中和的关键技术之一，预计全球碳捕集市场累计投资在2030年达到1600亿美元。
+
+与此同时，全球可持续航空燃料（SAF）市场快速扩容，也为CCUS行业带来机遇。
+
+招股书披露，首钢朗泽计划于2026年在内蒙古包头建设可持续航空燃料设施并在2027年投产，为公司产业链延伸打开长期空间。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:33 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 00:25 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 00:25 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 00:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 00:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 00:26 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 00:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 00:32 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 00:39 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 00:26 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 00:36 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 00:49 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 00:47 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 00:29 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 00:38 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 00:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 00:27 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 00:31 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 00:47 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 00:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 00:48 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 00:24 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 00:29 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 00:31 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 00:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:29 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/52324.shtml)
-- 2026-06-30 00:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/252846.shtml)
-- 2026-06-30 00:20 - [扬名立万](https://www.blog.minike.top/Article/details/67577912.shtml)
-- 2026-06-30 00:20 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/8259694513.shtml)
-- 2026-06-30 00:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/540314.shtml)
-- 2026-06-30 00:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/43825406.shtml)
-- 2026-06-30 00:41 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/601241.shtml)
-- 2026-06-30 00:22 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/75449006.shtml)
-- 2026-06-30 00:44 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/42571741218.shtml)
-- 2026-06-30 00:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/484921450.shtml)
-- 2026-06-30 00:46 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/229504911.shtml)
-- 2026-06-30 00:20 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/40708.shtml)
-- 2026-06-30 00:23 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/92940772611.shtml)
-- 2026-06-30 00:36 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/418817237792.shtml)
-- 2026-06-30 00:32 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/1178387146.shtml)
+- 2026-06-30 00:49 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/5383352.shtml)
+- 2026-06-30 00:33 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/99157530713.shtml)
+- 2026-06-30 00:35 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/0030915.shtml)
+- 2026-06-30 00:28 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/946505070729.shtml)
+- 2026-06-30 00:38 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/93645435126.shtml)
+- 2026-06-30 00:34 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/4270382704.shtml)
+- 2026-06-30 00:24 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/94142007.shtml)
+- 2026-06-30 00:28 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/19076.shtml)
+- 2026-06-30 00:30 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/934982.shtml)
+- 2026-06-30 00:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/9830736.shtml)
+- 2026-06-30 00:40 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/720298.shtml)
+- 2026-06-30 00:43 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/367933.shtml)
+- 2026-06-30 00:44 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/70878449.shtml)
+- 2026-06-30 00:40 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/706938080.shtml)
+- 2026-06-30 00:42 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/67326482.shtml)

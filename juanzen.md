@@ -1,57 +1,59 @@
-# 利好！2570亿元中央资金力挺城市更新
+# ASML首席执行官警告欧盟不要干预芯片供应事宜
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-记者丨张敏 编辑丨张星 2026年6月8日，国新办举行国务院政策例行吹风会，请住房城乡建设部、国家发展改革委、财政部、自然资源部等部委的相关负责人介绍《城市更新“十五五”规划》（以下简称《规划》）有关情况，并答记者问。 今年5月末，国务院印发《城市更新“十五五”规划》，明确了“十五五”时期城市更新工作的目标指标、重点任务、重大工程和政策举措。《规划》部署培育壮大城市发展新动能、
+欧洲市值最高企业的负责人警示欧盟，切勿直接干预半导体供应链。他表示，想要降低对海外技术的依赖，根本之道是培育欧洲本土实力更强的企业。 荷兰芯片设备制造商阿斯麦（ASML）首席执行官克里斯托夫・富凯在接受英国媒体采访时称：“如果本土没有完整的供应链，又谈何干预供应链？” 富凯透露，阿斯麦在欧洲的销售额仅占总营收的1%左右，而亚洲市场占比约达80%。他认为这让企业处境十分“被动”，
 
 ## 正文
 
-记者丨张敏 编辑丨张星 2026年6月8日，国新办举行国务院政策例行吹风会，请住房城乡建设部、国家发展改革委、财政部、自然资源部等部委的相关负责人介绍《城市更新“十五五”规划》（以下简称《规划》）有关情况，并答记者问。
+欧洲市值最高企业的负责人警示欧盟，切勿直接干预半导体供应链。
 
-今年5月末，国务院印发《城市更新“十五五”规划》，明确了“十五五”时期城市更新工作的目标指标、重点任务、重大工程和政策举措。
+他表示，想要降低对海外技术的依赖，根本之道是培育欧洲本土实力更强的企业。
 
-《规划》部署培育壮大城市发展新动能、营造高品质城市生活空间、推动城市发展绿色低碳转型、增强城市安全韧性、促进城市文化繁荣发展、提升城市治理能力水平等6方面重点任务。
+荷兰芯片设备制造商阿斯麦（ASML）首席执行官克里斯托夫・富凯在接受英国媒体采访时称：“如果本土没有完整的供应链，又谈何干预供应链？
 
-这也是城市更新领域的第一部国家级专项规划。
+” 富凯透露，阿斯麦在欧洲的销售额仅占总营收的1%左右，而亚洲市场占比约达80%。
 
-去年7月召开的中央城市工作会议明确，将“推进城市更新”作为实现城市内涵式发展的重要抓手。
+他认为这让企业处境十分“被动”，毕竟行业发展的常态就是贴近客户布局业务。
 
-这份顶层设计文件的出台，使得城市更新领域的任务目标、规划与实施均更加清晰。
+就在此番言论发表的数日前，欧盟刚刚公布全新发展战略，其中包括授权相关部门在芯片短缺时紧急调配物资，以及一系列扶持欧洲半导体产业的举措。
 
-作为一项系统工程，城市更新涵盖多项工作内容，涉及多个相关领域，也需要多部门协同推进。
+欧盟正力图减少对北美科技企业和亚洲制造商的依赖，政策制定者也在不断权衡：是直接出手干预产业，还是营造良好环境，助力本土企业发展、参与全球竞争。
 
-针对《规划》中提到的城市地下管网改造、“好房子”建设等重点话题，以及配套支持政策、协同保障机制等，相关负责人均给出了详细解读。
+富凯于2024年出任阿斯麦首席执行官，他说道：“有人主张‘优先采购欧洲产品’。
 
 ## 相关推荐
 
-- 2026-06-30 00:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 00:27 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 00:39 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 00:40 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 00:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 00:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 00:41 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 00:30 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 00:19 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 00:41 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-30 00:43 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 00:29 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 00:33 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 00:42 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 00:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 00:51 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 00:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 00:53 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 00:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 00:32 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 00:42 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 00:48 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 00:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 00:48 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:26 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/51860.shtml)
-- 2026-06-30 00:37 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/95609946732.shtml)
-- 2026-06-30 00:18 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/6280498829.shtml)
-- 2026-06-30 00:23 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/5762552386.shtml)
-- 2026-06-30 00:24 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/89979211.shtml)
-- 2026-06-30 00:26 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/77243921.shtml)
-- 2026-06-30 00:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/832076123.shtml)
-- 2026-06-30 00:38 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/0472710.shtml)
-- 2026-06-30 00:41 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/341419318.shtml)
-- 2026-06-30 00:43 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/208698.shtml)
-- 2026-06-30 00:41 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/619561.shtml)
-- 2026-06-30 00:34 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/0784194818.shtml)
-- 2026-06-30 00:41 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/867826179189.shtml)
-- 2026-06-30 00:33 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/60907.shtml)
-- 2026-06-30 00:31 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/2756297.shtml)
+- 2026-06-30 00:50 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/2168328.shtml)
+- 2026-06-30 00:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/127384288309.shtml)
+- 2026-06-30 00:25 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/57465032.shtml)
+- 2026-06-30 00:46 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/64245488063.shtml)
+- 2026-06-30 00:39 - [美股](http://www.share.kurohicncr.top/Article/details/024810388.shtml)
+- 2026-06-30 00:25 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/712975905302.shtml)
+- 2026-06-30 00:53 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/4702175.shtml)
+- 2026-06-30 00:46 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/2459138.shtml)
+- 2026-06-30 00:34 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/718537.shtml)
+- 2026-06-30 00:37 - [千香](https://www.share.minike.top/Article/details/43872934.shtml)
+- 2026-06-30 00:43 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/7547006607.shtml)
+- 2026-06-30 00:24 - [第一炉香](https://www.share.minike.top/Article/details/346377182055.shtml)
+- 2026-06-30 00:42 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/282867461.shtml)
+- 2026-06-30 00:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/8170175309.shtml)
+- 2026-06-30 00:29 - [青春环游记第三季](http://www.share.minike.top/Article/details/34288228.shtml)

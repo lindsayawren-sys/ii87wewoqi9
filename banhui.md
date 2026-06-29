@@ -1,60 +1,60 @@
-# 利勃海尔将为TenneT海上风电项目供应六台海上起重机
+# 黄仁勋和SK集团董事长Chey将于周一宣布合作计划
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-起重机专业制造商利勃海尔与新加坡工程、采购和建筑承包商Seatrium签订合同，将为TenneT在荷兰的2吉瓦海上风电输电项目供应六台RL 2600型海上起重机。 这些起重机将安装于IJmuiden Ver Beta、IJmuiden Ver Gamma和Nederwiek Beta海上换流平台，每个平台配备两台起重机。设备将分阶段交付，以确保所有机组在2029年按计划开始运营
+来源：财联社 据报道，英伟达首席执行官黄仁勋和SK集团董事长Chey将于周一宣布合作计划。 此外，黄仁勋还表示，明天要与三星电子的副董事长全永铉（Young Hyun Jun）会面。全永铉自2025年起任三星电子副董事长兼联席CEO，主导DS（设备解决方案）与存储业务。 值得注意的是，黄仁勋表示，内存短缺问题将持续存在相当长一段时间（数年）。 今日稍早前，有报道显示，黄仁勋7日
 
 ## 正文
 
-起重机专业制造商利勃海尔与新加坡工程、采购和建筑承包商Seatrium签订合同，将为TenneT在荷兰的2吉瓦海上风电输电项目供应六台RL 2600型海上起重机。
+来源：财联社 据报道，英伟达首席执行官黄仁勋和SK集团董事长Chey将于周一宣布合作计划。
 
-这些起重机将安装于IJmuiden Ver Beta、IJmuiden Ver Gamma和Nederwiek Beta海上换流平台，每个平台配备两台起重机。
+此外，黄仁勋还表示，明天要与三星电子的副董事长全永铉（Young Hyun Jun）会面。
 
-设备将分阶段交付，以确保所有机组在2029年按计划开始运营前就位。
+全永铉自2025年起任三星电子副董事长兼联席CEO，主导DS（设备解决方案）与存储业务。
 
-RL 2600型起重机专为海上应用而设计，并将配备利勃海尔的LiMain数字化维护系统，以支持无人平台的运营。
+值得注意的是，黄仁勋表示，内存短缺问题将持续存在相当长一段时间（数年）。
 
-该项目标志着亚洲工程与海上解决方案提供商首次选择LiMain系统，该系统能够实现从岸上进行远程维护和监控，减少海上服务巡检的需求。
+今日稍早前，有报道显示，黄仁勋7日在首尔江南区的网吧先后会见韩国游戏公司KRAFTON创始人兼董事长蔣柄圭和游戏开发商NCSOFT代表金泽辰。
 
-RL 2600采用紧凑型设计，适用于空间受限的海上安装。
+据悉，当天黄仁勋和蔣柄圭可能就物理AI等人形机器人，以及基于英伟达近期发布的首款AI笔记本电脑系列“RTX Spark”的游戏领域合作等进行讨论。
 
-该起重机最大工作半径达45米，可处理重达25吨的载荷，为海上风电基础设施的维护和物流活动提供支持。
+KRAFTON长期与英伟达合作研发AI功能，并将其融入游戏之中。
 
-利勃海尔表示，该起重机的重量优化设计以及高品质材料的使用，旨在减少苛刻海上环境中的停机时间和维护需求。
+通过游戏结成的合作关系还推动了双方有关物理AI合作的讨论。
 
 ## 相关推荐
 
-- 2026-06-30 00:30 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 00:42 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 00:18 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 00:40 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 00:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 00:36 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 00:22 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 00:36 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 00:37 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 00:37 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 00:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 00:47 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 00:34 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 00:45 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 00:50 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 00:53 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 00:27 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 00:46 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 00:44 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 00:49 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 00:26 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-30 00:48 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 00:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 00:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 00:26 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 00:51 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 00:50 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 00:34 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/8722745785.shtml)
-- 2026-06-30 00:33 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/6337002.shtml)
-- 2026-06-30 00:46 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/961017068631.shtml)
-- 2026-06-30 00:38 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/7557795883.shtml)
-- 2026-06-30 00:23 - [东方风云榜](http://www.share.minike.top/Article/details/933843021.shtml)
-- 2026-06-30 00:29 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/3661541.shtml)
-- 2026-06-30 00:34 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/70489.shtml)
-- 2026-06-30 00:20 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/82284301760.shtml)
-- 2026-06-30 00:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/0786731056.shtml)
-- 2026-06-30 00:26 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/41161246738.shtml)
-- 2026-06-30 00:28 - [沙丘](https://www.share.kurohicncr.top/Article/details/0467685207.shtml)
-- 2026-06-30 00:31 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/7068087909.shtml)
-- 2026-06-30 00:18 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/4143649.shtml)
-- 2026-06-30 00:29 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/8486255676.shtml)
-- 2026-06-30 00:38 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/6149649.shtml)
+- 2026-06-30 00:50 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/698127128.shtml)
+- 2026-06-30 00:41 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/014404105234.shtml)
+- 2026-06-30 00:31 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/67022656732.shtml)
+- 2026-06-30 00:46 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/091354411.shtml)
+- 2026-06-30 00:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/0901575.shtml)
+- 2026-06-30 00:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/851295014.shtml)
+- 2026-06-30 00:40 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/04421188390.shtml)
+- 2026-06-30 00:29 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/80237054.shtml)
+- 2026-06-30 00:29 - [恋与深空致歉](http://www.share.minike.top/Article/details/656994.shtml)
+- 2026-06-30 00:51 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/90591618.shtml)
+- 2026-06-30 00:33 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/309775.shtml)
+- 2026-06-30 00:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/604810930.shtml)
+- 2026-06-30 00:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/386733.shtml)
+- 2026-06-30 00:51 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/56014995869.shtml)
+- 2026-06-30 00:49 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/93609014569.shtml)

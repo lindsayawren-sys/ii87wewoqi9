@@ -1,61 +1,57 @@
-# 手机屏刚换半个月就重影，商家说屏幕无质保 消费者如何维权？
+# 云南推42条惠企措施 民资参与铁路水电等项目持股可超10%
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-刚换半个月手机屏就重影 商家竟说屏幕无质保，消协提醒消费者需当心 扬子晚报讯(通讯员 陈红生 记者 姜天圣)“更换的手机屏才用了半个月，就出现了模糊不清、重影的问题，但商家却拒绝更换。”近日，镇江消费者张女士向12315热线投诉。 张女士投诉称，手机屏幕坏了，找了一家维修店更换。使用不久出现问题，找到商家检查后，商家承认屏幕损坏，但告知张女士更换的屏幕没有质保期限，只能花钱重新
+中新网昆明6月9日电 (陆希成)近日，云南省发展和改革委员会、云南省工业和信息化厅等十二部门联合印发《云南省进一步促进民间投资发展有关措施及任务分工》(以下简称《措施》)，推出42条举措，为民间资本进入重大项目、新兴领域拓宽准入，并在政府采购、融资等方面加大支持，以激发民间投资活力。在重大项目建设领域，《措施》明确，对需报国家审批(核准)、具有一定收益的铁路、水电、跨省跨区直流
 
 ## 正文
 
-刚换半个月手机屏就重影 商家竟说屏幕无质保，消协提醒消费者需当心 扬子晚报讯(通讯员 陈红生 记者 姜天圣)“更换的手机屏才用了半个月，就出现了模糊不清、重影的问题，但商家却拒绝更换。
+中新网昆明6月9日电 (陆希成)近日，云南省发展和改革委员会、云南省工业和信息化厅等十二部门联合印发《云南省进一步促进民间投资发展有关措施及任务分工》(以下简称《措施》)，推出42条举措，为民间资本进入重大项目、新兴领域拓宽准入，并在政府采购、融资等方面加大支持，以激发民间投资活力。
 
-”近日，镇江消费者张女士向12315热线投诉。
+在重大项目建设领域，《措施》明确，对需报国家审批(核准)、具有一定收益的铁路、水电、跨省跨区直流输电通道、油气管道、进口液化天然气接收和储运设施、供水等项目，鼓励民间资本参与，持股比例可在10%以上。
 
-张女士投诉称，手机屏幕坏了，找了一家维修店更换。
+在政府和社会资本合作领域，《措施》要求严格执行支持民营企业参与的特许经营项目清单，并针对民营企业独资或控股、股权占比不低于35%等领域项目，引导项目业主在特许经营方案、招标文件中合理设置民间资本参与的条件；严格审核特许经营方案中投向领域、使用者付费、民营企业参与等情况。
 
-使用不久出现问题，找到商家检查后，商家承认屏幕损坏，但告知张女士更换的屏幕没有质保期限，只能花钱重新换屏，费用为第一次换屏费用的一半。
+在政府采购领域，《措施》要求，超过400万元人民币、适宜中小企业的工程采购项目，严格按规定预留该部分采购项目预算总额的40%以上专门面向中小企业采购；并鼓励将民营企业的合同预付款比例提高至合同金额的30%以上。
 
-接到消费者投诉后，市场监管部门工作人员调查发现，该维修店无法提供手机屏幕的相关合格证明，且在维修前未明确告知张女士换屏的质保期限，存在违反《消法》等相关法律法规的行为，应当承担责任。
+在科技创新领域，《措施》提出多项举措：支持民营企业牵头承担省级重点研发计划项目；支持龙头民营企业牵头，联合高校、科研院所组建创新联合体申报国家重大科研项目；围绕新材料、新能源、生物医药、高原特色农业等云南重点产业，支持民营企业牵头或参与建设概念验证中心、中试基地(平台)；并整合国有企业、高校和科研院所等中试资源，支持有条件的单位结合实际面向民营企业提供试验验证、检验检测等市场化中试服务。
 
-经协调，双方成功和解。
+在低空经济领域，《措施》着眼打造“10分钟城区快送网、20分钟城郊配送网、30分钟城乡投送网”，鼓励民间资本投资建设货物集散地、维修保养站点等配套设施，并支持其在医院、景区、商圈、社区建设一批起降设施。
 
-那么，更换手机屏有没有统一的质保期限呢？
+在拓宽融资渠道方面，《措施》对民间投资项目的不动产投资信托基金(REITs)申报实行“靠前服务、主动协调、申报单列、加快审核”，帮助民营企业盘活存量资产、回笼资金；同时落实科技型企业上市融资、并购重组的“绿色通道”政策。
 
-镇江消协调查，各个手机厂家对手机“保内”“保外”换屏，都有相应的质保时长。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:39 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 00:23 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 00:24 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 00:28 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-30 00:30 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 00:33 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 00:29 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 00:41 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 00:29 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 00:19 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 00:43 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 00:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 00:22 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 00:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 00:36 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 00:28 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 00:50 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 00:46 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 00:43 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 00:51 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 00:37 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 00:33 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 00:43 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 00:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 00:37 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 00:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/871429.shtml)
-- 2026-06-30 00:44 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/799256.shtml)
-- 2026-06-30 00:28 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/61766.shtml)
-- 2026-06-30 00:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/83623155.shtml)
-- 2026-06-30 00:43 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/46562612.shtml)
-- 2026-06-30 00:18 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/172576360.shtml)
-- 2026-06-30 00:33 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/29365.shtml)
-- 2026-06-30 00:25 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/03971.shtml)
-- 2026-06-30 00:18 - [炽夏](http://www.share.minike.top/Article/details/91519.shtml)
-- 2026-06-30 00:21 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/04745606692.shtml)
-- 2026-06-30 00:30 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/91981425512.shtml)
-- 2026-06-30 00:25 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/052358.shtml)
-- 2026-06-30 00:47 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/1244785187.shtml)
-- 2026-06-30 00:40 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/0937882125.shtml)
-- 2026-06-30 00:40 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/91940.shtml)
+- 2026-06-30 00:39 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/27060.shtml)
+- 2026-06-30 00:32 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/681680.shtml)
+- 2026-06-30 00:29 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/70408.shtml)
+- 2026-06-30 00:26 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/30456882.shtml)
+- 2026-06-30 00:47 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/353380.shtml)
+- 2026-06-30 00:46 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/394155377.shtml)
+- 2026-06-30 00:50 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/6325815957.shtml)
+- 2026-06-30 00:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/89181.shtml)
+- 2026-06-30 00:47 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/920697301.shtml)
+- 2026-06-30 00:46 - [田曦薇没招了](https://www.share.minike.top/Article/details/48798.shtml)
+- 2026-06-30 00:50 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/72462.shtml)
+- 2026-06-30 00:29 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/60221637309.shtml)
+- 2026-06-30 00:50 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/973484233425.shtml)
+- 2026-06-30 00:32 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/79817.shtml)
+- 2026-06-30 00:33 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/98354.shtml)

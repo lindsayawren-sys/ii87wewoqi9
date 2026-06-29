@@ -1,48 +1,53 @@
-# 快讯：焦煤主力合约日内重挫7.99%，现报1340.50元/吨，触及跌停
+# 绝美！西藏昌都东坝乡这家民宿“藏”不住了
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-6月9日早盘，焦煤主力合约日内重挫7.99%，现报1340.50元/吨，触及跌停。责任编辑：朱赫楠
+发布时间：2026年06月08日 11:35 来源：中国新闻网 2026年是西藏和平解放75周年，滇藏公路通车50周年。近日，中国新闻社云南分社和西藏分社联合开展的“穿越横断山·同心启新篇”主题采访活动，走进西藏昌都市左贡县东坝乡，遇见一家藏在村子里的绝美民宿。 它原本是当地村民自住的房子，如今腾出房间接待游客。房子依着山势坐落，木门木窗保留着温润的原木色，墙面和梁柱上绘着传统
 
 ## 正文
 
-6月9日早盘，焦煤主力合约日内重挫7.99%，现报1340.50元/吨，触及跌停。
+发布时间：2026年06月08日 11:35 来源：中国新闻网 2026年是西藏和平解放75周年，滇藏公路通车50周年。
 
-责任编辑：朱赫楠
+近日，中国新闻社云南分社和西藏分社联合开展的“穿越横断山·同心启新篇”主题采访活动，走进西藏昌都市左贡县东坝乡，遇见一家藏在村子里的绝美民宿。
+
+它原本是当地村民自住的房子，如今腾出房间接待游客。
+
+房子依着山势坐落，木门木窗保留着温润的原木色，墙面和梁柱上绘着传统纹样。
+
+走进来，旅行就从“看风景”，变成了“住进风景里”。
+
+(骆忠华 王临梓) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 00:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 00:36 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 00:21 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 00:42 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 00:24 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 00:27 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 00:38 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 00:38 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-30 00:39 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 00:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 00:37 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 00:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 00:34 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 00:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 00:38 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 00:53 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 00:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 00:50 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 00:38 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 00:39 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 00:52 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 00:25 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 00:41 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 00:46 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 00:43 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/17513.shtml)
-- 2026-06-30 00:47 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/420006423191.shtml)
-- 2026-06-30 00:41 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/362242165.shtml)
-- 2026-06-30 00:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/54119155691.shtml)
-- 2026-06-30 00:40 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/84740.shtml)
-- 2026-06-30 00:29 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/8220173618.shtml)
-- 2026-06-30 00:41 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/20429560.shtml)
-- 2026-06-30 00:44 - [啊啊啊](http://www.share.minike.top/Article/details/9035495486.shtml)
-- 2026-06-30 00:32 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/688711.shtml)
-- 2026-06-30 00:23 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/81656.shtml)
-- 2026-06-30 00:24 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/28771274.shtml)
-- 2026-06-30 00:42 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/39314.shtml)
-- 2026-06-30 00:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/25362.shtml)
-- 2026-06-30 00:30 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/8619473155.shtml)
-- 2026-06-30 00:23 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/495480.shtml)
+- 2026-06-30 00:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/422891747430.shtml)
+- 2026-06-30 00:45 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/12837.shtml)
+- 2026-06-30 00:47 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/6537947.shtml)
+- 2026-06-30 00:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/70213.shtml)
+- 2026-06-30 00:28 - [肝不好身体这几处会“说话”](http://www.share.minike.top/Article/details/0455354031.shtml)
+- 2026-06-30 00:37 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/669728270.shtml)
+- 2026-06-30 00:29 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/803543308.shtml)
+- 2026-06-30 00:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/023323459315.shtml)
+- 2026-06-30 00:28 - [天道](https://www.blog.minike.top/Article/details/1954881660.shtml)
+- 2026-06-30 00:44 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/8569730.shtml)
+- 2026-06-30 00:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/45674.shtml)
+- 2026-06-30 00:53 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/2079125469.shtml)
+- 2026-06-30 00:51 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/035586.shtml)
+- 2026-06-30 00:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/26909309768.shtml)
+- 2026-06-30 00:53 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/9942640.shtml)

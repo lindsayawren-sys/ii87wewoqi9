@@ -1,61 +1,56 @@
-# 美国航空拒绝合并提议后，联合航空CEO看淡航空业并购浪潮
+# 习近平出席金正恩举行的欢迎仪式
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-核心要点 今年美国航空直接回绝合并提议后，联合航空首席执行官斯科特・柯比对外表示，美国航空业很难再有大规模整合机会，联合航空也无意主动推进并购交易。 周日，柯比在国际航空运输协会（IATA）年会间隙接受媒体采访时称：“联合航空不会为了并购而盲目并购。” 记者问及近年行业整合浪潮 —— 今年忠实航空、太阳乡村航空完成合并，2024 年阿拉斯加航空收购夏威夷航空，柯比直言后续几乎没
+新华社平壤6月8日电(记者朱基钗 郝薇薇)当地时间6月8日中午，朝鲜劳动党总书记、国务委员长金正恩在平壤金日成广场为中共中央总书记、国家主席习近平举行盛大欢迎仪式。 金日成广场正中悬挂着中朝两党两国最高领导人巨幅肖像，两旁以中朝双语书写的“朝中友谊万古长青”“牢不可破的朝中友谊团结万岁”标语格外醒目。两国国旗迎风飘展，欢迎人群兴高采烈、翘首以盼。 习近平和夫人彭丽媛乘车抵达时，
 
 ## 正文
 
-核心要点 今年美国航空直接回绝合并提议后，联合航空首席执行官斯科特・柯比对外表示，美国航空业很难再有大规模整合机会，联合航空也无意主动推进并购交易。
+新华社平壤6月8日电(记者朱基钗 郝薇薇)当地时间6月8日中午，朝鲜劳动党总书记、国务委员长金正恩在平壤金日成广场为中共中央总书记、国家主席习近平举行盛大欢迎仪式。
 
-周日，柯比在国际航空运输协会（IATA）年会间隙接受媒体采访时称：“联合航空不会为了并购而盲目并购。
+金日成广场正中悬挂着中朝两党两国最高领导人巨幅肖像，两旁以中朝双语书写的“朝中友谊万古长青”“牢不可破的朝中友谊团结万岁”标语格外醒目。
 
-” 记者问及近年行业整合浪潮 —— 今年忠实航空、太阳乡村航空完成合并，2024 年阿拉斯加航空收购夏威夷航空，柯比直言后续几乎没有可行的整合机会：“现在已经没有合适的并购标的了。
+两国国旗迎风飘展，欢迎人群兴高采烈、翘首以盼。
 
-” “如今并购的门槛比以往高得多。
+习近平和夫人彭丽媛乘车抵达时，马队骑兵列队迎接，军乐团奏欢迎曲。
 
-” 柯比表示，“我亲身主导过美国航空业多轮整合，经手大量并购项目。
+金正恩和夫人李雪主在广场迎接。
 
-这类交易推进难度极大，没有经济价值的并购完全没必要做。
+习近平夫妇和金正恩夫妇分别同对方陪同人员握手致意。
 
-” 柯比此前已多次否认收购合作方捷蓝航空的可能性。
+两党两国最高领导人共同登上检阅台，军乐团奏中朝两国国歌，鸣放礼炮21响。
 
-CNBC 此前报道，今年早些时候，曾在美国航空任职的柯比曾提出与美国航空合并的构想，并向特朗普政府试探可行性。
+习近平在金正恩陪同下，检阅朝鲜人民军三军仪仗队，仪仗队员用朝语高呼“祝习近平同志身体健康”。
 
 ## 相关推荐
 
-- 2026-06-30 00:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 00:32 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 00:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 00:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 00:19 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 00:19 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-30 00:26 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 00:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 00:45 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 00:47 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 00:35 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 00:36 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 00:31 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 00:38 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 00:31 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 00:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 00:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 00:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 00:35 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 00:37 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 00:49 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 00:48 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 00:40 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 00:41 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 00:37 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:18 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/383427303.shtml)
-- 2026-06-30 00:35 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/2721134418.shtml)
-- 2026-06-30 00:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/123052446011.shtml)
-- 2026-06-30 00:22 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/58457.shtml)
-- 2026-06-30 00:28 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/07100885.shtml)
-- 2026-06-30 00:21 - [炽夏](http://www.share.minike.top/Article/details/898134.shtml)
-- 2026-06-30 00:38 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/330956522.shtml)
-- 2026-06-30 00:41 - [85花告别古偶](https://www.blog.minike.top/Article/details/8097511.shtml)
-- 2026-06-30 00:33 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/795490724314.shtml)
-- 2026-06-30 00:47 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/14115.shtml)
-- 2026-06-30 00:31 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/63285184601.shtml)
-- 2026-06-30 00:23 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/07939.shtml)
-- 2026-06-30 00:41 - [东方风云榜直播](https://www.blog.minike.top/Article/details/5459300314.shtml)
-- 2026-06-30 00:22 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/81120.shtml)
-- 2026-06-30 00:19 - [沙丘](http://www.blog.kurohicncr.top/Article/details/99634.shtml)
+- 2026-06-30 00:34 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/64010347.shtml)
+- 2026-06-30 00:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/995024157434.shtml)
+- 2026-06-30 00:42 - [一见倾心](https://www.blog.minike.top/Article/details/035698671.shtml)
+- 2026-06-30 00:30 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/91410693.shtml)
+- 2026-06-30 00:36 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/4235015.shtml)
+- 2026-06-30 00:48 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/209259258.shtml)
+- 2026-06-30 00:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/00420.shtml)
+- 2026-06-30 00:39 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/461264818311.shtml)
+- 2026-06-30 00:47 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/43835834379.shtml)
+- 2026-06-30 00:30 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/5603247093.shtml)
+- 2026-06-30 00:29 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/31017437838.shtml)
+- 2026-06-30 00:40 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/3697624.shtml)
+- 2026-06-30 00:48 - [勇敢的心第二部](https://www.share.minike.top/Article/details/0385748.shtml)
+- 2026-06-30 00:42 - [炽夏](http://www.share.kurohicncr.top/Article/details/2722298380.shtml)
+- 2026-06-30 00:33 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/122423030411.shtml)

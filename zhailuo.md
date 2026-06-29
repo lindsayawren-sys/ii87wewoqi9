@@ -1,60 +1,58 @@
-# 我国旅居韩国大熊猫“华妮”产下一只雌性幼崽
+# 三名初中生被困贺兰山 银川消防历时近20小时将其救出
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新网6月10日电 据中国大熊猫保护研究中心微信公众号消息，当地时间6月3日上午10时53分，我国旅居韩国三星爱宝乐园的大熊猫“华妮”(即“爱宝”)产下1只170多克的雌性幼崽。这是自2016年开启为期15年的中韩大熊猫保护科研合作以来，在中韩双方专家共同努力下，“华妮”产下的第4只幼崽，也是中国大熊猫保护研究中心旅居海外大熊猫今年产下的第一只幼崽。“幼崽叫声洪亮，活力好。已有
+中新网银川6月8日电 (记者 杨迪)记者8日从银川市消防救援支队获悉，近日三名初中生被困贺兰山，银川消防历时近20小时将其救出。 6月6日21时59分，银川市消防救援支队指挥中心接到报警称：贺兰山一景区有三人被困。接到报警后，银川市消防救援支队迅速调动辖区文萃北街消防救援站，出动2车14人赶赴现场开展救援。 消防救援力量抵达现场后分为两队展开行动。第一队做好救援准备工作后立即进
 
 ## 正文
 
-中新网6月10日电 据中国大熊猫保护研究中心微信公众号消息，当地时间6月3日上午10时53分，我国旅居韩国三星爱宝乐园的大熊猫“华妮”(即“爱宝”)产下1只170多克的雌性幼崽。
+中新网银川6月8日电 (记者 杨迪)记者8日从银川市消防救援支队获悉，近日三名初中生被困贺兰山，银川消防历时近20小时将其救出。
 
-这是自2016年开启为期15年的中韩大熊猫保护科研合作以来，在中韩双方专家共同努力下，“华妮”产下的第4只幼崽，也是中国大熊猫保护研究中心旅居海外大熊猫今年产下的第一只幼崽。
+6月6日21时59分，银川市消防救援支队指挥中心接到报警称：贺兰山一景区有三人被困。
 
-“幼崽叫声洪亮，活力好。
+接到报警后，银川市消防救援支队迅速调动辖区文萃北街消防救援站，出动2车14人赶赴现场开展救援。
 
-已有经验的‘华妮’迅速抱崽，舔崽，带崽行为熟练平稳。
+消防救援力量抵达现场后分为两队展开行动。
 
-在爱宝乐园饲养员协助下，当日下午我两次辅助幼崽吃奶，确认幼崽已吸食到母乳。
+第一队做好救援准备工作后立即进山展开搜索，利用喊话器、无人机等设备在山中开展搜索。
 
-”专程前往韩国为“华妮”接生的中国大熊猫保护研究中心专家王平峰介绍。
+由于夜间能见度低，山区地形复杂被困人员无法准确描述自身位置，救援人员在山中搜寻一整夜，仍未发现三名学生的踪迹。
 
-2016年3月3日，承载着中韩人民的深厚友谊，中国大熊猫保护研究中心的雄性大熊猫“园欣”和雌性大熊猫“华妮”抵达韩国三星爱宝乐园，开启中韩大熊猫保护科研合作之旅。
+次日清晨，被困学生与家长取得联系，并通过手机发送了实时位置信息。
 
-10年来，中韩双方共同致力于大熊猫保护繁育、疾病防控、公众教育等科研和人文领域研究与发展，取得了积极成效，促进了两国濒危物种保护，增进了中韩人民友好感情。
+根据这一关键线索，第二队救援人员立即携带装备，按照定位进山展开第二轮搜寻。
 
 ## 相关推荐
 
-- 2026-06-30 00:20 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 00:20 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 00:28 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-30 00:38 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 00:25 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 00:24 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 00:27 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 00:33 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 00:28 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 00:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 00:37 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 00:37 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 00:48 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 00:37 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 00:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 00:38 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 00:35 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 00:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 00:46 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 00:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 00:45 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 00:29 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 00:49 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 00:31 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 00:28 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 00:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:44 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/949206500176.shtml)
-- 2026-06-30 00:41 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/9543859578.shtml)
-- 2026-06-30 00:30 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/4418346577.shtml)
-- 2026-06-30 00:26 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/98671.shtml)
-- 2026-06-30 00:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/78240464.shtml)
-- 2026-06-30 00:44 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/409756.shtml)
-- 2026-06-30 00:27 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/49437.shtml)
-- 2026-06-30 00:35 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/872663713.shtml)
-- 2026-06-30 00:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/7968386557.shtml)
-- 2026-06-30 00:46 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/45268648.shtml)
-- 2026-06-30 00:39 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/33564.shtml)
-- 2026-06-30 00:25 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/15385.shtml)
-- 2026-06-30 00:40 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/89486784.shtml)
-- 2026-06-30 00:26 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/8448084638.shtml)
-- 2026-06-30 00:38 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/70789.shtml)
+- 2026-06-30 00:45 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/15107.shtml)
+- 2026-06-30 00:52 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/17469900782.shtml)
+- 2026-06-30 00:27 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/209417950.shtml)
+- 2026-06-30 00:44 - [新官上任三把火](https://www.share.minike.top/Article/details/464529487018.shtml)
+- 2026-06-30 00:32 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/207047130033.shtml)
+- 2026-06-30 00:51 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/485738626.shtml)
+- 2026-06-30 00:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/4652482494.shtml)
+- 2026-06-30 00:34 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/555612.shtml)
+- 2026-06-30 00:25 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/32833.shtml)
+- 2026-06-30 00:34 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/059220.shtml)
+- 2026-06-30 00:42 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/0587085556.shtml)
+- 2026-06-30 00:47 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/12887.shtml)
+- 2026-06-30 00:47 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/05687566049.shtml)
+- 2026-06-30 00:25 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/959448605594.shtml)
+- 2026-06-30 00:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/6308815952.shtml)

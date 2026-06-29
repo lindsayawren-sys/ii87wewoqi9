@@ -1,59 +1,58 @@
-# 2026年上海市节能宣传周在沪开幕
+# 顶层设计出炉 私募基金监管迎来系统性升级
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新网上海6月9日电 (记者 郑莹莹)9日，2026年上海市节能宣传周开幕。活动通过启动绿洲全球可持续科技创新平台、推动长三角绿色低碳产业发展合作等举措，为长三角发展注入“绿色动能”。 绿洲全球可持续科技创新平台在现场启动。据上海天工产业绿色发展研究院执行院长陈元哲介绍，该平台一方面致力于梳理上海的绿色转型场景需求，面向全球征集绿色技术解决方案；另一方面旨在挖掘相关前沿绿色技术
+登录新浪财经APP 搜索【信披】查看更多考评等级 本文来源：经参证券 记者：吴黎华、罗逸姝 规模超23万亿元的私募基金行业迎来了“顶层设计”的纲领性文件。国务院办公厅日前印发《国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见》（以下简称《指导意见》）。《指导意见》坚持目标导向、问题导向，聚焦私募基金行业提质增效，着力加强部际央地监管协同，构建风险化解长效机制
 
 ## 正文
 
-中新网上海6月9日电 (记者 郑莹莹)9日，2026年上海市节能宣传周开幕。
+登录新浪财经APP 搜索【信披】查看更多考评等级 本文来源：经参证券 记者：吴黎华、罗逸姝 规模超23万亿元的私募基金行业迎来了“顶层设计”的纲领性文件。
 
-活动通过启动绿洲全球可持续科技创新平台、推动长三角绿色低碳产业发展合作等举措，为长三角发展注入“绿色动能”。
+国务院办公厅日前印发《国务院办公厅关于加强监管防范风险促进私募投资基金高质量发展的指导意见》（以下简称《指导意见》）。
 
-绿洲全球可持续科技创新平台在现场启动。
+《指导意见》坚持目标导向、问题导向，聚焦私募基金行业提质增效，着力加强部际央地监管协同，构建风险化解长效机制。
 
-据上海天工产业绿色发展研究院执行院长陈元哲介绍，该平台一方面致力于梳理上海的绿色转型场景需求，面向全球征集绿色技术解决方案；另一方面旨在挖掘相关前沿绿色技术，为其匹配上海乃至长三角的应用场景。
+业内人士指出，《指导意见》以“扶优限劣、去伪存真”为内核，标志着行业正式进入强监管、促发展并重的高质量发展新阶段。
 
-活动上，上海市经济和信息化委员会与长三角投资(上海)有限公司签署了《共同推动长三角绿色低碳产业发展合作协议》。
+锚定私募基金发展航向 来自中国证券投资基金业协会的数据显示，截至2026年4月末，共有存续私募基金142078只，存续基金规模23.46万亿元。
 
-双方将围绕场景共建、金融赋能等领域展开深度合作，共同打造立足长三角、汇聚全球绿色技术的创新枢纽。
+其中，存续私募证券投资基金82705只，存续规模7.85万亿元；存续私募股权投资基金29749只，存续规模11.38万亿元；存续创业投资基金28952只，存续规模3.96万亿元。
 
-数据显示，“十四五”期间，上海规上工业单位增加值能耗累计下降15.7%；上海累计创建国家级绿色工厂196家，重点用能单位绿色创建覆盖率达30%。
+在稳步发展的同时，私募基金行业也面临着一些突出问题，主要体现在：行业大而不强，募资结构失衡，部分国资基金偏离功能定位，募投管退各环节均有短板。
 
-本届上海市节能宣传周期间，主办方将组织350余项绿色主题活动，通过绿色嘉年华、沉浸式科普、低碳打卡等形式，推动节能降碳从倡导走向实践。
+证监会新闻发言人指出，《指导意见》作为私募基金领域“1+N+X”政策制度体系的纲领性文件，对下一步各项工作进行了全面系统部署，通过完善机制、补齐短板、加强协同，实现优化增量、盘活存量、扶优限劣、提质增效，推动私募基金行业在规范中发展，在发展中提升。
 
 ## 相关推荐
 
-- 2026-06-30 00:28 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 00:28 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 00:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 00:46 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 00:40 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 00:28 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 00:23 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 00:46 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 00:35 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 00:38 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-30 00:23 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 00:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 00:45 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 00:35 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 00:26 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 00:27 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 00:45 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 00:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 00:52 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 00:35 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 00:36 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 00:49 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 00:51 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 00:42 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 00:31 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:20 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/370971354.shtml)
-- 2026-06-30 00:26 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/48251194.shtml)
-- 2026-06-30 00:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/32795606.shtml)
-- 2026-06-30 00:22 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/338769956694.shtml)
-- 2026-06-30 00:33 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/67526.shtml)
-- 2026-06-30 00:19 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/17074461.shtml)
-- 2026-06-30 00:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/882785172542.shtml)
-- 2026-06-30 00:20 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/4939839333.shtml)
-- 2026-06-30 00:32 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/4471081817.shtml)
-- 2026-06-30 00:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/61907.shtml)
-- 2026-06-30 00:47 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/7057210.shtml)
-- 2026-06-30 00:24 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/829467496.shtml)
-- 2026-06-30 00:39 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/78409.shtml)
-- 2026-06-30 00:20 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/381675093416.shtml)
-- 2026-06-30 00:24 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/266329.shtml)
+- 2026-06-30 00:38 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/87901099.shtml)
+- 2026-06-30 00:42 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/10052572518.shtml)
+- 2026-06-30 00:43 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/994783325900.shtml)
+- 2026-06-30 00:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/05909823.shtml)
+- 2026-06-30 00:35 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/10825366.shtml)
+- 2026-06-30 00:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/770107.shtml)
+- 2026-06-30 00:45 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/05565701.shtml)
+- 2026-06-30 00:33 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/7505913.shtml)
+- 2026-06-30 00:51 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/80836578627.shtml)
+- 2026-06-30 00:38 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/79556152248.shtml)
+- 2026-06-30 00:47 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/625835949135.shtml)
+- 2026-06-30 00:46 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/3453636250.shtml)
+- 2026-06-30 00:42 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/778241.shtml)
+- 2026-06-30 00:40 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/9182388.shtml)
+- 2026-06-30 00:51 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/09693521.shtml)

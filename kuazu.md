@@ -1,52 +1,48 @@
-# 中软国际早盘高开逾5% 公司签订10亿元高端AI算力设备销售协议
+# “上下楼就是上下游” 探访雄安人工智能产业园
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中软国际（00354）早盘高开逾5%，截至发稿，股价上涨5.12%，现报4.11港元，成交额4504.50万港元。 中国软件国际发布公告，为推动集团高价值Token营运商业模式的探索与战略转型，与若干名独立第三方客户订立高端AI算力设备销售协议。集团将向客户供应高端AI算力设备及配套资源，合约总金额约10亿元人民币。相关设备将主要应用于客户人工智能研发、高性能计算及AI算力基础
+发布时间：2026年06月09日 17:08 来源：中国新闻网 在雄安新区启动区，一座以人工智能为主题的产业园已投用，该产业园将人工智能产业链上下游企业汇聚于一栋楼宇内：从算法开发、算力支撑到场景应用，不同细分领域的企业，在同一楼层或上下楼层之间完成日常协作。 记者在现场看到，雄安人工智能产业园既有大模型团队的研发工位，也有具身智能企业的测试场地，楼上开发算法、楼下验证应用，正
 
 ## 正文
 
-中软国际（00354）早盘高开逾5%，截至发稿，股价上涨5.12%，现报4.11港元，成交额4504.50万港元。
+发布时间：2026年06月09日 17:08 来源：中国新闻网 在雄安新区启动区，一座以人工智能为主题的产业园已投用，该产业园将人工智能产业链上下游企业汇聚于一栋楼宇内：从算法开发、算力支撑到场景应用，不同细分领域的企业，在同一楼层或上下楼层之间完成日常协作。
 
-中国软件国际发布公告，为推动集团高价值Token营运商业模式的探索与战略转型，与若干名独立第三方客户订立高端AI算力设备销售协议。
+记者在现场看到，雄安人工智能产业园既有大模型团队的研发工位，也有具身智能企业的测试场地，楼上开发算法、楼下验证应用，正在成为这里的工作常态。
 
-集团将向客户供应高端AI算力设备及配套资源，合约总金额约10亿元人民币。
-
-相关设备将主要应用于客户人工智能研发、高性能计算及AI算力基础设施建设场景。
-
-本次协议的落地，标志着集团AI基础设施业务取得重要商业化突破，亦代表集团高端AI算力板块已从战略布局阶段，正式迈入规模化市场落地阶段，并为集团带来可观的高端AI算力设备销售收入。
-
-责任编辑：卢昱君
+(邢璐 韩冰 赵荣昊 河北雄安报道） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 00:37 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 00:37 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 00:19 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 00:28 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 00:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 00:26 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 00:45 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 00:33 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 00:44 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 00:47 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 00:24 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 00:24 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 00:47 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 00:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 00:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 00:29 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 00:35 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 00:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 00:45 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 00:34 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 00:50 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:40 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/55831935.shtml)
-- 2026-06-30 00:34 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/43301089.shtml)
-- 2026-06-30 00:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/903373.shtml)
-- 2026-06-30 00:21 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/536340838107.shtml)
-- 2026-06-30 00:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/948694252522.shtml)
-- 2026-06-30 00:36 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/59041.shtml)
-- 2026-06-30 00:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/325088.shtml)
-- 2026-06-30 00:21 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/280450.shtml)
-- 2026-06-30 00:32 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/3314089.shtml)
-- 2026-06-30 00:29 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/0546355064.shtml)
-- 2026-06-30 00:38 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/80898707.shtml)
-- 2026-06-30 00:45 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/647824140260.shtml)
-- 2026-06-30 00:31 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/70390366.shtml)
-- 2026-06-30 00:21 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/560296933.shtml)
-- 2026-06-30 00:25 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/34303624255.shtml)
+- 2026-06-30 00:41 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/39667895106.shtml)
+- 2026-06-30 00:45 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/7885655.shtml)
+- 2026-06-30 00:39 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/626769560.shtml)
+- 2026-06-30 00:49 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/70547.shtml)
+- 2026-06-30 00:50 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/83630.shtml)
+- 2026-06-30 00:45 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/8836240024.shtml)
+- 2026-06-30 00:37 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/8252275.shtml)
+- 2026-06-30 00:30 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/53177984.shtml)
+- 2026-06-30 00:43 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/2461544869.shtml)
+- 2026-06-30 00:31 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/86590670323.shtml)
+- 2026-06-30 00:34 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/45621329.shtml)
+- 2026-06-30 00:39 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/69264127716.shtml)
+- 2026-06-30 00:44 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/01949970040.shtml)
+- 2026-06-30 00:26 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/3621616857.shtml)
+- 2026-06-30 00:44 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/2719665342.shtml)

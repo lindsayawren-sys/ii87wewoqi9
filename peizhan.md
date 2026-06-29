@@ -1,55 +1,50 @@
-# 守护碧海银滩 我国海洋生态经济协同发展
+# 印尼股市大跌 印尼盾兑美元汇率创历史新低
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-今年以来，我国多项海洋生态重点工程加快推进，首批“和美海岛”打造初见成效，生态优势持续转化为海洋经济发展优势。 自然资源部发布的《中国海洋生态预警监测公报》显示，2025年，我国珊瑚礁、海草床、红树林、海岛生态系统状况以优良为主。 在广西涠洲岛生态修复海域，培育成活的珊瑚群落，今年首次实现规模化自然排卵繁育，标志着人工修复海域已构建完整生态自愈体系。 今年以来，我国蓝色海湾整治
+随着印尼股市暴跌，印尼盾兑美元跌至历史新低。 美元/印尼盾上涨0.5%，至18105。 印尼股市一度下跌4%。责任编辑：陈钰嘉
 
 ## 正文
 
-今年以来，我国多项海洋生态重点工程加快推进，首批“和美海岛”打造初见成效，生态优势持续转化为海洋经济发展优势。
+随着印尼股市暴跌，印尼盾兑美元跌至历史新低。
 
-自然资源部发布的《中国海洋生态预警监测公报》显示，2025年，我国珊瑚礁、海草床、红树林、海岛生态系统状况以优良为主。
+美元/印尼盾上涨0.5%，至18105。
 
-在广西涠洲岛生态修复海域，培育成活的珊瑚群落，今年首次实现规模化自然排卵繁育，标志着人工修复海域已构建完整生态自愈体系。
+印尼股市一度下跌4%。
 
-今年以来，我国蓝色海湾整治、珊瑚礁修复等一批重点生态工程建设提速；与此同时，“和美海岛”创建示范也稳步推进，首批33个“和美海岛”初步形成岛绿、滩净、水清、物丰的“和美”新格局。
-
-良好的滨海生态资源，促进了海洋新兴产业发展。
-
-自然资源部海洋战略规划与经济司副司长 孟庆垒：1至4月，我国海洋经济向新向优发展，海洋客运量、海洋旅客周转量同比分别增长7.3%和11.1%；多款海洋新药获批临床试验。
-
-下一步，我们将坚决守好碧海银滩，进一步夯实海洋资源可持续利用的蓝色根基。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 00:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 00:39 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 00:18 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 00:22 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 00:31 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 00:32 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 00:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 00:31 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 00:37 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 00:40 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 00:29 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 00:46 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 00:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 00:39 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 00:35 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 00:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 00:42 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 00:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 00:25 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 00:27 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 00:32 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 00:49 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 00:49 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:35 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/043820.shtml)
-- 2026-06-30 00:33 - [一见倾心](http://www.share.kurohicncr.top/Article/details/1092036890.shtml)
-- 2026-06-30 00:21 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/895849.shtml)
-- 2026-06-30 00:33 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/9554661785.shtml)
-- 2026-06-30 00:37 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/6862652.shtml)
-- 2026-06-30 00:41 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/229266.shtml)
-- 2026-06-30 00:43 - [沙丘](http://www.blog.minike.top/Article/details/36568882.shtml)
-- 2026-06-30 00:30 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/69770596.shtml)
-- 2026-06-30 00:35 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/8643957909.shtml)
-- 2026-06-30 00:18 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/0262051753.shtml)
-- 2026-06-30 00:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/32660823506.shtml)
-- 2026-06-30 00:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/205829101328.shtml)
-- 2026-06-30 00:41 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/547899234.shtml)
-- 2026-06-30 00:29 - [世界杯](https://www.share.kurohicncr.top/Article/details/2309150549.shtml)
-- 2026-06-30 00:43 - [斗破苍穹](http://www.blog.minike.top/Article/details/641781043.shtml)
+- 2026-06-30 00:50 - [谁在推动“成都造”影视持续出圈](https://www.blog.minike.top/Article/details/316185389810.shtml)
+- 2026-06-30 00:38 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/094839095.shtml)
+- 2026-06-30 00:31 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/1221790752.shtml)
+- 2026-06-30 00:51 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/9408612825.shtml)
+- 2026-06-30 00:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/570583.shtml)
+- 2026-06-30 00:41 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/5505244316.shtml)
+- 2026-06-30 00:52 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/545670.shtml)
+- 2026-06-30 00:43 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/5545086.shtml)
+- 2026-06-30 00:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/5390515.shtml)
+- 2026-06-30 00:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/480382401416.shtml)
+- 2026-06-30 00:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/07052499.shtml)
+- 2026-06-30 00:38 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/559532.shtml)
+- 2026-06-30 00:26 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/6731140.shtml)
+- 2026-06-30 00:33 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/44390896047.shtml)
+- 2026-06-30 00:30 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/8031072.shtml)

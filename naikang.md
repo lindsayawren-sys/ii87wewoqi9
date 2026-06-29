@@ -1,61 +1,61 @@
-# 酒价内参6月10日价格发布：国窖1573上涨7元，连续两日反弹
+# 光模块再踩刹车，高“光”创业板人工智能ETF（159363）三连跌，情绪“错杀”还是行情见顶？机构火线解读
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月10日整体继续走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9881元，较昨日下跌14元，连续两日回调创五天来最低，已回落至近30天以来次低位，仅高于6月5日的9876元月低点。市场在6月8日阶段性反弹后再度承压，终端交投情绪仍偏谨慎，核心单品的涨跌分化度依然显著。 今日11大白酒单品
+周一（6月8日），A股震荡调整，创业板指跌超3%，全市场近4600只个股下跌。盘面上，光模块CPO等算力硬件调整，天孚通信下跌7%日线三连跌，新易盛下跌3%，中际旭创下跌2%。 热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）大幅低开后跌幅收窄，最终场内收跌3.97%，日线三连跌，单日成交17.69亿元。 今日AI板块下跌，或
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月10日整体继续走弱。
+周一（6月8日），A股震荡调整，创业板指跌超3%，全市场近4600只个股下跌。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9881元，较昨日下跌14元，连续两日回调创五天来最低，已回落至近30天以来次低位，仅高于6月5日的9876元月低点。
+盘面上，光模块CPO等算力硬件调整，天孚通信下跌7%日线三连跌，新易盛下跌3%，中际旭创下跌2%。
 
-市场在6月8日阶段性反弹后再度承压，终端交投情绪仍偏谨慎，核心单品的涨跌分化度依然显著。
+热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）大幅低开后跌幅收窄，最终场内收跌3.97%，日线三连跌，单日成交17.69亿元。
 
-今日11大白酒单品四涨七跌，输家占据明显上风。
+今日AI板块下跌，或主要受外部情绪扰动影响，但基本面核心逻辑未变，调整更多是结构性、情绪性的短期反应。
 
-上涨方面，国窖1573涨幅居前，上涨7元/瓶，连续两日反弹，但价格仍处于近30天低位区间；古井贡古20上涨3元/瓶；飞天茅台与五粮液1618均上涨2元/瓶，其中前者收获五连阳，价格升至近30天次高位，后者回补了昨日全部跌幅，自昨日的近一月最低点小幅反弹。
+从直接原因看，消息面上，6月5日美股上演“黑色星期五”，科技股普遍调整。
 
-下跌方面，习酒君品跌幅居前，下跌6元/瓶，连续三日大幅下探，创近30天最低价，近一个月其价格中枢持续下移；青花汾20与青花郎均下跌5元/瓶，其中前者平近30天最低价，后者终结此前两日连续反弹强势；精品茅台与五粮液普五八代均下跌4元/瓶，其中前者连续两日回调，此前快速反弹势头消退，后者连续两日回落，今日价格804元仅略高于6月5日创下的近一月最低点801元；洋河梦之蓝M6+与水晶剑南春均下跌2元/瓶，其中前者创近30天最低价。
+背后有两重触发因素：一是美股AI芯片龙头博通业绩不及预期，二是美国强劲的非农数据推升流动性紧缩预期。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+兴业证券对此轮调整的定性认为，本轮调整并非支撑行情的核心逻辑发生变化，更多是情绪层面的扰动，且影响偏结构。
 
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+近期的外部扰动并不能改变、反而有望更加强化A股盈利驱动的底层逻辑。
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 00:31 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 00:21 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 00:27 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 00:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 00:41 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 00:41 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 00:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 00:30 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 00:43 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 00:45 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 00:47 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 00:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 00:20 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 00:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 00:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 00:44 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 00:33 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 00:44 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 00:42 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 00:46 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 00:37 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 00:27 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 00:52 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 00:24 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 00:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 00:51 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 00:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 00:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 00:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:22 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/69772090.shtml)
-- 2026-06-30 00:33 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/0360349595.shtml)
-- 2026-06-30 00:22 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/217417.shtml)
-- 2026-06-30 00:26 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/774680307.shtml)
-- 2026-06-30 00:27 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/518201355.shtml)
-- 2026-06-30 00:46 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/34738330267.shtml)
-- 2026-06-30 00:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/5062983.shtml)
-- 2026-06-30 00:45 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/96293.shtml)
-- 2026-06-30 00:18 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/5288093423.shtml)
-- 2026-06-30 00:46 - [沙丘](http://www.share.minike.top/Article/details/909581635.shtml)
-- 2026-06-30 00:33 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/11391.shtml)
-- 2026-06-30 00:47 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/61896459.shtml)
-- 2026-06-30 00:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/472087947.shtml)
-- 2026-06-30 00:32 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/77842.shtml)
-- 2026-06-30 00:45 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/16946597.shtml)
+- 2026-06-30 00:27 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/056261782.shtml)
+- 2026-06-30 00:36 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/0142175.shtml)
+- 2026-06-30 00:52 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/204551.shtml)
+- 2026-06-30 00:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/857576706866.shtml)
+- 2026-06-30 00:44 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/865259.shtml)
+- 2026-06-30 00:36 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/62317060113.shtml)
+- 2026-06-30 00:52 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/756855605803.shtml)
+- 2026-06-30 00:35 - [刘念回应](https://www.share.minike.top/Article/details/49132456337.shtml)
+- 2026-06-30 00:53 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/44533974307.shtml)
+- 2026-06-30 00:52 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/11914248.shtml)
+- 2026-06-30 00:27 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/74283069227.shtml)
+- 2026-06-30 00:30 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/24168538.shtml)
+- 2026-06-30 00:46 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/955437325003.shtml)
+- 2026-06-30 00:37 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/03625361.shtml)
+- 2026-06-30 00:25 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/474072975.shtml)

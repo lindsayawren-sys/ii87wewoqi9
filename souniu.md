@@ -1,51 +1,47 @@
-# 江西省赣江新区党工委原委员许斌被“双开”
+# 苏拉威西海发生6.6级地震 震源深度60千米
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新网6月9日电 据江西省纪委监委消息：经中共江西省委批准，江西省纪委监委对赣江新区党工委原委员、管委会原副主任许斌严重违纪违法问题进行了立案审查调查。 经查，许斌身为党员领导干部，丧失理想信念，背弃初心使命，对抗组织审查；无视中央八项规定精神，接受可能影响公正执行公务的宴请，违规收受礼品礼金；组织原则缺失，在组织谈话时不如实说明问题，在干部选拔任用工作中为他人谋取利益并收受财
+中新网6月8日电 中国地震台网正式测定：06月08日08时55分在苏拉威西海(北纬5.45度，东经125.30度)发生6.6级地震，震源深度60千米。
 
 ## 正文
 
-中新网6月9日电 据江西省纪委监委消息：经中共江西省委批准，江西省纪委监委对赣江新区党工委原委员、管委会原副主任许斌严重违纪违法问题进行了立案审查调查。
-
-经查，许斌身为党员领导干部，丧失理想信念，背弃初心使命，对抗组织审查；无视中央八项规定精神，接受可能影响公正执行公务的宴请，违规收受礼品礼金；组织原则缺失，在组织谈话时不如实说明问题，在干部选拔任用工作中为他人谋取利益并收受财物；廉洁底线失守，通过民间借贷获取大额回报，违规从事营利活动；干预和插手市场经济活动；利用职务上的便利，为他人在企业经营、项目承揽、职务调整等方面谋取利益，非法收受他人巨额财物；滥用职权，致使公共财产遭受重大损失。
-
-许斌严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律和生活纪律，构成严重职务违法并涉嫌受贿、滥用职权犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
-
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等相关规定，经江西省纪委常委会会议研究并报中共江西省委批准，决定给予许斌开除党籍处分；由江西省监委给予其开除公职处分；收缴其违纪违法所得；终止其江西省第十五次党代会代表资格；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+中新网6月8日电 中国地震台网正式测定：06月08日08时55分在苏拉威西海(北纬5.45度，东经125.30度)发生6.6级地震，震源深度60千米。
 
 ## 相关推荐
 
-- 2026-06-30 00:34 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 00:32 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 00:29 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 00:46 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 00:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 00:18 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 00:31 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 00:37 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 00:24 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 00:38 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 00:35 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 00:34 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 00:32 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 00:30 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 00:26 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 00:41 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 00:36 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 00:24 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 00:46 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 00:30 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 00:29 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 00:31 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 00:38 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 00:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 00:38 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 00:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 00:43 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 00:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:24 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/27950.shtml)
-- 2026-06-30 00:25 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/099880.shtml)
-- 2026-06-30 00:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/010417.shtml)
-- 2026-06-30 00:28 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/33519300908.shtml)
-- 2026-06-30 00:45 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/16028501.shtml)
-- 2026-06-30 00:41 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/97296753192.shtml)
-- 2026-06-30 00:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/758354762195.shtml)
-- 2026-06-30 00:20 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/350394915986.shtml)
-- 2026-06-30 00:47 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/3474820.shtml)
-- 2026-06-30 00:46 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/55215913.shtml)
-- 2026-06-30 00:37 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/43535.shtml)
-- 2026-06-30 00:29 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/856835.shtml)
-- 2026-06-30 00:32 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/7882512278.shtml)
-- 2026-06-30 00:41 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/39634665.shtml)
-- 2026-06-30 00:35 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/55277.shtml)
+- 2026-06-30 00:48 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/75861451500.shtml)
+- 2026-06-30 00:45 - [世界杯](https://www.share.minike.top/Article/details/459549.shtml)
+- 2026-06-30 00:29 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/9838658941.shtml)
+- 2026-06-30 00:38 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/813407517.shtml)
+- 2026-06-30 00:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/59361683.shtml)
+- 2026-06-30 00:52 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/720300999887.shtml)
+- 2026-06-30 00:53 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/19377.shtml)
+- 2026-06-30 00:30 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/602171685.shtml)
+- 2026-06-30 00:28 - [啊啊啊](https://www.blog.minike.top/Article/details/8968846.shtml)
+- 2026-06-30 00:38 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/47130.shtml)
+- 2026-06-30 00:30 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/77632.shtml)
+- 2026-06-30 00:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/40798.shtml)
+- 2026-06-30 00:53 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/34605.shtml)
+- 2026-06-30 00:43 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/780755.shtml)
+- 2026-06-30 00:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/0867667628.shtml)

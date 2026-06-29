@@ -1,60 +1,61 @@
-# Verra Mobility遭Avis解约及CEO离职，面临证券集体诉讼
+# 黄仁勋：存储短缺未见结束迹象，AI硬件短线跳水，科创芯片ETF华宝重挫5%，机构:宏观冲击创造更好的买入机会
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-智能出行技术提供商Verra Mobility正遭遇多重危机。在收到最大商业客户之一Avis Budget Group的合同终止通知、首席执行官离职以及对双方谈判与机密信息处理展开内部审查后，公司目前面临证券欺诈集体诉讼。 诉讼旨在代表在2026年2月24日至5月26日期间购买Verra Mobility股票的投资者。首席原告申请截止日期为2026年8月4日。 事件于2026年
+上周五强劲的美国就业数据提升了美联储加息的预期，并重创美国科技股。另外，伊朗6月7日向以色列发射多波导弹，对中东局势的不确定性也令市场承压。 6月8日，A股三大指数集体低开，半导体、算力硬件产业链大幅回调，全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格一度重挫5%，现跌2.71%。板块个股跌多涨少，佰维存储跌超6%，中心国际跌超3%，海光信息、寒武纪跌逾2%。
 
 ## 正文
 
-智能出行技术提供商Verra Mobility正遭遇多重危机。
+上周五强劲的美国就业数据提升了美联储加息的预期，并重创美国科技股。
 
-在收到最大商业客户之一Avis Budget Group的合同终止通知、首席执行官离职以及对双方谈判与机密信息处理展开内部审查后，公司目前面临证券欺诈集体诉讼。
+另外，伊朗6月7日向以色列发射多波导弹，对中东局势的不确定性也令市场承压。
 
-诉讼旨在代表在2026年2月24日至5月26日期间购买Verra Mobility股票的投资者。
+6月8日，A股三大指数集体低开，半导体、算力硬件产业链大幅回调，全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格一度重挫5%，现跌2.71%。
 
-首席原告申请截止日期为2026年8月4日。
+板块个股跌多涨少，佰维存储跌超6%，中心国际跌超3%，海光信息、寒武纪跌逾2%。
 
-事件于2026年5月26日曝光。
+招商证券表示，市场短线回调仅仅是一次流动性冲击，而非AI泡沫的破裂，中期来看，当前尚不到市场风格或主线切换的时点，6月下旬随着市场逐渐进入中报交易窗口，业绩确定性强、景气度最高的科技有望继续占优。
 
-Verra Mobility披露已收到Avis的合同终止通知，该合同将于2026年9月生效。
+光大证券也认为市场大方向仍然有望上行：基本面仍然是背后最为稳健的支撑，其中价格仍然是主要变化因素；AI产业趋势方兴未艾，在基本面未有明显扰动背景下，股价仍有上行空间，宏观因素冲击反而将创造出更好的买入机会。
 
-Avis贡献了公司总收入的10%以上，并在其利润率最高的商业服务部门中占据不成比例的利润份额。
+板块消息面上，英伟达和SK海力士宣布达成一项多年技术合作协议，将共同开发用于英伟达Vera Rubin人工智能超级计算机、英伟达Vera CPU，英伟达RTX Spark PC以及英伟达Jetson Thor机器人计算平台的内存，并将AI技术应用于半导体芯片设计与制造。
 
-此次解约预计将使商业服务收入减少1.35亿至1.45亿美元。
+黄仁勋表示，看不到存储芯片短缺问题的结束迹象。
 
 ## 相关推荐
 
-- 2026-06-30 00:46 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 00:29 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 00:34 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 00:19 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 00:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 00:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 00:44 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 00:33 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 00:37 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 00:34 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 00:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 00:39 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 00:39 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 00:40 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 00:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 00:39 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 00:41 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 00:33 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 00:24 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 00:32 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 00:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 00:43 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 00:28 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 00:52 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 00:34 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 00:44 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 00:29 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 00:52 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 00:41 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:44 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/84531833.shtml)
-- 2026-06-30 00:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/68703.shtml)
-- 2026-06-30 00:43 - [沙丘](https://www.share.minike.top/Article/details/1300337534.shtml)
-- 2026-06-30 00:27 - [毒液2](http://www.blog.kurohicncr.top/Article/details/7456604.shtml)
-- 2026-06-30 00:27 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/3545902.shtml)
-- 2026-06-30 00:33 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/46008.shtml)
-- 2026-06-30 00:36 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/82452.shtml)
-- 2026-06-30 00:46 - [美股](http://www.share.kurohicncr.top/Article/details/94956508571.shtml)
-- 2026-06-30 00:46 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/97889.shtml)
-- 2026-06-30 00:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/3413256.shtml)
-- 2026-06-30 00:34 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/7882782009.shtml)
-- 2026-06-30 00:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/2145835260.shtml)
-- 2026-06-30 00:46 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/94518.shtml)
-- 2026-06-30 00:42 - [月亮](http://www.blog.kurohicncr.top/Article/details/46564742019.shtml)
-- 2026-06-30 00:23 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/13157.shtml)
+- 2026-06-30 00:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/86889.shtml)
+- 2026-06-30 00:39 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/39862932257.shtml)
+- 2026-06-30 00:49 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/2162261.shtml)
+- 2026-06-30 00:52 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/350572320.shtml)
+- 2026-06-30 00:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/5349267832.shtml)
+- 2026-06-30 00:43 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/349002.shtml)
+- 2026-06-30 00:50 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/947086.shtml)
+- 2026-06-30 00:39 - [TOP Prada](http://www.share.minike.top/Article/details/081672063.shtml)
+- 2026-06-30 00:47 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/34704348.shtml)
+- 2026-06-30 00:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/253755825.shtml)
+- 2026-06-30 00:37 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/2169605.shtml)
+- 2026-06-30 00:44 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/246862391962.shtml)
+- 2026-06-30 00:34 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/093666.shtml)
+- 2026-06-30 00:40 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/414519011.shtml)
+- 2026-06-30 00:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/6010094.shtml)

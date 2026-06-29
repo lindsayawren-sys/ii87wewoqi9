@@ -1,61 +1,51 @@
-# 庞巴迪承诺投资1亿新元扩建新加坡公务机枢纽
+# 伊朗称美国应对以色列的行动和地区紧张局势负责
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-加拿大飞机制造商庞巴迪近日宣布，计划投资约1亿新元，扩建其位于新加坡实里达航空园的服务中心，新建一座面积约25万平方英尺的设施，并创造约200个高技能工作岗位。 此次扩建是庞巴迪自2014年在新加坡设立服务中心以来的第三轮投资。新设施将包括飞机库、营运支援和飞机重新整装设施、客户服务区以及组件维修与大修车间，提供从计划内及计划外维护、改装、航电安装到24小时飞机停场支援的全方位
+伊朗外交部发言人伊斯梅尔·巴加埃在每周例行记者会上表示，伊朗认为美国应该对以色列的行为以及由此导致的地区紧张局势升级负责。 他表示，美国在火炮和防空等领域与以色列进行合作与协调。 他还称，伊朗与美国之间的信息交流是在一种深度不信任的氛围中进行的。 此外，巴加埃补充说，伊朗不会允许以色列扩大其行动。 推荐阅读：伊朗和以色列互射导弹 危及特朗普的和平谈判责任编辑：刘明亮
 
 ## 正文
 
-加拿大飞机制造商庞巴迪近日宣布，计划投资约1亿新元，扩建其位于新加坡实里达航空园的服务中心，新建一座面积约25万平方英尺的设施，并创造约200个高技能工作岗位。
+伊朗外交部发言人伊斯梅尔·巴加埃在每周例行记者会上表示，伊朗认为美国应该对以色列的行为以及由此导致的地区紧张局势升级负责。
 
-此次扩建是庞巴迪自2014年在新加坡设立服务中心以来的第三轮投资。
+他表示，美国在火炮和防空等领域与以色列进行合作与协调。
 
-新设施将包括飞机库、营运支援和飞机重新整装设施、客户服务区以及组件维修与大修车间，提供从计划内及计划外维护、改装、航电安装到24小时飞机停场支援的全方位服务。
+他还称，伊朗与美国之间的信息交流是在一种深度不信任的氛围中进行的。
 
-新设施预计于2028年下半年投入运营。
+此外，巴加埃补充说，伊朗不会允许以色列扩大其行动。
 
-庞巴迪售后服务与飞机销售执行副总裁Paul Sislian表示，新加坡服务中心长期以来一直是亚太地区服务与支持的基石，每年为约2000架飞机提供支持。
-
-此次扩建将巩固公司在亚太地区的服务网络布局，提升对区域内客户的服务能力。
-
-此次扩产的背景是亚太地区公务机需求持续攀升。
-
-庞巴迪在今年4月报告了超过200亿美元的创纪录订单积压量，其中约10%来自亚太地区。
+推荐阅读：伊朗和以色列互射导弹 危及特朗普的和平谈判责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 00:45 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 00:46 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 00:26 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 00:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 00:36 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 00:45 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 00:29 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 00:46 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 00:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 00:41 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 00:28 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 00:19 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 00:24 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 00:26 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 00:38 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 00:31 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 00:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 00:27 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 00:45 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 00:25 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 00:43 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 00:34 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 00:53 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 00:28 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 00:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 00:50 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/49891982676.shtml)
-- 2026-06-30 00:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/42805762.shtml)
-- 2026-06-30 00:23 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/86764744673.shtml)
-- 2026-06-30 00:43 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/68775.shtml)
-- 2026-06-30 00:39 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/81166193971.shtml)
-- 2026-06-30 00:21 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/248420496.shtml)
-- 2026-06-30 00:39 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/09357041931.shtml)
-- 2026-06-30 00:22 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/443710175.shtml)
-- 2026-06-30 00:29 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/939504639499.shtml)
-- 2026-06-30 00:20 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/109999689348.shtml)
-- 2026-06-30 00:45 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/872664.shtml)
-- 2026-06-30 00:36 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/986815843006.shtml)
-- 2026-06-30 00:42 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/9012677.shtml)
-- 2026-06-30 00:30 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/57983928725.shtml)
-- 2026-06-30 00:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/5809868.shtml)
+- 2026-06-30 00:29 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/4647413.shtml)
+- 2026-06-30 00:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/8681593.shtml)
+- 2026-06-30 00:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/924823536.shtml)
+- 2026-06-30 00:38 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/993252890637.shtml)
+- 2026-06-30 00:37 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/86323.shtml)
+- 2026-06-30 00:50 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/780254.shtml)
+- 2026-06-30 00:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/62296251278.shtml)
+- 2026-06-30 00:41 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/7379381853.shtml)
+- 2026-06-30 00:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/8098407.shtml)
+- 2026-06-30 00:52 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/417089625.shtml)
+- 2026-06-30 00:33 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/60268.shtml)
+- 2026-06-30 00:53 - [乔家的儿女](https://www.share.minike.top/Article/details/29149.shtml)
+- 2026-06-30 00:39 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/3262648518.shtml)
+- 2026-06-30 00:47 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/13523336.shtml)
+- 2026-06-30 00:36 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/3256573928.shtml)

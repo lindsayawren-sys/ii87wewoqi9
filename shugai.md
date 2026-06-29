@@ -1,47 +1,56 @@
-# 华勤技术遭富国基金管理有限公司减持约33.73万股 每股作价约95.22港元
+# 日本加息预期升温，美元兑日元站稳160关口
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月4日，富国基金管理有限公司减持华勤技术（03296）33.7335万股，每股作价95.2238港元，总金额约为3212.23万港元。减持后最新持股数目约为542.18万股，最新持股比例为5.75%。责任编辑：卢昱君
+汇通财经APP讯——亚洲交易时段，美元兑日元维持高位整理走势，汇价运行于160.30附近。尽管日本公布的一系列经济数据表现强劲，但市场对于美国利率维持高位的预期以及避险资金流向美元，令日元升值空间受到明显限制。 当前市场最关注的焦点依然是美元兑日元持续运行在160整数关口上方所带来的政策风险。过去一年，日本财务省曾多次在类似水平附近采取汇市干预措施，因此投资者对于官方可能再次出
 
 ## 正文
 
-香港联交所最新数据显示，6月4日，富国基金管理有限公司减持华勤技术（03296）33.7335万股，每股作价95.2238港元，总金额约为3212.23万港元。
+汇通财经APP讯——亚洲交易时段，美元兑日元维持高位整理走势，汇价运行于160.30附近。
 
-减持后最新持股数目约为542.18万股，最新持股比例为5.75%。
+尽管日本公布的一系列经济数据表现强劲，但市场对于美国利率维持高位的预期以及避险资金流向美元，令日元升值空间受到明显限制。
 
-责任编辑：卢昱君
+当前市场最关注的焦点依然是美元兑日元持续运行在160整数关口上方所带来的政策风险。
+
+过去一年，日本财务省曾多次在类似水平附近采取汇市干预措施，因此投资者对于官方可能再次出手稳定汇率保持高度警惕。
+
+从最新公布的数据来看，日本经济表现明显好于市场预期。
+
+数据显示，日本2026年第一季度国内生产总值（GDP）季率增长0.5%，高于市场预期的0.3%，同时较上一季度的0.2%进一步加快，创下自2025年初以来最强季度增长表现。
+
+按年化计算，日本第一季度GDP增长率达到1.8%。
+
+虽然略低于此前初值预估的2.1%，但仍显著高于市场预测的1.3%，同时远高于前值修正后的0.7%。
 
 ## 相关推荐
 
-- 2026-06-30 00:22 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 00:34 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 00:34 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 00:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 00:41 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 00:34 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 00:41 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 00:38 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 00:19 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 00:19 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 00:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 00:30 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 00:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 00:25 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 00:48 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 00:51 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 00:41 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 00:41 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 00:45 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 00:49 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 00:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/67732.shtml)
-- 2026-06-30 00:37 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/61697.shtml)
-- 2026-06-30 00:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/697373814797.shtml)
-- 2026-06-30 00:47 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/04133455018.shtml)
-- 2026-06-30 00:43 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/28351698.shtml)
-- 2026-06-30 00:18 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/397626303811.shtml)
-- 2026-06-30 00:44 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/19499892.shtml)
-- 2026-06-30 00:35 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/86426794743.shtml)
-- 2026-06-30 00:42 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/228715.shtml)
-- 2026-06-30 00:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/781231821.shtml)
-- 2026-06-30 00:20 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/8564865011.shtml)
-- 2026-06-30 00:30 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/326257022245.shtml)
-- 2026-06-30 00:37 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/90105734744.shtml)
-- 2026-06-30 00:37 - [锐评T1零封KC](http://www.share.minike.top/Article/details/027827.shtml)
-- 2026-06-30 00:21 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/713666990.shtml)
+- 2026-06-30 00:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/6520983062.shtml)
+- 2026-06-30 00:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/473557.shtml)
+- 2026-06-30 00:51 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/409011413.shtml)
+- 2026-06-30 00:29 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/883857863.shtml)
+- 2026-06-30 00:48 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/70010210598.shtml)
+- 2026-06-30 00:31 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/71343986.shtml)
+- 2026-06-30 00:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/98002407502.shtml)
+- 2026-06-30 00:31 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/94004288.shtml)
+- 2026-06-30 00:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/17536.shtml)
+- 2026-06-30 00:45 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/35632126.shtml)
+- 2026-06-30 00:52 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/594586.shtml)
+- 2026-06-30 00:52 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/967464563851.shtml)
+- 2026-06-30 00:37 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/71888.shtml)
+- 2026-06-30 00:52 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/750591267058.shtml)
+- 2026-06-30 00:45 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/05432718.shtml)

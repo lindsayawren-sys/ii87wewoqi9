@@ -1,43 +1,56 @@
-# 古巴西部海域5.8级地震 加勒比地区罕见
+# 伊朗和以色列互射导弹 特朗普呼吁结束战斗
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月10日 14:03 来源：央视新闻 责任编辑：【李骏】
+美国总统唐纳德·特朗普敦促以色列和伊朗迅速停止相互攻击，这是他在不到一天时间内第二次发出呼吁，他正努力防止这场冲突破坏与德黑兰的谈判进程。 “以色列和伊朗必须立即停止‘交火’，”特朗普周一在Truth Social上发文称。此前，以色列和伊朗已展开数轮报复性袭击。 伊朗于周日和周一向以色列发射多轮弹道导弹，而以色列则对伊朗西部和中部的军事目标发动打击作为回应。 以色列在周一早些
 
 ## 正文
 
-发布时间：2026年06月10日 14:03 来源：央视新闻 责任编辑：【李骏】
+美国总统唐纳德·特朗普敦促以色列和伊朗迅速停止相互攻击，这是他在不到一天时间内第二次发出呼吁，他正努力防止这场冲突破坏与德黑兰的谈判进程。
+
+“以色列和伊朗必须立即停止‘交火’，”特朗普周一在Truth Social上发文称。
+
+此前，以色列和伊朗已展开数轮报复性袭击。
+
+伊朗于周日和周一向以色列发射多轮弹道导弹，而以色列则对伊朗西部和中部的军事目标发动打击作为回应。
+
+以色列在周一早些时候发动的攻势中，还袭击了位于马赫沙赫尔的伊朗Karun石化公司。
+
+据伊朗报道，伊朗警告称，如果针对其能源基础设施的袭击持续下去，伊朗将打击与以色列、美国及其地区盟友有关的所有石油和天然气设施。
+
+伊朗是在以色列空袭黎巴嫩首都贝鲁特后发动此次攻势的。
+
+这也是德黑兰罕见地直接出手支持其盟友武装组织真主党的例证之一。
 
 ## 相关推荐
 
-- 2026-06-30 00:19 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 00:29 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 00:39 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 00:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 00:21 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 00:46 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 00:19 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 00:28 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 00:48 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 00:45 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 00:30 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 00:42 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 00:53 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 00:39 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 00:43 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 00:26 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 00:41 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-30 00:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 00:27 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 00:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 00:38 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/647387188.shtml)
-- 2026-06-30 00:43 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/4382084.shtml)
-- 2026-06-30 00:40 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/207835.shtml)
-- 2026-06-30 00:46 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/5755277.shtml)
-- 2026-06-30 00:41 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/0689483.shtml)
-- 2026-06-30 00:20 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/54039258.shtml)
-- 2026-06-30 00:31 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/5734350102.shtml)
-- 2026-06-30 00:23 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/89181685.shtml)
-- 2026-06-30 00:36 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/201588377.shtml)
-- 2026-06-30 00:27 - [速度与激情9](http://www.blog.minike.top/Article/details/571421.shtml)
-- 2026-06-30 00:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/19092787.shtml)
-- 2026-06-30 00:36 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/510885.shtml)
-- 2026-06-30 00:42 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/58471930.shtml)
-- 2026-06-30 00:47 - [急先锋](http://www.blog.minike.top/Article/details/40252033.shtml)
-- 2026-06-30 00:31 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/5438054786.shtml)
+- 2026-06-30 00:37 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/91468912.shtml)
+- 2026-06-30 00:45 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/236274.shtml)
+- 2026-06-30 00:35 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/3939740.shtml)
+- 2026-06-30 00:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/5516390241.shtml)
+- 2026-06-30 00:27 - [一生一世](http://www.share.minike.top/Article/details/35223556.shtml)
+- 2026-06-30 00:46 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/051119.shtml)
+- 2026-06-30 00:47 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/95712790.shtml)
+- 2026-06-30 00:28 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/27088.shtml)
+- 2026-06-30 00:47 - [恋与深空 日服](http://www.blog.minike.top/Article/details/846774718112.shtml)
+- 2026-06-30 00:31 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/37653606353.shtml)
+- 2026-06-30 00:45 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/570505359347.shtml)
+- 2026-06-30 00:50 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/69594187253.shtml)
+- 2026-06-30 00:29 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/850945.shtml)
+- 2026-06-30 00:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/88648.shtml)
+- 2026-06-30 00:27 - [一生一世](https://www.share.minike.top/Article/details/759265189469.shtml)

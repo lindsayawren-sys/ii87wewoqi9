@@ -1,58 +1,47 @@
-# 金价大跌！金饰克价跌破1300元
+# 国家层面首次系统性部署高质量数据集建设
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-北京时间10日上午，现货黄金持续下挫，盘中一度跌破4200美元。截至发稿，报4174美元/盎司，已连续4个交易日下跌，跌近300美元。较年内高点已跌约1400美元。 受此影响，6月10日，国内多家品牌金饰价格大幅下调，集体跌破1300元/克。周生生足金饰品报1277元/克，较前一日1322元/克大跌45元；老庙黄金足金饰品报1283元/克，相较前一日1317元/克大跌34元；老
+发布时间：2026年06月09日 10:17 来源：央视新闻 责任编辑：【李骏】
 
 ## 正文
 
-北京时间10日上午，现货黄金持续下挫，盘中一度跌破4200美元。
-
-截至发稿，报4174美元/盎司，已连续4个交易日下跌，跌近300美元。
-
-较年内高点已跌约1400美元。
-
-受此影响，6月10日，国内多家品牌金饰价格大幅下调，集体跌破1300元/克。
-
-周生生足金饰品报1277元/克，较前一日1322元/克大跌45元；老庙黄金足金饰品报1283元/克，相较前一日1317元/克大跌34元；老凤祥足金饰品报1276元/克，相较前一日1316元/克大跌40元。
-
-1月29日，国金品牌金饰价格曾达到年内阶段性高点，周生生、老庙黄金、老凤祥当日的金饰克价分别1708元、1722元、1713元。
-
-和年内高点相比，三家品牌金饰克价已分别下跌431元、439元、437元，跌幅均在25%左右。
-
-消息面上，地缘冲突加剧。
+发布时间：2026年06月09日 10:17 来源：央视新闻 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-30 00:18 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 00:20 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 00:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 00:18 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 00:43 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 00:32 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 00:25 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 00:35 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 00:21 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 00:24 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 00:34 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 00:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 00:46 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 00:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 00:25 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 00:28 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 00:39 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 00:26 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 00:44 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 00:37 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 00:30 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 00:41 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 00:38 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 00:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 00:36 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 00:33 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 00:43 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:38 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/48743833130.shtml)
-- 2026-06-30 00:45 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/7525393911.shtml)
-- 2026-06-30 00:36 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/7175546.shtml)
-- 2026-06-30 00:18 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/277787.shtml)
-- 2026-06-30 00:26 - [一生一世](https://www.blog.kurohicncr.top/Article/details/16371786499.shtml)
-- 2026-06-30 00:38 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/201182798085.shtml)
-- 2026-06-30 00:37 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/649469.shtml)
-- 2026-06-30 00:31 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/00630.shtml)
-- 2026-06-30 00:18 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/698173.shtml)
-- 2026-06-30 00:18 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/32920876684.shtml)
-- 2026-06-30 00:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/7122049829.shtml)
-- 2026-06-30 00:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/8157989411.shtml)
-- 2026-06-30 00:41 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/5938672801.shtml)
-- 2026-06-30 00:36 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/8854265.shtml)
-- 2026-06-30 00:42 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/4650093830.shtml)
+- 2026-06-30 00:52 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/610135.shtml)
+- 2026-06-30 00:26 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/48463917971.shtml)
+- 2026-06-30 00:40 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/742086918.shtml)
+- 2026-06-30 00:27 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/3139409436.shtml)
+- 2026-06-30 00:32 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/33890511268.shtml)
+- 2026-06-30 00:26 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/1325318207.shtml)
+- 2026-06-30 00:46 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/58332094.shtml)
+- 2026-06-30 00:31 - [送你一朵小红花](https://www.share.minike.top/Article/details/5604695338.shtml)
+- 2026-06-30 00:38 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/256453.shtml)
+- 2026-06-30 00:29 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/29531.shtml)
+- 2026-06-30 00:38 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/89626.shtml)
+- 2026-06-30 00:51 - [一见倾心](http://www.share.kurohicncr.top/Article/details/277031668707.shtml)
+- 2026-06-30 00:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/9849101.shtml)
+- 2026-06-30 00:52 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/37126824.shtml)
+- 2026-06-30 00:41 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/95904191.shtml)

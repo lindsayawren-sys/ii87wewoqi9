@@ -1,56 +1,57 @@
-# “2026中国电影节”在莫斯科拉开帷幕
+# 盘前：纳指期货涨1.42% 芯片、太空股反弹
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科6月9日电 (记者 田冰)由中国国家电影局和俄罗斯文化部主办的“2026中国电影节”当地时间8日在莫斯科举行开幕式。多部中国影片与俄罗斯观众见面。 俄罗斯文化部长柳比莫娃在开幕式上发表视频致辞说，电影艺术持续巩固俄罗斯和中国之间的文化桥梁。俄中两国观众对彼此国家电影的共同兴趣印证了两国人民之间真挚的尊重和牢固的友谊。我们很高兴延续每年都在文化交流框架内互办电影展映活
+周一，全球股市下跌。中东地区新一轮敌对行动推高油价和债券收益率，美股股指期货在上周五大跌后集体上涨， 芯片、太空股盘前反弹，由科技股引发的抛售暂时止步。 截至发稿，道指期货涨0.30%，标普500指数期货涨0.77%，纳指期货涨1.42%。 欧洲Stoxx 600指数下跌0.7%，建筑和零售等利率敏感型股票的跌幅超过科技股。法兰克福、巴黎和伦敦主要股指跌幅介于0.4%至1%之间
 
 ## 正文
 
-中新社莫斯科6月9日电 (记者 田冰)由中国国家电影局和俄罗斯文化部主办的“2026中国电影节”当地时间8日在莫斯科举行开幕式。
+周一，全球股市下跌。
 
-多部中国影片与俄罗斯观众见面。
+中东地区新一轮敌对行动推高油价和债券收益率，美股股指期货在上周五大跌后集体上涨， 芯片、太空股盘前反弹，由科技股引发的抛售暂时止步。
 
-俄罗斯文化部长柳比莫娃在开幕式上发表视频致辞说，电影艺术持续巩固俄罗斯和中国之间的文化桥梁。
+截至发稿，道指期货涨0.30%，标普500指数期货涨0.77%，纳指期货涨1.42%。
 
-俄中两国观众对彼此国家电影的共同兴趣印证了两国人民之间真挚的尊重和牢固的友谊。
+欧洲Stoxx 600指数下跌0.7%，建筑和零售等利率敏感型股票的跌幅超过科技股。
 
-我们很高兴延续每年都在文化交流框架内互办电影展映活动这一传统。
+法兰克福、巴黎和伦敦主要股指跌幅介于0.4%至1%之间。
 
-中国驻俄罗斯大使馆公使衔参赞、莫斯科中国文化中心主任封立涛表示，电影是跨越国界的通用语言，也是促进不同国家人民沟通的桥梁。
+欧洲相对缺乏科技硬件板块，同时对能源价格的敞口更大。
 
-俄罗斯“中国电影节”和中国“俄罗斯电影节”已连续举办多届，成为两国民众了解对方当代电影业的重要窗口，为增进两国人民的友好感情和相互理解发挥了重要作用。
+这意味着，在此前席卷华尔街、东京和首尔的股市上涨行情中，欧洲主要市场大多处于相对边缘的位置；但这也使得欧洲市场在科技股大幅抛售面前，相较其他市场更具防御性。
 
-本届电影节将持续至14日。
+韩国股市暴跌 虽然美股暂时企稳，但上周五的暴跌仍在其他市场留下冲击。
 
 ## 相关推荐
 
-- 2026-06-30 00:44 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 00:21 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 00:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 00:19 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 00:36 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 00:21 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 00:22 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 00:34 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 00:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 00:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 00:29 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 00:53 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 00:47 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 00:24 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 00:45 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 00:30 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 00:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 00:48 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 00:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 00:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 00:29 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:47 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/3035097.shtml)
-- 2026-06-30 00:29 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/54865207279.shtml)
-- 2026-06-30 00:26 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/33343878305.shtml)
-- 2026-06-30 00:46 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/6932352969.shtml)
-- 2026-06-30 00:45 - [扬名立万](http://www.share.kurohicncr.top/Article/details/584916.shtml)
-- 2026-06-30 00:23 - [田曦薇没招了](https://www.blog.minike.top/Article/details/46488177.shtml)
-- 2026-06-30 00:34 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/51434.shtml)
-- 2026-06-30 00:42 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/4842605852.shtml)
-- 2026-06-30 00:24 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/20449908.shtml)
-- 2026-06-30 00:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/436113.shtml)
-- 2026-06-30 00:34 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/048194.shtml)
-- 2026-06-30 00:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/48881785.shtml)
-- 2026-06-30 00:25 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/94006822093.shtml)
-- 2026-06-30 00:38 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/5772150.shtml)
-- 2026-06-30 00:30 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/11033428.shtml)
+- 2026-06-30 00:33 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/59247047065.shtml)
+- 2026-06-30 00:28 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/37658653.shtml)
+- 2026-06-30 00:37 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/78300602184.shtml)
+- 2026-06-30 00:39 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/412712.shtml)
+- 2026-06-30 00:33 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/9968383.shtml)
+- 2026-06-30 00:24 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/25864215653.shtml)
+- 2026-06-30 00:43 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/1831841641.shtml)
+- 2026-06-30 00:25 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/07786.shtml)
+- 2026-06-30 00:39 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/8148602811.shtml)
+- 2026-06-30 00:36 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/608835376043.shtml)
+- 2026-06-30 00:34 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/020804.shtml)
+- 2026-06-30 00:24 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/205953.shtml)
+- 2026-06-30 00:27 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/422932506.shtml)
+- 2026-06-30 00:38 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/2762090.shtml)
+- 2026-06-30 00:28 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/61269884.shtml)

@@ -1,52 +1,57 @@
-# 一张宝岛帆布地图 藏着两岸最朴素的期盼
+# 泰森食品任命Wes Morris为首席运营官
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 21:29 来源：中国新闻网 这些天，一段台湾小姐姐与北京“胡同奶奶”的视频火了。在互联网上被称为“中天小姐姐”的台湾媒体人何橞瑢来北京探望一位九旬高龄的奶奶，两人的缘分始于去年八月一场直播偶遇，当时奶奶说，自己这个年纪了，已经很难有机会去台湾，话里满是遗憾。这次再见面，何橞瑢特地带来一块帆布地图，上面绘满宝岛各地风物。奶奶拉着她的手，说了一句
+泰森食品公司日前宣布，任命Wes Morris为首席运营官，自6月15日起正式生效。Morris将全面负责公司旗下各业务板块，涵盖鸡肉、牛肉、猪肉、预制食品及国际业务。现任首席运营官Devin Cole将同日退休。 Morris在泰森食品拥有超过20年的从业经验，此前曾担任预制食品及家禽业务总裁。他最早于1999年加入泰森食品，历任多个领导职务，包括消费品集团副总裁及预制食品运
 
 ## 正文
 
-发布时间：2026年06月09日 21:29 来源：中国新闻网 这些天，一段台湾小姐姐与北京“胡同奶奶”的视频火了。
+泰森食品公司日前宣布，任命Wes Morris为首席运营官，自6月15日起正式生效。
 
-在互联网上被称为“中天小姐姐”的台湾媒体人何橞瑢来北京探望一位九旬高龄的奶奶，两人的缘分始于去年八月一场直播偶遇，当时奶奶说，自己这个年纪了，已经很难有机会去台湾，话里满是遗憾。
+Morris将全面负责公司旗下各业务板块，涵盖鸡肉、牛肉、猪肉、预制食品及国际业务。
 
-这次再见面，何橞瑢特地带来一块帆布地图，上面绘满宝岛各地风物。
+现任首席运营官Devin Cole将同日退休。
 
-奶奶拉着她的手，说了一句：“两岸常来往多好。
+Morris在泰森食品拥有超过20年的从业经验，此前曾担任预制食品及家禽业务总裁。
 
-”这一幕也触动不少台湾网友，留言道：人间挚情真心最动人。
+他最早于1999年加入泰森食品，历任多个领导职务，包括消费品集团副总裁及预制食品运营总裁，直至2017年退休。
 
-(记者 张杨彬 谢龙飞 赵雅敏） 责任编辑：【刘湃】
+退休后，他曾于2018年至2019年担任Simmons Foods首席财务官，并于2020年至2023年期间以顾问身份继续为泰森食品的家禽业务提供咨询服务。
+
+泰森食品候任总裁兼首席执行官表示，Wes Morris在公司核心业务板块的运营执行方面拥有显赫过往战绩，他对公司运营的深刻理解，将在公司持续提升整体业绩的过程中发挥至关重要的作用。
+
+Morris本人则表示，能够在这一关键时刻回归感到非常振奋，公司已打下坚实的基础，他将致力于强化运营纪律，推动公司持续推进战略重点、落实增长计划。
 
 ## 相关推荐
 
-- 2026-06-30 00:26 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 00:38 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 00:28 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 00:23 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 00:33 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 00:42 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 00:41 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 00:46 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 00:25 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 00:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 00:42 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 00:32 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 00:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 00:43 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 00:30 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 00:42 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 00:48 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 00:39 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 00:41 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 00:38 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 00:28 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:42 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/57554679.shtml)
-- 2026-06-30 00:43 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/0245027211.shtml)
-- 2026-06-30 00:26 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/7980224790.shtml)
-- 2026-06-30 00:32 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/05143011040.shtml)
-- 2026-06-30 00:43 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/040744824920.shtml)
-- 2026-06-30 00:44 - [TOP Prada](http://www.share.minike.top/Article/details/598171117.shtml)
-- 2026-06-30 00:31 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/39848.shtml)
-- 2026-06-30 00:33 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/0342078962.shtml)
-- 2026-06-30 00:41 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/05539649672.shtml)
-- 2026-06-30 00:39 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/598657.shtml)
-- 2026-06-30 00:27 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/4748993.shtml)
-- 2026-06-30 00:40 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/295881193.shtml)
-- 2026-06-30 00:25 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/22683986221.shtml)
-- 2026-06-30 00:28 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/320440.shtml)
-- 2026-06-30 00:21 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/5113833716.shtml)
+- 2026-06-30 00:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/7913283024.shtml)
+- 2026-06-30 00:34 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/00950.shtml)
+- 2026-06-30 00:35 - [急先锋](https://www.blog.minike.top/Article/details/161567.shtml)
+- 2026-06-30 00:40 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/74598.shtml)
+- 2026-06-30 00:47 - [美人鱼](https://www.share.minike.top/Article/details/514316.shtml)
+- 2026-06-30 00:28 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/2381333360.shtml)
+- 2026-06-30 00:29 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/766648834101.shtml)
+- 2026-06-30 00:31 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/07852282135.shtml)
+- 2026-06-30 00:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/91749248660.shtml)
+- 2026-06-30 00:38 - [千香](https://www.share.kurohicncr.top/Article/details/501550.shtml)
+- 2026-06-30 00:51 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/6475093.shtml)
+- 2026-06-30 00:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/42989048836.shtml)
+- 2026-06-30 00:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/119739.shtml)
+- 2026-06-30 00:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/232725.shtml)
+- 2026-06-30 00:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/79291746156.shtml)

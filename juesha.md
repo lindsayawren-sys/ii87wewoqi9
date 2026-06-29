@@ -1,57 +1,50 @@
-# 伊朗称将在海上战略位置新建 “抵抗阵线安全带”
+# 联合国追悼136名因公殉职人员，古特雷斯：将坚持追究袭击者责任
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新社北京6月9日电 德黑兰消息：伊朗伊斯兰革命卫队“圣城旅”指挥官卡尼8日表示，将在海上战略位置建立新的“抵抗阵线安全带”。 伊朗伊斯兰革命卫队“圣城旅”指挥官卡尼8日晚在社交平台发布消息称，伊朗支持也门胡塞武装打击以色列的行动，如有必要，其他力量也会加入。 他表示，伊朗将在霍尔木兹海峡至曼德海峡、波斯湾至红海之间建立一条新的“抵抗阵线安全带”，并警告称，“抵抗阵线”正在海上
+中新网6月9日电 据外媒报道，当地时间8日，联合国在纽约总部举行一年一度的追悼仪式，缅怀2025年因公殉职的136名工作人员。 据报道，根据联合国数据，2025年因公殉职的联合国工作人员来自32个国家，97名为文职人员，39名为维和人员。其中，80人系在加沙地带工作的联合国近东巴勒斯坦难民救济和工程处人员。 报道称，联合国秘书长古特雷斯在追悼仪式上强调，联合国工作人员不应成为袭
 
 ## 正文
 
-中新社北京6月9日电 德黑兰消息：伊朗伊斯兰革命卫队“圣城旅”指挥官卡尼8日表示，将在海上战略位置建立新的“抵抗阵线安全带”。
+中新网6月9日电 据外媒报道，当地时间8日，联合国在纽约总部举行一年一度的追悼仪式，缅怀2025年因公殉职的136名工作人员。
 
-伊朗伊斯兰革命卫队“圣城旅”指挥官卡尼8日晚在社交平台发布消息称，伊朗支持也门胡塞武装打击以色列的行动，如有必要，其他力量也会加入。
+据报道，根据联合国数据，2025年因公殉职的联合国工作人员来自32个国家，97名为文职人员，39名为维和人员。
 
-他表示，伊朗将在霍尔木兹海峡至曼德海峡、波斯湾至红海之间建立一条新的“抵抗阵线安全带”，并警告称，“抵抗阵线”正在海上战略要地“瓶颈处”部署武装力量并实施监测，美国或以色列在该地区的任何挑衅行动都将受到“抵抗阵线”联合回应。
+其中，80人系在加沙地带工作的联合国近东巴勒斯坦难民救济和工程处人员。
 
-卡尼近期就扩大“抵抗阵线”频繁发声。
+报道称，联合国秘书长古特雷斯在追悼仪式上强调，联合国工作人员不应成为袭击目标，联合国将坚定致力于保护工作人员安全，并会追责到底。
 
-1日，他曾表示，以色列在美国支持下对黎巴嫩和加沙地带的军事行动，将使“抵抗阵线”扩大对这两个战线的支持并“激活”其他战线，曼德海峡的通航状况将与霍尔木兹海峡“保持一致”。
-
-4日，他曾表示，支持黎巴嫩的抵抗运动是“所有人的责任”，“抵抗阵线”的最低要求是：以色列必须撤退至本轮冲突爆发前的位置。
-
-伊朗伊斯兰共和国通讯社称，“抵抗阵线”近期行动表明，其内部协调越来越密切。
-
-“抵抗阵线”是伊朗主导的反美、抗以联盟，成员包括巴勒斯坦伊斯兰抵抗运动(哈马斯)、黎巴嫩真主党、也门胡塞武装以及伊拉克什叶派民兵武装。
+古特雷斯表示，在多边主义遭受攻击、联合国作用被质疑的当下，这些殉职的联合国工作人员曾以行动对此予以反击，展现出人类崇高的品质。
 
 ## 相关推荐
 
-- 2026-06-30 00:42 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 00:22 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 00:20 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 00:35 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 00:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 00:46 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 00:28 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 00:45 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 00:38 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 00:42 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 00:46 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 00:37 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 00:37 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 00:37 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 00:49 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 00:45 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 00:37 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 00:44 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 00:31 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 00:30 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 00:52 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:36 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/3774775.shtml)
-- 2026-06-30 00:46 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/869708008.shtml)
-- 2026-06-30 00:46 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/8439911082.shtml)
-- 2026-06-30 00:23 - [速度与激情9](http://www.blog.minike.top/Article/details/25088695.shtml)
-- 2026-06-30 00:43 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/83385345303.shtml)
-- 2026-06-30 00:46 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/147628367236.shtml)
-- 2026-06-30 00:27 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/92860472864.shtml)
-- 2026-06-30 00:27 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/82804445855.shtml)
-- 2026-06-30 00:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/63336459.shtml)
-- 2026-06-30 00:19 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/646723504304.shtml)
-- 2026-06-30 00:47 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/9848555352.shtml)
-- 2026-06-30 00:44 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/664933842.shtml)
-- 2026-06-30 00:20 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/246839950542.shtml)
-- 2026-06-30 00:47 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/567396.shtml)
-- 2026-06-30 00:41 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/28057854.shtml)
+- 2026-06-30 00:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/45864137.shtml)
+- 2026-06-30 00:47 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/18492470.shtml)
+- 2026-06-30 00:49 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/077159.shtml)
+- 2026-06-30 00:54 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/790411.shtml)
+- 2026-06-30 00:27 - [千与千寻](http://www.share.kurohicncr.top/Article/details/6015050.shtml)
+- 2026-06-30 00:49 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/27263243660.shtml)
+- 2026-06-30 00:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/20728983495.shtml)
+- 2026-06-30 00:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/20502.shtml)
+- 2026-06-30 00:38 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/6835954.shtml)
+- 2026-06-30 00:48 - [千香](http://www.share.minike.top/Article/details/77262.shtml)
+- 2026-06-30 00:53 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/89421.shtml)
+- 2026-06-30 00:47 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/3314173.shtml)
+- 2026-06-30 00:36 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/575406256.shtml)
+- 2026-06-30 00:45 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/488403775.shtml)
+- 2026-06-30 00:38 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/313626045749.shtml)

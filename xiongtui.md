@@ -1,59 +1,49 @@
-# 周二油价下跌，特朗普试图让市场相信伊朗协议接近达成
+# 警方通报：4名在泰失联中国公民目前已回国
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-油价周二下跌，因为尽管本周以色列与伊朗之间发生了一系列袭击，美国总统唐纳德·特朗普仍试图让市场相信，与德黑兰方面达成的协议就在几天之内。 截至美东时间上午8：05，美国原油期货下跌约2%。国际基准布伦特原油期货下跌1.7%，至每桶92.65美元。 特朗普周一晚对记者表示，结束与伊朗战争的协议可能就在“两三天内”达成，协议达成后霍尔木兹海峡将“立即”开放。他多次表示与德黑兰方面重
+中新网6月9日电 据“昆明警方发布”微信公众号消息，云南昆明市公安局滇直分局9日发布一则警情通报。 通报称，2026年5月4日，缪某向公安机关报警，称其丈夫张某(男，32岁，云南官渡人)与冯某柱(男，29岁，云南宣威人)、夏某(男，31岁，重庆垫江人)、常某(男，30岁，重庆涪陵人)一行4人出境后疑似失联被困。 接报后，公安机关立案侦办，全力开展案件调查。经多方努力，张某、冯某
 
 ## 正文
 
-油价周二下跌，因为尽管本周以色列与伊朗之间发生了一系列袭击，美国总统唐纳德·特朗普仍试图让市场相信，与德黑兰方面达成的协议就在几天之内。
+中新网6月9日电 据“昆明警方发布”微信公众号消息，云南昆明市公安局滇直分局9日发布一则警情通报。
 
-截至美东时间上午8：05，美国原油期货下跌约2%。
+通报称，2026年5月4日，缪某向公安机关报警，称其丈夫张某(男，32岁，云南官渡人)与冯某柱(男，29岁，云南宣威人)、夏某(男，31岁，重庆垫江人)、常某(男，30岁，重庆涪陵人)一行4人出境后疑似失联被困。
 
-国际基准布伦特原油期货下跌1.7%，至每桶92.65美元。
+接报后，公安机关立案侦办，全力开展案件调查。
 
-特朗普周一晚对记者表示，结束与伊朗战争的协议可能就在“两三天内”达成，协议达成后霍尔木兹海峡将“立即”开放。
-
-他多次表示与德黑兰方面重新开放霍尔木兹海峡的协议已接近达成，但这样的协议仍未实现。
-
-四月份实施的不稳定停火协议本周几乎破裂，此前伊朗向以色列发射导弹，以报复以色列在黎巴嫩的行动。
-
-以色列对伊朗进行了报复性打击。
-
-特朗普施压以色列总理本雅明·内塔尼亚胡避免进一步攻击。
+经多方努力，张某、冯某柱、夏某、常某4人于6月9日安全回国，后续调查工作正在有序推进中。
 
 ## 相关推荐
 
-- 2026-06-30 00:38 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 00:35 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 00:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 00:38 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 00:19 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 00:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 00:40 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 00:34 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 00:36 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 00:35 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 00:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 00:37 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 00:47 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 00:35 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 00:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 00:47 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 00:50 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 00:52 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 00:27 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 00:28 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 00:34 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 00:40 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 00:46 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 00:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:31 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/17552.shtml)
-- 2026-06-30 00:46 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/57799827180.shtml)
-- 2026-06-30 00:40 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/24428.shtml)
-- 2026-06-30 00:31 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/471397092.shtml)
-- 2026-06-30 00:25 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/60422658949.shtml)
-- 2026-06-30 00:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/093073409261.shtml)
-- 2026-06-30 00:25 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/27551873140.shtml)
-- 2026-06-30 00:23 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/559176.shtml)
-- 2026-06-30 00:25 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/783996792025.shtml)
-- 2026-06-30 00:32 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/69735552507.shtml)
-- 2026-06-30 00:45 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/28194.shtml)
-- 2026-06-30 00:23 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/61289421.shtml)
-- 2026-06-30 00:28 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/367030429152.shtml)
-- 2026-06-30 00:20 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/6588329196.shtml)
-- 2026-06-30 00:38 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/3467074.shtml)
+- 2026-06-30 00:42 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/67344541.shtml)
+- 2026-06-30 00:32 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/94398956.shtml)
+- 2026-06-30 00:29 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/389516.shtml)
+- 2026-06-30 00:46 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/515499751426.shtml)
+- 2026-06-30 00:43 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/34127579651.shtml)
+- 2026-06-30 00:48 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/2243302238.shtml)
+- 2026-06-30 00:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/712292.shtml)
+- 2026-06-30 00:37 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/583684743027.shtml)
+- 2026-06-30 00:25 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/294539.shtml)
+- 2026-06-30 00:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/5836226.shtml)
+- 2026-06-30 00:47 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/31987360103.shtml)
+- 2026-06-30 00:44 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/60870.shtml)
+- 2026-06-30 00:30 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/5327547.shtml)
+- 2026-06-30 00:39 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/0963892.shtml)
+- 2026-06-30 00:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/9157741611.shtml)

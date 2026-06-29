@@ -1,50 +1,52 @@
-# 台湾有事菲律宾也敢有事？“小舰长”吕礼诗怒斥：赖清德遇日“腿软”，遇菲“骨松”
+# 领取实体社保卡多久后可以申领电子社保卡？人社部回应
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 10:01 来源：中国新闻网 近日，日本和菲律宾企图单方面在中国台湾岛以东海域开展“划界谈判”，引发两岸舆论批评。中国人民大学国际关系学院教授王义桅接受中新网“燕新台”工作室采访时表示，所谓“台湾有事，就是日本有事”升级为“台湾有事，就是日菲有事”，日菲勾连企图撬动台海稳定；中国大陆则以完整的法律体系和常态化行动反制外部干涉，挑衅者的图谋注定失
+中新网6月9日电 据人社部微信公众号消息，领取实体社保卡后即可随时申领电子社保卡，无时间间隔要求。只要持卡人已经领取实体社保卡且卡未注销，就可以申领电子社保卡。 持卡人可通过电子社保卡APP、微信小程序、支付宝小程序，以及国家政务服务平台、国务院客户端微信小程序、掌上12333、云闪付、人社部门APP、服务银行APP等渠道申领电子社保卡。 针对新申领第三代社保卡的持卡人已开通电
 
 ## 正文
 
-发布时间：2026年06月09日 10:01 来源：中国新闻网 近日，日本和菲律宾企图单方面在中国台湾岛以东海域开展“划界谈判”，引发两岸舆论批评。
+中新网6月9日电 据人社部微信公众号消息，领取实体社保卡后即可随时申领电子社保卡，无时间间隔要求。
 
-中国人民大学国际关系学院教授王义桅接受中新网“燕新台”工作室采访时表示，所谓“台湾有事，就是日本有事”升级为“台湾有事，就是日菲有事”，日菲勾连企图撬动台海稳定；中国大陆则以完整的法律体系和常态化行动反制外部干涉，挑衅者的图谋注定失败。
+只要持卡人已经领取实体社保卡且卡未注销，就可以申领电子社保卡。
 
-台退役少校舰长吕礼诗称，赖清德当局一遇到日本就腿软，没想到现在遇到菲律宾，骨头也硬不起来了。
+持卡人可通过电子社保卡APP、微信小程序、支付宝小程序，以及国家政务服务平台、国务院客户端微信小程序、掌上12333、云闪付、人社部门APP、服务银行APP等渠道申领电子社保卡。
 
-在他看来，妄想日菲为“台独”保驾护航，可谓天方夜谭。
+针对新申领第三代社保卡的持卡人已开通电子社保卡同步申领服务。
 
-(策划/制作：燕新台 君言晚 常望涛 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
+个人在申领第三代实体社保卡时，会同步完成电子社保卡的申领，持卡人实名登录电子社保卡APP及小程序、发卡地人社部门APP、社保卡服务银行APP等渠道，经本人授权后可直接使用电子社保卡。
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 00:30 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 00:31 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 00:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 00:35 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 00:43 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 00:32 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 00:40 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 00:29 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 00:34 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 00:50 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 00:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 00:35 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 00:52 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 00:38 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 00:39 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 00:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 00:40 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 00:39 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 00:46 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 00:31 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 00:43 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:40 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/29429656815.shtml)
-- 2026-06-30 00:40 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/50320419.shtml)
-- 2026-06-30 00:43 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/7916712.shtml)
-- 2026-06-30 00:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/71271.shtml)
-- 2026-06-30 00:21 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/50272958.shtml)
-- 2026-06-30 00:45 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/9292815227.shtml)
-- 2026-06-30 00:41 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/19856.shtml)
-- 2026-06-30 00:22 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/0435613824.shtml)
-- 2026-06-30 00:21 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/61933.shtml)
-- 2026-06-30 00:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/80104.shtml)
-- 2026-06-30 00:30 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/9548591055.shtml)
-- 2026-06-30 00:37 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/90507775.shtml)
-- 2026-06-30 00:42 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/78714723.shtml)
-- 2026-06-30 00:47 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/67480709.shtml)
-- 2026-06-30 00:45 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/47934.shtml)
+- 2026-06-30 00:37 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/72271201.shtml)
+- 2026-06-30 00:39 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/5391388774.shtml)
+- 2026-06-30 00:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/444115530.shtml)
+- 2026-06-30 00:34 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/69712.shtml)
+- 2026-06-30 00:42 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/93045879.shtml)
+- 2026-06-30 00:26 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/794854206525.shtml)
+- 2026-06-30 00:52 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/345228884252.shtml)
+- 2026-06-30 00:36 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/17750820395.shtml)
+- 2026-06-30 00:34 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/9304930.shtml)
+- 2026-06-30 00:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/54022.shtml)
+- 2026-06-30 00:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/54867873.shtml)
+- 2026-06-30 00:28 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/867659267.shtml)
+- 2026-06-30 00:51 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/074267955.shtml)
+- 2026-06-30 00:31 - [起风了](https://www.share.minike.top/Article/details/5149820.shtml)
+- 2026-06-30 00:53 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/56429877.shtml)

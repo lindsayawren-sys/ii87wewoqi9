@@ -1,56 +1,60 @@
-# 长期看涨逻辑未变VS200日均线已破：黄金徘徊4330等待CPI破局
+# 尿素供强需弱格局难改？
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 周二（6月9日）亚洲时段，现货黄金价格一度突破4350.00美元/盎司关口，随后有所回落，当前交投于4330美元/盎司附近。 近几周来，黄金面临强劲压力，自1月底见顶以来，回调行情逐步积聚动能。 黄金的整体前景正变得越来越具有挑战性。全球债券收益率飙升、美国经济韧性以及美元走强，共同削弱了无息资产黄金的吸引力。长期来看黄金的结构性支撑依然存在，但短期前景已转
+作者：王慧慧/F03124635、Z0023619/ 一德期货能源化工分析师 要点速览版 短期（7月后） 国内夏季肥需求叠加出口兑现，短时间内或将供需修复为略紧平衡。 中长期 尿素基本面依旧处于供强需弱格局，难以有明显修复，格局依旧过剩为主。 目前尿素市场仍处于出口配额落地的可行性预期和供需基本面博弈当中。当下国际价格持续回落，近日的印度招标也未能止跌国际市场。国际上，目前除印
 
 ## 正文
 
-文章来源：汇通财经 周二（6月9日）亚洲时段，现货黄金价格一度突破4350.00美元/盎司关口，随后有所回落，当前交投于4330美元/盎司附近。
+作者：王慧慧/F03124635、Z0023619/ 一德期货能源化工分析师 要点速览版 短期（7月后） 国内夏季肥需求叠加出口兑现，短时间内或将供需修复为略紧平衡。
 
-近几周来，黄金面临强劲压力，自1月底见顶以来，回调行情逐步积聚动能。
+中长期 尿素基本面依旧处于供强需弱格局，难以有明显修复，格局依旧过剩为主。
 
-黄金的整体前景正变得越来越具有挑战性。
+目前尿素市场仍处于出口配额落地的可行性预期和供需基本面博弈当中。
 
-全球债券收益率飙升、美国经济韧性以及美元走强，共同削弱了无息资产黄金的吸引力。
+当下国际价格持续回落，近日的印度招标也未能止跌国际市场。
 
-长期来看黄金的结构性支撑依然存在，但短期前景已转向看跌。
+国际上，目前除印度有进口需求外，其他国家或自给自足，或处于需求淡季，因霍尔木兹海峡封锁停摆的尿素，也在逐渐运转中，后续国际价格仍存回落可能。
 
-长期看涨逻辑未变，但短期压力加剧 从长期来看，支撑黄金上涨的结构性因素并未改变。
+因此，当前价格回升因供需格局修复以情绪为主，持续驱动不足。
 
-对财政赤字的持续担忧、全球央行的储备多元化以及通胀风险，应会在金价大幅回调时继续提供支撑。
+尿素基本面依旧处于供强需弱格局。
 
-然而，未来几周的风险平衡似乎倾向于在更持久的复苏出现之前进一步走弱。
+季节性检修期并未降低日产水平，供给持续位于历史高位。
 
 ## 相关推荐
 
-- 2026-06-30 00:45 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 00:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 00:42 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 00:44 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 00:38 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 00:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 00:23 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 00:26 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 00:42 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 00:32 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 00:49 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 00:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 00:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 00:43 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 00:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 00:46 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 00:53 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 00:47 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 00:32 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 00:36 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 00:42 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 00:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 00:29 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 00:38 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:33 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/701396094429.shtml)
-- 2026-06-30 00:24 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/247536.shtml)
-- 2026-06-30 00:22 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/982123610106.shtml)
-- 2026-06-30 00:40 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/41428.shtml)
-- 2026-06-30 00:35 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/56398508200.shtml)
-- 2026-06-30 00:19 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/09946.shtml)
-- 2026-06-30 00:34 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/875621.shtml)
-- 2026-06-30 00:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/8612130028.shtml)
-- 2026-06-30 00:41 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/83246.shtml)
-- 2026-06-30 00:41 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/801881632805.shtml)
-- 2026-06-30 00:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/50909953364.shtml)
-- 2026-06-30 00:39 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/993500160736.shtml)
-- 2026-06-30 00:33 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/722502543124.shtml)
-- 2026-06-30 00:32 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/91053.shtml)
-- 2026-06-30 00:25 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/30546166581.shtml)
+- 2026-06-30 00:40 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/03580.shtml)
+- 2026-06-30 00:43 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/30105.shtml)
+- 2026-06-30 00:36 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/724317103.shtml)
+- 2026-06-30 00:38 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/859506.shtml)
+- 2026-06-30 00:41 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/9554044807.shtml)
+- 2026-06-30 00:39 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/103843072213.shtml)
+- 2026-06-30 00:36 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/891908.shtml)
+- 2026-06-30 00:27 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/1599498693.shtml)
+- 2026-06-30 00:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/9070720907.shtml)
+- 2026-06-30 00:31 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/685419768348.shtml)
+- 2026-06-30 00:26 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/59037489090.shtml)
+- 2026-06-30 00:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/7827431205.shtml)
+- 2026-06-30 00:37 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/000607765.shtml)
+- 2026-06-30 00:29 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/407983.shtml)
+- 2026-06-30 00:36 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/030259620461.shtml)

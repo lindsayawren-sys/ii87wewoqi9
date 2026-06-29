@@ -1,56 +1,58 @@
-# Oculis三期临床试验失败致股价暴跌，多家律所启动证券欺诈调查
+# 云南人的夏日限定快乐，藏在这个亚洲最大的野生菌市场里
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-生物制药公司Oculis Holding AG（纳斯达克代码：OCS）正面临多家股东权益律师事务所的证券欺诈调查。继2026年5月29日披露其核心候选药物OCS-01的两项三期临床试验失败后，该公司股价单日暴跌逾23%，Levi & Korsinsky、Pomerantz LLP及The Schall Law Firm等多家律所已先后启动调查。 此次调查的导火索是Oculis于
+发布时间：2026年06月08日 22:11 来源：中国新闻网 雨季一到，云南人的快乐就藏不住了。走进亚洲最大的野生菌市场——云南木水花野生菌交易中心。鸡枞的鲜甜、干巴菌的肉香、见手青一碰就黑的“小脾气”……每一种菌子都有自己的性格。市场里还有全国快递供应链，早上采的菌子，下午就能飞上你家餐桌。当然，快乐有前提——炒熟再吃，安全第一。这就是云南人独一份的夏日限定，隔着屏幕，也分
 
 ## 正文
 
-生物制药公司Oculis Holding AG（纳斯达克代码：OCS）正面临多家股东权益律师事务所的证券欺诈调查。
+发布时间：2026年06月08日 22:11 来源：中国新闻网 雨季一到，云南人的快乐就藏不住了。
 
-继2026年5月29日披露其核心候选药物OCS-01的两项三期临床试验失败后，该公司股价单日暴跌逾23%，Levi & Korsinsky、Pomerantz LLP及The Schall Law Firm等多家律所已先后启动调查。
+走进亚洲最大的野生菌市场——云南木水花野生菌交易中心。
 
-此次调查的导火索是Oculis于5月29日公布的DIAMOND-1和DIAMOND-2三期试验顶线结果。
+鸡枞的鲜甜、干巴菌的肉香、见手青一碰就黑的“小脾气”……每一种菌子都有自己的性格。
 
-这两项试验共在全球119个中心招募了超过800名糖尿病黄斑水肿（DME）患者，旨在评估OCS-01滴眼液治疗DME的疗效和安全性。
+市场里还有全国快递供应链，早上采的菌子，下午就能飞上你家餐桌。
 
-结果显示，试验未能达到第52周最佳矫正视力（BCVA）改善的主要终点，关键次要终点（BCVA提高≥15个字母的患者比例）同样未能实现。
+当然，快乐有前提——炒熟再吃，安全第一。
 
-尽管OCS-01在两项试验中均显示出视网膜厚度显著且持续减少的效果，但这一解剖学改善未能转化为功能性视力提升。
+这就是云南人独一份的夏日限定，隔着屏幕，也分你一半。
 
-公司同时宣布，将不会就DME适应症向美国FDA提交新药申请，并将资源重新配置到其他后期管线项目。
-
-受此消息影响，Oculis股价在5月29日暴跌6.95美元，跌幅达23.44%，收于22.70美元。
+(陈晨 刘宸羽） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 00:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 00:36 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 00:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 00:44 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 00:36 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 00:21 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 00:34 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 00:45 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 00:35 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 00:35 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 00:29 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 00:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 00:37 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 00:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 00:42 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 00:34 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 00:41 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 00:25 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 00:41 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 00:29 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 00:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 00:44 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 00:38 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 00:44 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:44 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/89300671491.shtml)
-- 2026-06-30 00:32 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/6580547.shtml)
-- 2026-06-30 00:43 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/3923150517.shtml)
-- 2026-06-30 00:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/2704423.shtml)
-- 2026-06-30 00:36 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/01268379.shtml)
-- 2026-06-30 00:37 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/90330493.shtml)
-- 2026-06-30 00:39 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/707249881.shtml)
-- 2026-06-30 00:44 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/66449.shtml)
-- 2026-06-30 00:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/1332968.shtml)
-- 2026-06-30 00:19 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/45098.shtml)
-- 2026-06-30 00:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/191305694.shtml)
-- 2026-06-30 00:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/17045183.shtml)
-- 2026-06-30 00:36 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/544094.shtml)
-- 2026-06-30 00:26 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/316086.shtml)
-- 2026-06-30 00:44 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/7593693822.shtml)
+- 2026-06-30 00:27 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/714252162191.shtml)
+- 2026-06-30 00:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/1846781877.shtml)
+- 2026-06-30 00:44 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/93992542.shtml)
+- 2026-06-30 00:34 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/868443924087.shtml)
+- 2026-06-30 00:37 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/42882520511.shtml)
+- 2026-06-30 00:27 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/45549159097.shtml)
+- 2026-06-30 00:24 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/374733949250.shtml)
+- 2026-06-30 00:40 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/18329742319.shtml)
+- 2026-06-30 00:26 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/905528699972.shtml)
+- 2026-06-30 00:38 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/494127924606.shtml)
+- 2026-06-30 00:33 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/0480085.shtml)
+- 2026-06-30 00:25 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/7434602320.shtml)
+- 2026-06-30 00:49 - [东方风云榜](https://www.blog.minike.top/Article/details/07966299049.shtml)
+- 2026-06-30 00:25 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/6082172.shtml)
+- 2026-06-30 00:33 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/980437.shtml)

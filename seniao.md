@@ -1,57 +1,47 @@
-# 康宁敲定合作，为美国亚马逊AI数据中心提供光纤配套，股价大涨6.9%
+# 新华图讯丨习近平同金正恩举行会谈
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-核心要点 亚马逊将向康宁采购价值数十亿美元的光纤产品，用于其在美国持续扩建的人工智能数据中心的互联配套。两家身处 AI 产业核心赛道的企业，再度达成一笔重磅长期合作。 双方于周一共同官宣该协议，合作周期长达数年；此次合作将为康宁北卡罗来纳州工厂新增 1000 个就业岗位。康宁的光纤线缆与网络解决方案现已成为人工智能基础设施的核心刚需产品，可实现数据中心、服务器机架与算力芯片之间
+当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。 摄影：谢环驰 李响 燕雁 殷博古 编辑：侯俊 毕晓洋 李琰 郝昭 虞东升 卢烨 许睿
 
 ## 正文
 
-核心要点 亚马逊将向康宁采购价值数十亿美元的光纤产品，用于其在美国持续扩建的人工智能数据中心的互联配套。
+当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。
 
-两家身处 AI 产业核心赛道的企业，再度达成一笔重磅长期合作。
-
-双方于周一共同官宣该协议，合作周期长达数年；此次合作将为康宁北卡罗来纳州工厂新增 1000 个就业岗位。
-
-康宁的光纤线缆与网络解决方案现已成为人工智能基础设施的核心刚需产品，可实现数据中心、服务器机架与算力芯片之间的高速数据传输。
-
-周一早盘，康宁股价飙升6.9%，亚马逊股价小幅波动、基本持平。
-
-双方联合声明写道：“亚马逊的数据中心支撑着亿万个人用户与企业每日依赖的各类线上服务。
-
-康宁光纤是这套基础设施的关键一环，双方此番共同投入，将持续为美国经济增长注入动力。
-
-” 本次合作还将扩容康宁在北卡罗来纳州开设的光纤技术技师培训项目。
+摄影：谢环驰 李响 燕雁 殷博古 编辑：侯俊 毕晓洋 李琰 郝昭 虞东升 卢烨 许睿
 
 ## 相关推荐
 
-- 2026-06-30 00:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 00:36 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 00:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 00:22 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 00:33 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 00:27 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 00:38 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 00:20 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 00:27 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 00:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 00:32 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 00:27 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 00:52 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 00:41 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 00:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 00:42 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 00:29 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 00:34 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-30 00:28 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 00:27 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 00:53 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 00:50 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 00:52 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 00:48 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/07892539.shtml)
-- 2026-06-30 00:29 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/09875453429.shtml)
-- 2026-06-30 00:23 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/02182799.shtml)
-- 2026-06-30 00:18 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/43863.shtml)
-- 2026-06-30 00:39 - [第一炉香](http://www.blog.minike.top/Article/details/875072337.shtml)
-- 2026-06-30 00:22 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/02597425.shtml)
-- 2026-06-30 00:36 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/924382.shtml)
-- 2026-06-30 00:23 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/41824.shtml)
-- 2026-06-30 00:25 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/52830718.shtml)
-- 2026-06-30 00:22 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/68121127695.shtml)
-- 2026-06-30 00:40 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/838887.shtml)
-- 2026-06-30 00:39 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/83485478.shtml)
-- 2026-06-30 00:30 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/015656229.shtml)
-- 2026-06-30 00:28 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/19742.shtml)
-- 2026-06-30 00:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/090916181.shtml)
+- 2026-06-30 00:24 - [明星大侦探第一季](https://www.share.minike.top/Article/details/769616072787.shtml)
+- 2026-06-30 00:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/3257278.shtml)
+- 2026-06-30 00:40 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/954761.shtml)
+- 2026-06-30 00:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/028667.shtml)
+- 2026-06-30 00:43 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/425395982658.shtml)
+- 2026-06-30 00:53 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/99840214274.shtml)
+- 2026-06-30 00:53 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/82777.shtml)
+- 2026-06-30 00:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/674441344.shtml)
+- 2026-06-30 00:50 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/201592.shtml)
+- 2026-06-30 00:38 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/09397288.shtml)
+- 2026-06-30 00:27 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/049596612247.shtml)
+- 2026-06-30 00:50 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/4423623.shtml)
+- 2026-06-30 00:29 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/64089726.shtml)
+- 2026-06-30 00:41 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/125766717634.shtml)
+- 2026-06-30 00:42 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/45725.shtml)

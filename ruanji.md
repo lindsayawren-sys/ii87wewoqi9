@@ -1,53 +1,54 @@
-# 海口海关查获进境旅客携带珍珠958粒
+# 香港兰桂坊将举办世界杯狂热嘉年华 迎接各地球迷
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-中新网6月10日电 据“海关发布”微信公众号消息，近日，海口海关所属海口美兰机场海关在监管进境航班时，发现一名选择“绿色通道”通关的旅客行李物品机检图像异常，随即对该名旅客进行拦截检查。经开箱查验，查获疑似珍珠958粒。经专业机构鉴定，上述物品为海水养殖珍珠，价值15.25万元。 目前，该案件已移交海关缉私部门做进一步处理。
+中新网香港6月8日电 (记者 魏华都)记者8日从相关发布会上获悉，美加墨世界杯期间，香港兰桂坊将举办世界杯狂热嘉年华，迎接各地球迷。 6月11日至7月20日期间，兰桂坊超过20家餐厅、酒吧和娱乐场所会举行美食盛宴、赛事直播，户外还有歌手献唱、花式足球街头炫技、特色装置打卡和巨型街头屏幕4K超高清直播等活动，希望打造“街头球场”氛围。 “本次活动再次确立香港兰桂坊作为球迷首选热点
 
 ## 正文
 
-中新网6月10日电 据“海关发布”微信公众号消息，近日，海口海关所属海口美兰机场海关在监管进境航班时，发现一名选择“绿色通道”通关的旅客行李物品机检图像异常，随即对该名旅客进行拦截检查。
+中新网香港6月8日电 (记者 魏华都)记者8日从相关发布会上获悉，美加墨世界杯期间，香港兰桂坊将举办世界杯狂热嘉年华，迎接各地球迷。
 
-经开箱查验，查获疑似珍珠958粒。
+6月11日至7月20日期间，兰桂坊超过20家餐厅、酒吧和娱乐场所会举行美食盛宴、赛事直播，户外还有歌手献唱、花式足球街头炫技、特色装置打卡和巨型街头屏幕4K超高清直播等活动，希望打造“街头球场”氛围。
 
-经专业机构鉴定，上述物品为海水养殖珍珠，价值15.25万元。
+“本次活动再次确立香港兰桂坊作为球迷首选热点的地位。
 
-目前，该案件已移交海关缉私部门做进一步处理。
+”兰桂坊集团主席盛智文邀请全球足球爱好者齐聚香港中环核心地带，亲身感受香港的城市澎湃活力。
+
+香港电讯个人业务行政总裁林国诚说，世界杯的魅力源于球迷的热情，香港电讯旗下的Now TV已取得世界杯赛事播映权，届时会在兰桂坊播放所有104场赛事，打造集体观赛体验，把球场的炙热氛围直接带到城市核心地段。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:47 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 00:18 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 00:38 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 00:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 00:23 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 00:43 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 00:35 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 00:25 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 00:38 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 00:31 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 00:43 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 00:47 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 00:18 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 00:25 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 00:40 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 00:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 00:52 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 00:53 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 00:52 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 00:32 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 00:33 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 00:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 00:50 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 00:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 00:37 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 00:26 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 00:48 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:20 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/766345167.shtml)
-- 2026-06-30 00:21 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/652789919295.shtml)
-- 2026-06-30 00:37 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/062328891575.shtml)
-- 2026-06-30 00:43 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/76807131772.shtml)
-- 2026-06-30 00:44 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/87973.shtml)
-- 2026-06-30 00:30 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/764853391310.shtml)
-- 2026-06-30 00:47 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/71595058.shtml)
-- 2026-06-30 00:21 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/65351068.shtml)
-- 2026-06-30 00:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/976316.shtml)
-- 2026-06-30 00:29 - [沙丘](http://www.blog.kurohicncr.top/Article/details/30681072.shtml)
-- 2026-06-30 00:33 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/21217966.shtml)
-- 2026-06-30 00:44 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/9300137.shtml)
-- 2026-06-30 00:32 - [第一炉香](https://www.share.kurohicncr.top/Article/details/325316908.shtml)
-- 2026-06-30 00:33 - [张凌赫 客串](https://www.share.minike.top/Article/details/26838111610.shtml)
-- 2026-06-30 00:19 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/96058600.shtml)
+- 2026-06-30 00:34 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/7910157.shtml)
+- 2026-06-30 00:52 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/412527880.shtml)
+- 2026-06-30 00:31 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/7954916.shtml)
+- 2026-06-30 00:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/72044468.shtml)
+- 2026-06-30 00:49 - [金牌调解](http://www.share.kurohicncr.top/Article/details/7562874216.shtml)
+- 2026-06-30 00:27 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/56836.shtml)
+- 2026-06-30 00:45 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/697717944.shtml)
+- 2026-06-30 00:29 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/6132927.shtml)
+- 2026-06-30 00:47 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/11368.shtml)
+- 2026-06-30 00:40 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/74768249119.shtml)
+- 2026-06-30 00:41 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/77735.shtml)
+- 2026-06-30 00:31 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/077170115.shtml)
+- 2026-06-30 00:33 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/9650730.shtml)
+- 2026-06-30 00:29 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/941348384.shtml)
+- 2026-06-30 00:41 - [流金岁月](https://www.share.kurohicncr.top/Article/details/075467.shtml)

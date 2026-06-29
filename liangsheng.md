@@ -1,51 +1,55 @@
-# 为中朝传统友谊注入新的时代内涵和强劲动力，习近平提出“四个坚持”
+# 海南：海洋经济要从“三分天下有其一”向“半壁江山”迈进
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。 习近平指出，愿同金正恩总书记同志一道，以这次访问为契机，加强对新时期中朝关系的顶层设计和战略指引，推动中朝关系与时俱进、得到更大发展，更好造福两国和两国人民，为地区乃至世界和平稳定和发展繁荣作出积极贡献。 总监制丨王涵 监制丨李浙 主编丨王兴栋 蒋安琪 制图丨潘
+发布时间：2026年06月08日 19:52 来源：中国新闻网 6月8日，海南省开局起步“十五五”系列主题新闻发布会(第三场)——《海南省“十五五”海洋经济发展规划(2026—2030年)》暨《海南省海洋文化发展行动方案(2026—2030年)》专场在海口召开。海南省海洋厅党组成员、副厅长、新闻发言人戴文达在会上介绍，“十五五”期间，海南省不再单纯追求海洋生产总值绝对值，而是以
 
 ## 正文
 
-当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。
+发布时间：2026年06月08日 19:52 来源：中国新闻网 6月8日，海南省开局起步“十五五”系列主题新闻发布会(第三场)——《海南省“十五五”海洋经济发展规划(2026—2030年)》暨《海南省海洋文化发展行动方案(2026—2030年)》专场在海口召开。
 
-习近平指出，愿同金正恩总书记同志一道，以这次访问为契机，加强对新时期中朝关系的顶层设计和战略指引，推动中朝关系与时俱进、得到更大发展，更好造福两国和两国人民，为地区乃至世界和平稳定和发展繁荣作出积极贡献。
+海南省海洋厅党组成员、副厅长、新闻发言人戴文达在会上介绍，“十五五”期间，海南省不再单纯追求海洋生产总值绝对值，而是以“海洋生产总值占全省GDP比重”作为核心结构性指标。
 
-总监制丨王涵 监制丨李浙 主编丨王兴栋 蒋安琪 制图丨潘杨 编辑丨谭瑶 高少卓
+到2030年，这一比重力争达到45%以上；到2035年，力争超过50%。
+
+这意味着，“十五五”期间，海南的海洋经济增速必须快于全省GDP增速，海洋经济要从“三分天下有其一”向“半壁江山”迈进。
+
+(记者 林士杰) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 00:23 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 00:20 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 00:33 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 00:24 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 00:27 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 00:42 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 00:40 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 00:33 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 00:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 00:31 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 00:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 00:37 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 00:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 00:28 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 00:41 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 00:49 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 00:33 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 00:53 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 00:40 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 00:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 00:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 00:37 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 00:38 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 00:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 00:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 00:33 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 00:38 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 00:47 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 00:38 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 00:27 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:26 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/6924932046.shtml)
-- 2026-06-30 00:38 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/1248919.shtml)
-- 2026-06-30 00:46 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/551575661.shtml)
-- 2026-06-30 00:27 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/1893406.shtml)
-- 2026-06-30 00:40 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/5886667.shtml)
-- 2026-06-30 00:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/990674691859.shtml)
-- 2026-06-30 00:36 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/2476165.shtml)
-- 2026-06-30 00:29 - [金牌调解](https://www.share.kurohicncr.top/Article/details/7284212.shtml)
-- 2026-06-30 00:25 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/7680966.shtml)
-- 2026-06-30 00:26 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/59429.shtml)
-- 2026-06-30 00:33 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/218834606812.shtml)
-- 2026-06-30 00:18 - [扫黑风暴](http://www.blog.minike.top/Article/details/18995918.shtml)
-- 2026-06-30 00:46 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/634921964669.shtml)
-- 2026-06-30 00:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/470571.shtml)
-- 2026-06-30 00:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/9625902796.shtml)
+- 2026-06-30 00:27 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/709670398.shtml)
+- 2026-06-30 00:39 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/824913.shtml)
+- 2026-06-30 00:41 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/071147.shtml)
+- 2026-06-30 00:38 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/62635991399.shtml)
+- 2026-06-30 00:40 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/1930999.shtml)
+- 2026-06-30 00:51 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/460892.shtml)
+- 2026-06-30 00:29 - [恋与深空 巧合](http://www.share.minike.top/Article/details/670939634.shtml)
+- 2026-06-30 00:44 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/291881888.shtml)
+- 2026-06-30 00:52 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/360423.shtml)
+- 2026-06-30 00:27 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/105598741.shtml)
+- 2026-06-30 00:39 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/76966677265.shtml)
+- 2026-06-30 00:52 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/95722.shtml)
+- 2026-06-30 00:41 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/4759580328.shtml)
+- 2026-06-30 00:35 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/6802507.shtml)
+- 2026-06-30 00:30 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/76130840.shtml)

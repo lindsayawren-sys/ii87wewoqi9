@@ -1,56 +1,52 @@
-# 告别“华贵”奔“小康” 罗振华出任小康人寿临时负责人
+# 苹果 iOS 27照片App升级“空间构图”技术，支持先拍照再调整视角
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-每经记者|袁园 每经编辑|廖丹 小康人寿总经理一职在空悬10年后将迎来补位。 6月8日，小康人寿发布公告称，公司已聘任罗振华出任临时负责人。《每日经济新闻》记者注意到，小康人寿总精算师孙晓宇也于5月12日拿到任职资格批复。 目前小康人寿高管团队核心成员共5人：1名“60后”，1名“70后”，3名“80后”。 小康人寿的前身是中法人寿，成立于2005年。由于早期外资股东退出等问题
+专题：WWDC26苹果开发者大会 新浪科技讯 6月9日凌晨，苹果召开 WWDC26 全球开发者大会。据介绍，在macOS 27、iOS 27 系统中，苹果宣布为照片App引入“空间构图”技术，能够帮助用户先拍照再构图。具体来看，苹果利用设备端空间模型和基于专用云计算的空间模型，让照片变身为“3D 空间场景”，用户可以通过编辑后期自由放大、移动照片视角位置，支持所有照片，包括相机
 
 ## 正文
 
-每经记者|袁园 每经编辑|廖丹 小康人寿总经理一职在空悬10年后将迎来补位。
+专题：WWDC26苹果开发者大会 新浪科技讯 6月9日凌晨，苹果召开 WWDC26 全球开发者大会。
 
-6月8日，小康人寿发布公告称，公司已聘任罗振华出任临时负责人。
+据介绍，在macOS 27、iOS 27 系统中，苹果宣布为照片App引入“空间构图”技术，能够帮助用户先拍照再构图。
 
-《每日经济新闻》记者注意到，小康人寿总精算师孙晓宇也于5月12日拿到任职资格批复。
+具体来看，苹果利用设备端空间模型和基于专用云计算的空间模型，让照片变身为“3D 空间场景”，用户可以通过编辑后期自由放大、移动照片视角位置，支持所有照片，包括相机拍摄的照片。
 
-目前小康人寿高管团队核心成员共5人：1名“60后”，1名“70后”，3名“80后”。
-
-小康人寿的前身是中法人寿，成立于2005年。
-
-由于早期外资股东退出等问题，在很长一段时间，公司因流动性危机而陷入偿付能力告急、连年亏损的状况，直到2020年在监管推动下进行重组，由鸿商集团、宁德时代、青山控股等股东注资，而后更名为“小康人寿”。
-
-需要指出的是，虽然小康人寿更名后经营业绩逐步走向正轨，但其总经理人员一直迟迟未落听，若从中法人寿时代算起，该岗位已空悬约10年之久。
-
-近期，小康人寿为该职位找到了合适人选。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 00:35 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 00:26 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 00:39 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 00:43 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 00:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 00:31 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 00:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 00:43 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 00:27 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 00:31 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 00:51 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 00:26 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 00:28 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 00:40 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 00:50 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 00:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 00:42 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 00:51 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 00:44 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 00:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 00:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 00:26 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 00:42 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 00:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:40 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/6707540311.shtml)
-- 2026-06-30 00:43 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/683394776.shtml)
-- 2026-06-30 00:31 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/1035647.shtml)
-- 2026-06-30 00:25 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/2177672727.shtml)
-- 2026-06-30 00:30 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/1230149696.shtml)
-- 2026-06-30 00:47 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/3921813800.shtml)
-- 2026-06-30 00:24 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/25943284.shtml)
-- 2026-06-30 00:19 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/87801209133.shtml)
-- 2026-06-30 00:23 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/108109912464.shtml)
-- 2026-06-30 00:34 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/316945234592.shtml)
-- 2026-06-30 00:35 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/94605735765.shtml)
-- 2026-06-30 00:36 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/773367.shtml)
-- 2026-06-30 00:25 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/37110814106.shtml)
-- 2026-06-30 00:34 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/221446960801.shtml)
-- 2026-06-30 00:33 - [斛珠夫人](https://www.share.minike.top/Article/details/121662250562.shtml)
+- 2026-06-30 00:47 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/29349756080.shtml)
+- 2026-06-30 00:37 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/8878746270.shtml)
+- 2026-06-30 00:52 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/314720.shtml)
+- 2026-06-30 00:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/797472293.shtml)
+- 2026-06-30 00:41 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/3524993.shtml)
+- 2026-06-30 00:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/750330.shtml)
+- 2026-06-30 00:51 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/1320432418.shtml)
+- 2026-06-30 00:28 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/0641660968.shtml)
+- 2026-06-30 00:24 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/13315.shtml)
+- 2026-06-30 00:44 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/2471977599.shtml)
+- 2026-06-30 00:33 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/615677001979.shtml)
+- 2026-06-30 00:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/02664014.shtml)
+- 2026-06-30 00:48 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/305245.shtml)
+- 2026-06-30 00:36 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/42042.shtml)
+- 2026-06-30 00:25 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/559759.shtml)

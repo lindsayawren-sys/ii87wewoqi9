@@ -1,59 +1,58 @@
-# 中国外贸最新成绩单何以“超预期”？
+# “学习和掌握国家通用语言与继承本族群母语和传统文化，这二者之间并不冲突，完全可以做到二者兼顾”
 
-> 更新时间：2026-06-30 00:48:02 UTC+8
+> 更新时间：2026-06-30 00:54:02 UTC+8
 
 ## 摘要
 
-国际锐评丨中国外贸最新成绩单何以“超预期”？ 随着2026年美加墨世界杯临近，有着“世界小商品之都”称号的中国义乌更忙碌了。商户们透露，从球衣到各类观赛用品，今年与世界杯相关的订单量预计较往届增长20%～30%，有的商户订单甚至预计增长5倍。这一火热场景，正是中国外贸表现的缩影。 中国官方9日发布的数据显示，今年前5个月，中国货物贸易进出口总值20.68万亿元人民币，同比增长1
+1939年，历史学家顾颉刚在抗日战争的背景下，提出了“中华民族是一个”的观点；近半个世纪后，费孝通教授1988年在香港中文大学“特纳讲座”中提出著名的“中华民族的多元一体格局”理论。 作者 李晗雪 1939年，历史学家顾颉刚在抗日战争的背景下，提出了“中华民族是一个”的观点。当时，这一观点引出包括费孝通在内不同学科背景学人的商榷，指其似乎不够重视中国各民族的多样性。然而即便如费
 
 ## 正文
 
-国际锐评丨中国外贸最新成绩单何以“超预期”？
+1939年，历史学家顾颉刚在抗日战争的背景下，提出了“中华民族是一个”的观点；近半个世纪后，费孝通教授1988年在香港中文大学“特纳讲座”中提出著名的“中华民族的多元一体格局”理论。
 
-随着2026年美加墨世界杯临近，有着“世界小商品之都”称号的中国义乌更忙碌了。
+作者 李晗雪 1939年，历史学家顾颉刚在抗日战争的背景下，提出了“中华民族是一个”的观点。
 
-商户们透露，从球衣到各类观赛用品，今年与世界杯相关的订单量预计较往届增长20%～30%，有的商户订单甚至预计增长5倍。
+当时，这一观点引出包括费孝通在内不同学科背景学人的商榷，指其似乎不够重视中国各民族的多样性。
 
-这一火热场景，正是中国外贸表现的缩影。
+然而即便如费孝通，在半个世纪后，也改变了看法。
 
-中国官方9日发布的数据显示，今年前5个月，中国货物贸易进出口总值20.68万亿元人民币，同比增长15.3%，延续了稳定增长态势。
+转变因何而生？
 
-其中，出口11.91万亿元，增长11.8%；进口8.77万亿元，增长20.5%。
+如今回顾这场论争，对理解中华民族的民族关系有何启示？
 
-截至5月，月度进出口额已连续3个月超过4万亿元。
+北京大学社会学系教授马戎接受中新社“东西问”独家专访，探讨上述话题。
 
-“中国贸易引擎加速运转”“多项数据持续走强”“成绩超出市场预期”……外媒纷纷给出评价，认为中国外贸表现提振了市场对中国经济高质量发展的信心。
+现将访谈实录摘要如下： 半世纪论争终成大格局 中新社记者：在您看来，应如何理解80多年前历史学家顾颉刚提出“中华民族是一个”的时空背景？
 
 ## 相关推荐
 
-- 2026-06-30 00:25 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 00:38 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 00:19 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 00:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 00:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 00:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 00:29 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 00:48 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 00:26 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 00:29 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 00:36 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 00:22 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 00:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 00:38 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 00:33 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 00:29 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 00:40 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 00:25 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 00:50 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 00:29 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 00:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 00:38 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 00:51 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 00:27 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 00:40 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:26 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/27188991094.shtml)
-- 2026-06-30 00:41 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/09882286077.shtml)
-- 2026-06-30 00:29 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/60687486303.shtml)
-- 2026-06-30 00:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/25743.shtml)
-- 2026-06-30 00:22 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/12695385204.shtml)
-- 2026-06-30 00:46 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/6373047.shtml)
-- 2026-06-30 00:18 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/411766991223.shtml)
-- 2026-06-30 00:41 - [TOP Prada](https://www.blog.minike.top/Article/details/5148045983.shtml)
-- 2026-06-30 00:34 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/93962361811.shtml)
-- 2026-06-30 00:39 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/0646102323.shtml)
-- 2026-06-30 00:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/3102280.shtml)
-- 2026-06-30 00:29 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/909580.shtml)
-- 2026-06-30 00:41 - [美人鱼](http://www.blog.minike.top/Article/details/324685.shtml)
-- 2026-06-30 00:26 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/229507139.shtml)
-- 2026-06-30 00:31 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/4548892.shtml)
+- 2026-06-30 00:52 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/98133972961.shtml)
+- 2026-06-30 00:32 - [天道](https://www.blog.kurohicncr.top/Article/details/8530087.shtml)
+- 2026-06-30 00:41 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/188256286042.shtml)
+- 2026-06-30 00:35 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/861734.shtml)
+- 2026-06-30 00:41 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/66428.shtml)
+- 2026-06-30 00:50 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/66936.shtml)
+- 2026-06-30 00:40 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/992869115548.shtml)
+- 2026-06-30 00:27 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/66586444.shtml)
+- 2026-06-30 00:51 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/007565.shtml)
+- 2026-06-30 00:52 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/52942721327.shtml)
+- 2026-06-30 00:33 - [绘画区你赢了](http://www.share.minike.top/Article/details/180926392767.shtml)
+- 2026-06-30 00:30 - [沉睡花园](http://www.share.minike.top/Article/details/927931915280.shtml)
+- 2026-06-30 00:33 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/143110549707.shtml)
+- 2026-06-30 00:29 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/9355834.shtml)
+- 2026-06-30 00:32 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/31577.shtml)
