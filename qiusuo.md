@@ -1,57 +1,60 @@
-# 九毛九：第一季度主要品牌的经营表现持续向好
+# 科梁信息港股IPO：递表前夕大批战投清仓退出、关联方突击入股 反向持股海外核心供应商 现金流持续波动
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-九毛九（09922）发布公告，于2026年第一季度，本集团主要品牌的经营表现持续向好。其中，太二于中国内地的同店日均销售额同比增长进一步增强，延续自2025年第二季度以来的阶梯式修复趋势。期内，“鲜活”模式门店及旧模式门店的同店日均销售额同比均已实现转正，带动太二于中国内地整体实现低双位数增长，其中“鲜活”模式门店表现尤为突出，进一步验证门店模型升级的有效性。 截至2026年3
+出品：新浪财经上市公司研究院 作者：渚 5月20日，上海科梁信息科技股份有限公司（下称“科梁信息”）正式向联交所主板提交上市申请，国金证券（香港）担任其独家保荐人。 本次申报前夕，科梁信息多家战略投资者集中清仓离场，关联企业宏力达却在此时点突击受让大额股份，入股成本低于前期融资价。 经营层面，科梁信息多重经营风险交织。公司作为无电网背景的第三方服务商，同时面对国内同业白热化竞争
 
 ## 正文
 
-九毛九（09922）发布公告，于2026年第一季度，本集团主要品牌的经营表现持续向好。
+出品：新浪财经上市公司研究院 作者：渚 5月20日，上海科梁信息科技股份有限公司（下称“科梁信息”）正式向联交所主板提交上市申请，国金证券（香港）担任其独家保荐人。
 
-其中，太二于中国内地的同店日均销售额同比增长进一步增强，延续自2025年第二季度以来的阶梯式修复趋势。
+本次申报前夕，科梁信息多家战略投资者集中清仓离场，关联企业宏力达却在此时点突击受让大额股份，入股成本低于前期融资价。
 
-期内，“鲜活”模式门店及旧模式门店的同店日均销售额同比均已实现转正，带动太二于中国内地整体实现低双位数增长，其中“鲜活”模式门店表现尤为突出，进一步验证门店模型升级的有效性。
+经营层面，科梁信息多重经营风险交织。
 
-截至2026年3月31日，太二已于中国内地累计落地“鲜活”模式门店273家，覆盖全国81个核心城市。
+公司作为无电网背景的第三方服务商，同时面对国内同业白热化竞争与海外厂商技术挤压，公司招标中标率、招标收入连续三年下滑，高端装备电气业务收入大幅缩水，境外市场收入持续萎缩，市场拓展空间受限。
 
-该等门店在产品结构及客户体验方面持续优化，进一步强化“鲜活食材”的品牌定位。
+供应链方面，科梁信息过半采购额依赖单一加拿大供应商，还反向持有对方股权并签订独家经销协议，供应链高度绑定海外主体，地缘环境变化、合作关系变动都将直接冲击主营业务。
 
-基于当前良好的模型验证及门店表现，本集团计划于 2026年内完成中国内地门店的全面调改。
+大批战投清仓退出 关联方突击入股 科梁信息创建于2007年，是一家“以模型驱动开发，以创新创造价值”的数字能源科技公司，致力于为新型电力系统与高端装备电气系统的规划、设计、建设、运行全生命周期，提供仿真测试类专业软硬件工具产品与定制化综合解决方案。
 
-自2024年末以来太二门店布局优化已于 2026年第一季度基本完成。
+科梁信息曾多次筹划A股上市。
 
-本集团预计太二将逐步回归更为稳健的发展节奏。
+2021年1月，公司向上海证监局提交辅导备案，辅导机构为安信证券（现国投证券），该次辅导于2023年3月终止。
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 14:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 14:07 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 14:02 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 14:16 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 13:51 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 13:59 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 14:13 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 13:53 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 13:48 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 14:02 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 14:05 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 14:11 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 14:05 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 14:06 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 13:54 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 14:05 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 14:03 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 13:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 13:59 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 14:02 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 14:11 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 14:12 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 13:59 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 14:21 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:50 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/4433846527.shtml)
-- 2026-06-29 14:16 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/1252962179.shtml)
-- 2026-06-29 13:55 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/40061057.shtml)
-- 2026-06-29 14:17 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/00859170.shtml)
-- 2026-06-29 14:11 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/2741080.shtml)
-- 2026-06-29 14:15 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/53018.shtml)
-- 2026-06-29 13:50 - [扬名立万](http://www.share.minike.top/Article/details/2104374.shtml)
-- 2026-06-29 14:05 - [北极荒岛生存挑战](http://www.share.kurohicncr.top/Article/details/2172981.shtml)
-- 2026-06-29 14:07 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/4707607692.shtml)
-- 2026-06-29 13:55 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/412021.shtml)
-- 2026-06-29 14:02 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/930138236575.shtml)
-- 2026-06-29 14:10 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/189199.shtml)
-- 2026-06-29 13:55 - [毒液2](https://www.share.kurohicncr.top/Article/details/304291.shtml)
-- 2026-06-29 14:07 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.minike.top/Article/details/741048789179.shtml)
-- 2026-06-29 14:06 - [请回答王牌2019](https://www.share.minike.top/Article/details/606954053.shtml)
+- 2026-06-29 14:19 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/8195915.shtml)
+- 2026-06-29 13:59 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.kurohicncr.top/Article/details/777868.shtml)
+- 2026-06-29 14:12 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/5319631369.shtml)
+- 2026-06-29 14:04 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/9659306.shtml)
+- 2026-06-29 14:19 - [人民日报评“AI脸看腻了”](https://www.share.kurohicncr.top/Article/details/91068419.shtml)
+- 2026-06-29 14:19 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/5883806.shtml)
+- 2026-06-29 13:59 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/0596875965.shtml)
+- 2026-06-29 14:14 - [以前不让妆女二可以艳压女主](https://www.blog.kurohicncr.top/Article/details/645214574.shtml)
+- 2026-06-29 14:07 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/3702208.shtml)
+- 2026-06-29 13:57 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/060385751.shtml)
+- 2026-06-29 13:55 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/002986.shtml)
+- 2026-06-29 13:57 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/725576233.shtml)
+- 2026-06-29 14:06 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/99490.shtml)
+- 2026-06-29 14:06 - [恋与深空底线不该被娱乐化](https://www.blog.kurohicncr.top/Article/details/8642420.shtml)
+- 2026-06-29 14:21 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/775588516655.shtml)

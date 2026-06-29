@@ -1,57 +1,61 @@
-# 摩根士丹利威尔逊：标普500若回调，将加仓风险资产
+# 吉安台商扎根大陆近三十载 倾心助教促交流
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-摩根士丹利表示，标普500指数可能再度走弱，而这将成为买入机会。 由迈克尔・威尔逊领衔的策略师团队认为，随着和谈陷入停滞、各国央行聚焦通胀风险，该基准指数在本轮调整中或再度试探目标区间下限6300-6500点。 团队认为盈利环境正在走强，支撑乐观观点：标普500往绩盈利增速为15%，未来12个月盈利同比增幅将超20%；同时自伊朗冲突爆发以来，盈利修正广度维持在8%，表现具备韧性
+中新社吉安6月1日电 题：吉安台商扎根大陆近三十载 倾心助教促交流 中新社记者 李韵涵 “黄爸爸！黄爸爸！你又来看我们了。”初夏时节，在江西省吉安市泰和县特殊教育学校的走廊上，台商黄武勇给孩子们带来了“六一”礼物，在一声声稚嫩的呼唤声中，黄武勇被团团围住。 今年63岁的黄武勇来自台湾桃园，现任吉安市台协会常务副会长、泰和县桃源度假村负责人。从1997年来到泰和起，他在江西扎根已
 
 ## 正文
 
-摩根士丹利表示，标普500指数可能再度走弱，而这将成为买入机会。
+中新社吉安6月1日电 题：吉安台商扎根大陆近三十载 倾心助教促交流 中新社记者 李韵涵 “黄爸爸！
 
-由迈克尔・威尔逊领衔的策略师团队认为，随着和谈陷入停滞、各国央行聚焦通胀风险，该基准指数在本轮调整中或再度试探目标区间下限6300-6500点。
+黄爸爸！
 
-团队认为盈利环境正在走强，支撑乐观观点：标普500往绩盈利增速为15%，未来12个月盈利同比增幅将超20%；同时自伊朗冲突爆发以来，盈利修正广度维持在8%，表现具备韧性。
+你又来看我们了。
 
-报告还指出，自2月末至今，2026年一季度每股收益预期上调1%，二季度预期上调4%。
+”初夏时节，在江西省吉安市泰和县特殊教育学校的走廊上，台商黄武勇给孩子们带来了“六一”礼物，在一声声稚嫩的呼唤声中，黄武勇被团团围住。
 
-能源方面，该行认为当前严重的供应短缺暂时只是阶段性现象。
+今年63岁的黄武勇来自台湾桃园，现任吉安市台协会常务副会长、泰和县桃源度假村负责人。
 
-威尔逊称：“各国会找到办法解决这一对全球经济而言无法承受的问题，就像它们在2022年所做的那样。
+从1997年来到泰和起，他在江西扎根已近30年，而与泰和县特殊教育学校孩子们的缘分，始于26年前。
 
-”责任编辑：刘明亮
+“我第一次来这里看望的那批孩子只有14人，有的听不见声音，有的无法开口说话。
+
+”黄武勇说，那时就告诉自己，如果有能力，一定要帮助他们。
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 14:01 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 14:13 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 14:07 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 14:04 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 13:49 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 13:51 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 14:00 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 13:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 13:55 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 13:52 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 14:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 13:56 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 14:09 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 14:13 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 14:11 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 14:00 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 13:57 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 14:02 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 14:03 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 14:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 14:12 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 13:55 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 13:54 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 14:03 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 13:58 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 14:07 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 14:00 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/580858539909.shtml)
-- 2026-06-29 13:52 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/088867236.shtml)
-- 2026-06-29 14:13 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/81665063.shtml)
-- 2026-06-29 14:17 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/56469383389.shtml)
-- 2026-06-29 14:09 - [直击宜宾地震：监控剧烈摇晃](https://www.share.minike.top/Article/details/382460598.shtml)
-- 2026-06-29 14:10 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/8288152.shtml)
-- 2026-06-29 14:14 - [5万块的威力](https://www.blog.minike.top/Article/details/029406.shtml)
-- 2026-06-29 14:02 - [世界杯看到肖战了](https://www.share.kurohicncr.top/Article/details/4037377745.shtml)
-- 2026-06-29 14:05 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/195408.shtml)
-- 2026-06-29 14:02 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/095920.shtml)
-- 2026-06-29 13:59 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/3504662.shtml)
-- 2026-06-29 14:15 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/73124.shtml)
-- 2026-06-29 14:17 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/19861286453.shtml)
-- 2026-06-29 13:56 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.minike.top/Article/details/51235.shtml)
-- 2026-06-29 14:00 - [双高胎](http://www.share.kurohicncr.top/Article/details/8414078.shtml)
+- 2026-06-29 14:14 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/5521889.shtml)
+- 2026-06-29 14:16 - [105年初心滚烫](http://www.share.minike.top/Article/details/638510676610.shtml)
+- 2026-06-29 14:11 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/682964400941.shtml)
+- 2026-06-29 13:54 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/2598321.shtml)
+- 2026-06-29 14:14 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/26543484.shtml)
+- 2026-06-29 14:17 - [A股](http://www.blog.minike.top/Article/details/83292.shtml)
+- 2026-06-29 13:56 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/91729.shtml)
+- 2026-06-29 14:19 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/096921.shtml)
+- 2026-06-29 14:07 - [双高胎](https://www.share.minike.top/Article/details/651495851.shtml)
+- 2026-06-29 14:13 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/73939305.shtml)
+- 2026-06-29 14:06 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/924154893.shtml)
+- 2026-06-29 14:19 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/633934589619.shtml)
+- 2026-06-29 14:02 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/36612767.shtml)
+- 2026-06-29 14:16 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/81132.shtml)
+- 2026-06-29 14:03 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.minike.top/Article/details/25056768.shtml)

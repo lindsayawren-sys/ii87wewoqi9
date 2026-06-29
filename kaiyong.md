@@ -1,57 +1,59 @@
-# 中国一季度进出口超11万亿元 季度增速达近五年新高
+# 2026年全国粮食和物资储备科技活动周在湖北启动
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新社北京4月14日电 (记者 王梦瑶)中国海关总署副署长王军14日在国新办新闻发布会上表示，中国一季度进出口超过11万亿元(人民币，下同)，为历史同期首次，季度增速也是近五年最高。 当日公布的数据显示，今年一季度，中国货物贸易进出口11.84万亿元，同比增长15%。其中，出口6.85万亿元，增长11.9%，进口4.99万亿元，增长19.6%。 各类经营主体全面增长。一季度，中
+人民网武汉6月2日电 (记者周雯)6月1日上午，2026年全国粮食和物资储备科技活动周启动仪式在湖北省武汉市举行。活动周期间，国家粮食和物资储备局将组织科技服务组奔赴部分产粮大县，开展技术帮扶与科普宣传工作，全国各地也将结合本地实际，举办形式多样、特色鲜明的群众性科技活动。本次科技活动周以“奋进‘十五五’ 科技护粮储”为主题，集中展示“十四五”时期粮食和物资储备领域优秀科技成果
 
 ## 正文
 
-中新社北京4月14日电 (记者 王梦瑶)中国海关总署副署长王军14日在国新办新闻发布会上表示，中国一季度进出口超过11万亿元(人民币，下同)，为历史同期首次，季度增速也是近五年最高。
+人民网武汉6月2日电 (记者周雯)6月1日上午，2026年全国粮食和物资储备科技活动周启动仪式在湖北省武汉市举行。
 
-当日公布的数据显示，今年一季度，中国货物贸易进出口11.84万亿元，同比增长15%。
+活动周期间，国家粮食和物资储备局将组织科技服务组奔赴部分产粮大县，开展技术帮扶与科普宣传工作，全国各地也将结合本地实际，举办形式多样、特色鲜明的群众性科技活动。
 
-其中，出口6.85万亿元，增长11.9%，进口4.99万亿元，增长19.6%。
+本次科技活动周以“奋进‘十五五’ 科技护粮储”为主题，集中展示“十四五”时期粮食和物资储备领域优秀科技成果与典型应用案例，分类呈现全谷物技术及产品、应急物资储备技术成果以及湖北省粮油创新产品，全方位、系统性展现粮食和物资储备行业科技创新与人才建设丰硕成效。
 
-各类经营主体全面增长。
+科技创新与人才队伍建设，是粮食和物资储备事业高质量发展的核心支撑。
 
-一季度，中国民营企业进出口6.78万亿元，同比增长16.2%，占中国进出口总值的比重进一步提升至57.3%。
+记者从启动仪式上获悉，“十五五”时期，我国将深入推进科技和人才兴粮兴储战略，锚定多重发展目标精准发力。
 
-同期，外商投资企业进出口3.47万亿元，国有企业进出口1.56万亿元，同比分别增长16.1%和8%。
+立足保障国家粮食安全，聚焦行业关键重点环节，全力突破关键核心技术；立足群众健康需求，迭代丰富优质粮油产品供给，让科技创新惠及民生；立足现代化大国储备体系建设，强化体系化科研能力，深化技术集成创新；立足提升应急保障硬实力，践行“闻灾而备、闻令而动”工作理念，加速优质科技成果落地转化；立足夯实行业长远发展后劲，一体化推进教育、科技、人才协同发展，持续提质培优粮食和物资储备人才队伍。
 
-市场多元化进一步巩固拓展。
+湖北作为全国粮食主产省、科教资源大省，粮油产业基础雄厚、科创优势突出。
 
-一季度，中国对共建“一带一路”国家进出口6.06万亿元，同比增长14.2%，占进出口总值的51.2%，对东盟、拉美进出口均同比增长15.4%，对非洲进出口同比增长23.7%，对欧盟、英国进出口同比分别增长14.6%和13.1%，对亚太经合组织其他经济体进出口同比增长13.4%。
+本次活动期间，湖北省同步启动全省粮食科技周系列活动。
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 13:52 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 13:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 13:52 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 14:01 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 13:48 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 14:10 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 13:54 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 14:13 - [新一代影后杨紫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 14:17 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 13:48 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 14:13 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 14:12 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 13:57 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 14:21 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 13:59 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 14:05 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 13:59 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 14:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 14:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 14:11 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 14:17 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 14:15 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 14:09 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:03 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/37593848.shtml)
-- 2026-06-29 14:01 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/8756436637.shtml)
-- 2026-06-29 13:50 - [强⁶](https://www.share.kurohicncr.top/Article/details/188674416509.shtml)
-- 2026-06-29 14:13 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.kurohicncr.top/Article/details/3943560272.shtml)
-- 2026-06-29 13:49 - [5万块的威力](http://www.blog.minike.top/Article/details/165588.shtml)
-- 2026-06-29 14:03 - [TOP 无畏契约](http://www.share.minike.top/Article/details/85789057.shtml)
-- 2026-06-29 13:53 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/77471645.shtml)
-- 2026-06-29 14:14 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.minike.top/Article/details/548541790918.shtml)
-- 2026-06-29 14:16 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/61273266815.shtml)
-- 2026-06-29 14:10 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/812377011.shtml)
-- 2026-06-29 14:02 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/89920977707.shtml)
-- 2026-06-29 14:11 - [刘仲华院士愿当贺永辉导师](http://www.blog.minike.top/Article/details/20987151753.shtml)
-- 2026-06-29 14:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/309548012752.shtml)
-- 2026-06-29 14:01 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/5143291.shtml)
-- 2026-06-29 14:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/9727646.shtml)
+- 2026-06-29 14:02 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/98318.shtml)
+- 2026-06-29 14:12 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/02886805.shtml)
+- 2026-06-29 14:12 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/17813.shtml)
+- 2026-06-29 14:23 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/142280.shtml)
+- 2026-06-29 14:07 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.kurohicncr.top/Article/details/4196734903.shtml)
+- 2026-06-29 14:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/07656156299.shtml)
+- 2026-06-29 14:13 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/37451862464.shtml)
+- 2026-06-29 14:22 - [金刚川](https://www.blog.minike.top/Article/details/26103.shtml)
+- 2026-06-29 14:10 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/120983752219.shtml)
+- 2026-06-29 14:14 - [唐艺昕女儿接唐艺昕回家](http://www.blog.kurohicncr.top/Article/details/42900.shtml)
+- 2026-06-29 14:22 - [爸爸当家](http://www.share.minike.top/Article/details/56822147995.shtml)
+- 2026-06-29 14:15 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.minike.top/Article/details/7721483653.shtml)
+- 2026-06-29 14:15 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/416112.shtml)
+- 2026-06-29 14:14 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/41433786.shtml)
+- 2026-06-29 14:04 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/0560913031.shtml)

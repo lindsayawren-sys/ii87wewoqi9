@@ -1,56 +1,58 @@
-# IPO雷达 | 企查查更新财务数据，2025年经营增速持续下降
+# 休曼纳重申全年指引股价大涨8%，多家投行上调目标价
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-界面新闻记者 赵阳戈 跨度5个半月，正在IPO进程中的企查查，更新了自己的招股说明书，将2025年全年的数据全部呈现。界面新闻对比后发现，企查查这家“准上市公司”正面临着核心业务增长恐见顶、第二曲线乏力以及合规风险暴露的多重困境。 首先可以肯定的是，这家成立已逾十年的商业大数据公司，交出了一份亮眼的成绩单：2025年营业收入突破7.87亿元，归母净利润达到3.77亿元，毛利率突
+健康保险巨头休曼纳（Humana）股价周一尾盘上涨约8%，此前公司重申了2026财年全年调整后每股收益至少9.00美元的业绩指引，超出市场预期。 根据Humana向美国证券交易委员会提交的文件，公司预计2026财年调整后每股收益不低于9.00美元。FactSet的 consensus 预期为每股8.93美元，公司指引明显高于市场预期。同时，公司预计GAAP口径下摊薄每股收益不低
 
 ## 正文
 
-界面新闻记者 赵阳戈 跨度5个半月，正在IPO进程中的企查查，更新了自己的招股说明书，将2025年全年的数据全部呈现。
+健康保险巨头休曼纳（Humana）股价周一尾盘上涨约8%，此前公司重申了2026财年全年调整后每股收益至少9.00美元的业绩指引，超出市场预期。
 
-界面新闻对比后发现，企查查这家“准上市公司”正面临着核心业务增长恐见顶、第二曲线乏力以及合规风险暴露的多重困境。
+根据Humana向美国证券交易委员会提交的文件，公司预计2026财年调整后每股收益不低于9.00美元。
 
-首先可以肯定的是，这家成立已逾十年的商业大数据公司，交出了一份亮眼的成绩单：2025年营业收入突破7.87亿元，归母净利润达到3.77亿元，毛利率突破了90%至91.4%，但是增长乏力也藏在其中。
+FactSet的 consensus 预期为每股8.93美元，公司指引明显高于市场预期。
 
-企查查2025年营业收入同比增长11.15%，低于2024年的14.58%，更明显低于2023年的19.25%。
+同时，公司预计GAAP口径下摊薄每股收益不低于8.36美元。
 
-归母净利润同样呈现增速下行趋势——2023年同比增长35.9%，2024年降至22.66%，2025年进一步放缓至18.62%。
+Humana管理层计划在2026年6月期间与投资者及分析师举行多场会议，届时将再次确认这一业绩展望。
 
-进一步分析，企查查的核心故事一直围绕其庞大的C端用户生态展开，其崛起也高度依赖个人用户流量的变现能力。
+公司此前于4月29日发布的第一季度财报已给出相同指引，此次重申进一步提振了市场信心。
 
-2025年全年，C端收入占营业收入的比例高达75.06%，但从披露的数据来看，这一赖以生存的用户基本盘，似乎正逐渐逼近市场饱和线。
+Humana第一季度业绩表现强劲，调整后每股收益达10.31美元，位于公司此前指引区间（约为全年调整后EPS的110%至115%）的高端。
 
-截至2025年末，企查查累计注册用户数达1.62亿，较2024年增长16.58%。
+第一季度保险板块GAAP赔付率为89.4%，略优于管理层“略低于90%”的预期。
 
 ## 相关推荐
 
-- 2026-06-29 13:48 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 14:11 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 13:50 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 13:50 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 14:08 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 14:11 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 13:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 14:03 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 13:59 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 14:09 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 13:54 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 14:03 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 13:54 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 14:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 14:14 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 14:14 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 14:13 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 14:07 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 13:57 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 14:02 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 14:09 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 14:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/8916971032.shtml)
-- 2026-06-29 14:05 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/509523.shtml)
-- 2026-06-29 14:07 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/205312541241.shtml)
-- 2026-06-29 14:15 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/610741949.shtml)
-- 2026-06-29 13:54 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/7865484456.shtml)
-- 2026-06-29 14:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/847839870.shtml)
-- 2026-06-29 14:12 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/44832074537.shtml)
-- 2026-06-29 14:00 - [强⁶](https://www.blog.minike.top/Article/details/96370.shtml)
-- 2026-06-29 14:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/6096899424.shtml)
-- 2026-06-29 13:54 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.kurohicncr.top/Article/details/6518436.shtml)
-- 2026-06-29 13:52 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/0153827620.shtml)
-- 2026-06-29 14:14 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/44654.shtml)
-- 2026-06-29 14:16 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/3638613.shtml)
-- 2026-06-29 13:51 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/0473636.shtml)
-- 2026-06-29 14:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/58549762180.shtml)
+- 2026-06-29 13:59 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/744991.shtml)
+- 2026-06-29 14:08 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/07788381.shtml)
+- 2026-06-29 14:15 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/771163988.shtml)
+- 2026-06-29 14:12 - [C罗关心罗德里戈伤情](https://www.blog.kurohicncr.top/Article/details/4616072.shtml)
+- 2026-06-29 14:22 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/3554880.shtml)
+- 2026-06-29 13:59 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/05336140471.shtml)
+- 2026-06-29 13:57 - [Mrbeast的30天不吃饭挑战](https://www.blog.kurohicncr.top/Article/details/68525.shtml)
+- 2026-06-29 14:12 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/1426731431.shtml)
+- 2026-06-29 14:19 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/568498140776.shtml)
+- 2026-06-29 14:08 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/34497.shtml)
+- 2026-06-29 14:00 - [亚洲成世界杯最大失意者联盟](http://www.share.kurohicncr.top/Article/details/9972662100.shtml)
+- 2026-06-29 14:01 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/2183563208.shtml)
+- 2026-06-29 14:13 - [沉睡花园](https://www.share.minike.top/Article/details/7944080.shtml)
+- 2026-06-29 14:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/46996.shtml)
+- 2026-06-29 14:04 - [爱情有烟火你是知道我爱看什么的](http://www.share.kurohicncr.top/Article/details/06469179573.shtml)

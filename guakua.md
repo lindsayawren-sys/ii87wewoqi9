@@ -1,46 +1,58 @@
-# 重庆港海关劳务派遣服务采购项目中标公告
+# 没洗的空调可能把人“吹进”ICU 夏天开空调前这2个部件一定要洗
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-1.项目名称：重庆港海关劳务派遣服务采购项目 2.采购人：中华人民共和国重庆港海关 3.采购方式：比选 4.开标时间：2026年4月3日5.中标供应商：重庆联朝服务外包有限公司 6.中标价格：70元/人/月 7.中标主要内容：重庆港海关劳务派遣服务采购项目 8.评审人员：王伟、陈乐、刘佳 9.联系人：姚老师 联系电话：023-67651238 10.公示期：2026年4月3日至
+78 岁老人开空调一晚高烧 3 天！开空调前千万不要偷懒少做这件事 夏天到了，又到了要靠空调“续命”的季节。 不过经历了一个春天，很多人家里的空调可能已经“休息”了好几个月，在北方有集中供暖的地区，空调甚至可能“沉睡了”将近一年的时间。那么，再次打开空调之前，有没有必要先清洗一下呢？ 答案是：非常有必要！长时间不清洗的空调，其内部积聚的污染物和致病菌会对健康产生不良影响，严重的
 
 ## 正文
 
-1.项目名称：重庆港海关劳务派遣服务采购项目 2.采购人：中华人民共和国重庆港海关 3.采购方式：比选 4.开标时间：2026年4月3日5.中标供应商：重庆联朝服务外包有限公司 6.中标价格：70元/人/月 7.中标主要内容：重庆港海关劳务派遣服务采购项目 8.评审人员：王伟、陈乐、刘佳 9.联系人：姚老师 联系电话：023-67651238 10.公示期：2026年4月3日至2026年4月7日。
+78 岁老人开空调一晚高烧 3 天！
 
-中小企业声明函.pdf
+开空调前千万不要偷懒少做这件事 夏天到了，又到了要靠空调“续命”的季节。
+
+不过经历了一个春天，很多人家里的空调可能已经“休息”了好几个月，在北方有集中供暖的地区，空调甚至可能“沉睡了”将近一年的时间。
+
+那么，再次打开空调之前，有没有必要先清洗一下呢？
+
+答案是：非常有必要！
+
+长时间不清洗的空调，其内部积聚的污染物和致病菌会对健康产生不良影响，严重的甚至会把人送进 ICU。
+
+空调，其实真的“很脏”！
+
+虽然大部分人不会把空调和“脏”联系在一起，但在空调工作的时候，空气会不断流过空调的翅片以实现热量交换。
 
 ## 相关推荐
 
-- 2026-06-29 13:55 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 14:03 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 14:06 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 13:59 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 14:05 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 14:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 14:13 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 13:51 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 13:59 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 13:57 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:52 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 14:04 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 14:10 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 14:07 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 14:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 14:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 14:20 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 14:17 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 14:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 14:17 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 14:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 14:01 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 14:06 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 14:00 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:10 - [强⁶](https://www.blog.kurohicncr.top/Article/details/34013059.shtml)
-- 2026-06-29 14:10 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/3061089371.shtml)
-- 2026-06-29 14:07 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/5952303537.shtml)
-- 2026-06-29 14:01 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/51353212.shtml)
-- 2026-06-29 13:56 - [强⁶](http://www.share.kurohicncr.top/Article/details/60308445189.shtml)
-- 2026-06-29 14:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/2282439.shtml)
-- 2026-06-29 13:56 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/6911583.shtml)
-- 2026-06-29 13:57 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/384104472.shtml)
-- 2026-06-29 14:03 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.minike.top/Article/details/849097456813.shtml)
-- 2026-06-29 13:53 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/208090650281.shtml)
-- 2026-06-29 14:13 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/2230812932.shtml)
-- 2026-06-29 13:52 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/59010.shtml)
-- 2026-06-29 14:01 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/688362912.shtml)
-- 2026-06-29 13:52 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/287204021426.shtml)
-- 2026-06-29 14:08 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/221887349.shtml)
+- 2026-06-29 14:01 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/4089371229.shtml)
+- 2026-06-29 14:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/5726892003.shtml)
+- 2026-06-29 14:10 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/25545425936.shtml)
+- 2026-06-29 14:06 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/211267885.shtml)
+- 2026-06-29 14:05 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/05113261.shtml)
+- 2026-06-29 13:54 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/181887.shtml)
+- 2026-06-29 14:19 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/22366456093.shtml)
+- 2026-06-29 14:05 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/024194567.shtml)
+- 2026-06-29 14:01 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/12678301.shtml)
+- 2026-06-29 14:11 - [第一炉香](https://www.share.minike.top/Article/details/6760463342.shtml)
+- 2026-06-29 14:21 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.kurohicncr.top/Article/details/87442.shtml)
+- 2026-06-29 14:04 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/87543.shtml)
+- 2026-06-29 13:57 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/99660552590.shtml)
+- 2026-06-29 14:23 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/08126.shtml)
+- 2026-06-29 14:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/7312359609.shtml)

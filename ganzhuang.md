@@ -1,57 +1,59 @@
-# 总书记引领强国之路｜擘画中国制造新蓝图
+# 国联民生证券孔蓉：万亿级IPO重塑全球科技股定价，AI投资正从硬件向软件“切换”
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-原标题：学习新语·总书记引领强国之路｜擘画中国制造新蓝图 2026年是“十五五”开局之年。“十五五”时期是基本实现社会主义现代化夯实基础、全面发力的关键时期。 如何走好关键一程，实现关键一跃？ “十五五”规划纲要提出16个“强国”建设目标。实现中华民族伟大复兴的中国梦，唯有踔厉奋发，笃行实干，把一个个“强国”建设目标实现好。 4月13日起，新华社“学习新语”栏目推出“总书记引领
+2026年注定成为全球科技资本市场的分水岭。SpaceX、OpenAI、Anthropic三大万亿级科技巨头接连启动上市，引发市场对“资金虹吸”与“估值重构”的广泛讨论。 6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，就上述热点问题展开深度解读。她认为，巨头上市带来的不仅是资金的重新配置，更将推动全球科技股定价逻辑的根本性改变——从“硬件一边倒
 
 ## 正文
 
-原标题：学习新语·总书记引领强国之路｜擘画中国制造新蓝图 2026年是“十五五”开局之年。
+2026年注定成为全球科技资本市场的分水岭。
 
-“十五五”时期是基本实现社会主义现代化夯实基础、全面发力的关键时期。
+SpaceX、OpenAI、Anthropic三大万亿级科技巨头接连启动上市，引发市场对“资金虹吸”与“估值重构”的广泛讨论。
 
-如何走好关键一程，实现关键一跃？
+6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，就上述热点问题展开深度解读。
 
-“十五五”规划纲要提出16个“强国”建设目标。
+她认为，巨头上市带来的不仅是资金的重新配置，更将推动全球科技股定价逻辑的根本性改变——从“硬件一边倒”走向“硬件分化+软件淘金”，而在此过程中，具备数据壁垒的软件公司有望成为下一阶段的“AI赢家”。
 
-实现中华民族伟大复兴的中国梦，唯有踔厉奋发，笃行实干，把一个个“强国”建设目标实现好。
+视频直播>> SpaceX即将以约1.8万亿美元估值登陆纳斯达克，OpenAI、Anthropic紧随其后。
 
-4月13日起，新华社“学习新语”栏目推出“总书记引领强国之路”系列融合报道。
+孔蓉指出，市场对这批巨头的追捧，本质上是在不确定性中寻找确定性。
 
-视频：总书记引领强国之路｜擘画中国制造新蓝图来源：新华社 在“十五五”规划纲要提出的16个“强国”建设目标中，制造强国列于首位。
+“AI这波机会已经持续了3到4年，市场买的是龙头公司的确定性。
 
-制造业是我国经济命脉所系，是立国之本、强国之基。
+”孔蓉表示，“未来会有更多资金，包括带杠杆属性的钱，涌向最确定的方向和最确定的标的。
 
 ## 相关推荐
 
-- 2026-06-29 13:51 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 13:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 14:01 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 14:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 14:12 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 13:51 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 13:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 14:08 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 13:54 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 14:03 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 13:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 14:23 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 13:57 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 14:08 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 13:54 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 14:11 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 13:57 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 14:03 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 13:59 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 14:01 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 14:17 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 14:10 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 14:00 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 14:10 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.minike.top/Article/details/52056590.shtml)
-- 2026-06-29 14:06 - [天道](http://www.share.minike.top/Article/details/91127357530.shtml)
-- 2026-06-29 14:04 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/004482625491.shtml)
-- 2026-06-29 14:07 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/8329292905.shtml)
-- 2026-06-29 13:58 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/3882053490.shtml)
-- 2026-06-29 14:15 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/505413.shtml)
-- 2026-06-29 14:00 - [灿如繁星定档](http://www.share.minike.top/Article/details/90969.shtml)
-- 2026-06-29 14:14 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/3195421718.shtml)
-- 2026-06-29 13:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/699002703.shtml)
-- 2026-06-29 14:06 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/2787988.shtml)
-- 2026-06-29 14:12 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/2243561.shtml)
-- 2026-06-29 14:10 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/45945.shtml)
-- 2026-06-29 14:02 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/635897.shtml)
-- 2026-06-29 14:13 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/137808.shtml)
-- 2026-06-29 14:10 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/93131.shtml)
+- 2026-06-29 14:20 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/374468792.shtml)
+- 2026-06-29 14:14 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/4162583.shtml)
+- 2026-06-29 14:14 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/0914339288.shtml)
+- 2026-06-29 13:59 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.kurohicncr.top/Article/details/7905614.shtml)
+- 2026-06-29 14:19 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/8236287506.shtml)
+- 2026-06-29 13:57 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/730177.shtml)
+- 2026-06-29 14:16 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.minike.top/Article/details/19346362.shtml)
+- 2026-06-29 14:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/6872508.shtml)
+- 2026-06-29 14:05 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/675298.shtml)
+- 2026-06-29 14:06 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/736219339954.shtml)
+- 2026-06-29 14:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/226317694.shtml)
+- 2026-06-29 13:54 - [四川宜宾地震](https://www.blog.minike.top/Article/details/53875296052.shtml)
+- 2026-06-29 14:04 - [记者暗访贵州和云南多个养老机构](https://www.blog.minike.top/Article/details/65374271.shtml)
+- 2026-06-29 13:56 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/9615781.shtml)
+- 2026-06-29 13:57 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/085775.shtml)

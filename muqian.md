@@ -1,59 +1,57 @@
-# 油价会更高？特朗普最新表态释放关键信号
+# 汇丰：霍尔木兹海峡风险加剧 大宗商品陷入“超级挤压”
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-来源：国际金融报 在美伊谈判破裂、特朗普宣布将封锁霍尔木兹海峡后，国际油价应声暴涨。特朗普罕见承认油价可能持续高企，民调显示其支持率下滑，共和党中期选举面临严峻挑战。 在美伊伊斯兰堡谈判无果而终后，美国总统特朗普于当地时间4月12日宣布，美国海军将对霍尔木兹海峡实施封锁，阻止任何试图进出该海峡的船只通行。 受此消息影响，4月13日，国际油价大幅跳涨，布伦特原油和WTI原油开盘涨
+据汇丰控股，大宗商品目前正处于“超级挤压”状态，如果霍尔木兹海峡继续事实上关闭，这种情况将会恶化。 包括Paul Bloxham在内的分析师在6月1日的报告中表示，“海峡关闭的时间越长，库存消耗得越快，某些大宗商品市场就越有可能达到‘临界点’。”不过，他们补充说，要准确预测这种情况何时发生仍然很困难。 原材料价格在5月中旬创下历史新高，随后随着美国加紧努力以延长与伊朗的停火协议
 
 ## 正文
 
-来源：国际金融报 在美伊谈判破裂、特朗普宣布将封锁霍尔木兹海峡后，国际油价应声暴涨。
+据汇丰控股，大宗商品目前正处于“超级挤压”状态，如果霍尔木兹海峡继续事实上关闭，这种情况将会恶化。
 
-特朗普罕见承认油价可能持续高企，民调显示其支持率下滑，共和党中期选举面临严峻挑战。
+包括Paul Bloxham在内的分析师在6月1日的报告中表示，“海峡关闭的时间越长，库存消耗得越快，某些大宗商品市场就越有可能达到‘临界点’。
 
-在美伊伊斯兰堡谈判无果而终后，美国总统特朗普于当地时间4月12日宣布，美国海军将对霍尔木兹海峡实施封锁，阻止任何试图进出该海峡的船只通行。
+”不过，他们补充说，要准确预测这种情况何时发生仍然很困难。
 
-受此消息影响，4月13日，国际油价大幅跳涨，布伦特原油和WTI原油开盘涨幅均超8%，双双站稳100美元上方。
+原材料价格在5月中旬创下历史新高，随后随着美国加紧努力以延长与伊朗的停火协议，涨幅回落。
 
-而就在同一天，在被问及秋季油价是否会走低时，特朗普表示，“可能”会降低，“也可能一样，或许会再高一点，但应该会跟当前水平差不多”。
+除了中东地区，汇丰的宏观展望还强调了其他利好大宗商品的因素，包括铜等基本金属消费量增长，以及厄尔尼诺天气事件逼近，可能会影响农作物供应。
 
-油气价格暴涨 谈判破裂后，紧张局势迅速升级。
+分析师表示，大宗商品整体周期仍处于所谓的超级牛市阶段，但这与之前的超级周期非常不同，因为这是由供应中断驱动的。
 
-特朗普12日发文称，美国海军将开始对所有试图进出霍尔木兹海峡的船只实施封锁，在国际水域拦截并查验所有向伊朗支付通行费的船只，同时清除伊朗在海峡布设的水雷。
+他们援引该行之前的研究指出，“我们一直称之为‘超级挤压’，而不是‘超级周期’”。
 
-数小时后，美军中央司令部发表声明，明确封锁将于美东时间4月13日上午10时起生效，适用于所有进出伊朗港口及该国沿海区域的各国船只，但往返非伊朗港口的船只不会受到干扰。
+由于霍尔木兹海峡的交通几乎完全停滞，他们警告说，石油库存“可能会达到临界的功能性低点，这可能会导致价格出现更剧烈的、非线性的上涨，并造成真正的短缺。
 
 ## 相关推荐
 
-- 2026-06-29 13:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 14:16 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 13:48 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 14:01 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 13:58 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 14:05 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 13:57 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 14:07 - [2025年人口增长10强城市出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 13:55 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 13:55 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 13:48 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 14:09 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 14:12 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 14:02 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 13:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 14:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 13:56 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 14:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 14:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 14:12 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 13:58 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 14:03 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 14:22 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 13:55 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/670468780827.shtml)
-- 2026-06-29 14:03 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/136186947.shtml)
-- 2026-06-29 14:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/024066273481.shtml)
-- 2026-06-29 14:04 - [加拿大92分钟绝杀](http://www.share.minike.top/Article/details/531784.shtml)
-- 2026-06-29 14:04 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/775231136.shtml)
-- 2026-06-29 14:10 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.minike.top/Article/details/1701875375.shtml)
-- 2026-06-29 14:09 - [韩媒破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/05859.shtml)
-- 2026-06-29 14:12 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/98917162585.shtml)
-- 2026-06-29 13:52 - [爸爸当家](http://www.blog.minike.top/Article/details/667399911352.shtml)
-- 2026-06-29 13:51 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/773646.shtml)
-- 2026-06-29 14:14 - [伊朗球员致歉](http://www.share.kurohicncr.top/Article/details/7845711415.shtml)
-- 2026-06-29 14:17 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/879249652630.shtml)
-- 2026-06-29 14:16 - [世界杯看到肖战了](http://www.share.minike.top/Article/details/499179.shtml)
-- 2026-06-29 13:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/1708907073.shtml)
-- 2026-06-29 13:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/50917.shtml)
+- 2026-06-29 14:02 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/687416397090.shtml)
+- 2026-06-29 13:55 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/0222216.shtml)
+- 2026-06-29 14:12 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/04185241936.shtml)
+- 2026-06-29 14:15 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/91051527563.shtml)
+- 2026-06-29 14:06 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/197653099704.shtml)
+- 2026-06-29 14:12 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/22591794090.shtml)
+- 2026-06-29 13:55 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/03716115609.shtml)
+- 2026-06-29 13:59 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.kurohicncr.top/Article/details/23658.shtml)
+- 2026-06-29 14:17 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/59858132140.shtml)
+- 2026-06-29 14:10 - [一生一世](http://www.blog.minike.top/Article/details/810609828603.shtml)
+- 2026-06-29 14:06 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/485651947422.shtml)
+- 2026-06-29 14:11 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/921910196051.shtml)
+- 2026-06-29 14:18 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/291097602.shtml)
+- 2026-06-29 14:10 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/361002197211.shtml)
+- 2026-06-29 14:08 - [2025年人口增长10强城市出炉](http://www.blog.minike.top/Article/details/36417746450.shtml)

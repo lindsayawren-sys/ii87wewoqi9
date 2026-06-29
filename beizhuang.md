@@ -1,59 +1,59 @@
-# Palo Alto网络创始人拟收购加州银行，用于AI业务改造
+# 百（色）昆（明）成品油管道10年累计输油4600万吨
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-尼尔・朱克计划在收购自由银行后成为其最大股东 据知情人士透露，网络安全公司Palo Alto网络（Palo Alto Networks）创始人尼尔・朱克已同意收购加州当地银行自由银行（Liberty Bank）。朱克计划将该行作为面向金融服务领域的人工智能工具研发平台。 交易详情 知情人士称，这位亿万富豪已向美国监管机构申请审批，拟从私募股权公司斯通波因特资本与雷弗兰斯资本合伙
+中新网昆明6月2日电 (时文枝)2日，百(色)昆(明)成品油管道(以下简称百昆线)投运10周年媒体公众开放日活动在昆明举行。该管道已累计向云南输送成品油达4600万吨，为滇中及沿线州市经济发展与民生用油筑牢能源根基。 尤为重要的是，云南省省会昆明由此从单纯的能源“接收末端”跃升为连接沿海炼厂与西南腹地的能源调度中枢。 作为国家西部大开发重要战略工程及云南省“五网”建设标杆工程，
 
 ## 正文
 
-尼尔・朱克计划在收购自由银行后成为其最大股东 据知情人士透露，网络安全公司Palo Alto网络（Palo Alto Networks）创始人尼尔・朱克已同意收购加州当地银行自由银行（Liberty Bank）。
+中新网昆明6月2日电 (时文枝)2日，百(色)昆(明)成品油管道(以下简称百昆线)投运10周年媒体公众开放日活动在昆明举行。
 
-朱克计划将该行作为面向金融服务领域的人工智能工具研发平台。
+该管道已累计向云南输送成品油达4600万吨，为滇中及沿线州市经济发展与民生用油筑牢能源根基。
 
-交易详情 知情人士称，这位亿万富豪已向美国监管机构申请审批，拟从私募股权公司斯通波因特资本与雷弗兰斯资本合伙人手中收购自由银行的最大股权。
+尤为重要的是，云南省省会昆明由此从单纯的能源“接收末端”跃升为连接沿海炼厂与西南腹地的能源调度中枢。
 
-金融科技领域的母子档创业者贝特西・科恩与丹尼尔・科恩也计划参与此次投资。
+作为国家西部大开发重要战略工程及云南省“五网”建设标杆工程，百昆线东起广西壮族自治区百色市，西至云南省昆明市，全长794公里(其中云南段为689公里)。
 
-自由银行总部位于加州欧文市，资产规模约 4.4 亿美元，主要为南加州及旧金山湾区的个人与企业提供服务。
+该管道建成后，与铁路、公路等构筑起“广油入滇、东油西送”的多式联运网络。
 
-该行首席执行官唐・格里菲斯在上世纪 80 年代末离开另一家地区性银行，协助私募股权先驱 KKR 在信贷危机冲击下的银行机构中挖掘潜在收购标的。
+作为百昆线云南段的运营管理方，近年来，国家石油天然气管网集团有限公司云南分公司(以下简称国家管网集团云南公司)以数智赋能、绿色引领，持续提升云南段运营管理水平。
 
-目前暂未获悉朱克此项交易的具体条款。
+通过打造“花园式”输油站场、应用SCADA系统(远程监控及数据采集系统)及引入旋翼无人机巡护等举措，实现管道运行“可视、可管、可控”，助力能源强国建设“向新、向智、向绿”。
 
-背景信息 此次收购计划融合了朱克在网络安全巨头Palo Alto网络之外所布局的多个投资方向。
+在绿色低碳方面，通过采用“自发自用、余电上网”模式，在百昆线富宁东站、砚山站等站点建成光伏发电系统。
 
 ## 相关推荐
 
-- 2026-06-29 13:55 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 14:12 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 14:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 14:15 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 13:52 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 14:09 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 14:17 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 14:13 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 13:50 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 14:17 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 13:52 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 13:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 14:15 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 14:03 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 14:16 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 14:13 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 14:17 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 14:20 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 14:17 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 14:16 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 14:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 13:55 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 14:22 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 14:11 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 14:20 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 14:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/24518929198.shtml)
-- 2026-06-29 14:17 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/770766153787.shtml)
-- 2026-06-29 13:52 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/71273.shtml)
-- 2026-06-29 14:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/15778.shtml)
-- 2026-06-29 14:11 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.minike.top/Article/details/63685.shtml)
-- 2026-06-29 14:00 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/97235.shtml)
-- 2026-06-29 13:49 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/6747860437.shtml)
-- 2026-06-29 13:56 - [我国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/2004032744.shtml)
-- 2026-06-29 13:59 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/340169.shtml)
-- 2026-06-29 13:53 - [汪东城回应45岁婚约](https://www.share.minike.top/Article/details/66313420.shtml)
-- 2026-06-29 13:53 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/42563.shtml)
-- 2026-06-29 13:49 - [媒体：高考后消费应量力而行适度有度](https://www.blog.kurohicncr.top/Article/details/1120074941.shtml)
-- 2026-06-29 14:02 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/8860384.shtml)
-- 2026-06-29 14:16 - [农发行总行专家委员会委员杜晓力被查](https://www.share.minike.top/Article/details/440068257381.shtml)
-- 2026-06-29 13:54 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/609524.shtml)
+- 2026-06-29 14:04 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/058114.shtml)
+- 2026-06-29 13:54 - [A股](https://www.blog.minike.top/Article/details/50453.shtml)
+- 2026-06-29 14:20 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/30167156.shtml)
+- 2026-06-29 14:10 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/252705.shtml)
+- 2026-06-29 14:07 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/4978713462.shtml)
+- 2026-06-29 14:23 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/319867097.shtml)
+- 2026-06-29 13:57 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/47973889358.shtml)
+- 2026-06-29 14:15 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/2739244945.shtml)
+- 2026-06-29 14:19 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.minike.top/Article/details/6871258611.shtml)
+- 2026-06-29 13:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/45112632.shtml)
+- 2026-06-29 13:59 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/8178998.shtml)
+- 2026-06-29 14:17 - [毒液2](https://www.blog.kurohicncr.top/Article/details/600888.shtml)
+- 2026-06-29 13:55 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/4473317.shtml)
+- 2026-06-29 14:20 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/982426422.shtml)
+- 2026-06-29 13:57 - [2026年Mac能玩游戏了吗](http://www.share.minike.top/Article/details/55838515039.shtml)

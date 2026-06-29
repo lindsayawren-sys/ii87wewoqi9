@@ -1,59 +1,60 @@
-# 东方白鹳种群持续增长 今春繁殖地“外溢”多处
+# 美光股价上涨，Raymond James上调目标价至1100美元
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新社黑龙江佳木斯4月13日电 (记者 王妮娜)作为“中国东方白鹳之乡”的黑龙江洪河国家级自然保护区4月13日发布消息，今春候鸟季是中国首个东方白鹳联袂保护区网络(以下简称“保护区网络”)开展工作的第一年，今春首次同步调查发现，随着全球濒危物种东方白鹳种群持续增长，繁殖地正从传统区域向多处湿地“外溢”。东方白鹳是国家一级保护动物，被世界自然保护联盟列为濒危物种。中国东方白鹳种群
+美光科技股价周一延续涨势，此前Raymond James将该股目标价从530美元大幅上调至1100美元，维持“跑赢大盘”评级，理由是AI驱动的强劲内存需求及持续紧张的供应格局。 Raymond James的新目标价意味着较美光5月29日收盘价971美元约有13%的上涨空间。该股在过去12个月中飙升超过800%，市值已突破1万亿美元。此轮上调紧随一波分析师调高目标价的浪潮——瑞银
 
 ## 正文
 
-中新社黑龙江佳木斯4月13日电 (记者 王妮娜)作为“中国东方白鹳之乡”的黑龙江洪河国家级自然保护区4月13日发布消息，今春候鸟季是中国首个东方白鹳联袂保护区网络(以下简称“保护区网络”)开展工作的第一年，今春首次同步调查发现，随着全球濒危物种东方白鹳种群持续增长，繁殖地正从传统区域向多处湿地“外溢”。
+美光科技股价周一延续涨势，此前Raymond James将该股目标价从530美元大幅上调至1100美元，维持“跑赢大盘”评级，理由是AI驱动的强劲内存需求及持续紧张的供应格局。
 
-东方白鹳是国家一级保护动物，被世界自然保护联盟列为濒危物种。
+Raymond James的新目标价意味着较美光5月29日收盘价971美元约有13%的上涨空间。
 
-中国东方白鹳种群保护和研究的专家、黑龙江洪国家级自然保护区管理局科研宣教科科长朱宝光对记者说：“过去没有繁殖记录的地方，如宝清七星河、东升湿地，甚至输电线路建筑物上，也出现了东方白鹳自行筑巢繁殖。
+该股在过去12个月中飙升超过800%，市值已突破1万亿美元。
 
-这是种群数量恢复的直接体现。
+此轮上调紧随一波分析师调高目标价的浪潮——瑞银给出了华尔街最高目标价1625美元，Susquehanna将目标价从600美元上调至1750美元，DA Davidson上调至1500美元，瑞穗证券也将其目标价上调至1150美元。
 
-” 为加强协同保护，2025年12月，中国首个“东方白鹳联袂保护区网络”在洪河保护区倡导下成立，覆盖黑龙江、江西、江苏等5省份，共13家成员单位。
+分析师指出，AI基础设施支出正推动对高带宽内存和先进DRAM的结构性需求。
 
-今年3月15日起，该网络开展了首次同步调查，未来还将在春秋两季开展迁徙调查及繁殖期培训。
+美光已售罄2026年全部HBM4供应，客户长期协议的兴趣日益浓厚。
 
-在国际合作方面，洪河保护区与俄罗斯巴斯达克国家级自然保护区已持续12年开展跨国保护。
+瑞穗分析师Vijay Rakesh在与美光高管会面后重申，AI驱动的强劲内存需求是推动2026至2027年市场供应紧张的核心因素。
 
-今年中方专家赴俄方协助搭建人工招引巢。
+美光第二财季营收达240亿美元，同比近乎增长两倍，调整后净利润飙升至140亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 14:11 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 13:54 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 13:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 13:52 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 14:01 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 14:10 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 14:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 13:58 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 14:01 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 14:11 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 14:15 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 13:52 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 13:58 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 13:54 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 14:11 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 14:01 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 13:59 - [欧洲超1300例超额死亡与高温有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 14:11 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 14:13 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 14:14 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 14:13 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 14:10 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 14:02 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 14:07 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 14:02 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 14:16 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:01 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/9135487183.shtml)
-- 2026-06-29 14:05 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/7204736.shtml)
-- 2026-06-29 14:00 - [吴海燕兰西雅漫步复兴岛](https://www.share.kurohicncr.top/Article/details/17154566.shtml)
-- 2026-06-29 14:08 - [一生一世](https://www.blog.minike.top/Article/details/512812.shtml)
-- 2026-06-29 14:05 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/7696044.shtml)
-- 2026-06-29 14:15 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/07517.shtml)
-- 2026-06-29 14:00 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/5981022738.shtml)
-- 2026-06-29 13:52 - [委内瑞拉地震已致1450死3150伤](https://www.share.minike.top/Article/details/17727706.shtml)
-- 2026-06-29 14:10 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/914539328.shtml)
-- 2026-06-29 14:04 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/3646420911.shtml)
-- 2026-06-29 13:54 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/5184571.shtml)
-- 2026-06-29 14:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/4097903683.shtml)
-- 2026-06-29 14:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/576695.shtml)
-- 2026-06-29 14:15 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/489448.shtml)
-- 2026-06-29 14:13 - [斗破苍穹](https://www.share.minike.top/Article/details/86398.shtml)
+- 2026-06-29 14:17 - [105年初心滚烫](http://www.share.minike.top/Article/details/95001.shtml)
+- 2026-06-29 13:55 - [急先锋](https://www.share.kurohicncr.top/Article/details/653404465.shtml)
+- 2026-06-29 14:17 - [张真源解读相思锁](https://www.share.minike.top/Article/details/827522050.shtml)
+- 2026-06-29 14:02 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/651965750862.shtml)
+- 2026-06-29 14:12 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/959782570.shtml)
+- 2026-06-29 14:22 - [吴海燕兰西雅漫步复兴岛](https://www.blog.kurohicncr.top/Article/details/5637528928.shtml)
+- 2026-06-29 13:54 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.minike.top/Article/details/18693325232.shtml)
+- 2026-06-29 13:58 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/837501508065.shtml)
+- 2026-06-29 13:58 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/06692826945.shtml)
+- 2026-06-29 14:23 - [委内瑞拉地震已致1450死3150伤](http://www.blog.kurohicncr.top/Article/details/232202.shtml)
+- 2026-06-29 14:12 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/40169.shtml)
+- 2026-06-29 14:04 - [为什么6月以来北方频繁降雨](https://www.share.kurohicncr.top/Article/details/183173.shtml)
+- 2026-06-29 14:00 - [爱很美味](https://www.share.minike.top/Article/details/94179042474.shtml)
+- 2026-06-29 14:12 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/67663.shtml)
+- 2026-06-29 14:15 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/05658728273.shtml)

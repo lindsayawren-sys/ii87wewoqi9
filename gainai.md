@@ -1,60 +1,58 @@
-# 中老铁路国际客运三周年：从昆明到万象的人间烟火
+# 中东战火纷飞，这些孩子没有儿童节
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网云南西双版纳4月13日电 题：中老铁路国际客运三周年：从昆明到万象的人间烟火 作者 黄远飞 4月13日，中老铁路国际旅客列车迎来开行三周年。2023年4月13日，这条连接昆明与万象的铁路客运通道正式投运，实现两地当日通达。三年来，它不仅是一条交通线，更逐渐融入沿线的人间烟火。 让思念不再隔山海 “那时候，中国和老挝之间还没有铁路，思念，是很慢的。现在的思念很快，快得睡一觉
+中新网6月1日电(记者 刁炜)今天，本该是属于所有孩子们的节日，但在中东，许多儿童却连活着都需要运气。 联合国儿童基金会近日称，加沙冲突对当地儿童伤害巨大，已致超6.4万名孩子死去或伤残。 同时期，约旦河西岸暴力活动升级，造成200多名巴勒斯坦儿童丧生。 令人心痛的是，战火非但没有熄灭，反而扩散波及到更多国家和地区。 今年早些时候，局势升级蔓延至伊朗，该国约180名儿童遭袭遇难
 
 ## 正文
 
-中新网云南西双版纳4月13日电 题：中老铁路国际客运三周年：从昆明到万象的人间烟火 作者 黄远飞 4月13日，中老铁路国际旅客列车迎来开行三周年。
+中新网6月1日电(记者 刁炜)今天，本该是属于所有孩子们的节日，但在中东，许多儿童却连活着都需要运气。
 
-2023年4月13日，这条连接昆明与万象的铁路客运通道正式投运，实现两地当日通达。
+联合国儿童基金会近日称，加沙冲突对当地儿童伤害巨大，已致超6.4万名孩子死去或伤残。
 
-三年来，它不仅是一条交通线，更逐渐融入沿线的人间烟火。
+同时期，约旦河西岸暴力活动升级，造成200多名巴勒斯坦儿童丧生。
 
-让思念不再隔山海 “那时候，中国和老挝之间还没有铁路，思念，是很慢的。
+令人心痛的是，战火非但没有熄灭，反而扩散波及到更多国家和地区。
 
-现在的思念很快，快得睡一觉就能扑进爸爸怀里。
+今年早些时候，局势升级蔓延至伊朗，该国约180名儿童遭袭遇难，其中大多是正上课的小学生。
 
-”云南师范大学附属小学学生宋佳忆的父亲常年在老挝工作，于是他在作文里这样写道。
+而在黎巴嫩和叙利亚，激烈冲突让几十万孩子流离失所，数以千计的无辜儿童饱受磨难。
 
-这样的“说走就走的团圆”，已成为许多家庭的日常。
+这些劫后余生的孩子，不该只剩恐惧和饥饿，国际社会亟待采取行动，让和平的曙光早日来临。
 
-三年来，中老铁路国际旅客列车累计开行3190余列，运送出入境旅客超80万人次。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 13:53 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 14:08 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 14:08 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 14:10 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 13:51 - [恋与深空失控领地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 14:07 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 13:53 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 14:10 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 14:13 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 14:01 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 13:50 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 14:13 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 13:53 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 13:54 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 13:56 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 14:06 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 14:20 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 14:07 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 14:16 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 14:14 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 13:55 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 14:13 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 14:15 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 14:00 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 14:22 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:15 - [韩媒破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/140023797.shtml)
-- 2026-06-29 13:55 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/39414670547.shtml)
-- 2026-06-29 14:10 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/1382639091.shtml)
-- 2026-06-29 14:17 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/204512695.shtml)
-- 2026-06-29 14:05 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/948383162.shtml)
-- 2026-06-29 14:04 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/2400725.shtml)
-- 2026-06-29 13:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/5342218432.shtml)
-- 2026-06-29 14:11 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/5249279.shtml)
-- 2026-06-29 13:54 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/0699240.shtml)
-- 2026-06-29 14:14 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/2996317.shtml)
-- 2026-06-29 13:52 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/79578.shtml)
-- 2026-06-29 13:52 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/924375306.shtml)
-- 2026-06-29 14:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/9348985874.shtml)
-- 2026-06-29 14:13 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/280915.shtml)
-- 2026-06-29 13:49 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/941670124.shtml)
+- 2026-06-29 14:20 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/336887.shtml)
+- 2026-06-29 13:59 - [记者暗访贵州和云南多个养老机构](http://www.share.minike.top/Article/details/8707637064.shtml)
+- 2026-06-29 14:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/68930.shtml)
+- 2026-06-29 14:18 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/9577598664.shtml)
+- 2026-06-29 14:07 - [沙丘](http://www.share.minike.top/Article/details/4439890.shtml)
+- 2026-06-29 13:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/07119744.shtml)
+- 2026-06-29 14:00 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/893127.shtml)
+- 2026-06-29 14:05 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/6254999.shtml)
+- 2026-06-29 13:59 - [天道](http://www.share.minike.top/Article/details/565382.shtml)
+- 2026-06-29 14:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/77299.shtml)
+- 2026-06-29 14:00 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/406530740332.shtml)
+- 2026-06-29 14:10 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/90429880.shtml)
+- 2026-06-29 14:02 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/9406546.shtml)
+- 2026-06-29 14:07 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/7733032388.shtml)
+- 2026-06-29 14:09 - [亚洲成世界杯最大失意者联盟](https://www.share.minike.top/Article/details/989374.shtml)

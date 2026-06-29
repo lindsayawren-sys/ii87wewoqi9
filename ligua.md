@@ -1,56 +1,45 @@
-# 凯德投资为亚太信贷基金筹集3.2亿美元，需求持续增长
+# 新加坡羽毛球公开赛 贾一凡/张殊贤夺得女双冠军
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-凯德投资 CLILF 71 已为其亚太房地产信贷策略完成3.2亿美元的募资，这标志着其背靠淡马锡控股、扩大轻资产基金管理平台的又一举措。第二只旗舰基金ACP二期吸引了主要来自该地区的新老投资者组合，凯德自身作为发起人出资20%。该基金已完成了五笔第一抵押贷款的投放，涉及悉尼和首尔都市圈的后勤物流、办公及居住类资产，表明其早期专注于能产生收益的资产支持型头寸。 该策略被定位为私人
+发布时间：2026年06月01日 14:40 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-凯德投资 CLILF 71 已为其亚太房地产信贷策略完成3.2亿美元的募资，这标志着其背靠淡马锡控股、扩大轻资产基金管理平台的又一举措。
-
-第二只旗舰基金ACP二期吸引了主要来自该地区的新老投资者组合，凯德自身作为发起人出资20%。
-
-该基金已完成了五笔第一抵押贷款的投放，涉及悉尼和首尔都市圈的后勤物流、办公及居住类资产，表明其早期专注于能产生收益的资产支持型头寸。
-
-该策略被定位为私人信贷领域内一种更具防御性的方式，专注于在整体信贷市场可能面临日益加剧压力之际进行优先担保投资。
-
-管理层指出，这种定位有助于使投资组合避开影响信贷行业其他领域的挑战，同时仍能获取由有形房地产抵押品支持的收益。
-
-最新募集的基金还使总管理资产规模增加了约6亿美元，在银行贷款条件收紧以及对灵活资本解决方案的需求持续上升的背景下，巩固了凯德投资在区域私人信贷领域不断扩大的影响力。
-
-机构对亚洲房地产抵押贷款的需求似乎正在增长，尽管该板块在总融资额中仅占约6%，远低于欧洲和美国的水平。
-
-这种动态，加上投资者对下行保护的偏好，可能继续支持募资势头——2020年至2024年间，亚太信贷工具筹集了112亿美元，较前一个五年期增长超过40%。
+发布时间：2026年06月01日 14:40 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 13:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 13:57 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 14:16 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 14:08 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 13:58 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 13:51 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 14:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 14:15 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 14:16 - [F1奥地利大奖赛正赛集锦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 13:57 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 14:21 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 14:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 14:02 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 14:05 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 14:14 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 14:18 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 14:20 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 14:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 14:10 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 13:59 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 14:02 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 13:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:07 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/794615.shtml)
-- 2026-06-29 14:06 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/1787249274.shtml)
-- 2026-06-29 14:15 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/11267754450.shtml)
-- 2026-06-29 14:17 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/919457380.shtml)
-- 2026-06-29 14:06 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/74307616138.shtml)
-- 2026-06-29 13:55 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/83359.shtml)
-- 2026-06-29 13:55 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/17457.shtml)
-- 2026-06-29 14:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/260555381.shtml)
-- 2026-06-29 13:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/937650163582.shtml)
-- 2026-06-29 14:11 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/2276984216.shtml)
-- 2026-06-29 13:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/05040217120.shtml)
-- 2026-06-29 14:07 - [沙丘](https://www.blog.kurohicncr.top/Article/details/97417895196.shtml)
-- 2026-06-29 13:48 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/87100.shtml)
-- 2026-06-29 14:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/33580.shtml)
-- 2026-06-29 14:08 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/805792.shtml)
+- 2026-06-29 14:03 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/195921.shtml)
+- 2026-06-29 13:54 - [金刚川](https://www.blog.kurohicncr.top/Article/details/85891286.shtml)
+- 2026-06-29 14:04 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/239265.shtml)
+- 2026-06-29 14:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/4802700.shtml)
+- 2026-06-29 14:09 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/1185416.shtml)
+- 2026-06-29 13:55 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/6754220.shtml)
+- 2026-06-29 14:12 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/4766183653.shtml)
+- 2026-06-29 14:19 - [C罗关心罗德里戈伤情](http://www.share.minike.top/Article/details/761620164.shtml)
+- 2026-06-29 14:10 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/057912501.shtml)
+- 2026-06-29 13:57 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/83742301.shtml)
+- 2026-06-29 14:15 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/57345186.shtml)
+- 2026-06-29 14:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/38527771.shtml)
+- 2026-06-29 14:12 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/15593.shtml)
+- 2026-06-29 13:54 - [2026年Mac能玩游戏了吗](https://www.share.minike.top/Article/details/3045721634.shtml)
+- 2026-06-29 13:56 - [青春环游记第三季](http://www.share.minike.top/Article/details/713243.shtml)

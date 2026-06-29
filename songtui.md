@@ -1,54 +1,56 @@
-# 欧洲央行管委Vujcic称能源价格仍非常接近基线情境
+# 习近平总书记关切事｜让“小胖墩”“小眼镜”少一些
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-欧洲央行管理委员会成员Boris Vujcic表示，尽管在近期停火后能源价格有所上涨，但整体仍接近基准情境假设。 这位克罗地亚官员周一在萨格勒布表示，“虽然上周以来油气价格有所上升，但我们仍非常接近基准情境。” 不过，这一表态似乎与其他政策制定者的看法略有出入。后者近期表示，中东局势正朝着欧洲央行的“负面情境”发展。法兰克福的官员仍在评估如何应对能源成本的上升，目前市场预计本月
+原标题：习近平总书记关切事·关键小事｜让“小胖墩”“小眼镜”少一些 清风和畅，阳光洒满校园。上午大课间，节奏明快的音乐响起，北京市八一学校的学生们冲出教室，开始集体“阳光跑”。 这场学校组织的跑步活动每天一次，6000多名学生参与其中。 “一开始不太想跑，从两圈慢慢跑到三圈，后来确实感觉身体素质变好了。”15岁的初三学生李悦含说，“跑起来、动起来后，心情也好了，整个人放松了。”
 
 ## 正文
 
-欧洲央行管理委员会成员Boris Vujcic表示，尽管在近期停火后能源价格有所上涨，但整体仍接近基准情境假设。
+原标题：习近平总书记关切事·关键小事｜让“小胖墩”“小眼镜”少一些 清风和畅，阳光洒满校园。
 
-这位克罗地亚官员周一在萨格勒布表示，“虽然上周以来油气价格有所上升，但我们仍非常接近基准情境。
+上午大课间，节奏明快的音乐响起，北京市八一学校的学生们冲出教室，开始集体“阳光跑”。
 
-” 不过，这一表态似乎与其他政策制定者的看法略有出入。
+这场学校组织的跑步活动每天一次，6000多名学生参与其中。
 
-后者近期表示，中东局势正朝着欧洲央行的“负面情境”发展。
+“一开始不太想跑，从两圈慢慢跑到三圈，后来确实感觉身体素质变好了。
 
-法兰克福的官员仍在评估如何应对能源成本的上升，目前市场预计本月加息的概率为50%。
+”15岁的初三学生李悦含说，“跑起来、动起来后，心情也好了，整个人放松了。
 
-责任编辑：江学思
+” “体育锻炼要从小抓起”“要让孩子们跑起来”……青少年的身心健康牵动着习近平总书记的心。
+
+在多地考察时，总书记时常询问学生体育锻炼的情况，关心“小胖墩”“小眼镜”怎么样了，强调“要树立健康第一的教育理念”“促进学生身心健康、全面发展”。
+
+“体育锻炼多一些，‘小胖墩’、‘小眼镜’就少一些” 在北京市八一学校，任教已37年的体育教师黄虹，对近年来课表上的变化，看得最清楚： 初中体育课从一周4节加到5节； 高中体育课从一周2节加到3节； 义务教育阶段的课间从10分钟延长到15分钟； 武术、击剑、飞镖、抖空竹、拳击……陆续增加了十余门选修课，让每个学生都能找到热爱的运动。
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 14:08 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 14:01 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 14:09 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 14:10 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 14:01 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 13:51 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 14:07 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 14:08 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 14:14 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 14:10 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 14:10 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 13:55 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 13:57 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 14:01 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 14:17 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 13:57 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 13:58 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 14:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 14:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 14:16 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 14:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/63605476.shtml)
-- 2026-06-29 13:50 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.minike.top/Article/details/067365715410.shtml)
-- 2026-06-29 13:51 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/437380.shtml)
-- 2026-06-29 13:51 - [媒体评恋与深空争议](http://www.share.minike.top/Article/details/82533.shtml)
-- 2026-06-29 13:59 - [记者暗访贵州和云南多个养老机构](http://www.blog.kurohicncr.top/Article/details/09241.shtml)
-- 2026-06-29 14:17 - [啊啊啊](http://www.share.minike.top/Article/details/320015202.shtml)
-- 2026-06-29 14:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/757887034166.shtml)
-- 2026-06-29 14:01 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/565839041398.shtml)
-- 2026-06-29 13:48 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/75042783181.shtml)
-- 2026-06-29 14:05 - [强⁶](https://www.blog.kurohicncr.top/Article/details/473443.shtml)
-- 2026-06-29 13:55 - [王楚钦美国大满贯晋级32强](https://www.blog.kurohicncr.top/Article/details/270567.shtml)
-- 2026-06-29 13:56 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/836720265468.shtml)
-- 2026-06-29 13:54 - [扫黑风暴](https://www.blog.minike.top/Article/details/2531132746.shtml)
-- 2026-06-29 14:11 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.minike.top/Article/details/88001176544.shtml)
-- 2026-06-29 14:15 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/1788086475.shtml)
+- 2026-06-29 14:06 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/3054220937.shtml)
+- 2026-06-29 14:14 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/655525624203.shtml)
+- 2026-06-29 14:19 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/69588650.shtml)
+- 2026-06-29 14:10 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.kurohicncr.top/Article/details/09930492.shtml)
+- 2026-06-29 13:59 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/807265960721.shtml)
+- 2026-06-29 13:55 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/465575782219.shtml)
+- 2026-06-29 14:07 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/86419460639.shtml)
+- 2026-06-29 14:01 - [民进党为什么拼命抹黑统战](https://www.blog.kurohicncr.top/Article/details/902626.shtml)
+- 2026-06-29 14:11 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/0153422362.shtml)
+- 2026-06-29 14:23 - [T1 vs KC MSI](https://www.share.minike.top/Article/details/5828510065.shtml)
+- 2026-06-29 14:07 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/5129267.shtml)
+- 2026-06-29 14:09 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/8697862218.shtml)
+- 2026-06-29 14:07 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/929667285328.shtml)
+- 2026-06-29 14:06 - [美人鱼](https://www.share.minike.top/Article/details/56149.shtml)
+- 2026-06-29 14:00 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/008447412252.shtml)

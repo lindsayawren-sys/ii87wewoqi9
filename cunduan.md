@@ -1,47 +1,44 @@
-# 伊朗代理防长称：伊朗武装力量处于最高战备状态
+# 微视频｜听习爷爷的话，在新征程上跑好历史接力赛
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月14日 11:16 来源：央视新闻客户端 责任编辑：【杜晓姣】
+发布时间：2026年06月01日 15:09 来源：新华社 责任编辑：【杨彦宇】
 
 ## 正文
 
-发布时间：2026年04月14日 11:16 来源：央视新闻客户端 责任编辑：【杜晓姣】
+发布时间：2026年06月01日 15:09 来源：新华社 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 13:57 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 13:56 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 14:13 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 14:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 13:58 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 13:57 - [F1奥地利大奖赛正赛集锦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 14:01 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 14:03 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 13:52 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 13:54 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 14:16 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 14:15 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 14:15 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 14:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 14:09 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 14:13 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 14:15 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 14:14 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 14:00 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 14:02 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 13:59 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 14:17 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 14:22 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 14:10 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 14:14 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 14:00 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 14:14 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:01 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/88577.shtml)
-- 2026-06-29 14:01 - [沙丘](http://www.share.minike.top/Article/details/16843134423.shtml)
-- 2026-06-29 14:01 - [5万块的威力](https://www.share.minike.top/Article/details/090473.shtml)
-- 2026-06-29 14:14 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/315137.shtml)
-- 2026-06-29 13:54 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/86494390.shtml)
-- 2026-06-29 13:48 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/8746827989.shtml)
-- 2026-06-29 14:13 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/57988714.shtml)
-- 2026-06-29 13:58 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/17000.shtml)
-- 2026-06-29 14:02 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/7129335.shtml)
-- 2026-06-29 13:50 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/3206323.shtml)
-- 2026-06-29 14:11 - [民进党为什么拼命抹黑统战](https://www.share.minike.top/Article/details/434897458.shtml)
-- 2026-06-29 14:06 - [F1奥地利正赛战报](https://www.blog.kurohicncr.top/Article/details/468401288336.shtml)
-- 2026-06-29 14:03 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/9494030662.shtml)
-- 2026-06-29 14:00 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/606448452.shtml)
-- 2026-06-29 14:07 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/4781122314.shtml)
+- 2026-06-29 13:54 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/17884225134.shtml)
+- 2026-06-29 14:07 - [爱情有烟火你是知道我爱看什么的](http://www.blog.kurohicncr.top/Article/details/19567926.shtml)
+- 2026-06-29 14:07 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/440732.shtml)
+- 2026-06-29 14:19 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/631352.shtml)
+- 2026-06-29 13:54 - [女心理师](https://www.blog.kurohicncr.top/Article/details/18854.shtml)
+- 2026-06-29 14:11 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/314256.shtml)
+- 2026-06-29 14:15 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/87720953745.shtml)
+- 2026-06-29 14:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/799336717051.shtml)
+- 2026-06-29 14:07 - [手游300亿数据或被军事化运用](http://www.blog.minike.top/Article/details/360373.shtml)
+- 2026-06-29 14:20 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/17848021537.shtml)
+- 2026-06-29 14:04 - [当我回母校教书](https://www.blog.minike.top/Article/details/043003.shtml)
+- 2026-06-29 13:59 - [四川宜宾地震](https://www.share.kurohicncr.top/Article/details/104539858.shtml)
+- 2026-06-29 14:08 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/039258711.shtml)
+- 2026-06-29 14:20 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/933958074.shtml)
+- 2026-06-29 13:54 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/867672.shtml)

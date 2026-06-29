@@ -1,50 +1,57 @@
-# 华工科技成交额超100亿元
+# 招商证券：快手-W维持“增持”评级 目标价64港元
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-数据宝统计，截至13:55，华工科技成交额100.18亿元，超100亿元。最新股价上涨6.09%，换手率8.37%。上一交易日该股全天成交额为116.21亿元。据天眼查APP显示，华工科技产业股份有限公司成立于1999年07月28日，注册资本100550.2707万人民币。（文章来源：证券时报网）
+招商证券发布研报称，维持快手-W（01024）“增持”评级及目标价64港元，对应2026/2027财年15倍/13倍经调整市盈率。该行认为，快手正处于AI驱动内容生态重塑与商业化价值释放的关键拐点，可灵以超预期的商业化速度和领先的市场地位验证了第二增长曲线的确定性，2）AI漫剧、AI营销Agent、AI电商搜索等全局AI渗透正为传统业务持续注入增量。公司现金储备充裕，全年股东回
 
 ## 正文
 
-数据宝统计，截至13:55，华工科技成交额100.18亿元，超100亿元。
+招商证券发布研报称，维持快手-W（01024）“增持”评级及目标价64港元，对应2026/2027财年15倍/13倍经调整市盈率。
 
-最新股价上涨6.09%，换手率8.37%。
+该行认为，快手正处于AI驱动内容生态重塑与商业化价值释放的关键拐点，可灵以超预期的商业化速度和领先的市场地位验证了第二增长曲线的确定性，2）AI漫剧、AI营销Agent、AI电商搜索等全局AI渗透正为传统业务持续注入增量。
 
-上一交易日该股全天成交额为116.21亿元。
+公司现金储备充裕，全年股东回报率约4%，在坚定AI投入的同时维持稳健财务纪律。
 
-据天眼查APP显示，华工科技产业股份有限公司成立于1999年07月28日，注册资本100550.2707万人民币。
+快手2026年第一季业绩胜预期，总收入337亿元人民币（下同），同比增3.4%，略好于市场预期1%。
 
-（文章来源：证券时报网）
+线上营销收入196亿元，同比增9.3%，超预期1%，主因AI漫剧爆发式增长及AI应用投放广告需求旺盛； 第一季国内线上营销收入增速超过10%，AI大模型为国内营销收入贡献3-4%增量。
+
+报告指，第一季其他服务收入56亿元，同比增15.9%，较预期高2%，主因可灵AI单季收入超6.5亿元，大幅超预期29%； 直播收入85亿元，同比降13.5%，符合预期，反映娱乐直播生态持续治理。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 14:02 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 14:11 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 13:50 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 14:03 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 13:48 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 13:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 14:06 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 14:00 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 14:02 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 14:19 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 13:54 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 14:05 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 14:15 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 14:12 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 14:20 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 13:56 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 14:06 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 14:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 14:05 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 14:18 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 13:59 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 14:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:58 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/113482425.shtml)
-- 2026-06-29 13:56 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/3256310766.shtml)
-- 2026-06-29 13:51 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/1787502328.shtml)
-- 2026-06-29 14:11 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/1243113.shtml)
-- 2026-06-29 13:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/599995432994.shtml)
-- 2026-06-29 13:48 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/812577883836.shtml)
-- 2026-06-29 14:01 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/919732011.shtml)
-- 2026-06-29 13:51 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/04846194368.shtml)
-- 2026-06-29 14:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/85438769201.shtml)
-- 2026-06-29 14:16 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/24955398.shtml)
-- 2026-06-29 13:55 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/45879.shtml)
-- 2026-06-29 13:58 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/68344511.shtml)
-- 2026-06-29 14:00 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/0856044.shtml)
-- 2026-06-29 14:16 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/88438614424.shtml)
-- 2026-06-29 13:57 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/93530.shtml)
+- 2026-06-29 13:57 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.minike.top/Article/details/44756682.shtml)
+- 2026-06-29 14:03 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/97074779764.shtml)
+- 2026-06-29 14:08 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/850798673670.shtml)
+- 2026-06-29 14:05 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/32576.shtml)
+- 2026-06-29 14:20 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.kurohicncr.top/Article/details/4690457933.shtml)
+- 2026-06-29 14:23 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/87602897091.shtml)
+- 2026-06-29 14:20 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/8622217804.shtml)
+- 2026-06-29 13:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/698055380.shtml)
+- 2026-06-29 14:17 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/412431318021.shtml)
+- 2026-06-29 14:07 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/6179946186.shtml)
+- 2026-06-29 14:07 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.minike.top/Article/details/803422756.shtml)
+- 2026-06-29 14:03 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.kurohicncr.top/Article/details/023270545.shtml)
+- 2026-06-29 14:00 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/469050.shtml)
+- 2026-06-29 14:06 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/95986959426.shtml)
+- 2026-06-29 14:14 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/050411.shtml)

@@ -1,57 +1,60 @@
-# 海致科技集团午前涨超10% Atlas智能体解决方案增长迅猛
+# 周末戒咖啡，为何会引发头疼？专家解读
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-海致科技（02706）盘中涨超21%，截至发稿，股价上涨10.39%，现报57.40港元，成交额1.35亿港元。 海致科技此前发布的2025年年报显示，该公司全年实现收入6.21亿元，同比增长23.4%；经调整净利润2415万元，同比增长42.6%。期内，核心增长引擎Atlas智能体收入1.46亿元，同比激增68.4%，成为公司增长最快的业务板块。质量指标上，公司智能体客单价达
+周末戒咖啡，为何会引发头疼 专家解读：与大脑内这种受体有关 近日有媒体报道，浙江一女子每逢周末就头疼到炸裂，究其原因竟是有喝咖啡提神习惯的她戒了周末的两杯咖啡。为何戒咖啡反倒有“不良反应”？南京市第二医院神经内科主任医师王蔚告诉记者，这很可能是“咖啡戒断反应头痛”在作祟。 戒咖啡引发“剧烈头痛”王蔚向记者解释，长期大量饮用咖啡的人，大脑内部会发生一系列复杂的生理变化。她进一步解
 
 ## 正文
 
-海致科技（02706）盘中涨超21%，截至发稿，股价上涨10.39%，现报57.40港元，成交额1.35亿港元。
+周末戒咖啡，为何会引发头疼 专家解读：与大脑内这种受体有关 近日有媒体报道，浙江一女子每逢周末就头疼到炸裂，究其原因竟是有喝咖啡提神习惯的她戒了周末的两杯咖啡。
 
-海致科技此前发布的2025年年报显示，该公司全年实现收入6.21亿元，同比增长23.4%；经调整净利润2415万元，同比增长42.6%。
+为何戒咖啡反倒有“不良反应”？
 
-期内，核心增长引擎Atlas智能体收入1.46亿元，同比激增68.4%，成为公司增长最快的业务板块。
+南京市第二医院神经内科主任医师王蔚告诉记者，这很可能是“咖啡戒断反应头痛”在作祟。
 
-质量指标上，公司智能体客单价达360万元，高于图谱解决方案的280万元；智能体毛利率提升至53.2%，拉动公司整体毛利率跃升7.1个百分点至43.3%。
+戒咖啡引发“剧烈头痛”王蔚向记者解释，长期大量饮用咖啡的人，大脑内部会发生一系列复杂的生理变化。
 
-值得一提的是，公司已从金融、公共安全等优势行业，向电信运营商、交通基建、无人空间等新领域拓展并实现订单落地。
+她进一步解释，我们脑内有一种叫做“腺苷”的物质，它与“腺苷受体”结合后，会抑制神经活动，让人产生困意和疲惫感。
 
-为粤港澳大湾区某无人空间体系管理中心构建统一的无人设备图本体模型；为某海外非银金融机构落地包含大模型一体机在内的智能体应用平台。
+而咖啡因的分子结构与腺苷非常相似，它进入大脑后会“抢”在腺苷前面，与腺苷受体相结合。
 
-公司明确提出，将把成熟经验快速复制到高端制造、医疗健康、智能矿业等新兴高价值领域，并依托香港上市平台逐步探索东南亚及海外市场。
+“咖啡因跟腺苷受体结合后，神经抑制就被解除了，人自然会兴奋起来，困意也就消失了。
 
-责任编辑：卢昱君
+”王蔚说。
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 14:06 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 14:04 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 13:52 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 14:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 14:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 14:00 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 14:09 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 14:13 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 13:59 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 14:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 14:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 14:16 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 14:01 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 14:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 14:19 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 14:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 14:05 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 14:07 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 13:54 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 13:55 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 14:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 13:56 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 14:09 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 14:17 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:51 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/5556833212.shtml)
-- 2026-06-29 13:52 - [TOP 无畏契约](https://www.blog.minike.top/Article/details/316911.shtml)
-- 2026-06-29 13:56 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/25259631953.shtml)
-- 2026-06-29 13:52 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/804253.shtml)
-- 2026-06-29 13:50 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/1813497.shtml)
-- 2026-06-29 14:06 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/69462758722.shtml)
-- 2026-06-29 14:05 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/75644926871.shtml)
-- 2026-06-29 13:55 - [明星大侦探第一季](http://www.share.minike.top/Article/details/65963326082.shtml)
-- 2026-06-29 14:11 - [媒体评恋与深空争议](http://www.share.kurohicncr.top/Article/details/4426324.shtml)
-- 2026-06-29 14:16 - [严浩翔FIY断层第一](https://www.blog.minike.top/Article/details/48155791.shtml)
-- 2026-06-29 14:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/67726.shtml)
-- 2026-06-29 14:17 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.minike.top/Article/details/33268097.shtml)
-- 2026-06-29 14:10 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/32890413674.shtml)
-- 2026-06-29 14:18 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/2035725146.shtml)
-- 2026-06-29 14:00 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/69737.shtml)
+- 2026-06-29 13:54 - [王佳佳江疏影13年前后同框对比](http://www.share.kurohicncr.top/Article/details/872998530738.shtml)
+- 2026-06-29 14:05 - [毒液2](https://www.share.minike.top/Article/details/794940811076.shtml)
+- 2026-06-29 14:01 - [扫黑风暴](https://www.share.minike.top/Article/details/96652074394.shtml)
+- 2026-06-29 14:04 - [恋与深空底线不该被娱乐化](https://www.blog.kurohicncr.top/Article/details/9388436.shtml)
+- 2026-06-29 14:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/048364373.shtml)
+- 2026-06-29 14:00 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/71466.shtml)
+- 2026-06-29 14:03 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/908693528213.shtml)
+- 2026-06-29 14:23 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/6554668803.shtml)
+- 2026-06-29 14:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/76465902936.shtml)
+- 2026-06-29 14:11 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/5086672.shtml)
+- 2026-06-29 14:09 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/47656.shtml)
+- 2026-06-29 13:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/8188141099.shtml)
+- 2026-06-29 13:54 - [中国避暑神器在欧洲卖爆了](http://www.share.minike.top/Article/details/167026.shtml)
+- 2026-06-29 13:54 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/169771862623.shtml)
+- 2026-06-29 14:10 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/504172.shtml)

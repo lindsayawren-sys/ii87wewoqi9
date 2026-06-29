@@ -1,57 +1,58 @@
-# 陈茂波：坚持统筹发展与安全，让香港在变局中开新局
+# SpaceX预留5% IPO股份，目标估值1.8万亿美元
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新社香港4月12日电 香港特区政府财政司司长陈茂波12日发表网志表示，当前国际形势风云变幻，地缘政治博弈加剧，从金融市场到能源供应，风险与挑战存在于各个领域；坚持统筹发展与安全，香港才能在变局中开新局。陈茂波称，当前国际局势复杂多变，折射出国家安全着实存在于金融、能源、科技、粮食、海外利益等不同领域，且环环相扣。香港作为自由开放的国际金融、航运、贸易和创新科技中心，必须坚持统
+SpaceX在周一提交的修订版IPO申报文件中首次明确，将在即将进行的首次公开募股中预留最多5%的A类普通股，供部分员工及高管亲友认购。该公司目标估值至少为1.8万亿美元。 这份周一提交的修订文件首次明确了为定向股份计划预留的A类股票数量。虽然定向配售计划在IPO中较为常见，但参与者通常会受到锁定期约束，无法立即出售股份。然而，SpaceX此前已披露，其所谓“亲友名单”中的参与
 
 ## 正文
 
-中新社香港4月12日电 香港特区政府财政司司长陈茂波12日发表网志表示，当前国际形势风云变幻，地缘政治博弈加剧，从金融市场到能源供应，风险与挑战存在于各个领域；坚持统筹发展与安全，香港才能在变局中开新局。
+SpaceX在周一提交的修订版IPO申报文件中首次明确，将在即将进行的首次公开募股中预留最多5%的A类普通股，供部分员工及高管亲友认购。
 
-陈茂波称，当前国际局势复杂多变，折射出国家安全着实存在于金融、能源、科技、粮食、海外利益等不同领域，且环环相扣。
+该公司目标估值至少为1.8万亿美元。
 
-香港作为自由开放的国际金融、航运、贸易和创新科技中心，必须坚持统筹发展与安全，在开放中维护安全；在巩固和提升自身优势、鼓励和促进创新的同时，也要注重防范风险于未然。
+这份周一提交的修订文件首次明确了为定向股份计划预留的A类股票数量。
 
-他以金融为例指出，特区政府密切监督各市场情况与相互间的关系，并建立起强大缓冲。
+虽然定向配售计划在IPO中较为常见，但参与者通常会受到锁定期约束，无法立即出售股份。
 
-香港金融管理局近期根据《稳定币条例》批出首批稳定币发行人牌照，正是平衡了安全与创新发展的具体例证。
+然而，SpaceX此前已披露，其所谓“亲友名单”中的参与者将不受锁定期限制。
 
-陈茂波强调，联系汇率制度为香港的货币与金融稳定提供支撑，银行体系资本充足率与流动性均高于国际标准，券商资金充足、交易有序。
+与此同时，超过60%的IPO前已发行股份将受到366天的延长锁定期约束，包括创始人兼首席执行官埃隆·马斯克持有的股份。
 
-在国家推进高质量发展的进程中，香港既助力中国内地深化资本市场改革，也严防境外风险传导至内地。
+修订后的招股文件还披露了SpaceX与人工智能开发商Anthropic达成的重要算力协议。
 
-在能源方面，他表示，在国家的坚实支持下，香港能源供应保持稳定。
+根据协议，SpaceX将提供基于约32.5万块英伟达芯片的AI计算能力。
 
 ## 相关推荐
 
-- 2026-06-29 14:02 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 14:11 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 14:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 14:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 14:16 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 14:02 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 14:00 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 14:07 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 14:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 14:17 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 14:02 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 14:05 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 14:08 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 13:57 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 14:20 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 14:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 13:55 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 13:57 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 14:13 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 14:09 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 13:55 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 14:09 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 13:56 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/712329094107.shtml)
-- 2026-06-29 13:51 - [起风了](https://www.blog.minike.top/Article/details/84965240643.shtml)
-- 2026-06-29 14:02 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.minike.top/Article/details/9829657.shtml)
-- 2026-06-29 14:14 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/9632891700.shtml)
-- 2026-06-29 14:01 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/31316.shtml)
-- 2026-06-29 14:10 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.minike.top/Article/details/225291013.shtml)
-- 2026-06-29 13:53 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/875700.shtml)
-- 2026-06-29 13:59 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/003335144606.shtml)
-- 2026-06-29 14:06 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/512284.shtml)
-- 2026-06-29 13:56 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/63788.shtml)
-- 2026-06-29 14:14 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/919328026067.shtml)
-- 2026-06-29 14:11 - [爱很美味](https://www.share.kurohicncr.top/Article/details/54646659505.shtml)
-- 2026-06-29 13:57 - [《贺子珍》](http://www.share.minike.top/Article/details/9258024.shtml)
-- 2026-06-29 14:02 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/303402179.shtml)
-- 2026-06-29 14:16 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/03263128166.shtml)
+- 2026-06-29 14:05 - [F1奥地利正赛战报](https://www.blog.kurohicncr.top/Article/details/63464406.shtml)
+- 2026-06-29 14:19 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.kurohicncr.top/Article/details/42775.shtml)
+- 2026-06-29 13:58 - [6月我国降水为何偏多](https://www.share.minike.top/Article/details/84367.shtml)
+- 2026-06-29 13:59 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/318751679.shtml)
+- 2026-06-29 14:00 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/9513146.shtml)
+- 2026-06-29 14:02 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/602732144.shtml)
+- 2026-06-29 14:06 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.minike.top/Article/details/61295892.shtml)
+- 2026-06-29 14:21 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/3201284.shtml)
+- 2026-06-29 14:16 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.kurohicncr.top/Article/details/925286766014.shtml)
+- 2026-06-29 14:00 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/49153.shtml)
+- 2026-06-29 14:00 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/98070825135.shtml)
+- 2026-06-29 14:06 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/71182157.shtml)
+- 2026-06-29 14:08 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/09439.shtml)
+- 2026-06-29 14:17 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/74012.shtml)
+- 2026-06-29 14:15 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/019805741.shtml)

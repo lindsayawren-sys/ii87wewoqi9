@@ -1,60 +1,60 @@
-# 中德联合制作歌剧《魔笛》上演 第41届“上海之春”闭幕
+# 黄海冰谈AI影视发展：人类演员核心价值仍不可替代
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新社上海4月12日电 (记者 王笈)第41届上海之春国际音乐节12日晚在上音歌剧院迎来闭幕演出——上海音乐学院与德国弗莱堡国立音乐学院联合制作的歌剧《魔笛》。 2026年恰逢音乐巨匠莫扎特诞辰270周年。《魔笛》是莫扎特的最后一部歌剧杰作，1791年9月30日于维也纳首演，以德语歌唱剧形式呈现，融合童话、神话故事，讲述光明战胜黑暗的永恒主题，至今仍是全世界上演率最高的歌剧之一
+中新网北京6月2日电(记者 王诗尧)随着人工智能技术快速发展，AI正加速融入影视产业，从特效制作到虚拟演员应用，相关话题持续引发行业关注。 近日，演员黄海冰参加“潮起厦门 e鹭向新”2026年网络全媒体厦门行活动。会后，他在接受中新网记者专访时，就“AI演员能否取代人类演员”“真正的表演艺术能否被算法复制？”等热点问题，分享了自己的看法。 AI已替代部分基础表演 黄海冰表示，2
 
 ## 正文
 
-中新社上海4月12日电 (记者 王笈)第41届上海之春国际音乐节12日晚在上音歌剧院迎来闭幕演出——上海音乐学院与德国弗莱堡国立音乐学院联合制作的歌剧《魔笛》。
+中新网北京6月2日电(记者 王诗尧)随着人工智能技术快速发展，AI正加速融入影视产业，从特效制作到虚拟演员应用，相关话题持续引发行业关注。
 
-2026年恰逢音乐巨匠莫扎特诞辰270周年。
+近日，演员黄海冰参加“潮起厦门 e鹭向新”2026年网络全媒体厦门行活动。
 
-《魔笛》是莫扎特的最后一部歌剧杰作，1791年9月30日于维也纳首演，以德语歌唱剧形式呈现，融合童话、神话故事，讲述光明战胜黑暗的永恒主题，至今仍是全世界上演率最高的歌剧之一。
+会后，他在接受中新网记者专访时，就“AI演员能否取代人类演员”“真正的表演艺术能否被算法复制？
 
-其音乐结构多元丰富，既有庄重合唱，也有民间歌谣式的轻快旋律，夜后花腔女高音咏叹调更是考验演唱技艺的经典唱段。
+”等热点问题，分享了自己的看法。
 
-当晚上演的《魔笛》为全新版本，由上海音乐学院院长廖昌永、弗莱堡国立音乐学院院长路德维希·霍特迈尔(Ludwig Holtmeier)担任艺术总监，弗莱堡国立音乐学院教授亚历山大·舒林(Alexander Schulin)执导，哥伦比亚新生代男高音塞萨尔·科尔特斯(Cesar Augusto Cortes Betancourt)、德国知名女高音卡特琳娜·冯·本尼格森(Katerina Von Beningsen Mackiewicz)等国际青年歌唱家倾力加盟，上海音乐学院师生、德国基尔歌剧院参与排演。
+AI已替代部分基础表演 黄海冰表示，2026年以来，AI技术在影视尤其是短剧领域发展迅速，大幅提升了制作效率。
 
-61岁的亚历山大·舒林首次独立执导《魔笛》，选择用最纯粹的方式讲述这个童话般的寓言故事。
+无论是宏大的战争场面、复杂的视觉奇观，还是高风险动作镜头，AI都能够发挥重要作用，为创作者提供更多可能性。
 
-他认为，诠释《魔笛》需要兼具青春视角与人生阅历，此版《魔笛》在尊重原作气质的同时，实现了具有当下生命力的经典重构。
+“过去拍摄千军万马的大场面，需要大量群众演员和复杂的后期制作，而如今AI能够帮助完成许多过去难以实现的画面效果。
 
-这也是“上海之春”连续三届开展国际合作创排经典歌剧。
+”黄海冰说，科技进步不仅降低了制作成本，也让影视创作拥有了更广阔的想象空间。
 
 ## 相关推荐
 
-- 2026-06-29 14:00 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 14:12 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 13:56 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 13:53 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 14:17 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 14:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 13:48 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 13:53 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 14:12 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 14:08 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 14:00 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 14:09 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 14:12 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 13:56 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 14:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 13:54 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 14:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 14:09 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 14:09 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 14:22 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 14:14 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 14:09 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 14:11 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 14:14 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 13:57 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 14:00 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 14:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 14:17 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/64522829560.shtml)
-- 2026-06-29 13:55 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/7719870.shtml)
-- 2026-06-29 14:05 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/225673.shtml)
-- 2026-06-29 14:01 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/40639131.shtml)
-- 2026-06-29 14:09 - [天道](https://www.blog.kurohicncr.top/Article/details/86330941.shtml)
-- 2026-06-29 14:02 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/2116591090.shtml)
-- 2026-06-29 13:50 - [沙特足协主席发布声明主动请辞](http://www.share.minike.top/Article/details/45557267.shtml)
-- 2026-06-29 14:12 - [在委侨团负责人：家乡的帮助很及时](https://www.share.minike.top/Article/details/227983693.shtml)
-- 2026-06-29 14:18 - [请回答王牌2019](https://www.blog.minike.top/Article/details/0925040.shtml)
-- 2026-06-29 13:59 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.kurohicncr.top/Article/details/22361357070.shtml)
-- 2026-06-29 13:50 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/00780811452.shtml)
-- 2026-06-29 13:56 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/6928412.shtml)
-- 2026-06-29 13:52 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/697012.shtml)
-- 2026-06-29 14:16 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/66258841.shtml)
-- 2026-06-29 13:53 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/086327.shtml)
+- 2026-06-29 14:05 - [一生一世](https://www.share.kurohicncr.top/Article/details/254674032.shtml)
+- 2026-06-29 13:55 - [直击宜宾地震：监控剧烈摇晃](https://www.share.minike.top/Article/details/0386057.shtml)
+- 2026-06-29 14:07 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/5671887.shtml)
+- 2026-06-29 13:57 - [绘画区你赢了](http://www.share.minike.top/Article/details/534647379.shtml)
+- 2026-06-29 14:23 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.kurohicncr.top/Article/details/458314996335.shtml)
+- 2026-06-29 14:15 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/69291915140.shtml)
+- 2026-06-29 14:10 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/34861.shtml)
+- 2026-06-29 13:56 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/86219829.shtml)
+- 2026-06-29 13:58 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/06663218323.shtml)
+- 2026-06-29 14:09 - [金价银价下跌 油价上涨](http://www.blog.minike.top/Article/details/002446.shtml)
+- 2026-06-29 14:03 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/607923281318.shtml)
+- 2026-06-29 14:11 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/59147654206.shtml)
+- 2026-06-29 14:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/0270524.shtml)
+- 2026-06-29 14:03 - [美伊同意停止互袭](http://www.share.kurohicncr.top/Article/details/5093070668.shtml)
+- 2026-06-29 14:12 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/51263233289.shtml)

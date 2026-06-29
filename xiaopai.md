@@ -1,59 +1,45 @@
-# 芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加
+# 网络餐饮新规正式施行
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-芝加哥期货交易所（CBOT）大豆期货周一收低，从四周高位回落，交易商表示，受累于获利了结，以及市场预期美国播种面积将大于预期，令市场承压。 一位交易商表示，美国中西部地区的降雨可能推迟玉米播种，并导致部分农户将种植面积分配给大豆。 该交易商称，随着美国总统特朗普表示美军已开始封锁驶离伊朗港口的船只，市场对玉米种植所需化肥价格飙升的担忧加剧，这可能进一步促使农民将种植面积分配给大
+发布时间：2026年06月02日 09:33 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-芝加哥期货交易所（CBOT）大豆期货周一收低，从四周高位回落，交易商表示，受累于获利了结，以及市场预期美国播种面积将大于预期，令市场承压。
-
-一位交易商表示，美国中西部地区的降雨可能推迟玉米播种，并导致部分农户将种植面积分配给大豆。
-
-该交易商称，随着美国总统特朗普表示美军已开始封锁驶离伊朗港口的船只，市场对玉米种植所需化肥价格飙升的担忧加剧，这可能进一步促使农民将种植面积分配给大豆。
-
-CBOT-5月大豆合约SK26收跌13-1/2美分，结算价报每蒲式耳11.62-1/4美元，盘中触及11.83-3/4美元的3月16日以来最高。
-
-5月豆油合约BOK26收跌0.59美分，报每磅66.50美分。
-
-5月豆粕合约SMK26上涨0.1美元，收报每短吨331.90美元，触及11月18日以来最高。
-
-玉米期货基本持平，交易员关注美国种植天气以及伊朗战争最新紧张局势。
-
-CBOT-5月合约CK26收跌3/4美分，报每蒲式耳4.40-1/4美元。
+发布时间：2026年06月02日 09:33 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 14:06 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 14:00 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 13:50 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 14:06 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 14:07 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 14:12 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 14:04 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 13:55 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 14:14 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 14:17 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 13:54 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 14:14 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 14:12 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 14:18 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 14:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 14:03 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 14:06 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 13:58 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 14:12 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 13:54 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 14:10 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 14:21 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 14:16 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 13:54 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 14:14 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.minike.top/Article/details/343093.shtml)
-- 2026-06-29 13:57 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/10262713137.shtml)
-- 2026-06-29 13:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/1058451.shtml)
-- 2026-06-29 14:01 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/72003063.shtml)
-- 2026-06-29 14:16 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/514768.shtml)
-- 2026-06-29 13:54 - [四川宜宾地震](http://www.blog.minike.top/Article/details/6353042.shtml)
-- 2026-06-29 13:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/653736502976.shtml)
-- 2026-06-29 14:16 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/8932385.shtml)
-- 2026-06-29 14:06 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/6705670803.shtml)
-- 2026-06-29 14:11 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/058141470.shtml)
-- 2026-06-29 14:16 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/88838.shtml)
-- 2026-06-29 13:51 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/52547.shtml)
-- 2026-06-29 14:07 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/5081064374.shtml)
-- 2026-06-29 14:11 - [2026年Mac能玩游戏了吗](https://www.blog.minike.top/Article/details/23657.shtml)
-- 2026-06-29 14:15 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/23037657083.shtml)
+- 2026-06-29 14:21 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/66251969.shtml)
+- 2026-06-29 14:12 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/51228099.shtml)
+- 2026-06-29 14:10 - [绘画区你赢了](https://www.blog.minike.top/Article/details/5416635.shtml)
+- 2026-06-29 14:01 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/6109123.shtml)
+- 2026-06-29 14:16 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/301795.shtml)
+- 2026-06-29 14:10 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/5032532.shtml)
+- 2026-06-29 14:22 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/81318215.shtml)
+- 2026-06-29 14:02 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/069933441.shtml)
+- 2026-06-29 13:55 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/5071853231.shtml)
+- 2026-06-29 14:14 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/59723982.shtml)
+- 2026-06-29 14:10 - [灿如繁星定档](https://www.share.minike.top/Article/details/8537656.shtml)
+- 2026-06-29 14:01 - [84岁英国教授成中国网红](http://www.blog.minike.top/Article/details/23852.shtml)
+- 2026-06-29 14:08 - [美伊同意停止互袭](https://www.blog.kurohicncr.top/Article/details/51944.shtml)
+- 2026-06-29 14:19 - [扬名立万](http://www.share.kurohicncr.top/Article/details/2304108.shtml)
+- 2026-06-29 14:14 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/48113573639.shtml)

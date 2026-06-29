@@ -1,58 +1,55 @@
-# 广东河源历史上首场国际性自行车赛事举行
+# 外交部：日方近期一系列错误言行 国际社会必须高度警惕
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网河源4月13日电 (张璐 陈殷)2026河源环万绿湖国际公路自行车赛(简称“赛事”)12日在河源市七寨湖公园举行。赛事现场，6支UCI洲际车队、22个国家的顶尖高手在湖光山色中破风疾驰。 据介绍，作为河源历史上首场国际性自行车赛事，本次赛事以128公里精品赛道串联湖光山色，上演速度与激情的巅峰对决，向世界展现万绿之都、岭南水城的独特魅力。 赛事现场，车手们在竞速比拼的同时
+6月1日，外交部发言人林剑主持例行记者会。有记者就日防卫大臣在近日香格里拉对话会上的有关言论提问。 林剑表示，日本军国主义曾在二战期间犯下滔天罪行，给亚洲邻国造成深重灾难。日方近期一系列错误言行，威胁地区的和平稳定，国际社会必须高度警惕，共同防范和坚决遏制“新型军国主义”。 (总台央视记者 黄达 赵超逸)
 
 ## 正文
 
-中新网河源4月13日电 (张璐 陈殷)2026河源环万绿湖国际公路自行车赛(简称“赛事”)12日在河源市七寨湖公园举行。
+6月1日，外交部发言人林剑主持例行记者会。
 
-赛事现场，6支UCI洲际车队、22个国家的顶尖高手在湖光山色中破风疾驰。
+有记者就日防卫大臣在近日香格里拉对话会上的有关言论提问。
 
-据介绍，作为河源历史上首场国际性自行车赛事，本次赛事以128公里精品赛道串联湖光山色，上演速度与激情的巅峰对决，向世界展现万绿之都、岭南水城的独特魅力。
+林剑表示，日本军国主义曾在二战期间犯下滔天罪行，给亚洲邻国造成深重灾难。
 
-赛事现场，车手们在竞速比拼的同时，沉浸式穿行于森林湖景与田园村落之间，实现体育竞技与生态美景的完美交融。
+日方近期一系列错误言行，威胁地区的和平稳定，国际社会必须高度警惕，共同防范和坚决遏制“新型军国主义”。
 
-经过激烈的角逐，轮峰ROTOR成都洲际自行车队俄罗斯选手STEPANOV Andrei以3小时6分22秒的优异成绩斩获冠军，快客洲际队意大利选手LUUCA Riccardo紧随其后获得亚军，轮峰ROTOR成都洲际自行车队俄罗斯选手IVANOV Timofei摘得季军。
-
-亚军选手LUUCA Riccardo在采访中对赛事与赛道赞不绝口。
-
-他表示，河源赛道技术难度高、风格独特新颖，陡坡、急弯与长爬坡对车手技巧和耐力都是极大考验。
-
-河源首次举办此类赛事，组织服务水准十分专业，赛道周边生态风景令人沉醉，若明年继续举办此类赛事，自己十分期待再次来到河源参赛。
+(总台央视记者 黄达 赵超逸)
 
 ## 相关推荐
 
-- 2026-06-29 14:11 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 13:54 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 13:56 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 14:07 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 13:55 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 14:03 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 13:56 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 14:12 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 14:17 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 14:14 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 13:58 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 14:15 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 14:16 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 14:08 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 14:14 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 14:22 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 13:54 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 13:55 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 14:19 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 14:22 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 14:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 13:54 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 14:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 14:07 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 13:56 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 13:56 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 14:14 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:07 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/89986.shtml)
-- 2026-06-29 14:03 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/0847099.shtml)
-- 2026-06-29 14:11 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/813546.shtml)
-- 2026-06-29 13:54 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/910100624.shtml)
-- 2026-06-29 14:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/86399396580.shtml)
-- 2026-06-29 14:09 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/4475432118.shtml)
-- 2026-06-29 14:15 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/64067.shtml)
-- 2026-06-29 13:56 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/91567159466.shtml)
-- 2026-06-29 13:55 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/7178327.shtml)
-- 2026-06-29 14:10 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/6403939.shtml)
-- 2026-06-29 14:17 - [A股限售股解禁一览](https://www.blog.kurohicncr.top/Article/details/44334447652.shtml)
-- 2026-06-29 14:16 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/25618479780.shtml)
-- 2026-06-29 14:05 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/7261542622.shtml)
-- 2026-06-29 14:01 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/331749.shtml)
-- 2026-06-29 14:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/07192430.shtml)
+- 2026-06-29 14:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/8740403288.shtml)
+- 2026-06-29 14:14 - [C罗关心罗德里戈伤情](https://www.share.kurohicncr.top/Article/details/30260.shtml)
+- 2026-06-29 14:06 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/0178597814.shtml)
+- 2026-06-29 14:21 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/1270309943.shtml)
+- 2026-06-29 14:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/69080650.shtml)
+- 2026-06-29 14:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/5616367.shtml)
+- 2026-06-29 14:09 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/05878.shtml)
+- 2026-06-29 13:59 - [异世界一点都不好玩！](http://www.share.kurohicncr.top/Article/details/5642827272.shtml)
+- 2026-06-29 14:06 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/09306198.shtml)
+- 2026-06-29 14:11 - [委内瑞拉地震已致1450死3150伤](https://www.share.minike.top/Article/details/42479597.shtml)
+- 2026-06-29 13:56 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/5659194.shtml)
+- 2026-06-29 14:09 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/811763.shtml)
+- 2026-06-29 14:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/555686.shtml)
+- 2026-06-29 14:14 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/2283172938.shtml)
+- 2026-06-29 14:04 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/061707.shtml)

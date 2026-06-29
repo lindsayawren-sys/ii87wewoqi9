@@ -1,56 +1,53 @@
-# 登录查询难、系统易崩溃、信息更新慢——部分国家级信息平台“建而难用”被质疑
+# 证监会出手！*ST节能遭立案
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-登录时迟迟没反应，有时需耗费半小时，被频繁要求输入验证码后，还会面临系统崩溃、信息过期的情况。这是不少用户在使用部分国家级公共信息服务平台时经常遇到的窘境。 建设全国统一的企业、信用、执行信息公开平台，是减少信息不对称、降低制度性交易成本的必要之举。然而一些公共信息平台存在登录查询难、系统易崩溃、信息更新慢等问题，受到用户诟病。这种现象为何迟迟得不到改善，该如何进一步提升系统稳
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 *ST节能（000820）遭证监会立案。 6月2日晚间，*ST节能披露公告称，公司当日收到证监会《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。 *ST节能表示，在立案调查期间，公司将配合证监会的调查工作，并严格按照相关规定履行
 
 ## 正文
 
-登录时迟迟没反应，有时需耗费半小时，被频繁要求输入验证码后，还会面临系统崩溃、信息过期的情况。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这是不少用户在使用部分国家级公共信息服务平台时经常遇到的窘境。
+来源：资本秘闻 *ST节能（000820）遭证监会立案。
 
-建设全国统一的企业、信用、执行信息公开平台，是减少信息不对称、降低制度性交易成本的必要之举。
+6月2日晚间，*ST节能披露公告称，公司当日收到证监会《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。
 
-然而一些公共信息平台存在登录查询难、系统易崩溃、信息更新慢等问题，受到用户诟病。
+*ST节能表示，在立案调查期间，公司将配合证监会的调查工作，并严格按照相关规定履行信息披露义务。
 
-这种现象为何迟迟得不到改善，该如何进一步提升系统稳定性、优化查询功能，新华每日电讯记者采访多方人员进行调查。
-
-“设定闹钟凌晨起来查信息” 国家企业信用信息公示系统、中国执行信息公开网是企业和个人使用较为频繁的公共信息服务平台。
-
-记者近期采访多名高频使用用户了解到，两大平台均不同程度存在访问登录难、查询时重复验证、信息更新迟滞等问题。
-
-“输入账号、密码，迟迟没有反应，好不容易登录进去，又提示当前系统访问频繁。
+文/资本秘闻责任编辑：杨红卜
 
 ## 相关推荐
 
-- 2026-06-29 14:11 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 14:06 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 14:16 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 13:48 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 14:11 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 14:03 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 14:05 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 14:17 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 14:12 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 14:04 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 14:02 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 14:17 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 14:03 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 14:18 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 13:59 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 14:05 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 14:22 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 14:04 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 13:56 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 14:22 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 14:06 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 14:10 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 13:57 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:51 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.kurohicncr.top/Article/details/17902979.shtml)
-- 2026-06-29 14:06 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/89458629.shtml)
-- 2026-06-29 14:01 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/9410071985.shtml)
-- 2026-06-29 13:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/462232832.shtml)
-- 2026-06-29 14:14 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/3531159.shtml)
-- 2026-06-29 14:13 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/227548950.shtml)
-- 2026-06-29 14:14 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.minike.top/Article/details/032116799.shtml)
-- 2026-06-29 14:14 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/391328778012.shtml)
-- 2026-06-29 14:06 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/3950219616.shtml)
-- 2026-06-29 14:14 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/361788.shtml)
-- 2026-06-29 14:09 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/642981747042.shtml)
-- 2026-06-29 13:48 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/58671946.shtml)
-- 2026-06-29 14:00 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/556838.shtml)
-- 2026-06-29 13:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/87061387.shtml)
-- 2026-06-29 14:17 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/14751850834.shtml)
+- 2026-06-29 14:22 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/8921153804.shtml)
+- 2026-06-29 13:54 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/036869316077.shtml)
+- 2026-06-29 14:21 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/63434611464.shtml)
+- 2026-06-29 14:23 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/4174965764.shtml)
+- 2026-06-29 14:21 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/3558549073.shtml)
+- 2026-06-29 14:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/032328394.shtml)
+- 2026-06-29 14:22 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/8205551.shtml)
+- 2026-06-29 14:02 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/85313.shtml)
+- 2026-06-29 13:57 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/93016.shtml)
+- 2026-06-29 14:08 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/31322.shtml)
+- 2026-06-29 14:22 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/0960186.shtml)
+- 2026-06-29 14:14 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/617353609271.shtml)
+- 2026-06-29 14:12 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/532287298155.shtml)
+- 2026-06-29 14:02 - [记者率先试乘西十高铁](http://www.share.minike.top/Article/details/455390.shtml)
+- 2026-06-29 14:09 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/3767658.shtml)

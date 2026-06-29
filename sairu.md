@@ -1,55 +1,57 @@
-# 迅策早盘大涨超17%盘中创新高 与深数所正式签署战略合作协议
+# 南方基金亮相第二十届金博会 共探“AI时代”协同发展新路径
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-迅策（03317）早盘大涨超22%，高见382.80港元，再度刷新上市新高，截至发稿，股价上涨17.23%，现报363.40港元，成交额13.64亿港元。 4月12日，迅策科技宣布与深圳数据交易所正式签署战略合作协议。根据协议，双方将在三方面展开合作：一是联合推动企业数智化转型；二是共建数据资产化与入表服务体系；三是打造具身智能数据规范体系，覆盖智能机器人、自动驾驶、智能终端等
+金融潮涌鹏城，创新赋能未来。5月27日至29日，第二十届深圳国际金融博览会在深圳会展中心（福田）隆重举行。 本届金博会由深圳市人民政府主办，以“AI时代：制造业与服务业协同发展”为主题，设置了“创新资本、金融科技、产业金融、跨境金融和财富管理”五大展区。作为深圳金融行业高质量发展的重要践行者与参与者，南方基金受邀参会，会上集中展示了其在指数投资智能化与养老金融领域的深耕成果。
 
 ## 正文
 
-迅策（03317）早盘大涨超22%，高见382.80港元，再度刷新上市新高，截至发稿，股价上涨17.23%，现报363.40港元，成交额13.64亿港元。
+金融潮涌鹏城，创新赋能未来。
 
-4月12日，迅策科技宣布与深圳数据交易所正式签署战略合作协议。
+5月27日至29日，第二十届深圳国际金融博览会在深圳会展中心（福田）隆重举行。
 
-根据协议，双方将在三方面展开合作：一是联合推动企业数智化转型；二是共建数据资产化与入表服务体系；三是打造具身智能数据规范体系，覆盖智能机器人、自动驾驶、智能终端等场景。
+本届金博会由深圳市人民政府主办，以“AI时代：制造业与服务业协同发展”为主题，设置了“创新资本、金融科技、产业金融、跨境金融和财富管理”五大展区。
 
-此次合作标志着公司正在从“数据治理”向“垂类Token精炼”延伸，为AI推理时代的高质量数据供给提供基础设施支撑。
+作为深圳金融行业高质量发展的重要践行者与参与者，南方基金受邀参会，会上集中展示了其在指数投资智能化与养老金融领域的深耕成果。
 
-公开资料显示，迅策科技深耕实时数据基础设施领域十余年，以AI Data Agent为核心，构建了从数据获取、清洗、标准化、实时计算到模型调优的全链路技术体系。
+面对人工智能与产业服务协同发展的时代命题，南方基金主动拥抱数字金融发展新趋势，以人工智能（AI）与专家智能（EI）双轮驱动为核心，构建起覆盖投研、投资、风控、服务全链条的指数投资智能化体系。
 
-2025年，公司营收同比增长103%至12.83亿元，多元化行业收入占比提升至80%，ARPU从272万元跃升至559万元。
+经过多年持续深耕布局，南方基金管理的指数产品惠及千家万户，产品覆盖A股绝大部分市值，形成全市值、行业主题、跨境、因子、增强、商品等工具型产品的全方位布局。
 
-责任编辑：卢昱君
+截至2025年末，产品规模合集约4538亿元，持有人户数约717万户，整体管理规模稳步增长。
+
+与此同时，为让专业指数策略更好地服务普通投资者，南方基金还通过数字化手段打通投研到服务的“最后一公里”——推出“首趋E指”小程序，构建覆盖“找、比、投、顾”全流程的指数投资服务平台，聚焦投资者在选指、对比、配置等环节的真实需求，整合全市场指数与ETF信息，提供直观清晰的决策支持，将专业级的配置思路转化为易懂、可用、可陪伴的普惠服务，让指数投资更简单、更清晰、更具长期主义价值。
 
 ## 相关推荐
 
-- 2026-06-29 13:50 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 14:10 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 14:01 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 13:57 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 13:55 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 14:02 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 14:02 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 13:56 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 14:03 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 13:59 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 14:04 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 14:19 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 14:03 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 14:04 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 14:12 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 14:18 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 14:02 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 14:01 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 13:59 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 14:20 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 14:21 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 14:16 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/974496.shtml)
-- 2026-06-29 13:50 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/117852.shtml)
-- 2026-06-29 13:56 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/6484934744.shtml)
-- 2026-06-29 14:03 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/81173.shtml)
-- 2026-06-29 13:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/669660418.shtml)
-- 2026-06-29 13:57 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/088228.shtml)
-- 2026-06-29 14:03 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/60884413.shtml)
-- 2026-06-29 14:15 - [2025年人口增长10强城市出炉](http://www.share.kurohicncr.top/Article/details/980858565.shtml)
-- 2026-06-29 14:14 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/088418538.shtml)
-- 2026-06-29 13:54 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/255397865.shtml)
-- 2026-06-29 13:52 - [三都主：淘汰赛我会支持日本](https://www.blog.kurohicncr.top/Article/details/51505084.shtml)
-- 2026-06-29 14:11 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/45144499.shtml)
-- 2026-06-29 13:49 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/97343338484.shtml)
-- 2026-06-29 13:58 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/17716.shtml)
-- 2026-06-29 14:00 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/4852623896.shtml)
+- 2026-06-29 14:16 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/147981308115.shtml)
+- 2026-06-29 14:18 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/47043639339.shtml)
+- 2026-06-29 14:24 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/41925008.shtml)
+- 2026-06-29 14:20 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/794776991.shtml)
+- 2026-06-29 14:22 - [日本主帅：目标是冠军](https://www.share.minike.top/Article/details/505935.shtml)
+- 2026-06-29 14:04 - [人民日报评“AI脸看腻了”](https://www.blog.kurohicncr.top/Article/details/841329.shtml)
+- 2026-06-29 14:07 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/040894179214.shtml)
+- 2026-06-29 13:54 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/8826344253.shtml)
+- 2026-06-29 14:15 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/25525803896.shtml)
+- 2026-06-29 14:13 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.minike.top/Article/details/952072.shtml)
+- 2026-06-29 14:08 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/291308649373.shtml)
+- 2026-06-29 14:05 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/3897947.shtml)
+- 2026-06-29 13:55 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/024170621139.shtml)
+- 2026-06-29 14:03 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/3781304795.shtml)
+- 2026-06-29 14:16 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/574206520.shtml)

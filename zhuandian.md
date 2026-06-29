@@ -1,44 +1,57 @@
-# 官方通报山东济南一商铺发生坍塌：2人受伤无生命危险
+# 别迷信“名师押题”！教育部发布2026年高考预警
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网4月13日电 据山东省济南市天桥区人民政府网站消息，4月13日，山东济南市天桥区应急管理局发布情况通报称，4月13日9时30分，天桥区顺河街少年路路口“黄师傅小酒馆”发生坍塌，现场两名受伤群众已送往医院救治，无生命危险，事故原因正在调查中。
+中新网6月2日电 据教育部网站消息，2026年高考即将到来，广大考生已经进入最后冲刺阶段，一些不法分子受利益驱使也在伺机而动，散布高考相关虚假信息，制造贩卖焦虑，组织实施诈骗，甚至诱导考生作弊，严重损害考生和家长切身利益，严重扰乱考试招生秩序。教育部梳理汇总了近年来典型的高考诈骗案例与谣言，提醒广大考生及家长提高警惕，明辨真伪，诚信参加考试，严守法律底线，谨防上当受骗，确保考试
 
 ## 正文
 
-中新网4月13日电 据山东省济南市天桥区人民政府网站消息，4月13日，山东济南市天桥区应急管理局发布情况通报称，4月13日9时30分，天桥区顺河街少年路路口“黄师傅小酒馆”发生坍塌，现场两名受伤群众已送往医院救治，无生命危险，事故原因正在调查中。
+中新网6月2日电 据教育部网站消息，2026年高考即将到来，广大考生已经进入最后冲刺阶段，一些不法分子受利益驱使也在伺机而动，散布高考相关虚假信息，制造贩卖焦虑，组织实施诈骗，甚至诱导考生作弊，严重损害考生和家长切身利益，严重扰乱考试招生秩序。
+
+教育部梳理汇总了近年来典型的高考诈骗案例与谣言，提醒广大考生及家长提高警惕，明辨真伪，诚信参加考试，严守法律底线，谨防上当受骗，确保考试安全与个人权益。
+
+一、高考组织作弊，必受法律严惩 【案例】 2020年高考期间，陈某邀约谢某共谋组织高考考试作弊，陈某负责统筹安排，联系考生及家长、收取费用、承担开支、提供试题等，谢某负责联系在读大学生为作弊传递消息、试题答案等。
+
+谢某等人在酒店房间答题时被公安机关当场抓获，陈某自动投案。
+
+【提醒】 《中华人民共和国刑法》明确规定，在法律规定的国家考试中，“组织作弊的”“向考生提供试题、答案的”，都属于违法行为，参与者将面临有期徒刑、罚金等处罚。
+
+近年来，公安机关与相关部门密切协同，对考试违法犯罪行为始终保持高压严打态势。
+
+广大考生要严守法律法规底线，切勿一时糊涂，触碰法律红线。
+
+二、替考代价太大，莫让自己触线 【案例】 2024年5月，曹某、王某在互联网平台发布高考有偿替考相关网络信息，引发网民关注，造成恶劣社会影响。
 
 ## 相关推荐
 
-- 2026-06-29 13:55 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 13:53 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 14:06 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 13:54 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 13:49 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 14:16 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 13:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 14:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 13:54 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 13:57 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 13:54 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 13:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 14:12 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 13:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 14:16 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 13:56 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 14:05 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 14:14 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 13:59 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 14:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 13:59 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 14:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 14:15 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/8311401.shtml)
-- 2026-06-29 14:07 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.kurohicncr.top/Article/details/186111559549.shtml)
-- 2026-06-29 13:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/185437322.shtml)
-- 2026-06-29 14:16 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/9850932.shtml)
-- 2026-06-29 14:04 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/45646323655.shtml)
-- 2026-06-29 13:55 - [沙特足协主席发布声明主动请辞](http://www.share.kurohicncr.top/Article/details/355581.shtml)
-- 2026-06-29 14:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/451786095.shtml)
-- 2026-06-29 13:49 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/421357231106.shtml)
-- 2026-06-29 13:50 - [多家银行收紧个人贵金属业务](http://www.share.minike.top/Article/details/24818131.shtml)
-- 2026-06-29 14:07 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/3898436.shtml)
-- 2026-06-29 13:56 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/83610263153.shtml)
-- 2026-06-29 14:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/311160.shtml)
-- 2026-06-29 14:07 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/74254497139.shtml)
-- 2026-06-29 14:04 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/554882.shtml)
-- 2026-06-29 13:58 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/6525427426.shtml)
+- 2026-06-29 14:20 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/071398.shtml)
+- 2026-06-29 14:02 - [青春环游记第三季](https://www.blog.minike.top/Article/details/56549663368.shtml)
+- 2026-06-29 13:59 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/42088406.shtml)
+- 2026-06-29 13:59 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/032518878139.shtml)
+- 2026-06-29 13:54 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/33766596139.shtml)
+- 2026-06-29 13:56 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/9992829209.shtml)
+- 2026-06-29 14:03 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/22204749832.shtml)
+- 2026-06-29 14:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/12704419.shtml)
+- 2026-06-29 13:56 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/3070727.shtml)
+- 2026-06-29 13:56 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/0685103.shtml)
+- 2026-06-29 14:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/47020072.shtml)
+- 2026-06-29 14:23 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/4384021555.shtml)
+- 2026-06-29 14:02 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/8138181.shtml)
+- 2026-06-29 14:15 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/17087628.shtml)
+- 2026-06-29 14:23 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/493423.shtml)

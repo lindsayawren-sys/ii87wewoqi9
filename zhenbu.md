@@ -1,57 +1,57 @@
-# 如何对抗AI时代焦虑？米哈游刘伟：找到热爱、立刻行动、倒推量化目标
+# 内蒙古启动2026年困境儿童关爱主题活动
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。 谈及如何对抗AI时代的焦虑，刘伟建议大学生们，首先，先找到一件自己喜欢做的事，不管是做科研，还是去创业都可以。但不要过分去追求一个显而易见的功利结果，因为这件事完全不可知。“如果你有一件自己想做的事，你就不会焦虑，你就能穿越周期。” 其次，他指出，有了目标之后，最重要的事情，就是马上去做。“大部分人的焦虑，都来自于
+中新网呼和浩特6月1日电 (记者 奥蓝)6月1日，“润心伴成长同心护未来”内蒙古自治区困境儿童关爱服务主题活动(以下简称主题活动)启动仪式在呼和浩特市举办。 启动仪式由内蒙古民政厅、教育厅、卫生健康委、司法厅、广电局、团委、妇儿工委办、妇联等共同组织开展。 按照计划，主题活动将以广大儿童的精神素养培育、关爱帮扶服务、安全防线守护、时代风采展示为重点，计划在这个夏天集中开展爱国主
 
 ## 正文
 
-4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。
+中新网呼和浩特6月1日电 (记者 奥蓝)6月1日，“润心伴成长同心护未来”内蒙古自治区困境儿童关爱服务主题活动(以下简称主题活动)启动仪式在呼和浩特市举办。
 
-谈及如何对抗AI时代的焦虑，刘伟建议大学生们，首先，先找到一件自己喜欢做的事，不管是做科研，还是去创业都可以。
+启动仪式由内蒙古民政厅、教育厅、卫生健康委、司法厅、广电局、团委、妇儿工委办、妇联等共同组织开展。
 
-但不要过分去追求一个显而易见的功利结果，因为这件事完全不可知。
+按照计划，主题活动将以广大儿童的精神素养培育、关爱帮扶服务、安全防线守护、时代风采展示为重点，计划在这个夏天集中开展爱国主义教育、实地参观见学、心理健康关爱、家庭监护提升、文艺汇演等多形式、多渠道、多层次的“点亮”活动。
 
-“如果你有一件自己想做的事，你就不会焦虑，你就能穿越周期。
+“进一步提升内蒙古困境儿童福利保障工作质量和水平，护航困境儿童愉快生活、健康成长、全面发展，真正把青少年培养成为拥有‘四个自信’的孩子。
 
-” 其次，他指出，有了目标之后，最重要的事情，就是马上去做。
+”谈及主题活动目的，内蒙古民政厅副厅长朝克如是介绍。
 
-“大部分人的焦虑，都来自于想的太多，而行动太少。
+同时，朝克还表示，内蒙古正在逐步形成民政牵头、部门协作、家庭尽责、社会参与，服务主体多元、服务方式多样、转介衔接顺畅、干预帮扶精准的新时代困境儿童关爱服务工作格局。
 
-” 如何才能提升行动力？
+为此，他发出倡议：内蒙古民政厅要牵头，不断健全完善困境儿童关爱服务部门协同联动机制、常态化关爱服务机制、专业资源投入机制、社会力量参与机制等，构建起困境儿童心理健康全链条守护体系；各相关部门要将困境儿童心理健康关爱服务纳入各部门业务培训内容，不断提升基层儿童工作队伍的专业素养和实操技能；还要积极倡导、支持企事业单位、社会组织和社会各界爱心人士积极参与到困境儿童关爱服务行动中来。
 
-刘伟强调，做一件事最重要的不是先学会，而是先去做。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 13:48 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 14:05 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 14:09 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 14:06 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 14:07 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 13:53 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 13:57 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 14:10 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 14:08 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 14:07 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 13:57 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 14:22 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 14:09 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 14:17 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 14:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 14:22 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 14:16 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 14:05 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 14:08 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 14:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 14:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/611049449241.shtml)
-- 2026-06-29 13:49 - [爱很美味](http://www.share.minike.top/Article/details/155185660.shtml)
-- 2026-06-29 14:04 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.minike.top/Article/details/52063.shtml)
-- 2026-06-29 14:02 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/5612742703.shtml)
-- 2026-06-29 14:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/09475.shtml)
-- 2026-06-29 14:09 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/768285222.shtml)
-- 2026-06-29 14:16 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/293411.shtml)
-- 2026-06-29 14:13 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/776451247986.shtml)
-- 2026-06-29 14:16 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/848253065552.shtml)
-- 2026-06-29 14:04 - [曾沛慈夺冠后人气](http://www.share.minike.top/Article/details/807674.shtml)
-- 2026-06-29 13:53 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/24899.shtml)
-- 2026-06-29 13:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/655531273.shtml)
-- 2026-06-29 13:55 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/62232476.shtml)
-- 2026-06-29 13:51 - [游戏数据被用于军事目的 国安部提醒](https://www.share.kurohicncr.top/Article/details/0374580.shtml)
-- 2026-06-29 13:54 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/120496.shtml)
+- 2026-06-29 14:03 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/602789492647.shtml)
+- 2026-06-29 14:03 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/118538.shtml)
+- 2026-06-29 14:12 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/728013319479.shtml)
+- 2026-06-29 14:11 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/70215103291.shtml)
+- 2026-06-29 14:01 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/066497715635.shtml)
+- 2026-06-29 14:07 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/53849198.shtml)
+- 2026-06-29 14:11 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/15161005260.shtml)
+- 2026-06-29 14:19 - [薛之谦演唱会](http://www.blog.minike.top/Article/details/5331731.shtml)
+- 2026-06-29 14:03 - [时光音乐会](https://www.blog.minike.top/Article/details/029116.shtml)
+- 2026-06-29 14:19 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/006349584831.shtml)
+- 2026-06-29 14:17 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/208662.shtml)
+- 2026-06-29 13:55 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/93454.shtml)
+- 2026-06-29 13:59 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/766739534.shtml)
+- 2026-06-29 14:16 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/8938275916.shtml)
+- 2026-06-29 14:02 - [三星与SK集团或将投资2000万亿韩元](https://www.share.kurohicncr.top/Article/details/27704505938.shtml)

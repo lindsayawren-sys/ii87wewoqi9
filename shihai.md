@@ -1,53 +1,57 @@
-# 下班上课夜间“充电” 杭州青年夜校AI培训受追捧
+# 跨境支付巨头Wise涉嫌洗钱5亿欧元 遭到比利时检方调查
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-AI可以成为老辈子们的“数字拐杖”吗？台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦辽宁持续发力打造营商环境好口碑具身智能打开“中国服务”新空间印尼的塑料袋与万里之外的战火76载同心同行，中国和印尼情谊跨越山海美伊会谈无果而终，市场担忧情绪蔓延美国封锁临近！油价冲上100美元，黄金跳水匈牙利迎变局，欧尔班16年强人执政生涯画下句点人这一辈子，一定要去趟云南“撒”个“泼
+比利时检方针对跨境支付巨头Wise启动反洗钱调查，因后者涉嫌金额约5亿欧元（约合5.83亿美元）的可疑洗钱交易。 布鲁塞尔检察官办公室已确认于2025年对Wise欧洲子公司Wise Europe启动司法调查，目前调查已进入收尾阶段。检方指出，Wise账户被怀疑用于欺诈、腐败、毒品交易等犯罪活动的资金流转，公司可能存在客户身份识别等方面的反洗钱合规缺失。调查源于来自30多个欧洲国
 
 ## 正文
 
-AI可以成为老辈子们的“数字拐杖”吗？
+比利时检方针对跨境支付巨头Wise启动反洗钱调查，因后者涉嫌金额约5亿欧元（约合5.83亿美元）的可疑洗钱交易。
 
-台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦辽宁持续发力打造营商环境好口碑具身智能打开“中国服务”新空间印尼的塑料袋与万里之外的战火76载同心同行，中国和印尼情谊跨越山海美伊会谈无果而终，市场担忧情绪蔓延美国封锁临近！
+布鲁塞尔检察官办公室已确认于2025年对Wise欧洲子公司Wise Europe启动司法调查，目前调查已进入收尾阶段。
 
-油价冲上100美元，黄金跳水匈牙利迎变局，欧尔班16年强人执政生涯画下句点人这一辈子，一定要去趟云南“撒”个“泼”！
+检方指出，Wise账户被怀疑用于欺诈、腐败、毒品交易等犯罪活动的资金流转，公司可能存在客户身份识别等方面的反洗钱合规缺失。
 
-“99%芦荟胶”里的99%，竟是指“久久”坚持补水“一天可能讲了上百遍”，脑机接口有多火？
+调查源于来自30多个欧洲国家的数百份司法协助请求，这些请求均涉及Wise账户。
 
-记南部战区海军第一医院文职军医田剑：以针为媒传播中国强军之音律师起诉小红书，600元认证费成“肉包子打狗”？
+Wise确认正配合布鲁塞尔检方调查，但强调调查仍在进行中，尚未收到任何具体调查结论。
 
-西班牙首相四年四度访华 中西两国书写“变局中的不变友谊”封关赋能开放 外资加速入琼从汉代博山炉到新中式香薰 中国人的“情绪消费”从未缺席中国简牍宝库破圈揭秘丝路故事680枚钱币、42件化石 外籍旅客携出境被海关查获北京人艺话剧《张居正》香港上演新兵遇雨天询问能否暂停体能训练 班长坚定回应天津“大象滑梯乐园”建成开放 解锁几代人童年记忆探访南京超级充电绿色示范站 快充只需十分钟现场直击郑丽文上海参访 感受两岸交流带来蓬勃生机郑丽文对话在沪台青，在沪台青：这里发展机遇多 能够酝酿人生的厚度当“爱笛声”遇上“保安诗人” 他们把生活写满诗歌1分钟10人同步跳绳258次外国友人勇闯泼水节狂欢现场机器人深夜狂飙半马 下班后开启躺平模式动物园为小黑熊举办“百日庆典”重庆动物园“萌宝天团”春日齐亮相加拿大人学打麻将 拿着对照表说“碰、杠、吃”广州遭遇大暴雨 一野生动
+公司在声明中表示，来自执法机构的信息请求是正常运营的一部分，其本身并不代表公司违反了反洗钱要求或存在任何不当行为。
+
+但市场对此反应剧烈。
+
+这是Wise首次因合规问题遭遇大规模刑事调查，此前公司已有“前科”：2022年比利时央行曾要求其整改客户文件问题；2025年7月，其美国子公司因反洗钱漏洞被多家州监管机构罚款420万美元。
 
 ## 相关推荐
 
-- 2026-06-29 14:04 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 13:59 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 14:16 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 13:52 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 13:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 13:57 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 14:06 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 13:59 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 14:05 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 14:00 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 14:09 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 14:09 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 14:04 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 14:15 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 13:59 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 13:58 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 14:22 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 14:23 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 14:23 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 14:17 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 14:04 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 14:17 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/5684915874.shtml)
-- 2026-06-29 13:51 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/553101539031.shtml)
-- 2026-06-29 13:59 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/514820.shtml)
-- 2026-06-29 14:12 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/286587202.shtml)
-- 2026-06-29 14:05 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/05472.shtml)
-- 2026-06-29 14:03 - [委内瑞拉地震死亡人数升至1450人](http://www.share.kurohicncr.top/Article/details/65648495158.shtml)
-- 2026-06-29 14:02 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/40418394.shtml)
-- 2026-06-29 14:04 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/36185.shtml)
-- 2026-06-29 13:51 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.minike.top/Article/details/0110388.shtml)
-- 2026-06-29 14:14 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/184039.shtml)
-- 2026-06-29 14:11 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/268068.shtml)
-- 2026-06-29 13:54 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.minike.top/Article/details/777747.shtml)
-- 2026-06-29 14:05 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/08334004.shtml)
-- 2026-06-29 13:56 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/571690219.shtml)
-- 2026-06-29 14:10 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/1461307675.shtml)
+- 2026-06-29 14:05 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/64248324000.shtml)
+- 2026-06-29 14:22 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/684694020685.shtml)
+- 2026-06-29 14:06 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/03296046.shtml)
+- 2026-06-29 14:08 - [2025年人口增长10强城市出炉](http://www.blog.minike.top/Article/details/4561535809.shtml)
+- 2026-06-29 14:07 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/213686.shtml)
+- 2026-06-29 14:13 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/744511517218.shtml)
+- 2026-06-29 14:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/504099.shtml)
+- 2026-06-29 14:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/252181451.shtml)
+- 2026-06-29 14:08 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/384100.shtml)
+- 2026-06-29 14:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/457315389333.shtml)
+- 2026-06-29 13:58 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/043397201091.shtml)
+- 2026-06-29 14:16 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/98434383968.shtml)
+- 2026-06-29 14:17 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/0459160.shtml)
+- 2026-06-29 14:00 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/95202759.shtml)
+- 2026-06-29 14:11 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/206154.shtml)

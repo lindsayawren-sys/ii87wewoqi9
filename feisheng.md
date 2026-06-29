@@ -1,56 +1,56 @@
-# 陈昱廷：发挥华商优势，坚定不移地投资中国
+# 白银短期反弹不改调整结构，等待方向选择为主
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网北京4月14日电 题：陈昱廷：发挥华商优势，坚定不移地投资中国 中新网记者 吴侃 “‘孝、和、勤、俭、恩’是我们家族的价值观，既是治家的信条，也是兴业立业的根本，指引我们在事业不断壮大的同时，始终牵挂故土、回馈社会。”新加坡金鹰集团执行董事陈昱廷接受中新网记者采访时如是说。 新加坡金鹰集团由华商陈江和于20世纪70年代创立，20世纪90年代进入中国，已在全国15个省市投资
+文章来源：汇通财经 现货白银（XAG/USD）周二亚洲交易时段出现技术性反弹，价格回升至76.50美元附近，日内涨幅超过2%。在经历此前连续调整后，部分低位买盘重新入场，推动银价短线企稳回升。 不过，从整体走势来看，白银目前仍未摆脱整理格局。虽然价格重新站上75美元关口，但市场尚未形成有效突破，短期运行区间依旧保持完整。近期贵金属市场整体受到多重因素影响。一方面，中东局势持续紧
 
 ## 正文
 
-中新网北京4月14日电 题：陈昱廷：发挥华商优势，坚定不移地投资中国 中新网记者 吴侃 “‘孝、和、勤、俭、恩’是我们家族的价值观，既是治家的信条，也是兴业立业的根本，指引我们在事业不断壮大的同时，始终牵挂故土、回馈社会。
+文章来源：汇通财经 现货白银（XAG/USD）周二亚洲交易时段出现技术性反弹，价格回升至76.50美元附近，日内涨幅超过2%。
 
-”新加坡金鹰集团执行董事陈昱廷接受中新网记者采访时如是说。
+在经历此前连续调整后，部分低位买盘重新入场，推动银价短线企稳回升。
 
-新加坡金鹰集团由华商陈江和于20世纪70年代创立，20世纪90年代进入中国，已在全国15个省市投资兴建42家工厂，业务涵盖林浆纸、纤维素纤维、棕榈油及能源板块。
+不过，从整体走势来看，白银目前仍未摆脱整理格局。
 
-日前，陈昱廷向记者讲述了父辈的商道传承与新生代华商的创新之路。
+虽然价格重新站上75美元关口，但市场尚未形成有效突破，短期运行区间依旧保持完整。
 
-新生代华商的“兴业之道” “在商业经营中，我一直坚信良好的商业运作必须对当地民众有利、对所在国家有利、对环境有利、对客户有利，只有这样才能实现可持续发展。
+近期贵金属市场整体受到多重因素影响。
 
-”陈昱廷说，这是金鹰集团始终坚持的经营理念，也是企业在实践中产生的对中华商道的体会和理解。
+一方面，中东局势持续紧张以及全球经济不确定性为避险资产提供支撑；另一方面，市场对于美联储维持高利率环境的预期仍然存在，对贵金属形成压制。
 
-在她看来，践行“利民、利国、利业”，要以仁为本、以信为基、以感恩为怀。
+与黄金相比，白银除了具备避险属性之外，还兼具工业金属特征。
 
-其中“以仁为本”是经商的初心，她举例道，20世纪80年代，金鹰集团在印尼廖内省推广中小农户合作计划，吸引2.9万户农民参加，为农民种植棕榈油树方面提供资金和技术支持，有效带动农户增收，生活显著改善。
+因此，其价格不仅受到货币政策和美元走势影响，也与全球制造业活动和工业需求变化密切相关。
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 14:06 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 13:49 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 13:49 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 14:08 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 14:06 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 13:53 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 13:55 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 13:58 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 13:53 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 14:15 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 14:06 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 14:21 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 13:57 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 14:09 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 14:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 14:14 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 14:23 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 13:56 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 14:07 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/090348707241.shtml)
-- 2026-06-29 14:10 - [韩国队启程回国众将回避镜头](http://www.share.kurohicncr.top/Article/details/52816383237.shtml)
-- 2026-06-29 14:09 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/86749487443.shtml)
-- 2026-06-29 14:10 - [周杰伦演唱会真的好多人啊](https://www.blog.minike.top/Article/details/47752.shtml)
-- 2026-06-29 14:02 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/335145116.shtml)
-- 2026-06-29 14:11 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/4913686.shtml)
-- 2026-06-29 14:14 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/055201803.shtml)
-- 2026-06-29 14:11 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/1343865.shtml)
-- 2026-06-29 14:15 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/600976636161.shtml)
-- 2026-06-29 14:01 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/9695705.shtml)
-- 2026-06-29 14:14 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/917703059.shtml)
-- 2026-06-29 14:02 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/914492772744.shtml)
-- 2026-06-29 14:15 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/73811.shtml)
-- 2026-06-29 14:02 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/982735518052.shtml)
-- 2026-06-29 14:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/65265768070.shtml)
+- 2026-06-29 14:05 - [3D打印不是工业革命，它是……](https://www.share.kurohicncr.top/Article/details/609943646584.shtml)
+- 2026-06-29 13:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/58020527.shtml)
+- 2026-06-29 14:08 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/42919.shtml)
+- 2026-06-29 14:19 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/68949.shtml)
+- 2026-06-29 14:02 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/2529594342.shtml)
+- 2026-06-29 14:12 - [恋与深空底线不该被娱乐化](http://www.blog.minike.top/Article/details/20465591584.shtml)
+- 2026-06-29 14:22 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/0548914.shtml)
+- 2026-06-29 14:16 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/5933499519.shtml)
+- 2026-06-29 14:05 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/315133.shtml)
+- 2026-06-29 14:08 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/84931.shtml)
+- 2026-06-29 14:20 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/8779359455.shtml)
+- 2026-06-29 14:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/5447735559.shtml)
+- 2026-06-29 14:03 - [强⁶](http://www.share.minike.top/Article/details/31776.shtml)
+- 2026-06-29 13:54 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/442278.shtml)
+- 2026-06-29 14:16 - [爸爸当家](http://www.blog.minike.top/Article/details/044656464.shtml)

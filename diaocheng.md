@@ -1,60 +1,60 @@
-# 云南西双版纳：中泰青年企业家座谈交流话友谊
+# 国联民生证券孔蓉：韩股牛市由存储驱动，恒科背离源于权重股“AI叙事”欠佳，港股结构性机会仍存
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-美国封锁临近！油价冲上100美元，黄金跳水匈牙利迎变局，欧尔班16年强人执政生涯画下句点人这一辈子，一定要去趟云南“撒”个“泼”！“99%芦荟胶”里的99%，竟是指“久久”坚持补水“一天可能讲了上百遍”，脑机接口有多火？记南部战区海军第一医院文职军医田剑：以针为媒传播中国强军之音律师起诉小红书，600元认证费成“肉包子打狗”？西班牙首相四年四度访华 中西两国书写“变局中的不变友
+2026年以来，全球科技股走势分化。针对恒生科技指数为何明显跑输全球同类资产这一问题，6月2日晚，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，进行了系统拆解。视频直播>> 她指出，韩股的核心驱动力在于存储产业的AI超级周期，而恒科表现疲弱的根源在于腾讯、阿里等权重股的AI叙事暂时未能打动市场，但港股的硬件股和新上市的科技龙头已展现出独立行情，未来若权重
 
 ## 正文
 
-美国封锁临近！
+2026年以来，全球科技股走势分化。
 
-油价冲上100美元，黄金跳水匈牙利迎变局，欧尔班16年强人执政生涯画下句点人这一辈子，一定要去趟云南“撒”个“泼”！
+针对恒生科技指数为何明显跑输全球同类资产这一问题，6月2日晚，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，进行了系统拆解。
 
-“99%芦荟胶”里的99%，竟是指“久久”坚持补水“一天可能讲了上百遍”，脑机接口有多火？
+视频直播>> 她指出，韩股的核心驱动力在于存储产业的AI超级周期，而恒科表现疲弱的根源在于腾讯、阿里等权重股的AI叙事暂时未能打动市场，但港股的硬件股和新上市的科技龙头已展现出独立行情，未来若权重股迎来“谷歌时刻”，恒科修复空间可观。
 
-记南部战区海军第一医院文职军医田剑：以针为媒传播中国强军之音律师起诉小红书，600元认证费成“肉包子打狗”？
+针对韩国股市的史诗级上涨，孔蓉认为其内核与全球科技主线高度一致，即AI与硬件的共振。
 
-西班牙首相四年四度访华 中西两国书写“变局中的不变友谊”封关赋能开放 外资加速入琼从汉代博山炉到新中式香薰 中国人的“情绪消费”从未缺席中国简牍宝库破圈揭秘丝路故事“千年药乡”陇西：种子上天入地享智能家居、机器保姆壮族绣球“赶潮”“三月三”成流量新宠中泰合作如何转化为惠及民众的切实福祉？
+一方面，韩国新一届政府上台后对资本市场给予了政策支持，这与A股近年来政策呵护科技板块的逻辑相似；但更关键的驱动力来自于存储产业。
 
-中国各级部门全力推进生态环境法典落地见效2026北京半程马拉松收官 王文杰打破全国纪录夺冠美伊都在宣布胜利，真正被改写的却是霍尔木兹规则中东冲突为何陷入循环“魔咒”？
+她表示，“三星和SK海力士带动了整个韩国市场的股价表现”，而存储板块的机会能否延续，将直接决定韩股后续走势。
 
-天津“大象滑梯乐园”建成开放 解锁几代人童年记忆探访南京超级充电绿色示范站 快充只需十分钟现场直击郑丽文上海参访 感受两岸交流带来蓬勃生机郑丽文对话在沪台青，在沪台青：这里发展机遇多 能够酝酿人生的厚度当“爱笛声”遇上“保安诗人” 他们把生活写满诗歌松花江畔雪映碧水，鸟舞春归多角度高燃混剪！
+孔蓉判断，只要AI驱动的存储超级周期没有结束，韩国市场依然会受到全球资金的关注，其中存储领域是吸引力和关注度最高的环节。
 
-带你沉浸式体验射击训练中国成功发射卫星互联网低轨21组卫星机器人深夜狂飙半马 下班后开启躺平模式动物园为小黑熊举办“百日庆典”重庆动物园“萌宝天团”春日齐亮相加拿大人学打麻将 拿着对照表说“碰、杠、吃”广州遭遇大暴雨 一野生动物园淋雨的狮子因像失恋被刷屏身份证“X”应该读“shí”教机器人学做“西北人” 跳敦煌舞说兰州话“00后”女生以牙为刀 胡萝卜雕琢百态国风渝万高铁56座隧道全部贯通 天津完成中国首例东方白鹳机械假肢安装 山西朔州：长城脚下杏花烂漫 2026年“苏超”盛大开幕 视听盛宴点燃绿茵激情 北京胡同里的“链接人” “地球彩带”扬起最炫民族风 一名“星青年”的日常 “春日精灵”畅玩“花花”世界 分享 评论 顶部
+然而，与韩股、美股科技的火热形成鲜明反差，恒生科技指数5月表现承压。
 
 ## 相关推荐
 
-- 2026-06-29 13:54 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 14:06 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 13:50 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 14:04 - [2025年人口增长10强城市出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 13:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 13:53 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 13:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 14:14 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 14:15 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 13:52 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 14:01 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 13:54 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 14:01 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 14:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 14:03 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 14:09 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 14:23 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 14:23 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 13:54 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 13:59 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 14:01 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 14:08 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 14:04 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 14:12 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 14:07 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 13:55 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 13:54 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 13:55 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/7012891974.shtml)
-- 2026-06-29 14:02 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/51874.shtml)
-- 2026-06-29 13:55 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.kurohicncr.top/Article/details/360182871770.shtml)
-- 2026-06-29 13:53 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/15295237068.shtml)
-- 2026-06-29 13:57 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/60507.shtml)
-- 2026-06-29 13:49 - [A股](http://www.blog.kurohicncr.top/Article/details/78930.shtml)
-- 2026-06-29 13:52 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/932203710777.shtml)
-- 2026-06-29 13:49 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/24423651.shtml)
-- 2026-06-29 14:11 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/146980419.shtml)
-- 2026-06-29 14:13 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/89631832.shtml)
-- 2026-06-29 14:11 - [吴海燕兰西雅漫步复兴岛](https://www.share.minike.top/Article/details/9231459106.shtml)
-- 2026-06-29 14:08 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.minike.top/Article/details/089214741.shtml)
-- 2026-06-29 13:52 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/166252.shtml)
-- 2026-06-29 14:11 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/893518888.shtml)
-- 2026-06-29 14:08 - [起风了](http://www.blog.kurohicncr.top/Article/details/003300584.shtml)
+- 2026-06-29 14:08 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/19640560.shtml)
+- 2026-06-29 14:09 - [记者暗访贵州和云南多个养老机构](http://www.share.minike.top/Article/details/3364714355.shtml)
+- 2026-06-29 14:12 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/0213158893.shtml)
+- 2026-06-29 14:24 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/2832024534.shtml)
+- 2026-06-29 13:55 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/4756066720.shtml)
+- 2026-06-29 14:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/185109091.shtml)
+- 2026-06-29 14:01 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/61479618353.shtml)
+- 2026-06-29 14:02 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/162006224.shtml)
+- 2026-06-29 14:01 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/615668006256.shtml)
+- 2026-06-29 14:15 - [詹俊预测德国大胜巴拉圭](https://www.share.kurohicncr.top/Article/details/42015675858.shtml)
+- 2026-06-29 13:56 - [《贺子珍》](http://www.blog.minike.top/Article/details/6208847.shtml)
+- 2026-06-29 14:00 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/463541237943.shtml)
+- 2026-06-29 14:12 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.kurohicncr.top/Article/details/40275267.shtml)
+- 2026-06-29 14:12 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/457469.shtml)
+- 2026-06-29 14:13 - [美伊同意停止互袭](https://www.share.minike.top/Article/details/948337.shtml)

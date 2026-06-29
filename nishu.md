@@ -1,57 +1,61 @@
-# 上海科研团队深耕18年 攻克鳗鲡人工繁殖多项技术难题
+# Castlelake拟收购易捷航空，估值至少41.2亿美元
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网上海4月13日电 (记者 许婧)鳗鲡人工繁殖是公认的世界难题。记者12日从上海海洋大学获悉，该校水产与生命学院刘利平教授团队深耕细作、多年积淀，在该领域取得系列新进展，不仅在全人工海水循环系统育苗方面实现新突破，还在亲本营养调控与性腺发育非损伤性监测等方面获得新成果。 作为国内最早开展鳗鲡人工繁殖研究的单位，上海海洋大学自20世纪70年代起便开展相关研究并获得初孵仔鱼。2
+总部位于明尼阿波利斯的Castlelake需在 6 月 26 日前提交正式收购要约 易捷航空周一表示，受中东局势影响，公司股价短期走低，Castlelake此时披露相关意向，时机带有明显投机色彩。该航空公司强调，目前既未收到对方的收购方案，双方也没有进行任何洽谈。 欧洲早盘交易时段，易捷航空股价大涨 9.52%，报 439.60 便士，收复了年内部分跌幅。 近几周，中东冲突持续
 
 ## 正文
 
-中新网上海4月13日电 (记者 许婧)鳗鲡人工繁殖是公认的世界难题。
+总部位于明尼阿波利斯的Castlelake需在 6 月 26 日前提交正式收购要约 易捷航空周一表示，受中东局势影响，公司股价短期走低，Castlelake此时披露相关意向，时机带有明显投机色彩。
 
-记者12日从上海海洋大学获悉，该校水产与生命学院刘利平教授团队深耕细作、多年积淀，在该领域取得系列新进展，不仅在全人工海水循环系统育苗方面实现新突破，还在亲本营养调控与性腺发育非损伤性监测等方面获得新成果。
+该航空公司强调，目前既未收到对方的收购方案，双方也没有进行任何洽谈。
 
-作为国内最早开展鳗鲡人工繁殖研究的单位，上海海洋大学自20世纪70年代起便开展相关研究并获得初孵仔鱼。
+欧洲早盘交易时段，易捷航空股价大涨 9.52%，报 439.60 便士，收复了年内部分跌幅。
 
-2008年以来，刘利平团队聚焦日本鳗鲡人工繁殖关键技术攻关，逐步构建起完整技术链条。
+近几周，中东冲突持续拖累航空板块走势：地缘政治风险加剧抑制出行需求、推高燃油价格，航线受阻也进一步增加了运营成本。
 
-团队连续多年获得高质量受精卵和初孵仔鱼，部分批次受精率96.4%、5日龄仔鱼存活率80%，将仔鱼培育至21天创下国内最长存活纪录，还率先获得柳叶鳗前体，储备后备亲鱼2000余尾。
+截至上周五收盘，易捷航空股价年内累计下跌 22%。
 
-团队利用全人工海水循环系统，对在仿生态条件下培育的日本鳗鲡亲本进行催熟催产、受精卵孵化和仔鱼早期培育研究。
+受中东战事等因素导致燃油成本攀升影响，公司曾在 4 月发布盈利预警；5 月公布的财报显示，其上半财年税前亏损进一步扩大，同时称全年业绩前景存在不确定性。
 
-通过对温度、盐度、水流、水质等环境因子的综合调控，并结合持续优化的仔鱼开口饵料配方与投喂策略，团队显著改善了仔鱼摄食表现和发育状态，成功将人工孵化仔鱼稳定培育至柳叶鳗前体阶段，并观察到仔鱼摄食和排泄全过程。
+易捷航空表示，若收购交易推进，还需攻克监管、资金及落地执行等诸多难题。
 
-这一进展表明，团队在摆脱天然海水依赖、实现人工繁育环境精准调控方面迈出了重要一步，为在不具备优质海水资源的区域复制和推广鳗鲡人工繁殖技术奠定了基础，拓展了潜力。
+公司重申中期目标：实现 10 亿英镑税前利润，并称董事会对现有发展战略抱有信心。
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 14:13 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 14:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 14:14 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 13:59 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 14:05 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 13:57 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 14:16 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 14:14 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 14:00 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 13:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 14:17 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 14:21 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 14:09 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 14:20 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 14:07 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 13:58 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 14:18 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 14:05 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 14:09 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 14:21 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 14:07 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 14:05 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 14:10 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 14:14 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 13:58 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/600291.shtml)
-- 2026-06-29 14:16 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/301291.shtml)
-- 2026-06-29 14:11 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/7874927.shtml)
-- 2026-06-29 13:48 - [实习期把公司领导开除了](http://www.share.kurohicncr.top/Article/details/716797577776.shtml)
-- 2026-06-29 14:01 - [吴海燕兰西雅漫步复兴岛](https://www.share.kurohicncr.top/Article/details/83535089.shtml)
-- 2026-06-29 14:11 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/75577.shtml)
-- 2026-06-29 13:49 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/715399815.shtml)
-- 2026-06-29 13:58 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/0439956862.shtml)
-- 2026-06-29 13:55 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/10050311056.shtml)
-- 2026-06-29 14:01 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/015587094.shtml)
-- 2026-06-29 14:16 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/0648502113.shtml)
-- 2026-06-29 14:08 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/686533829.shtml)
-- 2026-06-29 13:52 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/6182084.shtml)
-- 2026-06-29 13:58 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/8732145637.shtml)
-- 2026-06-29 14:08 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/31591035392.shtml)
+- 2026-06-29 14:14 - [灿如繁星定档](https://www.blog.minike.top/Article/details/259338135528.shtml)
+- 2026-06-29 13:56 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/89629338275.shtml)
+- 2026-06-29 14:08 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/47052626.shtml)
+- 2026-06-29 14:22 - [久坐小心“死臀综合征”](http://www.blog.kurohicncr.top/Article/details/71110245.shtml)
+- 2026-06-29 14:09 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/159653916.shtml)
+- 2026-06-29 14:13 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/2283595.shtml)
+- 2026-06-29 13:54 - [扬名立万](https://www.share.kurohicncr.top/Article/details/09577.shtml)
+- 2026-06-29 14:10 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/907703812.shtml)
+- 2026-06-29 14:16 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/3576522.shtml)
+- 2026-06-29 14:19 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/7612704.shtml)
+- 2026-06-29 14:22 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/64389.shtml)
+- 2026-06-29 13:58 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/27563747460.shtml)
+- 2026-06-29 14:14 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/5773339.shtml)
+- 2026-06-29 14:09 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/87479054.shtml)
+- 2026-06-29 14:15 - [84岁英国教授成中国网红](http://www.blog.kurohicncr.top/Article/details/5161460.shtml)

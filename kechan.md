@@ -1,59 +1,46 @@
-# 中方：美方加码军事部署采取定向封锁行动，只会激化矛盾
+# 以军在黎南部展开“大规模行动”：以色列利用谈判僵局 借机谋求更大利益
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网北京4月14日电 (记者 黄钰钦)中国外交部发言人郭嘉昆14日主持例行记者会。 有记者提问：据报道，美军中央司令部宣布，自北京时间13号晚上10时起，封锁所有抵离伊朗港口和沿海地区船只，伊朗议长卡利巴夫强调，伊方不会向任何威胁屈服，伊斯兰革命卫队警告军事舰艇不得驶进霍尔木兹海峡。据相关监测机构追踪数据显示，13号晚开始霍尔木兹海峡的商业航运停摆，请问中方对此有何评论？ 郭
+发布时间：2026年06月01日 10:45 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网北京4月14日电 (记者 黄钰钦)中国外交部发言人郭嘉昆14日主持例行记者会。
-
-有记者提问：据报道，美军中央司令部宣布，自北京时间13号晚上10时起，封锁所有抵离伊朗港口和沿海地区船只，伊朗议长卡利巴夫强调，伊方不会向任何威胁屈服，伊斯兰革命卫队警告军事舰艇不得驶进霍尔木兹海峡。
-
-据相关监测机构追踪数据显示，13号晚开始霍尔木兹海峡的商业航运停摆，请问中方对此有何评论？
-
-郭嘉昆：在相关方业已达成临时停火安排的情况下，美方加码军事部署，采取定向封锁行动，只会激化矛盾，加剧局势紧张，破坏本就脆弱的停火局面，并进一步冲击海峡通行安全。
-
-这是危险和不负责任的行为。
-
-中方认为，只有实现全面停火止战，才能从根本上为缓和海峡局势创造条件。
-
-中方敦促各方恪守停火安排，聚焦对话和谈大方向，以实际行动推动地区局势缓和，尽早恢复海峡通行正常。
-
-(完)
+发布时间：2026年06月01日 10:45 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 13:56 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 14:03 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 13:54 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 14:12 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 13:51 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 14:01 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 14:06 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 13:57 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 14:05 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 14:07 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 14:15 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 13:51 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 14:09 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 14:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 13:59 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 14:15 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 14:19 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 13:56 - [爸爸当家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 13:54 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 14:06 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 14:09 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 14:03 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 14:00 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 14:14 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 14:06 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 14:19 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:13 - [强⁶](https://www.blog.kurohicncr.top/Article/details/774495895259.shtml)
-- 2026-06-29 14:11 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/025230369.shtml)
-- 2026-06-29 14:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/4069939204.shtml)
-- 2026-06-29 13:57 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/32523618916.shtml)
-- 2026-06-29 14:06 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/83726.shtml)
-- 2026-06-29 13:51 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/93454705.shtml)
-- 2026-06-29 14:16 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/9308618.shtml)
-- 2026-06-29 14:11 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/3932235.shtml)
-- 2026-06-29 14:16 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/39007918.shtml)
-- 2026-06-29 14:03 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/117468050363.shtml)
-- 2026-06-29 14:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/378774.shtml)
-- 2026-06-29 14:06 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/41968417.shtml)
-- 2026-06-29 13:52 - [明星大侦探第一季](http://www.share.minike.top/Article/details/598489620384.shtml)
-- 2026-06-29 14:12 - [人民日报评“AI脸看腻了”](http://www.blog.kurohicncr.top/Article/details/21161399732.shtml)
-- 2026-06-29 14:13 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/92904.shtml)
+- 2026-06-29 14:16 - [扬名立万](https://www.share.minike.top/Article/details/43615.shtml)
+- 2026-06-29 13:56 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/28711.shtml)
+- 2026-06-29 14:20 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/9912583636.shtml)
+- 2026-06-29 14:08 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/659460.shtml)
+- 2026-06-29 13:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/5319635.shtml)
+- 2026-06-29 13:55 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/2373421.shtml)
+- 2026-06-29 14:16 - [中国战机大片上新](https://www.blog.minike.top/Article/details/97459.shtml)
+- 2026-06-29 14:12 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/179438.shtml)
+- 2026-06-29 14:09 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/8498351.shtml)
+- 2026-06-29 14:23 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/232363849.shtml)
+- 2026-06-29 13:56 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/400887923751.shtml)
+- 2026-06-29 14:13 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/2948223.shtml)
+- 2026-06-29 13:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/82929205679.shtml)
+- 2026-06-29 14:01 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/979975995.shtml)
+- 2026-06-29 14:08 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/52745805121.shtml)

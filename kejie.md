@@ -1,57 +1,56 @@
-# 容常青获批出任晋商银行董事、副董事长
+# 英伟达CEO将与韩国企业高管会面，三星、LG股价大涨
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-4月13日金融一线消息，国家金融监督管理总局山西监管局发布批复，核准容常青晋商银行股份有限公司董事、副董事长的任职资格。 公开资料显示，容常青，男，1970年1月生，管理学硕士研究生学历。1991年获武汉大学经济学学士学位，2002年获中南财经政法大学管理学硕士学位，2005年评定为高级审计师，2009年取得企业法律顾问资格。 容常青于1991年起任职于审计署武汉特派办，后曾在
+受英伟达首席执行官黄仁勋即将与韩国企业高管会晤消息提振，市场对双方在人工智能、机器人领域展开合作预期升温，三星电子、LG 电子等韩国科技股周一集体走高。 受人工智能产业热潮推动，韩国 5 月半导体出口额创下历史新高，也带动该国整体出口创下四十余年来最大增幅，这一数据同样利好芯片巨头三星电子。 据知情人士透露，黄仁勋将于本周晚些时候到访韩国，会见 LG 集团会长具光谟及其他韩国企
 
 ## 正文
 
-4月13日金融一线消息，国家金融监督管理总局山西监管局发布批复，核准容常青晋商银行股份有限公司董事、副董事长的任职资格。
+受英伟达首席执行官黄仁勋即将与韩国企业高管会晤消息提振，市场对双方在人工智能、机器人领域展开合作预期升温，三星电子、LG 电子等韩国科技股周一集体走高。
 
-公开资料显示，容常青，男，1970年1月生，管理学硕士研究生学历。
+受人工智能产业热潮推动，韩国 5 月半导体出口额创下历史新高，也带动该国整体出口创下四十余年来最大增幅，这一数据同样利好芯片巨头三星电子。
 
-1991年获武汉大学经济学学士学位，2002年获中南财经政法大学管理学硕士学位，2005年评定为高级审计师，2009年取得企业法律顾问资格。
+据知情人士透露，黄仁勋将于本周晚些时候到访韩国，会见 LG 集团会长具光谟及其他韩国企业高管。
 
-容常青于1991年起任职于审计署武汉特派办，后曾在京东方科技集团股份有限公司移动数码事业部、北京荣泰恒嘉房地产开发有限公司及北京万东医疗装备股份有限公司担任财务、审计及管理职务。
+周一，英伟达还将在台北国际电脑展期间举办 “韩国合作伙伴之夜” 活动，黄仁勋将出席，三星、SK 海力士等芯片企业及其他多家韩国公司高管也将到场。
 
-2004年6月至2018年历任华能资本服务有限公司审计监察部主管及副处长、总经理工作部副处长及副经理、风险控制部经理及总法律顾问。
+三星电子股价收涨 10.1%，创下收盘历史新高；LG 电子连续第二个交易日触及 29.9% 单日涨停限制，股价刷新历史纪录。
 
-他于2018年9月起任晋商银行执行董事，同年12月起出任副行长，负责法律合规部、零售银行部、个人信贷资产部、信用卡业务部、资产管理部及小企业金融部。
+韩国互联网企业 NAVER 高管本周五也将与黄仁勋会面，其股价大涨 16%。
 
-2020年11月因工作调动辞任后，于2021年1月被永诚财产保险股份有限公司聘任为公司总裁，但其任职资格并未获批。
+韩国 KB 证券分析师金杰夫表示：“黄仁勋此次访韩意义重大，英伟达离不开韩国市场。
 
-2025年3月被重新提名为晋商银行非执行董事。
+” 英伟达去年宣布，将向韩国政府及三星电子、现代汽车集团等韩国头部企业供应超 26 万颗旗下顶级人工智能芯片。
 
 ## 相关推荐
 
-- 2026-06-29 13:54 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 14:07 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 13:55 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 14:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 14:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 14:10 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 13:56 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 13:50 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 14:00 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 13:52 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 14:02 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 14:20 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 13:55 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 14:03 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 14:17 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 13:54 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 14:17 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 14:01 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 14:12 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 14:02 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 14:04 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:04 - [市民骑哈啰单车79分钟付30元](https://www.blog.minike.top/Article/details/00399.shtml)
-- 2026-06-29 13:49 - [加拿大92分钟绝杀](https://www.blog.minike.top/Article/details/399014261213.shtml)
-- 2026-06-29 14:05 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/679968282.shtml)
-- 2026-06-29 14:12 - [急先锋](http://www.blog.kurohicncr.top/Article/details/53155093.shtml)
-- 2026-06-29 14:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/881670004415.shtml)
-- 2026-06-29 14:02 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/37052408.shtml)
-- 2026-06-29 14:04 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/69295604.shtml)
-- 2026-06-29 14:00 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/843386374318.shtml)
-- 2026-06-29 13:57 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/446839.shtml)
-- 2026-06-29 13:54 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/5654220.shtml)
-- 2026-06-29 13:51 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/12063700.shtml)
-- 2026-06-29 14:05 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/35543.shtml)
-- 2026-06-29 14:04 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/55788.shtml)
-- 2026-06-29 13:48 - [韩媒破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/32233.shtml)
-- 2026-06-29 14:03 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/72774624.shtml)
+- 2026-06-29 14:23 - [委内瑞拉地震已致1450死3150伤](https://www.blog.minike.top/Article/details/48195150784.shtml)
+- 2026-06-29 13:55 - [毒液2](https://www.share.kurohicncr.top/Article/details/4362123.shtml)
+- 2026-06-29 14:13 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/4090969907.shtml)
+- 2026-06-29 14:08 - [亚洲成世界杯最大失意者联盟](http://www.share.minike.top/Article/details/42099344.shtml)
+- 2026-06-29 14:08 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/581781086935.shtml)
+- 2026-06-29 14:00 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/822100.shtml)
+- 2026-06-29 13:56 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/057832360.shtml)
+- 2026-06-29 14:03 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/75510452.shtml)
+- 2026-06-29 14:00 - [2026年Mac能玩游戏了吗](http://www.share.minike.top/Article/details/03388931822.shtml)
+- 2026-06-29 14:06 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/510631.shtml)
+- 2026-06-29 14:12 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/9540684.shtml)
+- 2026-06-29 13:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/9118295919.shtml)
+- 2026-06-29 13:57 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/487241886.shtml)
+- 2026-06-29 14:00 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/841111796185.shtml)
+- 2026-06-29 13:54 - [德国队前往比赛场地遭遇囧途](http://www.blog.minike.top/Article/details/042890735.shtml)

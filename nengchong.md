@@ -1,59 +1,50 @@
-# 一季度我国社会融资规模增量近15万亿元 信贷支持实体经济质效持续提升
+# “美丽中国行之探访国家公园”集中采访启动
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-本报北京4月13日电 （记者吴秋余）中国人民银行13日发布的金融统计数据报告显示：一季度，我国社会融资规模增量累计为14.83万亿元，处于历史同期较高水平。截至3月末，我国广义货币（M2）余额353.86万亿元，同比增长8.5%，比上年同期高1.5个百分点；社会融资规模存量456.46万亿元，同比增长7.9%，同经济增长、价格总水平预期目标相匹配。M2和社会融资规模增速均保持在
+原标题：美丽中国行｜“美丽中国行之探访国家公园”集中采访启动 6月2日，由中央宣传部会同国家林草局和国家发展改革委、生态环境部、自然资源部、水利部等部门开展的“美丽中国行之探访国家公园”集中采访在四川省雅安市宝兴县启动。中央和部分地方主要新闻媒体、部分行业类媒体编辑记者代表共140余人参加了启动仪式。 此次集中采访组织媒体赴首批设立的5个国家公园：大熊猫国家公园、三江源国家公园
 
 ## 正文
 
-本报北京4月13日电 （记者吴秋余）中国人民银行13日发布的金融统计数据报告显示：一季度，我国社会融资规模增量累计为14.83万亿元，处于历史同期较高水平。
+原标题：美丽中国行｜“美丽中国行之探访国家公园”集中采访启动 6月2日，由中央宣传部会同国家林草局和国家发展改革委、生态环境部、自然资源部、水利部等部门开展的“美丽中国行之探访国家公园”集中采访在四川省雅安市宝兴县启动。
 
-截至3月末，我国广义货币（M2）余额353.86万亿元，同比增长8.5%，比上年同期高1.5个百分点；社会融资规模存量456.46万亿元，同比增长7.9%，同经济增长、价格总水平预期目标相匹配。
+中央和部分地方主要新闻媒体、部分行业类媒体编辑记者代表共140余人参加了启动仪式。
 
-M2和社会融资规模增速均保持在合理水平，为经济持续向好向优创造适宜的货币金融环境。
+此次集中采访组织媒体赴首批设立的5个国家公园：大熊猫国家公园、三江源国家公园、东北虎豹国家公园、武夷山国家公园、海南热带雨林国家公园采访调研，深入宣传习近平生态文明思想，宣传我国系统推进以国家公园为主体、以自然保护区为基础、以各类自然公园为补充的自然保护地体系建设进展成效，采写各地各部门统筹生态保护、绿色发展和民生改善的典型经验。
 
-数据显示，一季度我国贷款规模保持合理增长，信贷结构持续优化。
+启动仪式后，各媒体将分批次赴各地开展调研采访，在重要版面、时段和所属网站、新媒体平台播发系列报道，引导全社会参与国家公园建设，推动全社会牢固树立尊重自然、顺应自然、保护自然的理念，助力推进美丽中国建设、实现人与自然和谐共生的现代化。
 
-一季度人民币贷款增加8.6万亿元，截至3月末，人民币各项贷款余额280.51万亿元，同比增长5.7%。
-
-从结构上看，普惠小微贷款余额为38.38万亿元，同比增长10.3%，不含房地产业的服务业中长期贷款余额为61.39万亿元，同比增长9.9%，以上贷款增速均高于同期各项贷款增速。
-
-与此同时，贷款利率保持在历史低位水平。
-
-3月份企业新发放贷款（本外币）加权平均利率约为3.1%，比上年同期低约25个基点；个人住房新发放贷款（本外币）加权平均利率约为3.1%，比上年同期低约6个基点。
+(记者黄垚、余里）
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 14:04 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 13:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 13:54 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 13:53 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 13:59 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 13:57 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 13:53 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 14:17 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 13:59 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 13:55 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 13:48 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 13:55 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 14:09 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 14:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 14:02 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 14:18 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 14:10 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 14:09 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 14:08 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 14:04 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 13:54 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 14:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/63322.shtml)
-- 2026-06-29 13:49 - [亚洲成世界杯最大失意者联盟](http://www.blog.minike.top/Article/details/729202930170.shtml)
-- 2026-06-29 14:15 - [三都主：淘汰赛我会支持日本](http://www.blog.minike.top/Article/details/6721755639.shtml)
-- 2026-06-29 14:11 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.kurohicncr.top/Article/details/0612494.shtml)
-- 2026-06-29 14:05 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/7369058553.shtml)
-- 2026-06-29 14:08 - [为什么6月以来北方频繁降雨](https://www.share.minike.top/Article/details/9182428253.shtml)
-- 2026-06-29 14:13 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/438412531869.shtml)
-- 2026-06-29 14:08 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/3254282.shtml)
-- 2026-06-29 14:07 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/938819833.shtml)
-- 2026-06-29 14:12 - [周杰伦演唱会真的好多人啊](https://www.share.kurohicncr.top/Article/details/3315489438.shtml)
-- 2026-06-29 14:16 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/00739.shtml)
-- 2026-06-29 14:05 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/932488327058.shtml)
-- 2026-06-29 14:17 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/2859455918.shtml)
-- 2026-06-29 13:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/3728638570.shtml)
-- 2026-06-29 13:49 - [退休化学教授帮医药研发人员制毒](https://www.blog.minike.top/Article/details/50306354299.shtml)
+- 2026-06-29 14:07 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/5016950.shtml)
+- 2026-06-29 14:08 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/9093180457.shtml)
+- 2026-06-29 14:18 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/161388840.shtml)
+- 2026-06-29 14:20 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/743119.shtml)
+- 2026-06-29 14:11 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/87346.shtml)
+- 2026-06-29 14:04 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/1211366.shtml)
+- 2026-06-29 14:02 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/94654549.shtml)
+- 2026-06-29 14:15 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/273047.shtml)
+- 2026-06-29 14:21 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/025633070.shtml)
+- 2026-06-29 14:17 - [绘画区你赢了](https://www.share.minike.top/Article/details/492604698155.shtml)
+- 2026-06-29 14:18 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/61042289.shtml)
+- 2026-06-29 14:00 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/27270796.shtml)
+- 2026-06-29 14:16 - [强⁶](http://www.share.minike.top/Article/details/118256125.shtml)
+- 2026-06-29 14:13 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/288950569.shtml)
+- 2026-06-29 13:55 - [绘画区你赢了](http://www.share.minike.top/Article/details/6832825.shtml)

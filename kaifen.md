@@ -1,60 +1,47 @@
-# 特朗普：除核问题外谈判进展顺利 美将封锁霍尔木兹海峡
+# 探访“无中生有”的浙江义乌铁路口岸
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-新华社华盛顿4月12日电 美国总统特朗普12日在社交媒体发文称，美伊谈判进展顺利，除核问题外，双方就大部分问题达成了一致。他同时称，美国海军将开始阻止任何船只进出霍尔木兹海峡。 特朗普说：“(美伊)谈判进行得不错，就大部分议题达成了一致，但唯一真正重要的那一点——核问题——没有谈拢。” 他还说，美国海军将立即开始阻止任何船只进出霍尔木兹海峡。“到了某个阶段，我们会实现‘允许所有
+发布时间：2026年06月02日 16:12 来源：中国新闻网 近日，在浙江义乌铁路口岸，一列列满载货物的中欧班列整装待发，见证着这座“世界超市”不断拓展开放发展的新通道。 作为浙江中欧班列(义新欧)的始发站和“义甬舟”海铁联运的重要枢纽，义乌铁路口岸持续推动物流模式创新，从全国首创出口拼箱货物“先查验后装运”监管模式，到加快建设智慧口岸、提升国际物流效率，一系列探索不断降低贸
 
 ## 正文
 
-新华社华盛顿4月12日电 美国总统特朗普12日在社交媒体发文称，美伊谈判进展顺利，除核问题外，双方就大部分问题达成了一致。
+发布时间：2026年06月02日 16:12 来源：中国新闻网 近日，在浙江义乌铁路口岸，一列列满载货物的中欧班列整装待发，见证着这座“世界超市”不断拓展开放发展的新通道。
 
-他同时称，美国海军将开始阻止任何船只进出霍尔木兹海峡。
+作为浙江中欧班列(义新欧)的始发站和“义甬舟”海铁联运的重要枢纽，义乌铁路口岸持续推动物流模式创新，从全国首创出口拼箱货物“先查验后装运”监管模式，到加快建设智慧口岸、提升国际物流效率，一系列探索不断降低贸易成本，为浙江制造“走出去”畅通通道。
 
-特朗普说：“(美伊)谈判进行得不错，就大部分议题达成了一致，但唯一真正重要的那一点——核问题——没有谈拢。
-
-” 他还说，美国海军将立即开始阻止任何船只进出霍尔木兹海峡。
-
-“到了某个阶段，我们会实现‘允许所有(船只)进出’的状态，但伊朗却以‘某处可能有水雷’为由阻挠了这一进程，而这水雷只有他们自己知道。
-
-” 特朗普还称：“我还命令我们的海军，在国际水域搜寻并拦截每一艘向伊朗缴纳过通行费的船只。
-
-任何支付非法通行费者，都不得在公海上安全通行。
-
-”他还表示，美国将开始“摧毁”伊朗人在霍尔木兹海峡布设的水雷。
+(董易鑫 刘子琳 骆泽明) 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 13:57 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 14:12 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 14:03 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 13:54 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 14:12 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 14:10 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 14:02 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 14:14 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 14:09 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 14:12 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 13:49 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 13:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 13:48 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 13:54 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 14:08 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 14:18 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 14:05 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 14:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 14:15 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 14:06 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 13:56 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 14:16 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 14:15 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 13:58 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/040260.shtml)
-- 2026-06-29 13:54 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/62920010572.shtml)
-- 2026-06-29 14:12 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/3688799963.shtml)
-- 2026-06-29 14:01 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/1358474731.shtml)
-- 2026-06-29 14:16 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.minike.top/Article/details/776721768922.shtml)
-- 2026-06-29 13:49 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/241338149312.shtml)
-- 2026-06-29 14:16 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/972498800.shtml)
-- 2026-06-29 14:01 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/7651942014.shtml)
-- 2026-06-29 14:08 - [委内瑞拉地震死亡人数升至1450人](https://www.share.minike.top/Article/details/94450138.shtml)
-- 2026-06-29 14:07 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/1909323053.shtml)
-- 2026-06-29 14:11 - [比亚迪为什么卖得越多市值越低](https://www.share.minike.top/Article/details/5413477.shtml)
-- 2026-06-29 14:16 - [请回答王牌2019](http://www.blog.minike.top/Article/details/6041021.shtml)
-- 2026-06-29 14:15 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/1040289675.shtml)
-- 2026-06-29 13:54 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.share.kurohicncr.top/Article/details/68636108304.shtml)
-- 2026-06-29 13:56 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/962841861061.shtml)
+- 2026-06-29 13:56 - [起风了](https://www.blog.minike.top/Article/details/790325300.shtml)
+- 2026-06-29 14:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/6119513061.shtml)
+- 2026-06-29 14:09 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/077140.shtml)
+- 2026-06-29 14:20 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/660334.shtml)
+- 2026-06-29 14:17 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/5771796.shtml)
+- 2026-06-29 14:03 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/59706238.shtml)
+- 2026-06-29 14:06 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/71206244484.shtml)
+- 2026-06-29 14:19 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.minike.top/Article/details/1389758009.shtml)
+- 2026-06-29 14:17 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/33226190.shtml)
+- 2026-06-29 14:04 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/469208286224.shtml)
+- 2026-06-29 14:10 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/4702035.shtml)
+- 2026-06-29 13:58 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/8375008687.shtml)
+- 2026-06-29 14:03 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/126725697.shtml)
+- 2026-06-29 14:08 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/05975660.shtml)
+- 2026-06-29 14:12 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/99366114.shtml)

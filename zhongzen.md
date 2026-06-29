@@ -1,59 +1,46 @@
-# 国家标准外文版全文免费公开功能模块正式上线
+# 赵式庆：发挥好香港“超级联系人”优势 做强中国港航业
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网4月14日电 据“市说新语”微信公众号消息，4月14日，市场监管总局联合住房和城乡建设部、交通运输部、商务部召开国家标准外文版免费公开专题新闻发布会。市场监管总局标准创新司司长魏宏介绍，市场监管总局基于现有全国标准信息公共服务平台，增加国家标准外文版全文免费公开功能模块，于今天正式上线运行。魏宏介绍，国家标准外文版是指国家标准翻译为英文或其他语种的译本。国家标准外文版全文
+发布时间：2026年06月02日 16:40 来源：中国新闻网 香港航商总会主席赵式庆近日在浙江宁波接受中新社专访表示，香港应依托航运、金融、贸易叠加优势，发挥“超级联系人”优势，联动长三角、大湾区、京津冀等港口，共同做强中国港航业，为全球港航绿色智慧转型提供方案和力量。(奚金燕 林姝妤 浙江宁波报道） 责任编辑：【叶攀】
 
 ## 正文
 
-中新网4月14日电 据“市说新语”微信公众号消息，4月14日，市场监管总局联合住房和城乡建设部、交通运输部、商务部召开国家标准外文版免费公开专题新闻发布会。
+发布时间：2026年06月02日 16:40 来源：中国新闻网 香港航商总会主席赵式庆近日在浙江宁波接受中新社专访表示，香港应依托航运、金融、贸易叠加优势，发挥“超级联系人”优势，联动长三角、大湾区、京津冀等港口，共同做强中国港航业，为全球港航绿色智慧转型提供方案和力量。
 
-市场监管总局标准创新司司长魏宏介绍，市场监管总局基于现有全国标准信息公共服务平台，增加国家标准外文版全文免费公开功能模块，于今天正式上线运行。
-
-魏宏介绍，国家标准外文版是指国家标准翻译为英文或其他语种的译本。
-
-国家标准外文版全文免费公开功能模块，是全国标准信息公共服务平台的一次重要功能升级。
-
-在访问方式上，可通过互联网访问市场监管总局官网、国家标准委官网、全国标准信息公共服务平台等进入国家标准全文公开栏目，找到“国家标准外文版”模块。
-
-同时，国外用户也可通过国家标准委官网上的GB standards foreign languages version栏目进入“国家标准外文版”模块，使用英文版操作界面进行标准查询和下载。
-
-“国家标准外文版”模块的核心功能主要包括以下三方面： 一是提供了全面、权威、多语种的国家标准外文版文本。
-
-系统集中公开了由市场监管总局发布的国家标准外文版共2613项。
+(奚金燕 林姝妤 浙江宁波报道） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 14:00 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 14:08 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 13:53 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 13:59 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 13:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 13:48 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 14:09 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 14:00 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 14:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 13:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 13:52 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 14:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 14:21 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 14:11 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 14:16 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 14:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 14:05 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 14:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 13:57 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 14:11 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 14:08 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 14:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 14:03 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 14:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:09 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/57754675974.shtml)
-- 2026-06-29 14:15 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/79127173226.shtml)
-- 2026-06-29 14:12 - [日媒称韩国史诗级上上签终成噩梦](http://www.blog.minike.top/Article/details/365373177691.shtml)
-- 2026-06-29 14:05 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/37985.shtml)
-- 2026-06-29 14:04 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/409605.shtml)
-- 2026-06-29 13:49 - [爸爸当家](http://www.blog.minike.top/Article/details/673855799.shtml)
-- 2026-06-29 13:55 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/3812723835.shtml)
-- 2026-06-29 14:16 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/563690370235.shtml)
-- 2026-06-29 13:56 - [新一代影后杨紫](http://www.share.minike.top/Article/details/996459453.shtml)
-- 2026-06-29 13:54 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/479183.shtml)
-- 2026-06-29 14:15 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/331545429.shtml)
-- 2026-06-29 14:12 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/76979157045.shtml)
-- 2026-06-29 14:00 - [勇敢的心第二部](http://www.share.minike.top/Article/details/698180819882.shtml)
-- 2026-06-29 14:02 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/6643869412.shtml)
-- 2026-06-29 14:08 - [青春环游记第三季](https://www.share.minike.top/Article/details/44338391.shtml)
+- 2026-06-29 14:15 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/424895372.shtml)
+- 2026-06-29 13:57 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/962258888086.shtml)
+- 2026-06-29 13:55 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/1377325723.shtml)
+- 2026-06-29 14:11 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.minike.top/Article/details/7894376.shtml)
+- 2026-06-29 14:09 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/99225606.shtml)
+- 2026-06-29 14:15 - [绘画区你赢了](https://www.share.minike.top/Article/details/224552273371.shtml)
+- 2026-06-29 14:12 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/3734981.shtml)
+- 2026-06-29 13:58 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/4683246.shtml)
+- 2026-06-29 14:04 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/506568384907.shtml)
+- 2026-06-29 14:15 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/4147622349.shtml)
+- 2026-06-29 14:00 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/20265614399.shtml)
+- 2026-06-29 13:56 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/64215159348.shtml)
+- 2026-06-29 13:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/31388926.shtml)
+- 2026-06-29 14:18 - [以前不让妆女二可以艳压女主](http://www.share.minike.top/Article/details/89352.shtml)
+- 2026-06-29 14:07 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/893842969.shtml)

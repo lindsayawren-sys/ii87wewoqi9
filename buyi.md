@@ -1,59 +1,60 @@
-# 中巴文化年中国交响乐团走进巴西东北部纳塔尔以乐会友
+# 2025年以来，山东法院判决侵害未成年人权益罪犯超4000人
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网巴西纳塔尔4月13日电 当地时间4月9日晚，由中国驻巴西使馆与中国驻累西腓总领馆联合举办的中巴文化年中国交响乐团纳塔尔音乐会在北里奥格朗德州纳塔尔市历史悠久的阿尔贝托·马拉尼昂剧场举行。 中国驻累西腓总领事兰和平和北里奥格兰德州州长贝泽拉出席并致辞，北州文化厅、农村发展与家庭农业厅、基础设施厅厅长、若泽·奥古斯托基金会会长、总检察长、民事办公室副厅长、环境与可持续发展研究
+中新网济南6月1日电(周艺伟)记者6月1日从山东省高级人民法院召开的新闻发布会上获悉，2025年以来，山东法院判决侵害未成年人权益罪犯4077人、重刑率21.02%，以严厉惩处彰显对侵害未成年人犯罪“零容忍”态度；一审审结涉未成年子女民事案件19365件，用司法温情守护未成年人健康成长。 山东省高级人民法院刑一庭副庭长罗莹介绍，山东法院一体推进审判程序，由同一合议庭接续开庭，同
 
 ## 正文
 
-中新网巴西纳塔尔4月13日电 当地时间4月9日晚，由中国驻巴西使馆与中国驻累西腓总领馆联合举办的中巴文化年中国交响乐团纳塔尔音乐会在北里奥格朗德州纳塔尔市历史悠久的阿尔贝托·马拉尼昂剧场举行。
+中新网济南6月1日电(周艺伟)记者6月1日从山东省高级人民法院召开的新闻发布会上获悉，2025年以来，山东法院判决侵害未成年人权益罪犯4077人、重刑率21.02%，以严厉惩处彰显对侵害未成年人犯罪“零容忍”态度；一审审结涉未成年子女民事案件19365件，用司法温情守护未成年人健康成长。
 
-中国驻累西腓总领事兰和平和北里奥格兰德州州长贝泽拉出席并致辞，北州文化厅、农村发展与家庭农业厅、基础设施厅厅长、若泽·奥古斯托基金会会长、总检察长、民事办公室副厅长、环境与可持续发展研究所所长、公共服务监管局局长等北州政府多位厅局级官员及各界友人、华侨华人、中资企业、留学生、当地民众等约600人出席。
+山东省高级人民法院刑一庭副庭长罗莹介绍，山东法院一体推进审判程序，由同一合议庭接续开庭，同步审理基于同一事实引发的涉未成年人刑事、民事关联案件，避免未成年人遭受二次伤害；一体处理纠纷诉求，如在抚养费纠纷案件中，尊重未成年子女意愿，一并确认抚养关系，减少当事人及未成年子女诉讼成本，最大限度保障未成年人合法权益。
 
-兰和平总领事在致辞中表示，在两国元首战略引领下，中巴关系正处于历史最好时期，今年我们迎来两国关系史上首个中巴文化年。
+“山东法院聚焦抚养探望多元权益保护，压实法定监护责任。
 
-今晚是“中巴文化年”在巴东北部的首场音乐会，体现了中方对发展与包括北州在内的巴东北部文化交流合作的高度重视，将传递出中国人民对巴西人民的美好祝愿，以及与同样拥有丰富文化的巴西开展文明交流互鉴的真诚愿望。
+”罗莹表示，2025年以来，山东法院发放关爱未成年人提示卡(函)1.3万余份，提醒当事人关爱未成年子女健康成长；针对探望权纠纷案件，依法发出人格权侵害禁令，探索制定《监护履行情况测评标准》，开展监护能力评估，督促监护人履职尽责。
 
-中方愿继续与北州各界一道推动中巴命运共同体建设走深走实。
+此外，聚焦未成年人涉网络权益救济，山东法院不仅打击刑事犯罪，还关注个体救济与公共利益修复。
 
-贝泽拉州长表示，音乐是人类最强大的语言之一，能够超越国界，连接情感、历史和文化身份。
+针对网络“开盒”犯罪，山东法院推动刑事惩治、附带民事公益诉讼及未成年被害人损失赔偿一体解决，筑牢信息安全法治“防火墙”。
 
-“中巴文化年”不仅加强了文化纽带，也促进了两国在教育、旅游和机构层面的交流。
+在家庭矛盾化解、司法救助及平安校园建设方面，山东法院打出组合拳。
 
-这场音乐会不仅是一场音乐活动，更代表着在北州与中国之间搭建起一座以尊重、合作以及文化交流为基础的桥梁。
+依托人民法院与妇联共建的亲情探望中心，山东法院引导离婚诉讼当事人接受心理干预，有效化解探望权履行困境；联合多地多部门为被告人未成年子女落实事实无人抚养儿童保障、办理异地入学、规范救助资金监管，实现“救急难”与“助长远”相统一。
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 14:04 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 14:06 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 14:04 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 14:07 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 14:13 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 13:54 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 13:59 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 13:49 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 13:51 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 13:58 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 14:03 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 13:54 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 14:18 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 14:02 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 14:12 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 14:00 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 13:55 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 14:16 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 14:05 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 14:15 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 13:56 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 14:01 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 13:55 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 13:56 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 14:20 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 14:15 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [ENC瓦中国香港负印度数据图](http://www.blog.kurohicncr.top/Article/details/68400.shtml)
-- 2026-06-29 13:59 - [NBA交易](http://www.share.minike.top/Article/details/979476253461.shtml)
-- 2026-06-29 13:50 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/899109261853.shtml)
-- 2026-06-29 14:08 - [韩国政府将对世界杯出局追责](http://www.share.kurohicncr.top/Article/details/209528033.shtml)
-- 2026-06-29 14:15 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/709960.shtml)
-- 2026-06-29 14:04 - [吴磊爱上回收了](https://www.blog.minike.top/Article/details/446680807421.shtml)
-- 2026-06-29 14:11 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/885963958084.shtml)
-- 2026-06-29 13:54 - [千与千寻](https://www.share.minike.top/Article/details/82545.shtml)
-- 2026-06-29 14:03 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/83138160.shtml)
-- 2026-06-29 14:15 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/141695690.shtml)
-- 2026-06-29 14:10 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/407202035.shtml)
-- 2026-06-29 14:08 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/404922496.shtml)
-- 2026-06-29 13:56 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/6808965.shtml)
-- 2026-06-29 13:48 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/1981727.shtml)
-- 2026-06-29 14:10 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/60827037679.shtml)
+- 2026-06-29 14:02 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/023299164.shtml)
+- 2026-06-29 13:56 - [加拿大92分钟绝杀](https://www.blog.kurohicncr.top/Article/details/982371985820.shtml)
+- 2026-06-29 14:23 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/29182076863.shtml)
+- 2026-06-29 14:12 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/720562254.shtml)
+- 2026-06-29 14:10 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/373283.shtml)
+- 2026-06-29 14:03 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/2796886.shtml)
+- 2026-06-29 14:22 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/2173575.shtml)
+- 2026-06-29 13:56 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/490307328839.shtml)
+- 2026-06-29 14:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/536607242.shtml)
+- 2026-06-29 14:09 - [本周做什么都顺的星座](http://www.share.minike.top/Article/details/39185657.shtml)
+- 2026-06-29 14:16 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/31080944.shtml)
+- 2026-06-29 14:12 - [手游300亿数据或被军事化运用](http://www.blog.kurohicncr.top/Article/details/451402825229.shtml)
+- 2026-06-29 13:56 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/83886032.shtml)
+- 2026-06-29 14:21 - [锐评浪姐7总决赛](https://www.blog.minike.top/Article/details/952986419.shtml)
+- 2026-06-29 13:58 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/95331203602.shtml)

@@ -1,61 +1,58 @@
-# 交银国际：维持凯盛新能“中性”评级 下调目标价至3.58港元
+# 三部门：引导企业加强适老化保健食品等特殊食品研发生产 丰富市场供给
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-交银国际发布研报称，由于高毛利的海外收入占比低（2025年仅0.4%），预计凯盛新能（01108）短期内扭亏挑战较大。该行下调盈利预测，维持0.7倍2026年市净率的估值基准（低于该行给予行业龙头福莱特玻璃（06865/买入）的0.95倍），下调目标价至3.58港元（原3.71港元），维持中性。 交银国际主要观点如下： 2025年亏损扩大 公司2025年亏损9.14亿元（人民币
+人民财讯6月2日电，市场监管总局、工信部、民政部印发《保健食品护老提升专项行动工作方案》。其中提出，推动产业优化提升。深入实施消费品“三品”战略，支持符合条件的保健食品企业纳入中国消费名品，推动实现品种创新、品质提升和品牌打造。依托特色资源优势，推进原料基地与生产企业对接，培育保健食品产业集群。引导企业加强适老化保健食品等特殊食品研发生产，丰富市场供给。加强生物制造技术应用，推
 
 ## 正文
 
-交银国际发布研报称，由于高毛利的海外收入占比低（2025年仅0.4%），预计凯盛新能（01108）短期内扭亏挑战较大。
+人民财讯6月2日电，市场监管总局、工信部、民政部印发《保健食品护老提升专项行动工作方案》。
 
-该行下调盈利预测，维持0.7倍2026年市净率的估值基准（低于该行给予行业龙头福莱特玻璃（06865/买入）的0.95倍），下调目标价至3.58港元（原3.71港元），维持中性。
+其中提出，推动产业优化提升。
 
-交银国际主要观点如下： 2025年亏损扩大 公司2025年亏损9.14亿元（人民币，下同），同比扩大50%，其中4Q亏损3.2亿元，同比收窄12%。
+深入实施消费品“三品”战略，支持符合条件的保健食品企业纳入中国消费名品，推动实现品种创新、品质提升和品牌打造。
 
-全年毛利率-12.3%，同比下降7.9个百分点，主要是由于光伏玻璃价格下跌，其中4Q25为-6.6%，同/环比收窄23.7/4.2个百分点；全年计提0.98亿元资产减值和1.60亿元信用减值。
+依托特色资源优势，推进原料基地与生产企业对接，培育保健食品产业集群。
 
-大窑炉占比提升至八成，有利降低成本 公司2025年完成了对江苏凯盛74.60%股权收购，江苏凯盛和北方玻璃各点火1200吨产能，宜兴新能源冷修850吨产能，在产产能由年初4550吨增至6100吨，其中低成本的1200吨大窑炉占比近80%，有利于降低成本。
+引导企业加强适老化保健食品等特殊食品研发生产，丰富市场供给。
 
-自贡新能源2000吨项目已完成前期立项、备案、论证及批复程序，建成后将为公司目前乃至行业内领先的单体吨位生产线。
+加强生物制造技术应用，推动天然产物等保健食品原料研发创制，培育生物制造标志性产品。
 
-玻璃价格大幅回落，产能出清仍需时间 由于供过于求，2.0毫米光伏玻璃每平米价格由2025年10月的13元跌至目前9.5元的低位。
-
-全行业再度转亏。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 13:49 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 13:51 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 13:49 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 14:04 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 14:14 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 13:48 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 14:14 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 14:10 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 13:56 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 14:00 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 14:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 14:14 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 13:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 13:53 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 14:14 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 14:09 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 13:57 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 14:15 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 14:19 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 13:54 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 14:15 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 13:59 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 14:00 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 13:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 13:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 14:15 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 14:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 14:03 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 14:10 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:04 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/89503818508.shtml)
-- 2026-06-29 14:16 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/7588619700.shtml)
-- 2026-06-29 14:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/9340586073.shtml)
-- 2026-06-29 14:01 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/10758315.shtml)
-- 2026-06-29 14:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/472319166.shtml)
-- 2026-06-29 13:51 - [爱很美味](https://www.share.kurohicncr.top/Article/details/47347071.shtml)
-- 2026-06-29 14:01 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/3241894404.shtml)
-- 2026-06-29 13:55 - [韩媒破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/54806745.shtml)
-- 2026-06-29 14:06 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/9276672058.shtml)
-- 2026-06-29 14:13 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/626025.shtml)
-- 2026-06-29 14:08 - [双高胎](http://www.share.kurohicncr.top/Article/details/010927239.shtml)
-- 2026-06-29 14:07 - [詹俊预测德国大胜巴拉圭](http://www.blog.minike.top/Article/details/384638915.shtml)
-- 2026-06-29 13:56 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/6684909440.shtml)
-- 2026-06-29 14:17 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/3468747.shtml)
-- 2026-06-29 13:57 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/9263647.shtml)
+- 2026-06-29 14:20 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/45710.shtml)
+- 2026-06-29 14:02 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/8187575.shtml)
+- 2026-06-29 14:02 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/086115.shtml)
+- 2026-06-29 14:16 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/098447436.shtml)
+- 2026-06-29 14:14 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/575526985032.shtml)
+- 2026-06-29 14:03 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/2384827445.shtml)
+- 2026-06-29 14:21 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.kurohicncr.top/Article/details/28271861.shtml)
+- 2026-06-29 14:17 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/687358666.shtml)
+- 2026-06-29 13:58 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/7272219.shtml)
+- 2026-06-29 14:21 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/760682903833.shtml)
+- 2026-06-29 14:21 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/684940.shtml)
+- 2026-06-29 14:08 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/8711493.shtml)
+- 2026-06-29 14:11 - [比亚迪为什么卖得越多市值越低](http://www.blog.minike.top/Article/details/26206.shtml)
+- 2026-06-29 13:57 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/6160173.shtml)
+- 2026-06-29 14:10 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/965758300588.shtml)

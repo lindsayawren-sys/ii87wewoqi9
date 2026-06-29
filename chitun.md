@@ -1,60 +1,57 @@
-# 红星二锅头亮相第六届消博会—— 守非遗匠心焕年轻潮力 彰显老字号创新风采
+# A股超3700只个股上涨，AI应用端爆发
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-4月13日至18日，第六届中国国际消费品博览会在海南隆重举办。作为海南自贸港封关运作后首个国家级消费精品展会，本届消博会以“开放引领全球消费，创新驱动美好生活”为主题，为全球消费精品搭建展示交易平台，也为中国老字号走向世界提供了重要窗口。北京一轻旗下中华老字号红星二锅头，携核心产品与年轻化创新成果入驻联合展区，融合深厚的非遗底蕴与澎湃潮力，向全球客商展现中国白酒的守正创新。 展
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 6月1日，A股三大指数集体下跌。截至收盘，上证指数跌0.27%，深证成指跌1.51%，创业板指跌2.15%，北证50涨0.45%，科创50指数跌5%。 盘面上，全市场超3700只个股上涨，其中170只个股涨停。 板块上，AI应用端爆发，天地在线3连板，掌阅科技4天2板，视觉中国、税友股份、
 
 ## 正文
 
-4月13日至18日，第六届中国国际消费品博览会在海南隆重举办。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-作为海南自贸港封关运作后首个国家级消费精品展会，本届消博会以“开放引领全球消费，创新驱动美好生活”为主题，为全球消费精品搭建展示交易平台，也为中国老字号走向世界提供了重要窗口。
+来源：国际金融报 6月1日，A股三大指数集体下跌。
 
-北京一轻旗下中华老字号红星二锅头，携核心产品与年轻化创新成果入驻联合展区，融合深厚的非遗底蕴与澎湃潮力，向全球客商展现中国白酒的守正创新。
+截至收盘，上证指数跌0.27%，深证成指跌1.51%，创业板指跌2.15%，北证50涨0.45%，科创50指数跌5%。
 
-展区内，红星有序陈列核心产品与权威荣誉，引人驻足：以“三曲三香”为风味核心的大曲酿、主打“纯粮之上更甜润”的第八代二锅头，搭配“中华老字号”“国家级非物质文化遗产”“中国消费名品”等荣誉奖牌，传递出北京二锅头始创者的品质根基与行业认可，让海内外观众直观感受老字号的深厚积淀。
+盘面上，全市场超3700只个股上涨，其中170只个股涨停。
 
-同时红星聚焦年轻消费需求，带来年轻化新品—— Re-star(茉莉花茶风味酒)，以茶酒融合的清新口感打破白酒饮用边界，契合轻饮潮流；高端光瓶大曲酿同步设置纯饮、调饮体验区，让观众解锁传统二锅头的新潮饮用方式，展现品类创新的更多可能。
+板块上，AI应用端爆发，天地在线3连板，掌阅科技4天2板，视觉中国、税友股份、久其软件涨停。
 
-展区还设置趣味打卡互动，观众拍摄分享即可领取五星胸针、蓝瓶小酒等礼品，以轻量化社交互动拉近与年轻群体的距离。
+AI PC概念表现活跃，春秋电子2连板，胜利精密、英力股份、雷神科技涨停。
 
-此次参展，既是红星年轻化创新成果的集中展示，也是品牌探索国际化路径、布局自营出口的重要契机。
+消息面上，6月1日，在GTC Taipei2026大会上，全球AI芯片巨头英伟达正式宣布进军个人电脑处理器市场，发力电脑通用计算芯片市场。
 
-借助消博会的全球影响力，红星向世界传递出京味非遗白酒走向国际的决心，未来将在深化年轻化创新的同时，稳步推进自营出口布局，让兼具传统匠心与新潮魅力的红星产品，走进更多海外消费者视野，为中国白酒的国际化发展贡献力量。
+英伟达CEO黄仁勋还重点介绍了Vera Rubin架构、DRIVE Hyperion自动驾驶出租车平台等多个新品。
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 14:13 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 13:59 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 14:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 14:03 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 13:49 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 14:10 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 14:06 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 14:16 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 14:14 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 13:48 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 14:15 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 14:08 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 14:16 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 14:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 14:09 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 13:56 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 13:57 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 14:12 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 14:21 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 14:05 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 13:56 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 14:22 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 13:58 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 14:03 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:03 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/22679044796.shtml)
-- 2026-06-29 13:48 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/3202760034.shtml)
-- 2026-06-29 14:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/95280.shtml)
-- 2026-06-29 13:57 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/9814252.shtml)
-- 2026-06-29 13:55 - [严浩翔FIY断层第一](http://www.blog.minike.top/Article/details/47264.shtml)
-- 2026-06-29 13:59 - [媒体评恋与深空争议](https://www.blog.minike.top/Article/details/81277282025.shtml)
-- 2026-06-29 14:10 - [伊朗球员致歉](http://www.share.kurohicncr.top/Article/details/163590.shtml)
-- 2026-06-29 14:09 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/0036758.shtml)
-- 2026-06-29 13:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/136719.shtml)
-- 2026-06-29 13:52 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/1910374514.shtml)
-- 2026-06-29 14:05 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/7273025819.shtml)
-- 2026-06-29 13:52 - [张一山回应与杨紫友情](https://www.share.kurohicncr.top/Article/details/52049741125.shtml)
-- 2026-06-29 14:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/26874120.shtml)
-- 2026-06-29 13:58 - [流金岁月](http://www.share.kurohicncr.top/Article/details/5159462711.shtml)
-- 2026-06-29 13:50 - [天道](http://www.share.kurohicncr.top/Article/details/58310811877.shtml)
+- 2026-06-29 14:21 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/811809262399.shtml)
+- 2026-06-29 13:57 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/27471.shtml)
+- 2026-06-29 14:15 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/06013813.shtml)
+- 2026-06-29 14:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/6800354746.shtml)
+- 2026-06-29 14:22 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.minike.top/Article/details/603880.shtml)
+- 2026-06-29 14:08 - [韩国政府将对世界杯出局追责](https://www.share.minike.top/Article/details/7572075.shtml)
+- 2026-06-29 14:22 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/671550911.shtml)
+- 2026-06-29 13:56 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/793131571.shtml)
+- 2026-06-29 14:21 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/26854.shtml)
+- 2026-06-29 14:19 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/2461422230.shtml)
+- 2026-06-29 14:14 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/6880337796.shtml)
+- 2026-06-29 14:15 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/403575286.shtml)
+- 2026-06-29 14:02 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/9338886365.shtml)
+- 2026-06-29 14:11 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.minike.top/Article/details/161166728297.shtml)
+- 2026-06-29 14:08 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/4378712.shtml)

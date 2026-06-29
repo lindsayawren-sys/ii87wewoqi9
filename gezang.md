@@ -1,49 +1,50 @@
-# 绿茶集团主要股东Partners Gourmet完成配售6004.4万股
+# 中国海警位中国台湾岛以东海域开展执法巡查
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-绿茶集团（06831）发布公告，董事会获Partners Gourmet告知，配售事项已于2026年4月13日完成。配售代理已成功配售6004.4万股股份，占截至本公告日期已发行股份总数（不包括库存股份）的约9.07%。责任编辑：卢昱君
+中国海警局新闻发言人姜略表示，6月1日，中国海警岱山舰编队位中国台湾岛以东海域依法开展执法巡查。这是针对日本和菲律宾单方面宣布启动中国台湾岛以东海域划界谈判、严重侵犯中国领土主权和海洋权益采取的必要行动。我们敦促日菲立即停止一切侵害中国主权权益的非法行动。中国海警将持续加强有关海域管控，以实际行动坚决维护国家领土主权和海洋权益。
 
 ## 正文
 
-绿茶集团（06831）发布公告，董事会获Partners Gourmet告知，配售事项已于2026年4月13日完成。
+中国海警局新闻发言人姜略表示，6月1日，中国海警岱山舰编队位中国台湾岛以东海域依法开展执法巡查。
 
-配售代理已成功配售6004.4万股股份，占截至本公告日期已发行股份总数（不包括库存股份）的约9.07%。
+这是针对日本和菲律宾单方面宣布启动中国台湾岛以东海域划界谈判、严重侵犯中国领土主权和海洋权益采取的必要行动。
 
-责任编辑：卢昱君
+我们敦促日菲立即停止一切侵害中国主权权益的非法行动。
+
+中国海警将持续加强有关海域管控，以实际行动坚决维护国家领土主权和海洋权益。
 
 ## 相关推荐
 
-- 2026-06-29 13:51 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 14:02 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 14:00 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 14:06 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 14:05 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 14:11 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 14:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 14:17 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 14:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 14:11 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 13:51 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 14:06 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 13:55 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 14:14 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 14:18 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 14:16 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 14:20 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 13:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 13:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 14:18 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 13:58 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 14:18 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 14:05 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 14:23 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 14:10 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:15 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.kurohicncr.top/Article/details/0451854324.shtml)
-- 2026-06-29 14:05 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/209557.shtml)
-- 2026-06-29 14:12 - [绘画区你赢了](http://www.share.minike.top/Article/details/07641.shtml)
-- 2026-06-29 14:13 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/750176.shtml)
-- 2026-06-29 13:49 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/497722.shtml)
-- 2026-06-29 14:07 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/79824.shtml)
-- 2026-06-29 13:58 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/88284.shtml)
-- 2026-06-29 13:59 - [沙特足协主席发布声明主动请辞](http://www.blog.kurohicncr.top/Article/details/07436501735.shtml)
-- 2026-06-29 13:57 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/98847.shtml)
-- 2026-06-29 14:17 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/696652.shtml)
-- 2026-06-29 14:07 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/28121.shtml)
-- 2026-06-29 14:03 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/30867.shtml)
-- 2026-06-29 13:59 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/1566444.shtml)
-- 2026-06-29 14:12 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/17090119262.shtml)
-- 2026-06-29 14:00 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/703531263291.shtml)
+- 2026-06-29 14:14 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/393837.shtml)
+- 2026-06-29 13:57 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/8225254435.shtml)
+- 2026-06-29 14:08 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/59605837454.shtml)
+- 2026-06-29 14:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/9115533.shtml)
+- 2026-06-29 14:14 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/90679355.shtml)
+- 2026-06-29 14:12 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/939133944.shtml)
+- 2026-06-29 14:09 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/535140669.shtml)
+- 2026-06-29 14:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/426859642.shtml)
+- 2026-06-29 14:03 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/21686901060.shtml)
+- 2026-06-29 13:54 - [斛珠夫人](http://www.share.minike.top/Article/details/60608.shtml)
+- 2026-06-29 14:16 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/396234907823.shtml)
+- 2026-06-29 14:23 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.minike.top/Article/details/761249496.shtml)
+- 2026-06-29 14:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/5932141.shtml)
+- 2026-06-29 14:21 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/61696737030.shtml)
+- 2026-06-29 14:03 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/981730.shtml)

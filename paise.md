@@ -1,51 +1,59 @@
-# 山东墨龙遭Barclays PLC减持574.96万股 每股作价8.472港元
+# 美国股市：标普500指数八连涨至纪录新高 特朗普称与伊朗谈判仍在继续
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月8日，Barclays PLC减持山东墨龙（00568）574.96万股，每股作价8.472港元，总金额约为4871.06万港元。减持后最新持股数目为1908.4万股，最新持股比例为7.45%。责任编辑：卢昱君
+美股周一升至纪录新高，特朗普称与伊朗的谈判正在快速继续推进，人工智能热潮重燃也推动了涨势。 市场看好伊朗战争有望通过外交途径解决，这推动标普500指数升至约7600点，实现八连涨，创2025年5月以来最长连涨。 技术股领涨，英伟达走高6.3%。该公司宣布将携一款新芯片杀入个人电脑（PC）市场，着眼于动摇英特尔技术在该领域的主导地位。 软件股走高，英伟达CEO黄仁勋反驳软件业恐被
 
 ## 正文
 
-香港联交所最新数据显示，4月8日，Barclays PLC减持山东墨龙（00568）574.96万股，每股作价8.472港元，总金额约为4871.06万港元。
+美股周一升至纪录新高，特朗普称与伊朗的谈判正在快速继续推进，人工智能热潮重燃也推动了涨势。
 
-减持后最新持股数目为1908.4万股，最新持股比例为7.45%。
+市场看好伊朗战争有望通过外交途径解决，这推动标普500指数升至约7600点，实现八连涨，创2025年5月以来最长连涨。
 
-责任编辑：卢昱君
+技术股领涨，英伟达走高6.3%。
+
+该公司宣布将携一款新芯片杀入个人电脑（PC）市场，着眼于动摇英特尔技术在该领域的主导地位。
+
+软件股走高，英伟达CEO黄仁勋反驳软件业恐被更先进人工智能工具颠覆的担忧。
+
+安硕扩展科技-软件部门ETF录得自2001年以来的最佳两日涨幅。
+
+IBM股价飙升，一段近六个月前特朗普称赞该公司首席执行官的视频在网上重新流传。
+
+金融市场持续随各种地缘政治新闻波动。
 
 ## 相关推荐
 
-- 2026-06-29 13:55 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 14:09 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 13:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 14:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 14:10 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 13:48 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 13:50 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 13:57 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 14:01 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 13:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 13:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 14:05 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 13:49 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 13:52 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 13:59 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 14:14 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 14:01 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 14:17 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 13:59 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 14:14 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 14:12 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 13:59 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 14:15 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 14:22 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 14:16 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 14:13 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 13:58 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 14:20 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:08 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/694636.shtml)
-- 2026-06-29 13:59 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/0245497.shtml)
-- 2026-06-29 14:03 - [中国避暑神器在欧洲卖爆了](http://www.share.kurohicncr.top/Article/details/46446.shtml)
-- 2026-06-29 14:01 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/51173565.shtml)
-- 2026-06-29 14:11 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/142443.shtml)
-- 2026-06-29 14:15 - [欧洲超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/8294462480.shtml)
-- 2026-06-29 13:55 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/17118441261.shtml)
-- 2026-06-29 14:16 - [韩国政府将对世界杯出局追责](http://www.share.minike.top/Article/details/67842356696.shtml)
-- 2026-06-29 14:09 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.minike.top/Article/details/696559.shtml)
-- 2026-06-29 13:57 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.minike.top/Article/details/330174514.shtml)
-- 2026-06-29 14:04 - [请回答王牌2019](https://www.blog.minike.top/Article/details/49071364.shtml)
-- 2026-06-29 14:04 - [为什么6月以来北方频繁降雨](http://www.blog.kurohicncr.top/Article/details/974603.shtml)
-- 2026-06-29 14:14 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/714864648066.shtml)
-- 2026-06-29 14:04 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/723324451.shtml)
-- 2026-06-29 14:07 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.minike.top/Article/details/30620442.shtml)
+- 2026-06-29 14:05 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/50970.shtml)
+- 2026-06-29 14:22 - [急先锋](http://www.share.kurohicncr.top/Article/details/31965.shtml)
+- 2026-06-29 13:54 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/15674.shtml)
+- 2026-06-29 14:16 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/132123553.shtml)
+- 2026-06-29 14:15 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/548841.shtml)
+- 2026-06-29 13:58 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/137687939.shtml)
+- 2026-06-29 14:21 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/221346516079.shtml)
+- 2026-06-29 14:03 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/349171.shtml)
+- 2026-06-29 13:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/813993678788.shtml)
+- 2026-06-29 14:20 - [李在明称韩国足协任命了无能之人](https://www.share.kurohicncr.top/Article/details/3276655319.shtml)
+- 2026-06-29 14:16 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.kurohicncr.top/Article/details/378929435.shtml)
+- 2026-06-29 14:03 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.kurohicncr.top/Article/details/57384.shtml)
+- 2026-06-29 13:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/66351047.shtml)
+- 2026-06-29 14:21 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.minike.top/Article/details/98019732043.shtml)
+- 2026-06-29 14:22 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/5258517115.shtml)

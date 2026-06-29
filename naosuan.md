@@ -1,60 +1,56 @@
-# “霸王归来”助阵“苏超” 何润东将亮相宿迁主场首秀
+# 粤语童谣《龙船飞万里》发布 戏曲童声唱响龙舟精神
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网宿迁4月13日电(刘林 谷华)13日下午，江苏宿迁召开“‘霸王归来’暨2026年‘苏超’宿迁便民惠民措施”新闻发布会。会上，宿迁市文化广电和旅游局官宣，曾在《楚汉传奇》中饰演西楚霸王项羽的何润东，将于4月18日现身宿迁奥体中心，助阵2026年江苏省城市足球联赛宿迁队主场开幕仪式，现场为球队加油助威，开启宿迁文旅体融合的全新篇章。 发布会上，何润东通过视频连线正式回应，他表
+中新网广州6月1日电 (记者 张璐)以经典童谣《氹氹转 菊花园》为基础创新改编的粤语童谣《龙船飞万里》及同名MV1日发布。该作品由粤剧名家曾小敏与少先队员共同演唱。 一曲《氹氹转 菊花园》，传唱百年，融地道风物、本土民俗于旋律之间，尽显岭南烟火气韵，是岭南优秀传统文化的鲜活载体。 “MV以‘龙舟精神’为内核纽带，串联粤剧、舞狮、武术等本土非遗，立体展现新时代少年的昂扬风采。课堂
 
 ## 正文
 
-中新网宿迁4月13日电(刘林 谷华)13日下午，江苏宿迁召开“‘霸王归来’暨2026年‘苏超’宿迁便民惠民措施”新闻发布会。
+中新网广州6月1日电 (记者 张璐)以经典童谣《氹氹转 菊花园》为基础创新改编的粤语童谣《龙船飞万里》及同名MV1日发布。
 
-会上，宿迁市文化广电和旅游局官宣，曾在《楚汉传奇》中饰演西楚霸王项羽的何润东，将于4月18日现身宿迁奥体中心，助阵2026年江苏省城市足球联赛宿迁队主场开幕仪式，现场为球队加油助威，开启宿迁文旅体融合的全新篇章。
+该作品由粤剧名家曾小敏与少先队员共同演唱。
 
-发布会上，何润东通过视频连线正式回应，他表示：“非常荣幸以项羽扮演者的身份回到项王故里——宿迁，为‘苏超’宿迁队现场助威，宿迁队加油，霸王为你撑腰。
+一曲《氹氹转 菊花园》，传唱百年，融地道风物、本土民俗于旋律之间，尽显岭南烟火气韵，是岭南优秀传统文化的鲜活载体。
 
-” 宿迁是西楚霸王项羽的故乡，古称下相，项王故里作为全国重点西楚文化地标，承载着千年楚风文脉，是宿迁城市文化核心符号。
+“MV以‘龙舟精神’为内核纽带，串联粤剧、舞狮、武术等本土非遗，立体展现新时代少年的昂扬风采。
 
-本次发布会以“霸王归来”为主题，正是依托本土历史文化底蕴，推动文旅、体育产业深度融合，唤醒城市英雄记忆，彰显独特楚风魅力。
+课堂之上，他们潜心研习兴趣课程，在笔墨艺术中探索自我；运动赛场，他们奋力拼搏挥洒汗水，于竞技赛场追逐热爱；文化传承里，他们静心苦修传统技艺，让岭南文脉薪火相传。
 
-何润东是华语知名影视男演员，2012年他凭借硬朗外形与精湛演技，在《楚汉传奇》中成功塑造西楚霸王项羽，将霸王的霸气豪迈演绎得淋漓尽致，成为观众心中经典的影视版项羽。
+”MV导演黄宇阐述作品的核心创意。
 
-此次他亲临项羽故里，为宿迁球队助阵，实现历史文化IP与本土体育赛事的跨界联动，引发市民与球迷广泛期待。
+据介绍，作品立足粤港澳大湾区，围绕端午龙舟文化展开创作，将民俗风情、家庭记忆与时代精神有机融合，以小小歌谣为窗口，诉说岭南文脉代代相传的故事，彰显南粤儿女奋勇争先的精神气魄。
 
-据悉，4月18日宿迁队本赛季主场揭幕战期间，宿迁同步推出多项便民惠民举措，覆盖交通、餐饮、文旅、消费等多个领域，还将配套举办足球主题狂欢活动，打造“观赛+文旅+消费”一体化体验。
+曲目创新采用“粤语童谣+粤剧戏腔+普通话说唱”的多元演绎形式，兼具热血气势与童真趣味，保留浓郁本土特色，兼顾更广范围的传播需求。
 
 ## 相关推荐
 
-- 2026-06-29 14:01 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 14:13 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 14:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 13:57 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 13:53 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 13:56 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 13:54 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 14:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:50 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 14:13 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 14:15 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 14:10 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 14:16 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 13:50 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 14:13 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 14:17 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 14:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 14:20 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 13:54 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 14:11 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 14:19 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 14:22 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 14:13 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 14:09 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/966799.shtml)
-- 2026-06-29 14:00 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/935350.shtml)
-- 2026-06-29 14:11 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/12061018362.shtml)
-- 2026-06-29 13:55 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/2115300.shtml)
-- 2026-06-29 14:10 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/168611447.shtml)
-- 2026-06-29 14:04 - [叶一茜森碟一起回北京了](http://www.blog.minike.top/Article/details/26092538804.shtml)
-- 2026-06-29 14:14 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/5592518539.shtml)
-- 2026-06-29 13:48 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/6821741593.shtml)
-- 2026-06-29 14:14 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/69908722502.shtml)
-- 2026-06-29 13:49 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/765598.shtml)
-- 2026-06-29 14:11 - [5万块的威力](https://www.share.minike.top/Article/details/46226.shtml)
-- 2026-06-29 13:59 - [2026年Mac能玩游戏了吗](https://www.share.minike.top/Article/details/27005.shtml)
-- 2026-06-29 13:49 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/5286246.shtml)
-- 2026-06-29 13:57 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/727760111198.shtml)
-- 2026-06-29 14:01 - [美伊同意停止互袭](http://www.share.minike.top/Article/details/91572.shtml)
+- 2026-06-29 14:07 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.minike.top/Article/details/27068.shtml)
+- 2026-06-29 14:21 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/212121426.shtml)
+- 2026-06-29 13:58 - [明星大侦探第四季](https://www.share.minike.top/Article/details/00273960095.shtml)
+- 2026-06-29 14:20 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/550132941.shtml)
+- 2026-06-29 14:21 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/296738.shtml)
+- 2026-06-29 14:08 - [2025年人口增长10强城市出炉](https://www.share.kurohicncr.top/Article/details/5835140.shtml)
+- 2026-06-29 13:58 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/3943508.shtml)
+- 2026-06-29 14:11 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/96996.shtml)
+- 2026-06-29 14:18 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/34900331844.shtml)
+- 2026-06-29 14:21 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/962823590.shtml)
+- 2026-06-29 14:19 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/90525817141.shtml)
+- 2026-06-29 14:13 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/24467.shtml)
+- 2026-06-29 14:17 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/1535163557.shtml)
+- 2026-06-29 14:15 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/18258.shtml)
+- 2026-06-29 14:16 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/064032037.shtml)

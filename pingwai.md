@@ -1,61 +1,45 @@
-# 投资中国·2026海南自由贸易港全球产业招商大会举行
+# 2026年医保商保“双目录”调整 鼓励高价值创新药在上市初期优先申报
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网海口4月14日电 (记者 王子谦)4月14日，由海南省人民政府与商务部联合主办的投资中国·2026海南自由贸易港全球产业招商大会在海口举行。 作为2026年“投资中国”系列国家级重点活动，大会以“封关新起点，投资新机遇”为主题，以“高规格引领、国际化扩容、精准化对接、实效化招商、全流程服务”为核心亮点，全方位展现海南自贸港封关运作新风貌，为自贸港高质量发展汇聚全球投资新动
+发布时间：2026年06月01日 13:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网海口4月14日电 (记者 王子谦)4月14日，由海南省人民政府与商务部联合主办的投资中国·2026海南自由贸易港全球产业招商大会在海口举行。
-
-作为2026年“投资中国”系列国家级重点活动，大会以“封关新起点，投资新机遇”为主题，以“高规格引领、国际化扩容、精准化对接、实效化招商、全流程服务”为核心亮点，全方位展现海南自贸港封关运作新风貌，为自贸港高质量发展汇聚全球投资新动能。
-
-大会共有277家外资企业参会，较上届增长超一倍。
-
-世界500强、中国500强、民企500强及知名国际化企业、商协会100余家派核心代表出席。
-
-大会发布比较优势清单、应用场景清单及典型落地案例，明确28个细分产业优势、138个招商方向、88项应用场景，以及近300个优质项目，总投资额达3500亿元，同步推出54个已落地成功案例，为企业投资提供清晰指引。
-
-大会紧扣海南自贸港产业布局，靶向策划12场产业专场对接会，将聚焦生物医药、低空经济、数字经济、航天、深海科技与未来产业等12大重点领域，实现产业需求与投资意向精准匹配。
-
-本次大会以高效对接、务实合作推动一批重点项目签约落地，为海南自贸港培育特色产业、构建开放型经济新体制注入强劲动力。
-
-未来，海南将持续以开放姿态汇聚全球资源，与全球投资者共筑自贸港发展新蓝图。
+发布时间：2026年06月01日 13:13 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:48 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 13:48 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 14:10 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 13:50 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 13:58 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 14:01 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 13:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 14:13 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 14:06 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 14:03 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 13:59 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 14:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 14:08 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 13:55 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 14:22 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 13:58 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 14:18 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 13:55 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 14:22 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 14:05 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 14:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 14:23 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 13:56 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 14:06 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 14:10 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 14:10 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 14:21 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/577285404.shtml)
-- 2026-06-29 14:13 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/833874692547.shtml)
-- 2026-06-29 14:06 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.minike.top/Article/details/76715.shtml)
-- 2026-06-29 14:01 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/65662624.shtml)
-- 2026-06-29 14:16 - [中国战机大片上新](https://www.share.minike.top/Article/details/2501774049.shtml)
-- 2026-06-29 13:55 - [105年初心滚烫](http://www.share.minike.top/Article/details/35649.shtml)
-- 2026-06-29 14:02 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/194180125688.shtml)
-- 2026-06-29 14:13 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/190994.shtml)
-- 2026-06-29 14:13 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/9039281447.shtml)
-- 2026-06-29 14:17 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/53436.shtml)
-- 2026-06-29 13:55 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/5320375189.shtml)
-- 2026-06-29 13:48 - [为什么6月以来北方频繁降雨](https://www.blog.minike.top/Article/details/356943.shtml)
-- 2026-06-29 14:14 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/74017897.shtml)
-- 2026-06-29 14:09 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/7292161.shtml)
-- 2026-06-29 14:12 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/79880754766.shtml)
+- 2026-06-29 13:57 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/732402701217.shtml)
+- 2026-06-29 14:02 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/24044984.shtml)
+- 2026-06-29 14:08 - [爸爸当家](http://www.share.minike.top/Article/details/9795399.shtml)
+- 2026-06-29 14:10 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/82645004.shtml)
+- 2026-06-29 13:54 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/22685362.shtml)
+- 2026-06-29 14:07 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/26567.shtml)
+- 2026-06-29 14:14 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/66853.shtml)
+- 2026-06-29 14:17 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/654879.shtml)
+- 2026-06-29 13:59 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/786771594.shtml)
+- 2026-06-29 14:08 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/86786183.shtml)
+- 2026-06-29 14:06 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/56275256429.shtml)
+- 2026-06-29 14:04 - [李连杰回应网传不管前妻俩女儿](http://www.share.kurohicncr.top/Article/details/098102810376.shtml)
+- 2026-06-29 14:02 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.kurohicncr.top/Article/details/928762208444.shtml)
+- 2026-06-29 14:04 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/85386370.shtml)
+- 2026-06-29 14:13 - [A股](https://www.share.kurohicncr.top/Article/details/8596131714.shtml)

@@ -1,57 +1,51 @@
-# 四会富仕9.5亿元定增背后：连续三年增收不增利 账面“不差钱” 控股股东刚完成巨额减持套现
+# 鸿海和法国公司Bull将合作生产AI和云基础设施
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-营收突破19亿元创历史新高，净利润却连续三年下滑——四会富仕正陷入典型的“增收不增利”怪圈。就在盈利承压之际，公司近日抛出一份高达9.5亿元的定增预案，试图以高端PCB产能开辟新增长曲线。 然而，投资者更应关注的是：为何账面躺着近9亿元广义货币资金、资产负债率仅25%、前次可转债募资尚未花完的公司，仍然急于向市场伸手？为何大股东在定增前5个月刚刚套现1.62亿元？ 账面“不差钱
+据声明，Bull和鸿海科技集团（富士康）将共同制造人工智能AI和云基础设施。 该项目将涉及Bull位于法国昂热的工厂和富士康位于捷克帕尔杜比采的工厂。 Bull在声明中表示：“为了在法国执行这项战略部署，该项目预计将涉及超过1.2亿欧元的初始投资”。责任编辑：刘明亮
 
 ## 正文
 
-营收突破19亿元创历史新高，净利润却连续三年下滑——四会富仕正陷入典型的“增收不增利”怪圈。
+据声明，Bull和鸿海科技集团（富士康）将共同制造人工智能AI和云基础设施。
 
-就在盈利承压之际，公司近日抛出一份高达9.5亿元的定增预案，试图以高端PCB产能开辟新增长曲线。
+该项目将涉及Bull位于法国昂热的工厂和富士康位于捷克帕尔杜比采的工厂。
 
-然而，投资者更应关注的是：为何账面躺着近9亿元广义货币资金、资产负债率仅25%、前次可转债募资尚未花完的公司，仍然急于向市场伸手？
+Bull在声明中表示：“为了在法国执行这项战略部署，该项目预计将涉及超过1.2亿欧元的初始投资”。
 
-为何大股东在定增前5个月刚刚套现1.62亿元？
-
-账面“不差钱”仍要募资 前次募资核心项目已延期一年 近日，四会富仕发布2026年度向特定对象发行A股股票预案，拟募资不超过9.5亿元，全部用于年产 558 万平方米高可靠性电路板新建 项目——年产 60 万平方米高多层、HDI 电路板项目（一期）项目。
-
-公告称，本次募投项目聚焦高端PCB产能扩充，助力公司切入AI服务器、光模块等高附加值赛道。
-
-翻开财务报表，一个尖锐的矛盾浮现：公司账面“不缺钱”。
-
-截至2025年年底，四会富仕账面上约有7.1亿元货币资金，另有1.11亿元交易性金融资产，广义货币资金合计约8.21亿元。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 14:10 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 13:57 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 13:59 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 14:17 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 13:48 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 13:57 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 14:11 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 13:50 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 14:03 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 14:00 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 14:00 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 14:08 - [医药股集体爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 14:11 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 14:03 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 14:19 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 14:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 14:02 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 13:56 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 14:22 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 13:55 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 14:21 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 13:55 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 13:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:03 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/93176.shtml)
-- 2026-06-29 14:13 - [金刚川](https://www.share.kurohicncr.top/Article/details/03484.shtml)
-- 2026-06-29 13:58 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/503051211285.shtml)
-- 2026-06-29 14:12 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/13230628.shtml)
-- 2026-06-29 14:00 - [《贺子珍》](https://www.share.minike.top/Article/details/62956.shtml)
-- 2026-06-29 14:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/41859816109.shtml)
-- 2026-06-29 13:51 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/93543.shtml)
-- 2026-06-29 14:00 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/042428589.shtml)
-- 2026-06-29 14:04 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/65387891.shtml)
-- 2026-06-29 14:12 - [我和我的家乡](https://www.blog.minike.top/Article/details/312423.shtml)
-- 2026-06-29 14:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/966154503.shtml)
-- 2026-06-29 14:05 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/340538595317.shtml)
-- 2026-06-29 14:01 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/98485407829.shtml)
-- 2026-06-29 13:52 - [105年初心滚烫](http://www.share.minike.top/Article/details/015915818.shtml)
-- 2026-06-29 13:52 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/994587349290.shtml)
+- 2026-06-29 14:02 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/0268327.shtml)
+- 2026-06-29 14:13 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/314148.shtml)
+- 2026-06-29 13:55 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/761854452438.shtml)
+- 2026-06-29 14:01 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/80475.shtml)
+- 2026-06-29 14:16 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/045984778671.shtml)
+- 2026-06-29 14:05 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/920690602.shtml)
+- 2026-06-29 14:05 - [NBA交易](http://www.share.minike.top/Article/details/659392418754.shtml)
+- 2026-06-29 14:00 - [3D打印不是工业革命，它是……](https://www.share.kurohicncr.top/Article/details/8662762618.shtml)
+- 2026-06-29 13:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/280851.shtml)
+- 2026-06-29 14:18 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/812353687.shtml)
+- 2026-06-29 14:22 - [105年初心滚烫](https://www.blog.minike.top/Article/details/287646.shtml)
+- 2026-06-29 14:11 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/052049152155.shtml)
+- 2026-06-29 14:11 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/2913862.shtml)
+- 2026-06-29 14:09 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/19056.shtml)
+- 2026-06-29 14:20 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.kurohicncr.top/Article/details/8105589458.shtml)

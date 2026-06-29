@@ -1,56 +1,46 @@
-# 新国标落地在即 大家居行业向“价值战”转型
+# 伊朗消息人士称 伊朗也将对协议草案提出修改意见
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网北京4月13日电(记者 赵方园)2026年是“十五五”规划开局之年，大家居产业迎来绿色转型的关键节点。《室内装饰装修材料 人造板及其制品中甲醛释放限量》(GB 18580-2025)强制性新国标6月1日将正式实施，大家居产业绿色转型迎来关键节点。“我们卷价值，不卷价格。”近日，在“绿色引领·价值重塑”2026大家居产业高质量发展大会上，中国林产工业协会会长周鸿升表示，一些
+发布时间：2026年06月01日 09:53 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网北京4月13日电(记者 赵方园)2026年是“十五五”规划开局之年，大家居产业迎来绿色转型的关键节点。
-
-《室内装饰装修材料 人造板及其制品中甲醛释放限量》(GB 18580-2025)强制性新国标6月1日将正式实施，大家居产业绿色转型迎来关键节点。
-
-“我们卷价值，不卷价格。
-
-”近日，在“绿色引领·价值重塑”2026大家居产业高质量发展大会上，中国林产工业协会会长周鸿升表示，一些企业在招标时压低价格、牺牲质量，必须坚决纠正。
-
-周鸿升提出，“我们要把每一家的产品都做出特色，做出差异化，做出价值，要向上卷，走高质量发展之路。
-
-”他指出，大家居行业面对数万亿级市场，但目前尚无千亿级企业。
-
-“价格战坚决不能打。
-
-低价竞争的代价不只是利润缩水，更是消费者信任的流失。
+发布时间：2026年06月01日 09:53 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 13:55 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 13:51 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 13:58 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 14:15 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 14:11 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 13:58 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 13:53 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 14:08 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 13:48 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 14:11 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 14:01 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 14:15 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 14:08 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 14:06 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 14:21 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 14:12 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 13:57 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 14:08 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 13:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 14:18 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 14:21 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 14:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 14:07 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/1043362645.shtml)
-- 2026-06-29 13:49 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/515434240634.shtml)
-- 2026-06-29 14:11 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/5288742.shtml)
-- 2026-06-29 14:01 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/43699124964.shtml)
-- 2026-06-29 13:48 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/1792046.shtml)
-- 2026-06-29 14:00 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/65832.shtml)
-- 2026-06-29 14:11 - [中国避暑神器在欧洲卖爆了](https://www.share.kurohicncr.top/Article/details/2962099.shtml)
-- 2026-06-29 14:08 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/679206124.shtml)
-- 2026-06-29 13:58 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/55411910485.shtml)
-- 2026-06-29 13:57 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/988114.shtml)
-- 2026-06-29 14:09 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.kurohicncr.top/Article/details/12714781.shtml)
-- 2026-06-29 14:01 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/8706102789.shtml)
-- 2026-06-29 14:08 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/062710898.shtml)
-- 2026-06-29 14:03 - [女心理师](http://www.share.minike.top/Article/details/4101879246.shtml)
-- 2026-06-29 13:55 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/705147.shtml)
+- 2026-06-29 14:10 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/40142920.shtml)
+- 2026-06-29 13:57 - [明星大侦探第一季](https://www.share.minike.top/Article/details/53165618299.shtml)
+- 2026-06-29 14:18 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/5721594285.shtml)
+- 2026-06-29 14:16 - [【独家】牧神记 第89集 明心](https://www.share.minike.top/Article/details/78652.shtml)
+- 2026-06-29 14:19 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/61079401.shtml)
+- 2026-06-29 14:19 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/0226773.shtml)
+- 2026-06-29 13:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/175882.shtml)
+- 2026-06-29 14:05 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/436025407521.shtml)
+- 2026-06-29 14:03 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/49811033766.shtml)
+- 2026-06-29 13:55 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/4963031.shtml)
+- 2026-06-29 13:58 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/011009668.shtml)
+- 2026-06-29 14:14 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/5821281062.shtml)
+- 2026-06-29 14:10 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/965864838664.shtml)
+- 2026-06-29 14:07 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/8528352938.shtml)
+- 2026-06-29 14:17 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.kurohicncr.top/Article/details/014315664384.shtml)

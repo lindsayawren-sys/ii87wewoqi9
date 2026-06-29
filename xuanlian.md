@@ -1,58 +1,61 @@
-# 米哈游刘伟：我是典型的“小镇做题家”！自曝大学曾挂过科
+# 港股收评：恒指涨0.86% 科指涨1.65% 科网股普涨 新消费概念股强势 奈雪的茶涨超16%
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。 谈及自己的成长经历，刘伟坦言表示，自己就是一个典型的“小镇做题家”，母校上海交通大学塑造了其三观，也给他打开了很大的世界。 他提到，刚进交大时并没有什么宏大的理想，也不知道自己未来要干什么。上海或者其他发达城市的同学，他们高中就见过很多世面。 “我刚进交大的时候，真的非常惶恐，虽然说不上有来自农村的自卑，毕竟从小学
+6月1日消息，港股三大指数集体上涨。截至收盘，恒生指数涨0.86%，报25398.18，恒生科技指数涨1.65%，国企指数涨0.97%。盘面上，科网股涨多跌少，美团涨超6%，联想涨超5%，哔哩哔哩涨超4%，京东跌近1%；新消费概念股集体上涨，奈雪的茶涨超16%；煤炭股多数走高，中煤能源涨超7%；半导体板块回调，华虹半导体跌超5%。 新消费概念股集体上涨，奈雪的茶涨超16%。市场
 
 ## 正文
 
-4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。
+6月1日消息，港股三大指数集体上涨。
 
-谈及自己的成长经历，刘伟坦言表示，自己就是一个典型的“小镇做题家”，母校上海交通大学塑造了其三观，也给他打开了很大的世界。
+截至收盘，恒生指数涨0.86%，报25398.18，恒生科技指数涨1.65%，国企指数涨0.97%。
 
-他提到，刚进交大时并没有什么宏大的理想，也不知道自己未来要干什么。
+盘面上，科网股涨多跌少，美团涨超6%，联想涨超5%，哔哩哔哩涨超4%，京东跌近1%；新消费概念股集体上涨，奈雪的茶涨超16%；煤炭股多数走高，中煤能源涨超7%；半导体板块回调，华虹半导体跌超5%。
 
-上海或者其他发达城市的同学，他们高中就见过很多世面。
+新消费概念股集体上涨，奈雪的茶涨超16%。
 
-“我刚进交大的时候，真的非常惶恐，虽然说不上有来自农村的自卑，毕竟从小学习成绩还可以，但也绝对说不上有多自信。
+市场资料显示，截至5月下旬，奈雪的茶已在全国数十座核心城市连开50家新店，官方提到，新开门店告别了过去的大店模式，转向更轻盈的店型。
 
-大学相当长一段时间里，我都是个非常循规蹈矩的学生。
+蜜雪冰城近日更是布局动作频频，不仅全球最大旗舰店在南京茂业天地开业顺利开业，跨界电影亦通过拍摄备案。
 
-” 此外，刘伟还自曝在大学曾经挂过科。
+此外，华源证券研究指，2025年餐饮茶饮板块公司合计实现收入同比增长15%；实现归母净利润同比增长34%。
 
-“我们05级电院正好赶上教改，我选了较难的数学分析，第一次考试就不及格，生活非常灰暗，后来靠着在图书馆狂刷俄罗斯数学家吉米多维奇的四本习题集，才把分数提上来。
+其中茶饮公司业绩相对亮眼，蜜雪、古茗、沪上阿姨归母净利润均同比高增。
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 14:13 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 13:55 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 14:17 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 14:09 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 14:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 14:00 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 14:08 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 13:58 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 14:07 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 13:55 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 13:49 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 14:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 14:14 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 14:23 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 14:10 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 14:00 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 14:22 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 13:58 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 14:14 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 14:00 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 14:20 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 13:59 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 14:23 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 13:56 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 14:23 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 14:16 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:50 - [一生一世](http://www.blog.kurohicncr.top/Article/details/5098332.shtml)
-- 2026-06-29 14:04 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/46777.shtml)
-- 2026-06-29 13:55 - [曾沛慈夺冠后人气](https://www.share.minike.top/Article/details/26917.shtml)
-- 2026-06-29 14:16 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/9759709859.shtml)
-- 2026-06-29 13:52 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/02301122526.shtml)
-- 2026-06-29 14:16 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/8755607.shtml)
-- 2026-06-29 14:09 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/90700603.shtml)
-- 2026-06-29 14:02 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/89602392639.shtml)
-- 2026-06-29 14:10 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/2009270.shtml)
-- 2026-06-29 14:05 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/2087208757.shtml)
-- 2026-06-29 14:15 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/422300493608.shtml)
-- 2026-06-29 13:50 - [久坐小心“死臀综合征”](http://www.share.minike.top/Article/details/4916072393.shtml)
-- 2026-06-29 14:09 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.kurohicncr.top/Article/details/0289055907.shtml)
-- 2026-06-29 13:57 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/07189209.shtml)
-- 2026-06-29 14:03 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/846154987779.shtml)
+- 2026-06-29 14:17 - [起风了](http://www.share.kurohicncr.top/Article/details/6796815.shtml)
+- 2026-06-29 13:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/08891007063.shtml)
+- 2026-06-29 14:03 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/00277860.shtml)
+- 2026-06-29 14:13 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/38245.shtml)
+- 2026-06-29 13:59 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/0091694887.shtml)
+- 2026-06-29 14:12 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/6456929.shtml)
+- 2026-06-29 13:57 - [扫黑风暴](http://www.blog.minike.top/Article/details/8718590435.shtml)
+- 2026-06-29 14:22 - [市民骑哈啰单车79分钟被收费30元](http://www.share.kurohicncr.top/Article/details/03135152538.shtml)
+- 2026-06-29 14:06 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/057172.shtml)
+- 2026-06-29 14:05 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/42755049.shtml)
+- 2026-06-29 14:07 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/32284.shtml)
+- 2026-06-29 14:23 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/2784316152.shtml)
+- 2026-06-29 14:06 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/861950.shtml)
+- 2026-06-29 13:58 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/713837.shtml)
+- 2026-06-29 14:05 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.minike.top/Article/details/673118936.shtml)

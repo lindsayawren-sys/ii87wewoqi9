@@ -1,48 +1,46 @@
-# 中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产
+# 伊朗：要求满足前不会举行任何谈判
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-证券日报网讯 4月13日，中科电气在互动平台回答投资者提问时表示，公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产；硅碳负极已建设完成中试产线，且有产品在多家客户测评通过，准备进入量产导入阶段。当前，公司硬碳及硅碳负极材料产能可满足客户阶段性增量需求，未来将结合市场发展情况做好相关产能储备。（文章来源：证券日报）
+新华社德黑兰6月1日电 据伊朗塔斯尼姆通讯社6月1日报道，伊朗官员表示，以色列必须立即停止在黎巴嫩和加沙地带的军事行动，并从黎巴嫩撤出。在此要求得到满足前，伊朗不会举行任何谈判。(完)
 
 ## 正文
 
-证券日报网讯 4月13日，中科电气在互动平台回答投资者提问时表示，公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产；硅碳负极已建设完成中试产线，且有产品在多家客户测评通过，准备进入量产导入阶段。
+新华社德黑兰6月1日电 据伊朗塔斯尼姆通讯社6月1日报道，伊朗官员表示，以色列必须立即停止在黎巴嫩和加沙地带的军事行动，并从黎巴嫩撤出。
 
-当前，公司硬碳及硅碳负极材料产能可满足客户阶段性增量需求，未来将结合市场发展情况做好相关产能储备。
+在此要求得到满足前，伊朗不会举行任何谈判。
 
-（文章来源：证券日报）
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 13:52 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 13:53 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 14:05 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 13:51 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 14:04 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 13:50 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 13:54 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 14:01 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 13:54 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 13:55 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 13:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 13:54 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 14:18 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 14:17 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 13:57 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 14:13 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 13:59 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 14:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 14:13 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 13:59 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 13:57 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/59385.shtml)
-- 2026-06-29 13:51 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/772187174424.shtml)
-- 2026-06-29 13:59 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/715118.shtml)
-- 2026-06-29 14:15 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/546537661.shtml)
-- 2026-06-29 14:17 - [德国队前往比赛场地遭遇囧途](https://www.blog.kurohicncr.top/Article/details/771452897.shtml)
-- 2026-06-29 14:04 - [F1奥地利大奖赛正赛集锦](https://www.blog.kurohicncr.top/Article/details/595429021.shtml)
-- 2026-06-29 14:10 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/979781.shtml)
-- 2026-06-29 14:12 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/346762165.shtml)
-- 2026-06-29 13:54 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/1879095347.shtml)
-- 2026-06-29 14:08 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/53828152532.shtml)
-- 2026-06-29 13:55 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/9544138649.shtml)
-- 2026-06-29 13:52 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/2512891233.shtml)
-- 2026-06-29 13:49 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/799862081950.shtml)
-- 2026-06-29 13:52 - [亚洲成世界杯最大失意者联盟](https://www.share.kurohicncr.top/Article/details/797410822.shtml)
-- 2026-06-29 13:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/1301129.shtml)
+- 2026-06-29 14:10 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/510267339.shtml)
+- 2026-06-29 14:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/9257805639.shtml)
+- 2026-06-29 13:58 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/968715583458.shtml)
+- 2026-06-29 14:22 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/06958000653.shtml)
+- 2026-06-29 13:58 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/84551546.shtml)
+- 2026-06-29 14:13 - [王楚钦 表演球擦网](http://www.share.minike.top/Article/details/63452887896.shtml)
+- 2026-06-29 14:12 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/26757256379.shtml)
+- 2026-06-29 14:14 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/53646829.shtml)
+- 2026-06-29 14:09 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.minike.top/Article/details/1348281.shtml)
+- 2026-06-29 13:58 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/3760789589.shtml)
+- 2026-06-29 14:08 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/41993661896.shtml)
+- 2026-06-29 14:06 - [扫黑风暴](http://www.share.minike.top/Article/details/608450925.shtml)
+- 2026-06-29 14:16 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/523536.shtml)
+- 2026-06-29 14:19 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/06001410.shtml)
+- 2026-06-29 14:23 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/76765250.shtml)

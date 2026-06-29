@@ -1,61 +1,61 @@
-# 南方精工（002553）索赔案已有获赔后再提交立案，宜通世纪（300310）索赔案已有胜诉及获赔
+# 2026文学京彩季·大家小课首期开讲
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月9日，上海久诚律师事务所股票索赔律师许峰代理的南方精工（维权）（002553）虚假陈述投资者索赔案再向法院提交一次立案。 许峰律师代理的前期部分南方精工投资者索赔案件已经达成调解，投资者获赔到位，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 2023年7月10日，南方精
+中新网北京6月1日电 (记者 高凯)由北京市文联主办、北京作家协会承办的“2026文学京彩季·大家小课”首期活动日前在北京市文联艺术工坊举行。活动特邀中国作协副主席、国际纳西学学会会长白庚胜以“文学创作的文化动力”为题授课。 白庚胜长期深耕民族文学、民间文化与文学创作研究，在中国少数民族文学与民间文化遗产保护领域成果丰硕，其作品被翻译为20余种语言在海外传播。 讲座中，白庚胜围
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月9日，上海久诚律师事务所股票索赔律师许峰代理的南方精工（维权）（002553）虚假陈述投资者索赔案再向法院提交一次立案。
+中新网北京6月1日电 (记者 高凯)由北京市文联主办、北京作家协会承办的“2026文学京彩季·大家小课”首期活动日前在北京市文联艺术工坊举行。
 
-许峰律师代理的前期部分南方精工投资者索赔案件已经达成调解，投资者获赔到位，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+活动特邀中国作协副主席、国际纳西学学会会长白庚胜以“文学创作的文化动力”为题授课。
 
-（许峰律师专栏） 2023年7月10日，南方精工公告收到《江苏证监局关于对江苏南方精工股份有限公司、史建伟、史维采取出具警示函措施的决定》。
+白庚胜长期深耕民族文学、民间文化与文学创作研究，在中国少数民族文学与民间文化遗产保护领域成果丰硕，其作品被翻译为20余种语言在海外传播。
 
-经查，南方精工2023年6月19日在深圳证券交易所互动易平台上回复投资者有关人形机器人相关业务的内容不准确，导致公司股价连续多次涨停。
+讲座中，白庚胜围绕“文化”与“文明”的关系展开论述，从中华文明的发展脉络切入，结合中国文字、民间文化、非物质文化遗产等内容，探讨文学创作与文化传承之间的关系。
 
-在股价异动后，南方精工未及时了解造成交易异常波动的影响因素，未在6月26日、6月28日发布的股票交易异常波动公告中就公司在互动易平台发布内容进行澄清，未披露造成股价异常波动的影响因素，信息披露不完整。
+他认为，文学是文化的重要组成部分，也是提升文化素养和审美能力的重要途径。
 
-许峰律师认为，根据前期投资者获赔条件，在2023年6月20日到2023年7月5日之间买入南方精工股票，并在2023年7月5日后卖出或继续持有股票的投资者，目前还可发起索赔，已经进入倒计时，诉讼时效已经不足三个月，“过期作废”。
+从《诗经》、楚辞到唐诗宋词，中国文学为中华文明的发展提供了重要精神滋养。
 
-（南方精工维权入口） 除了南方精工投资者索赔案再次提交法院立案，许峰律师提示，宜通世纪（维权）（300310）投资者索案目前还在持续推进中。
+谈及新时代文学创作，白庚胜表示，文学工作者应坚持“深入生活、扎根人民”，真正走进基层、走近群众，在广阔社会生活中发现创作素材，感知时代脉搏。
 
-许峰律师代理的部分宜通世纪投资者索赔案已调解获赔到位，目前也还在继续接受其他投资者的索赔委托，该案前期已有投资者胜诉判决以及调解获赔案例，还在诉讼时效内，建议投资者关注索赔事项。
+他认为，文学创作既要书写个人生活与真实情感，也应将个体经验放在时代发展和历史进程中加以观照，以普通人的视角反映更广阔的社会现实。
 
 ## 相关推荐
 
-- 2026-06-29 14:02 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 14:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 14:09 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 14:16 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 14:03 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 13:50 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 14:07 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 14:13 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 13:57 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 13:55 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 14:08 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 14:16 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 14:16 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 14:03 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 14:07 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 13:56 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 13:58 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 14:16 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 14:19 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 14:22 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 14:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 14:00 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 14:07 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 13:56 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 14:14 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 14:05 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 14:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 14:05 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 14:19 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 14:00 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/095850259296.shtml)
-- 2026-06-29 14:14 - [起风了](http://www.share.kurohicncr.top/Article/details/70191762583.shtml)
-- 2026-06-29 14:03 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/75944.shtml)
-- 2026-06-29 13:56 - [俄称继续推进 乌称打击俄军设施](https://www.share.minike.top/Article/details/302241765702.shtml)
-- 2026-06-29 14:08 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/9033610160.shtml)
-- 2026-06-29 14:18 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/99880586.shtml)
-- 2026-06-29 13:59 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.minike.top/Article/details/066117.shtml)
-- 2026-06-29 13:55 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/90415.shtml)
-- 2026-06-29 13:56 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/555670789.shtml)
-- 2026-06-29 13:53 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/907889813.shtml)
-- 2026-06-29 14:15 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/6791202255.shtml)
-- 2026-06-29 13:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/820396.shtml)
-- 2026-06-29 13:56 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/582618944299.shtml)
-- 2026-06-29 14:00 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/4970943.shtml)
-- 2026-06-29 13:59 - [异世界一点都不好玩！](https://www.share.minike.top/Article/details/220526.shtml)
+- 2026-06-29 14:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/4262796986.shtml)
+- 2026-06-29 14:10 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/75204270457.shtml)
+- 2026-06-29 14:16 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/362597380.shtml)
+- 2026-06-29 14:00 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/393305511.shtml)
+- 2026-06-29 14:19 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/05534602.shtml)
+- 2026-06-29 14:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/274921894927.shtml)
+- 2026-06-29 14:10 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/32700437.shtml)
+- 2026-06-29 14:00 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/10266878254.shtml)
+- 2026-06-29 13:59 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/3468835.shtml)
+- 2026-06-29 14:22 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/8579121.shtml)
+- 2026-06-29 13:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/53839854881.shtml)
+- 2026-06-29 14:21 - [105年初心滚烫](http://www.share.minike.top/Article/details/61839870451.shtml)
+- 2026-06-29 14:12 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.minike.top/Article/details/60453771.shtml)
+- 2026-06-29 14:09 - [欧洲人驾车200公里抢购中国空调](http://www.blog.kurohicncr.top/Article/details/30809.shtml)
+- 2026-06-29 13:55 - [比亚迪市值为何蒸发8000亿](https://www.blog.kurohicncr.top/Article/details/73886.shtml)

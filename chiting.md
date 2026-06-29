@@ -1,51 +1,56 @@
-# 放假不“放羊”！带你沉浸打卡北京高校春假
+# 法国巴黎银行：亚洲科技股超级周期远未见顶
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 16:21 来源：中国新闻网 今年春天，北京多所高校开启“春假模式”，并开出特色“研学菜单”，呼吁学生放假不“放羊”。日前，记者跟随北京信息科技大学师生，走进京城四家非遗老字号，沉浸式打卡春假，测评“二八酱”冰激凌、品茉莉花茶、景泰蓝点蓝等非遗活动。该校相关负责人介绍，希望能将课内的小课堂和社会的大课堂有效融合，落实“健康第一”的教育理念。(记
+法国巴黎银行表示，至少在短期内，在估值支撑下，科技股超级周期依然是亚洲市场中唯一具有高确定性的盈利增长故事。 “现在就断言科技股周期已经见顶还为时过早，可能最早也要等到2027年上半年才会出现这一担忧。”该行亚太区现货股票研究主管William Bratton在一份报告中写道。 法国巴黎银行表示，这预示着东北亚地区在2026年下半年将比印度更具优势。 在过去三个月中，未来12个
 
 ## 正文
 
-发布时间：2026年04月13日 16:21 来源：中国新闻网 今年春天，北京多所高校开启“春假模式”，并开出特色“研学菜单”，呼吁学生放假不“放羊”。
+法国巴黎银行表示，至少在短期内，在估值支撑下，科技股超级周期依然是亚洲市场中唯一具有高确定性的盈利增长故事。
 
-日前，记者跟随北京信息科技大学师生，走进京城四家非遗老字号，沉浸式打卡春假，测评“二八酱”冰激凌、品茉莉花茶、景泰蓝点蓝等非遗活动。
+“现在就断言科技股周期已经见顶还为时过早，可能最早也要等到2027年上半年才会出现这一担忧。
 
-该校相关负责人介绍，希望能将课内的小课堂和社会的大课堂有效融合，落实“健康第一”的教育理念。
+”该行亚太区现货股票研究主管William Bratton在一份报告中写道。
 
-(记者卢晓娜 刘子衿 北京报道） 责任编辑：【周驰】
+法国巴黎银行表示，这预示着东北亚地区在2026年下半年将比印度更具优势。
+
+在过去三个月中，未来12个月盈利预期上调的约85%来自科技板块。
+
+其中，韩国是推动上调的主要驱动力。
+
+如果剔除科技和能源板块，过去一个季度亚洲市场的整体远期盈利预期仅提高了1%。
+
+中东冲突引发的能源价格上涨，正持续对内需导向型板块构成压力。
 
 ## 相关推荐
 
-- 2026-06-29 14:07 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 13:54 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 14:17 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 13:56 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 14:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 13:57 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 13:59 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 14:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 14:11 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 13:53 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 13:56 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 14:10 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 14:08 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 14:05 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 14:06 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 14:17 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 14:12 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 14:19 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 14:16 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 14:23 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 14:14 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 14:02 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 14:06 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:51 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/53133534771.shtml)
-- 2026-06-29 14:15 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/27497840854.shtml)
-- 2026-06-29 13:57 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/37246401.shtml)
-- 2026-06-29 14:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/154563126805.shtml)
-- 2026-06-29 14:04 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/473951901.shtml)
-- 2026-06-29 14:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/180874.shtml)
-- 2026-06-29 14:15 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/34488264037.shtml)
-- 2026-06-29 14:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/7907255.shtml)
-- 2026-06-29 14:17 - [《贺子珍》](http://www.blog.minike.top/Article/details/409419.shtml)
-- 2026-06-29 14:13 - [一生一世](http://www.share.minike.top/Article/details/912561464.shtml)
-- 2026-06-29 13:49 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/9252967466.shtml)
-- 2026-06-29 13:55 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/16695586.shtml)
-- 2026-06-29 13:54 - [海军舰艇编队将赴香港](https://www.share.kurohicncr.top/Article/details/8051713.shtml)
-- 2026-06-29 13:53 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/6169441844.shtml)
-- 2026-06-29 14:12 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/1222251257.shtml)
+- 2026-06-29 14:16 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/13185.shtml)
+- 2026-06-29 13:56 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/80312669673.shtml)
+- 2026-06-29 14:12 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/31726.shtml)
+- 2026-06-29 14:13 - [中国战机大片上新](http://www.blog.minike.top/Article/details/558259.shtml)
+- 2026-06-29 13:57 - [韩国拟将部分刑责年龄降至13岁](https://www.share.minike.top/Article/details/126150.shtml)
+- 2026-06-29 14:17 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/936554514074.shtml)
+- 2026-06-29 13:55 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/39143580430.shtml)
+- 2026-06-29 13:59 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/1152055994.shtml)
+- 2026-06-29 13:54 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/351025025646.shtml)
+- 2026-06-29 14:02 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.minike.top/Article/details/80565.shtml)
+- 2026-06-29 14:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/09310.shtml)
+- 2026-06-29 14:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/689479231.shtml)
+- 2026-06-29 13:55 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/153467732333.shtml)
+- 2026-06-29 13:55 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/54160736.shtml)
+- 2026-06-29 13:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/5151075.shtml)

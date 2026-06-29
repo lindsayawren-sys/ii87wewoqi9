@@ -1,50 +1,58 @@
-# 外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步
+# “猪王”牧原股份换帅
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-新华社北京4月13日电(记者吴梦桐、冯歆然)外交部发言人郭嘉昆13日在例行记者会上答问时表示，美伊双方在巴基斯坦开启谈判，是朝有利于局势缓和方向迈出的一步。中方希望相关方恪守临时停火安排，坚持通过政治外交途径化解争端，避免重燃战火，为早日恢复海湾地区和平安宁创造条件。(完）
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！“猪王”牧原股份（002714.SZ）迎来重要的管理层更迭。6月1日，牧原股份公告称，公司董事长秦英林因到退休年龄辞任，同时辞去总裁等职务；曹治年辞任副董事长等职务。董事会选举曹治年为第五届董事会董事长，并聘任秦英林为终身荣誉董事长，其将担任牧原养猪研究院院长。 此外，高曈被聘任为公司总裁、财务负责人，并被
 
 ## 正文
 
-新华社北京4月13日电(记者吴梦桐、冯歆然)外交部发言人郭嘉昆13日在例行记者会上答问时表示，美伊双方在巴基斯坦开启谈判，是朝有利于局势缓和方向迈出的一步。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-中方希望相关方恪守临时停火安排，坚持通过政治外交途径化解争端，避免重燃战火，为早日恢复海湾地区和平安宁创造条件。
+“猪王”牧原股份（002714.SZ）迎来重要的管理层更迭。
 
-(完）
+6月1日，牧原股份公告称，公司董事长秦英林因到退休年龄辞任，同时辞去总裁等职务；曹治年辞任副董事长等职务。
+
+董事会选举曹治年为第五届董事会董事长，并聘任秦英林为终身荣誉董事长，其将担任牧原养猪研究院院长。
+
+此外，高曈被聘任为公司总裁、财务负责人，并被提名为非独立董事候选人。
+
+公司拟将董事会成员增至9名，新增1名非独立董事。
+
+上述变更自董事会审议通过之日起生效，部分事项需待股东会审议。
+
+出生于1965年的秦英林是牧原股份创始人，他最初从一名肉联厂的职工辞职下海养猪，从22头猪创业起步，一步步建成年出栏超7000万头的全产业链猪肉食品企业。
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 14:05 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 14:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 13:53 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 14:00 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 13:48 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 14:12 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 13:54 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 13:55 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 13:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 14:02 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 14:10 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 13:48 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 14:03 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 13:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 14:09 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 14:09 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 14:20 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 14:14 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 14:07 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 14:20 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 14:06 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 13:54 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 14:23 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 13:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 14:17 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:09 - [海清白玉兰奖运](http://www.share.minike.top/Article/details/3666920122.shtml)
-- 2026-06-29 13:58 - [血糖高的人能吃西瓜吗](http://www.blog.minike.top/Article/details/9153766.shtml)
-- 2026-06-29 14:03 - [海清白玉兰奖运](http://www.blog.minike.top/Article/details/10032315366.shtml)
-- 2026-06-29 14:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/285721.shtml)
-- 2026-06-29 13:49 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/825762715.shtml)
-- 2026-06-29 14:01 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/0631612867.shtml)
-- 2026-06-29 14:08 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/58589.shtml)
-- 2026-06-29 14:14 - [极限挑战第一季](https://www.share.minike.top/Article/details/2306368697.shtml)
-- 2026-06-29 13:52 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/758708610.shtml)
-- 2026-06-29 14:13 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/38962862678.shtml)
-- 2026-06-29 14:02 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/50814.shtml)
-- 2026-06-29 14:05 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/313326977619.shtml)
-- 2026-06-29 13:58 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/87174872892.shtml)
-- 2026-06-29 14:03 - [美的空调 卡bug](https://www.share.minike.top/Article/details/756310.shtml)
-- 2026-06-29 14:01 - [复盘曾沛慈浪姐夺冠之路](https://www.share.kurohicncr.top/Article/details/489572031.shtml)
+- 2026-06-29 14:18 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/900490.shtml)
+- 2026-06-29 14:01 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/428017235105.shtml)
+- 2026-06-29 14:01 - [曾沛慈夺冠后人气](http://www.share.kurohicncr.top/Article/details/70908628.shtml)
+- 2026-06-29 14:09 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/074657351778.shtml)
+- 2026-06-29 14:17 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/95586.shtml)
+- 2026-06-29 14:06 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/089668653619.shtml)
+- 2026-06-29 14:23 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/378454473247.shtml)
+- 2026-06-29 14:11 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.kurohicncr.top/Article/details/3937959.shtml)
+- 2026-06-29 14:09 - [金刚川](http://www.share.kurohicncr.top/Article/details/05158.shtml)
+- 2026-06-29 14:05 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/958692113705.shtml)
+- 2026-06-29 14:06 - [【独家】牧神记 第89集 明心](http://www.share.kurohicncr.top/Article/details/844540.shtml)
+- 2026-06-29 14:19 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.kurohicncr.top/Article/details/709564891.shtml)
+- 2026-06-29 14:05 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/19135873.shtml)
+- 2026-06-29 14:23 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/4754413.shtml)
+- 2026-06-29 14:18 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/242527460093.shtml)

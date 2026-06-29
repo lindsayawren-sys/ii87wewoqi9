@@ -1,54 +1,59 @@
-# 英国宣布：不参与封锁霍尔木兹海峡
+# 光大期货：6月2日有色金属日报
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网4月13日电 据英国《卫报》当地时间12日报道，英国不会参与任何对霍尔木兹海峡的封锁行动。 据报道，一名英国政府发言人表示，英国将继续“支持航行自由和开放霍尔木兹海峡，这对于支持全球经济和降低国内生活成本至关重要”。 发言人补充说：“霍尔木兹海峡绝不能征收通行费。我们正与法国和其他伙伴紧急合作，组建一个广泛的联盟，以保护航行自由。” 报道提到，当地时间12日，美国总统特朗
+铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏强，国内精炼铜进口窗口关闭。宏观方面，美国5月ISM制造业新订单指数56.8，大幅高于预期 54.8和前值 54.1，连续五个月扩张，其中新订单增速加速至四个月高位，就业指数有所改善，但通胀压力仍然存在。地缘政治方面，为抗议以军扩大在黎行动，据伊媒称伊朗将暂停与美国通过中间人沟通
 
 ## 正文
 
-中新网4月13日电 据英国《卫报》当地时间12日报道，英国不会参与任何对霍尔木兹海峡的封锁行动。
+铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏强，国内精炼铜进口窗口关闭。
 
-据报道，一名英国政府发言人表示，英国将继续“支持航行自由和开放霍尔木兹海峡，这对于支持全球经济和降低国内生活成本至关重要”。
+宏观方面，美国5月ISM制造业新订单指数56.8，大幅高于预期 54.8和前值 54.1，连续五个月扩张，其中新订单增速加速至四个月高位，就业指数有所改善，但通胀压力仍然存在。
 
-发言人补充说：“霍尔木兹海峡绝不能征收通行费。
+地缘政治方面，为抗议以军扩大在黎行动，据伊媒称伊朗将暂停与美国通过中间人沟通，计划彻底封锁霍尔木兹海峡；但特朗普则称美伊或于一周内达成协议，延长停火并重开霍尔木兹海峡。
 
-我们正与法国和其他伙伴紧急合作，组建一个广泛的联盟，以保护航行自由。
+库存方面来看，LME库存下降3375吨至386050吨；Comex库存增加1739吨至吨至582507吨；SHFE铜仓单增加5047吨至99543吨，BC铜仓单下降795吨至11583吨。
 
-” 报道提到，当地时间12日，美国总统特朗普声称，美国将在北约盟国的协助下封锁霍尔木兹海峡。
+需求方面，高铜价抑制部分采购节奏。
 
-另据英国广播公司(BBC)报道，美国中央司令部发表声明称，将于美东时间4月13日上午10时起，对所有进出伊朗港口的海上交通实施封锁。
+美伊冲突再次出现反复性，但从昨晚铜价表现来看有所脱敏，并未与黄金共振。
+
+笔者认为，一是霍尔木兹海峡通航问题受阻下，海外硫磺短缺问题或再次走向台前；二是美铜因关税预期相比LME铜再次出现高溢价，海外铜再次转移至美铜进行套利，在一定程度上缓解了LME累库预期引起的反噬。
+
+不过地缘冲突依然会对全球经济形成扰动，市场也在取舍。
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 14:05 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 13:59 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 14:08 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 14:10 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 14:14 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 14:11 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 14:15 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 14:13 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 13:55 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 13:51 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 14:16 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 14:16 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 14:23 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 14:04 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 14:17 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 14:13 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 14:19 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 14:17 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 14:09 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 14:06 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 14:15 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 14:03 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 14:09 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 14:22 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/482710809155.shtml)
-- 2026-06-29 14:00 - [明星大侦探第四季](http://www.share.minike.top/Article/details/1328261710.shtml)
-- 2026-06-29 14:00 - [吴磊爱上回收了](https://www.blog.minike.top/Article/details/050080.shtml)
-- 2026-06-29 14:10 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/10800234802.shtml)
-- 2026-06-29 13:49 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/206822944522.shtml)
-- 2026-06-29 14:05 - [俄称继续推进 乌称打击俄军设施](https://www.blog.minike.top/Article/details/916069099.shtml)
-- 2026-06-29 14:14 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/1297683648.shtml)
-- 2026-06-29 13:50 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/80085141.shtml)
-- 2026-06-29 14:06 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/90495509926.shtml)
-- 2026-06-29 14:09 - [金刚川](https://www.share.minike.top/Article/details/5580890.shtml)
-- 2026-06-29 13:48 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/97029.shtml)
-- 2026-06-29 14:03 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/28051149026.shtml)
-- 2026-06-29 13:57 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/60715.shtml)
-- 2026-06-29 14:02 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.minike.top/Article/details/661805.shtml)
-- 2026-06-29 14:17 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/18429041026.shtml)
+- 2026-06-29 14:17 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/21055.shtml)
+- 2026-06-29 14:03 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/1010263698.shtml)
+- 2026-06-29 14:13 - [小娘惹](https://www.share.minike.top/Article/details/753188791252.shtml)
+- 2026-06-29 14:16 - [王楚钦美国大满贯晋级32强](https://www.blog.minike.top/Article/details/7412960560.shtml)
+- 2026-06-29 14:01 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/9009181529.shtml)
+- 2026-06-29 14:08 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/45198784.shtml)
+- 2026-06-29 14:11 - [宜宾5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/746085.shtml)
+- 2026-06-29 14:22 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/7224656866.shtml)
+- 2026-06-29 14:13 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/92704870.shtml)
+- 2026-06-29 14:22 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/029749420.shtml)
+- 2026-06-29 13:58 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/7732856.shtml)
+- 2026-06-29 14:00 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/601236974.shtml)
+- 2026-06-29 14:16 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/2130228469.shtml)
+- 2026-06-29 14:03 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/09870.shtml)
+- 2026-06-29 14:03 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.kurohicncr.top/Article/details/69214.shtml)

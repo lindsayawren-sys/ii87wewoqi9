@@ -1,56 +1,60 @@
-# 美伊谈判未果：战争进入“边打边停、边打边谈的消耗战阶段”
+# 卡利巴夫的“新角色”
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网4月14日电 美国和伊朗同意停火两周，并在巴基斯坦首都伊斯兰堡举行谈判。谈判于12日上午结束，双方未达成任何协议。谈判为何步履维艰甚至陷入僵局？谈判桌上存在哪些分歧？各方之间又有何博弈？ 针对美伊临时停火的现实困境与未来前景，上海外国语大学中东研究所智库研究员韩建伟进行了深入分析。她指出，此次临时停火是在美以与伊朗之间的结构性矛盾未得到有效解决的情况下发生的，脆弱性十足且
+中国新闻周刊记者：陈佳琳 发于总第1237期《中国新闻周刊》杂志 过去一周，美国与伊朗的停火协议“基本谈成”的消息，引发了共和党鹰派的恐慌。他们罕见地公开批评特朗普，认为他急于结束战争，对伊朗作出太多让步。 在万里之外的德黑兰，针对伊朗对美首席谈判代表、伊斯兰议会议长卡利巴夫的政治攻击也在加剧。据半官方性质的伊朗劳工通讯社(ILNA)报道，伊朗议会投票选举新一届主席团前，出现了
 
 ## 正文
 
-中新网4月14日电 美国和伊朗同意停火两周，并在巴基斯坦首都伊斯兰堡举行谈判。
+中国新闻周刊记者：陈佳琳 发于总第1237期《中国新闻周刊》杂志 过去一周，美国与伊朗的停火协议“基本谈成”的消息，引发了共和党鹰派的恐慌。
 
-谈判于12日上午结束，双方未达成任何协议。
+他们罕见地公开批评特朗普，认为他急于结束战争，对伊朗作出太多让步。
 
-谈判为何步履维艰甚至陷入僵局？
+在万里之外的德黑兰，针对伊朗对美首席谈判代表、伊斯兰议会议长卡利巴夫的政治攻击也在加剧。
 
-谈判桌上存在哪些分歧？
+据半官方性质的伊朗劳工通讯社(ILNA)报道，伊朗议会投票选举新一届主席团前，出现了针对卡利巴夫的“有组织诋毁”。
 
-各方之间又有何博弈？
+部分反对谈判的激进派，通过媒体和短信攻势向议员施压，试图阻止卡利巴夫继续领导议会。
 
-针对美伊临时停火的现实困境与未来前景，上海外国语大学中东研究所智库研究员韩建伟进行了深入分析。
+美伊再次爆发有限冲突的5月25日，卡利巴夫以决定性优势战胜极端强硬派支持的挑战者，成功连任，任期再延长一年。
 
-她指出，此次临时停火是在美以与伊朗之间的结构性矛盾未得到有效解决的情况下发生的，脆弱性十足且充满欺骗性。
+同一天，他与外长阿拉格齐、央行行长赫马蒂奔赴卡塔尔，在为期一天的行程中重点讨论伊朗被冻结资产的解冻问题。
 
-她认为，这场战争“已进入边打边停、边打边谈的消耗战阶段”。
+面对内部纷争，伊朗最高国家安全委员会秘书佐勒加德尔罕见公开发声，称此时伊朗更需要保持团结，唯其如此，才有可能获得“最终胜利”。
 
 ## 相关推荐
 
-- 2026-06-29 14:02 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 14:05 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 14:12 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 14:11 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 13:48 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 13:52 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 13:58 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 14:12 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 14:11 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 13:54 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 14:18 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 14:07 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 14:06 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 14:02 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 14:12 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 14:05 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 14:09 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 14:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 14:16 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 14:02 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 14:13 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 14:16 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 14:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 14:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/65262176629.shtml)
-- 2026-06-29 14:02 - [TOP 无畏契约](http://www.share.minike.top/Article/details/611646308431.shtml)
-- 2026-06-29 14:06 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/00271.shtml)
-- 2026-06-29 13:58 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/776096.shtml)
-- 2026-06-29 14:09 - [逃狱兄弟](http://www.blog.minike.top/Article/details/228870.shtml)
-- 2026-06-29 14:12 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/2230737.shtml)
-- 2026-06-29 14:07 - [退休化学教授帮医药研发人员制毒](https://www.share.kurohicncr.top/Article/details/46997815.shtml)
-- 2026-06-29 14:11 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/43731.shtml)
-- 2026-06-29 13:58 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/517358661812.shtml)
-- 2026-06-29 14:07 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/55129466087.shtml)
-- 2026-06-29 14:08 - [F1奥地利大奖赛正赛集锦](http://www.share.kurohicncr.top/Article/details/6022866.shtml)
-- 2026-06-29 13:49 - [ENC瓦中国香港负印度数据图](http://www.blog.minike.top/Article/details/94016033509.shtml)
-- 2026-06-29 14:11 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/715385402683.shtml)
-- 2026-06-29 13:51 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.kurohicncr.top/Article/details/600057873060.shtml)
-- 2026-06-29 14:09 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/10484930230.shtml)
+- 2026-06-29 14:07 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/233500.shtml)
+- 2026-06-29 14:05 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/753720043195.shtml)
+- 2026-06-29 14:22 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/199787460.shtml)
+- 2026-06-29 14:07 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/099456.shtml)
+- 2026-06-29 14:06 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/2532164.shtml)
+- 2026-06-29 14:16 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/36822.shtml)
+- 2026-06-29 13:56 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/405057.shtml)
+- 2026-06-29 14:12 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/6979361.shtml)
+- 2026-06-29 14:12 - [迈巴赫提车第二天发现大灯起雾](http://www.share.minike.top/Article/details/05777588308.shtml)
+- 2026-06-29 13:58 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/784411.shtml)
+- 2026-06-29 13:58 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/210913438791.shtml)
+- 2026-06-29 14:16 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/8722052006.shtml)
+- 2026-06-29 14:22 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/39273479.shtml)
+- 2026-06-29 14:21 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/752531.shtml)
+- 2026-06-29 13:58 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/47507947721.shtml)

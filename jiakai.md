@@ -1,58 +1,60 @@
-# 海南自贸港海关“追梦人”黎文：让政策“试验田”变“高产田”
+# 俄罗斯禁止航空燃油出口 以确保国内供应稳定
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网海口4月12日电 (张月和)如何让一项好政策从“纸面”落到“地面”？4月12日，海口海关所属洋浦海关监管处处长黎文在“开局之年看中国·开放自贸港”网络主题传播活动启动仪式上，分享了她在海南自贸港建设过程中的“追梦”故事，也展现了海南自贸港从政策“试验田”变“高产田”的历程。 黎文工作所在的洋浦经济开发区是海南自贸港建设的前沿阵地。海南自贸港含金量最高的核心政策之一——加工
+随着乌克兰加大对俄罗斯炼油厂的袭击力度，俄罗斯禁止出口航空燃油至11月底，以避免国内出现短缺。 这项决定对国际燃料市场影响甚微。此前无人机袭击炼油厂已导致俄罗斯原油加工率降至超过16年的最低水平。为了遏制石油美元流入克里姆林宫的金库，乌克兰对包括海港和管道在内的各种能源资产进行了打击。 俄罗斯政府在网站上表示：“该决定的目的是确保国内燃料市场保持稳定。” 俄罗斯并非全球航空燃油
 
 ## 正文
 
-中新网海口4月12日电 (张月和)如何让一项好政策从“纸面”落到“地面”？
+随着乌克兰加大对俄罗斯炼油厂的袭击力度，俄罗斯禁止出口航空燃油至11月底，以避免国内出现短缺。
 
-4月12日，海口海关所属洋浦海关监管处处长黎文在“开局之年看中国·开放自贸港”网络主题传播活动启动仪式上，分享了她在海南自贸港建设过程中的“追梦”故事，也展现了海南自贸港从政策“试验田”变“高产田”的历程。
+这项决定对国际燃料市场影响甚微。
 
-黎文工作所在的洋浦经济开发区是海南自贸港建设的前沿阵地。
+此前无人机袭击炼油厂已导致俄罗斯原油加工率降至超过16年的最低水平。
 
-海南自贸港含金量最高的核心政策之一——加工增值免关税政策全国首票就在洋浦落地。
+为了遏制石油美元流入克里姆林宫的金库，乌克兰对包括海港和管道在内的各种能源资产进行了打击。
 
-“我们能享受政策吗？
+俄罗斯政府在网站上表示：“该决定的目的是确保国内燃料市场保持稳定。
 
-”“具体怎么操作？
+” 俄罗斯并非全球航空燃油市场的主要参与者。
 
-”黎文回忆说，2021年，加工增值免关税政策刚出台，企业的咨询电话就接连不断。
+分析公司Vortexa的数据汇编显示，去年俄罗斯平均每日出口3万桶航空燃油，仅占全球供应量的不到2%。
 
-“我们听出了企业满满的期待，也感受到了那份‘无从下手’的焦急。
+数据显示，2026年前四个月，俄罗斯的日均出口量下滑至2.8万桶，土耳其是主要买家。
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 13:57 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 14:08 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 14:02 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 14:12 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 14:12 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 14:06 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 14:06 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 14:06 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 14:12 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 13:50 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 14:15 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 13:57 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 14:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 14:04 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 13:59 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 14:07 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 14:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 14:02 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 14:10 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 13:56 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 14:00 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 14:15 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 14:12 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 14:06 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 14:01 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:49 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/53191478.shtml)
-- 2026-06-29 13:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/725794.shtml)
-- 2026-06-29 13:48 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/62189925670.shtml)
-- 2026-06-29 14:10 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/16957.shtml)
-- 2026-06-29 14:09 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/6739685.shtml)
-- 2026-06-29 13:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/44972182.shtml)
-- 2026-06-29 13:54 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/08284510838.shtml)
-- 2026-06-29 13:56 - [航空运输旅客服务质量国标将实施](http://www.share.kurohicncr.top/Article/details/80238.shtml)
-- 2026-06-29 13:52 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/39107.shtml)
-- 2026-06-29 14:06 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/180314042.shtml)
-- 2026-06-29 13:57 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/84077039135.shtml)
-- 2026-06-29 13:49 - [TLAW vs DCG MSI](http://www.share.minike.top/Article/details/38707248.shtml)
-- 2026-06-29 13:50 - [加拿大92分钟绝杀](https://www.blog.kurohicncr.top/Article/details/517894788.shtml)
-- 2026-06-29 14:10 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/79774.shtml)
-- 2026-06-29 14:03 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/3992037.shtml)
+- 2026-06-29 14:17 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.kurohicncr.top/Article/details/6823746616.shtml)
+- 2026-06-29 14:06 - [美媒：空警-3000服役即成全球最强](http://www.blog.kurohicncr.top/Article/details/714952935951.shtml)
+- 2026-06-29 14:00 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/00022.shtml)
+- 2026-06-29 14:01 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/1403755.shtml)
+- 2026-06-29 14:18 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.minike.top/Article/details/20023.shtml)
+- 2026-06-29 14:09 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.kurohicncr.top/Article/details/22010.shtml)
+- 2026-06-29 14:05 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/5889956124.shtml)
+- 2026-06-29 14:21 - [A股](https://www.share.minike.top/Article/details/091696090.shtml)
+- 2026-06-29 14:04 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/3817991.shtml)
+- 2026-06-29 14:00 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/301442.shtml)
+- 2026-06-29 14:14 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/16087616257.shtml)
+- 2026-06-29 14:10 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/0367924002.shtml)
+- 2026-06-29 13:57 - [《昨夜将至》为何是悬疑黑马](https://www.blog.minike.top/Article/details/844713.shtml)
+- 2026-06-29 14:04 - [金牌调解](https://www.blog.minike.top/Article/details/33570830825.shtml)
+- 2026-06-29 14:14 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/81666.shtml)

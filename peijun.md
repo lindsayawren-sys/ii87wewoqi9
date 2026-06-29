@@ -1,61 +1,59 @@
-# 新“国九条”落地两周年：改革蹄疾步稳 资本活水润泽科技之花
+# 宇树IPO过会背后的隐形金主
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！自2024年4月12日《国务院关于加强监管防范风险推动资本市场高质量发展的若干意见》（以下简称“新‘国九条’”）发布实施以来，两载春秋砥砺前行，资本市场改革步履不停。“1+N”政策体系从渐次落地走向成熟完善，各项举措精准发力，推动资本市场从量的积累向质的飞跃
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨林汉垚 编辑丨杨希 肖嘉 视频丨许婷婷 420亿估值的人形机器人龙头、万亿估值的存储芯片巨头……科创IPO迎来狂欢。 一周内，宇树科技股份有限公司（以下简称“宇树科技”）与长鑫科技集团股份有限公司（以下简称“长鑫科技”）过会的消息相继传来。 事实上，在这两家公司的股东名册中，保险资金均占据了关键位置。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-自2024年4月12日《国务院关于加强监管防范风险推动资本市场高质量发展的若干意见》（以下简称“新‘国九条’”）发布实施以来，两载春秋砥砺前行，资本市场改革步履不停。
+记者丨林汉垚 编辑丨杨希 肖嘉 视频丨许婷婷 420亿估值的人形机器人龙头、万亿估值的存储芯片巨头……科创IPO迎来狂欢。
 
-“1+N”政策体系从渐次落地走向成熟完善，各项举措精准发力，推动资本市场从量的积累向质的飞跃转变。
+一周内，宇树科技股份有限公司（以下简称“宇树科技”）与长鑫科技集团股份有限公司（以下简称“长鑫科技”）过会的消息相继传来。
 
-两年来，A股市场活跃度与韧性稳步增强，日均成交额跃上新台阶，外资配置中国资产的意愿持续回升，中长期资金入市渠道愈发畅通，上市公司质量稳步提升，投资者回报机制不断健全，资本市场服务新质生产力能力持续提升。
+事实上，在这两家公司的股东名册中，保险资金均占据了关键位置。
 
-新“国九条”勾勒的改革蓝图，正逐步转化为资本市场高质量发展的生动实践。
+长鑫科技有和谐健康、国寿投资等6家险资直投，宇树科技则有中邮人寿、友邦人寿、瑞众人寿、新华保险等20余家险资通过LP通道“潜伏”。
 
-南开大学金融发展研究院院长田利辉表示，两年的实践充分证明，投融资综合改革是推动资本市场高质量发展的根本动力。
+曾经偏爱高铁、基建和不动产的“耐心资本”，正在成为硬科技IPO背后最活跃的捕手之一。
 
-当前，新一轮资本市场改革开放持续深化，健全长效稳市机制、深化投融资综合改革、强化科技赋能监管、完善投资者保护体系等举措接续推进，资本市场正以更加开放、规范、有活力的姿态，迈向高质量发展的新阶段。
+宇树科技豪华股东阵容曝光！
 
-制度优：加码服务新质生产力 近年来，新一轮科技革命和产业变革加速演进，全球各主要资本市场都在主动进行改革，以适应创新发展趋势。
+除了腾讯、美团、阿里、蚂蚁，还有20余家险资间接投资 6月1日，宇树科技科创板IPO通过上交所上市委会议审议，拟募资42.02亿元，计划用于智能机器人模型研发、机器人本体研发、新型智能机器人产品开发及智能机器人制造基地建设等项目。
 
 ## 相关推荐
 
-- 2026-06-29 14:04 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 13:54 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 13:59 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 14:10 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 13:53 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 14:12 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 14:11 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 13:48 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 13:48 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 13:56 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 14:06 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 13:55 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 14:09 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 13:57 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 14:11 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 14:05 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 14:05 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 14:08 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 14:11 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 13:58 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 13:56 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 14:03 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 14:15 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 13:56 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 14:20 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 14:02 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 14:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 13:57 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/440183235698.shtml)
-- 2026-06-29 14:09 - [周深双眼皮贴又掉了](http://www.share.minike.top/Article/details/36281882.shtml)
-- 2026-06-29 14:09 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/75287439915.shtml)
-- 2026-06-29 14:07 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/765514113.shtml)
-- 2026-06-29 13:49 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/70230375.shtml)
-- 2026-06-29 14:06 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/78004.shtml)
-- 2026-06-29 13:55 - [行程万里不忘初心](https://www.share.minike.top/Article/details/11396.shtml)
-- 2026-06-29 14:10 - [比亚迪市值为何蒸发8000亿](https://www.blog.kurohicncr.top/Article/details/48920543237.shtml)
-- 2026-06-29 14:09 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/393356.shtml)
-- 2026-06-29 13:53 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/6719475561.shtml)
-- 2026-06-29 13:59 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/4203197080.shtml)
-- 2026-06-29 14:08 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/8128533935.shtml)
-- 2026-06-29 14:01 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/0435102632.shtml)
-- 2026-06-29 14:17 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.kurohicncr.top/Article/details/504761554.shtml)
-- 2026-06-29 13:59 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/334500.shtml)
+- 2026-06-29 14:14 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/33729813052.shtml)
+- 2026-06-29 14:01 - [德国队前往比赛场地遭遇囧途](https://www.share.minike.top/Article/details/10284252.shtml)
+- 2026-06-29 14:14 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/431332.shtml)
+- 2026-06-29 14:20 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/96522.shtml)
+- 2026-06-29 14:13 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/8237889.shtml)
+- 2026-06-29 14:15 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/1638730067.shtml)
+- 2026-06-29 14:05 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/762863229.shtml)
+- 2026-06-29 14:15 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/00110336637.shtml)
+- 2026-06-29 14:09 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/647915.shtml)
+- 2026-06-29 14:15 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/7283015.shtml)
+- 2026-06-29 13:58 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/702698.shtml)
+- 2026-06-29 14:15 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/00314078372.shtml)
+- 2026-06-29 13:55 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/917897142.shtml)
+- 2026-06-29 14:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/674178634477.shtml)
+- 2026-06-29 14:19 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/9025589.shtml)

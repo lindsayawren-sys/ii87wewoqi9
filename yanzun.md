@@ -1,48 +1,56 @@
-# 比亚迪：公司储能业务在全球市场持续发力
+# Veracyte在美国正式推出Prosigna乳腺癌检测
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-证券日报网4月13日讯，比亚迪在接受调研者提问时表示，公司储能业务在全球市场持续发力。4月8日至9日，公司重磅亮相马来西亚国际太阳能暨储能展览会，展出BYD Haohan储能系统、GC Flux PCS储能变流器与GC Master EMS能量管理系统三大核心产品，三者高效协同，可完美适配东南亚复杂气候环境，为电网绿电化提供坚实支撑，有效平抑光伏波动、提升电网韧性。依托动力电池
+Veracyte公司今日宣布，其Prosigna乳腺癌复发风险检测在美国正式商业化上市，预计将于2026年6月8日起开放订购。此举紧随OPTIMA III期临床试验重磅数据的公布，该数据于上周在芝加哥举行的美国临床肿瘤学会年会上发布。 Prosigna检测是一款基于全转录组测序技术的基因组检测产品，专为早期激素受体阳性乳腺癌患者设计。该检测通过分析肿瘤内50个特定基因的活性，结
 
 ## 正文
 
-证券日报网4月13日讯，比亚迪在接受调研者提问时表示，公司储能业务在全球市场持续发力。
+Veracyte公司今日宣布，其Prosigna乳腺癌复发风险检测在美国正式商业化上市，预计将于2026年6月8日起开放订购。
 
-4月8日至9日，公司重磅亮相马来西亚国际太阳能暨储能展览会，展出BYD Haohan储能系统、GC Flux PCS储能变流器与GC Master EMS能量管理系统三大核心产品，三者高效协同，可完美适配东南亚复杂气候环境，为电网绿电化提供坚实支撑，有效平抑光伏波动、提升电网韧性。
+此举紧随OPTIMA III期临床试验重磅数据的公布，该数据于上周在芝加哥举行的美国临床肿瘤学会年会上发布。
 
-依托动力电池垂直整合的深厚优势，公司储能业务始终坚持核心部件全栈自研，系统安全性、集成度与可靠性稳居全球前列，截至2025年，比亚迪储能系统累计出货量超135gWh，成功落地650余个储能项目。
+Prosigna检测是一款基于全转录组测序技术的基因组检测产品，专为早期激素受体阳性乳腺癌患者设计。
 
-当前公司正聚焦欧洲、中东、拉美、东盟等重点区域，同步深耕电网侧大型项目与工商业、户用等新兴场景，以技术创新与本地化服务双轮驱动，持续巩固全球储能解决方案龙头地位，让绿色能源技术惠及全球更多地区与用户。
+该检测通过分析肿瘤内50个特定基因的活性，结合肿瘤内在亚型、增殖评分与临床病理因素，计算患者的复发风险评分，并预测10年内远处转移的概率。
+
+这些信息可帮助医生判断高风险患者是否需要接受化疗，或仅通过内分泌治疗即可获得良好预后。
+
+OPTIMA试验是一项由伦敦大学学院领导的前瞻性、随机对照III期研究，共纳入4，429名患者。
+
+结果显示，根据Prosigna检测结果，超过三分之二的患者可安全免除化疗，其5年无癌生存率为93.7%，与接受化疗患者的94.9%相比未显示劣势。
+
+该研究还首次证实，绝经前女性及有多发淋巴结转移的患者同样可依据检测结果安全降级治疗。
 
 ## 相关推荐
 
-- 2026-06-29 13:58 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 14:09 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 14:01 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 13:49 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 14:12 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 14:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 13:56 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 13:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 14:16 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 13:56 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 14:17 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 14:20 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 14:21 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 14:02 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 13:57 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 14:17 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 14:10 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 13:56 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 14:13 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 14:11 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:07 - [韩国政府将对世界杯出局追责](https://www.blog.kurohicncr.top/Article/details/81409386568.shtml)
-- 2026-06-29 14:02 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.kurohicncr.top/Article/details/704768.shtml)
-- 2026-06-29 14:08 - [沙丘](https://www.blog.kurohicncr.top/Article/details/5135129.shtml)
-- 2026-06-29 14:00 - [A股](http://www.blog.minike.top/Article/details/740686968347.shtml)
-- 2026-06-29 13:55 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/85191234035.shtml)
-- 2026-06-29 13:59 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/564183.shtml)
-- 2026-06-29 13:55 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/17667.shtml)
-- 2026-06-29 14:10 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/48227660527.shtml)
-- 2026-06-29 14:17 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/015749.shtml)
-- 2026-06-29 14:09 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/832903.shtml)
-- 2026-06-29 14:12 - [金牌调解](http://www.blog.minike.top/Article/details/167581417604.shtml)
-- 2026-06-29 14:12 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.minike.top/Article/details/542462027725.shtml)
-- 2026-06-29 14:10 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/9624876087.shtml)
-- 2026-06-29 13:59 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/19946.shtml)
-- 2026-06-29 14:12 - [央视起底直播诈骗连环套](http://www.share.kurohicncr.top/Article/details/2321251.shtml)
+- 2026-06-29 14:23 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/75427147955.shtml)
+- 2026-06-29 14:09 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/58696.shtml)
+- 2026-06-29 13:54 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/8816508478.shtml)
+- 2026-06-29 14:11 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/5680580.shtml)
+- 2026-06-29 13:59 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/26148023.shtml)
+- 2026-06-29 14:02 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/529345522.shtml)
+- 2026-06-29 14:15 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/63806.shtml)
+- 2026-06-29 14:09 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/3662617699.shtml)
+- 2026-06-29 14:20 - [第一炉香](https://www.blog.minike.top/Article/details/0693253.shtml)
+- 2026-06-29 14:01 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/802533.shtml)
+- 2026-06-29 14:15 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/595608010.shtml)
+- 2026-06-29 14:19 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/153950514.shtml)
+- 2026-06-29 13:58 - [金刚川](http://www.blog.minike.top/Article/details/976957916.shtml)
+- 2026-06-29 14:16 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/86528720260.shtml)
+- 2026-06-29 14:02 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/6791115097.shtml)

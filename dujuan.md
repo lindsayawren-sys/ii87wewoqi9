@@ -1,46 +1,55 @@
-# 4月14日人民币对美元中间价报6.8593 上调64个基点
+# 涉及多领域 市场监管总局启动401项国家计量技术规范制修订计划
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网4月14日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年4月14日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8593元，上调64个基点。
+记者今天了解到，市场监管总局启动401项国家计量技术规范制修订计划，其中新制定规范346项，占比86.3%，涉及通用计量管理、碳达峰碳中和、数字化转型、先进测量、生态环境、生命健康等多个领域。 在通用计量管理领域，启动《通用计量术语及定义》《空气动力通用计量术语及定义》《零碳工厂碳计量通用要求》等一批技术规范制修订计划，将进一步提升计量管理规范性，为建立健全相关领域量值传递溯源
 
 ## 正文
 
-中新网4月14日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年4月14日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8593元，上调64个基点。
+记者今天了解到，市场监管总局启动401项国家计量技术规范制修订计划，其中新制定规范346项，占比86.3%，涉及通用计量管理、碳达峰碳中和、数字化转型、先进测量、生态环境、生命健康等多个领域。
+
+在通用计量管理领域，启动《通用计量术语及定义》《空气动力通用计量术语及定义》《零碳工厂碳计量通用要求》等一批技术规范制修订计划，将进一步提升计量管理规范性，为建立健全相关领域量值传递溯源体系发挥引领作用。
+
+在碳达峰碳中和领域，启动《企业温室气体排放计量器具配备和管理规范 煤炭开采》等18项技术规范制定计划，聚焦碳排放在线监测、碳足迹评价等，覆盖石油化工、钢铁、航空、印染、建筑、交通等多个重点领域，为绿色可持续发展提供计量支撑。
+
+在计量数字化转型领域，启动《软件性能测试工具计量评价技术规范》《电子式水表软件可信度测评技术规范》等15项技术规范制修订计划，填补计量数智化转型技术依据不足的短板，推动在线计量、原位计量转型，强化计量器具的全过程实时监管，降低企业计量业务成本，提高工作效能和管理水平。
+
+(总台央视记者 李晶晶)
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 14:07 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 13:57 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 14:15 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-29 14:09 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:51 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 13:53 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 14:17 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 14:14 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 14:13 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 13:53 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 14:02 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 14:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 14:04 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 14:21 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 14:17 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 14:19 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 13:58 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 14:05 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 14:09 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 14:13 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 14:15 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 14:16 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 13:55 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 13:57 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 14:02 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 14:15 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 14:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 14:22 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/04714393078.shtml)
-- 2026-06-29 14:10 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/4513498351.shtml)
-- 2026-06-29 13:58 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/150255.shtml)
-- 2026-06-29 14:14 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.kurohicncr.top/Article/details/130027172387.shtml)
-- 2026-06-29 14:14 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.minike.top/Article/details/294880.shtml)
-- 2026-06-29 14:01 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/539316091109.shtml)
-- 2026-06-29 13:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/78864652894.shtml)
-- 2026-06-29 13:55 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/799893383299.shtml)
-- 2026-06-29 14:13 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/5925314795.shtml)
-- 2026-06-29 14:06 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/48113.shtml)
-- 2026-06-29 14:15 - [一生一世](http://www.blog.minike.top/Article/details/95900082.shtml)
-- 2026-06-29 14:05 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/41185.shtml)
-- 2026-06-29 13:58 - [沉睡花园](https://www.share.minike.top/Article/details/833083.shtml)
-- 2026-06-29 14:12 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/76080.shtml)
-- 2026-06-29 14:10 - [韩国记者：解码“合肥模式”](http://www.blog.kurohicncr.top/Article/details/76585.shtml)
+- 2026-06-29 13:59 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/9211063.shtml)
+- 2026-06-29 14:23 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/4123771173.shtml)
+- 2026-06-29 14:23 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/2493596.shtml)
+- 2026-06-29 13:57 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/7980720.shtml)
+- 2026-06-29 14:02 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/13183.shtml)
+- 2026-06-29 14:19 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/7591575705.shtml)
+- 2026-06-29 14:07 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/126338.shtml)
+- 2026-06-29 14:22 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/709022.shtml)
+- 2026-06-29 13:55 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/2530684761.shtml)
+- 2026-06-29 14:12 - [叶一茜森碟一起回北京了](https://www.share.kurohicncr.top/Article/details/492062444.shtml)
+- 2026-06-29 14:17 - [双高胎](http://www.blog.minike.top/Article/details/42849319235.shtml)
+- 2026-06-29 14:05 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/544102.shtml)
+- 2026-06-29 14:22 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/394229.shtml)
+- 2026-06-29 14:21 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/533724301544.shtml)
+- 2026-06-29 14:07 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/1388798.shtml)

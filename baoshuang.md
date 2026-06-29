@@ -1,52 +1,53 @@
-# 中俄界江黑龙江嘉荫段迎来“文开江”
+# 大美边疆看我家丨黑龙江鹤岗：北疆屏障 烟火日常
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 21:06 来源：中国新闻网 近日，黑龙江嘉荫，随着气温持续回升，中俄界江黑龙江嘉荫段开江，过程平稳，呈现典型“文开江”特征。 开江时，江面冰层逐渐消融，大小不一的冰排顺流而下。洁白冰体与江水相映，形成壮阔的春日景观。 据悉，黑龙江嘉荫段今年开江比历年提前10天左右。目前，江面仍有部分区域冰雪未完全消融，为保障开江期间沿岸安全稳定，相关部门已全
+发布时间：2026年06月01日 13:14 来源：中国新闻网 黑龙江省鹤岗市，是黑龙江流域文明发祥地之一，是黑龙江省东部中心城市之一，也是对俄开放的重要门户。东抱广袤的三江平原，西枕巍峨的小兴安岭，南衔秀美的松花江，北倚壮阔的黑龙江，处在“江臂岭怀”合拢的金三角。让我们用歌曲打开这座小城的美丽风景和烟火日常。(来源：中国民主建国会鹤岗市委员会） 责任编辑：【魏聪聪】
 
 ## 正文
 
-发布时间：2026年04月13日 21:06 来源：中国新闻网 近日，黑龙江嘉荫，随着气温持续回升，中俄界江黑龙江嘉荫段开江，过程平稳，呈现典型“文开江”特征。
+发布时间：2026年06月01日 13:14 来源：中国新闻网 黑龙江省鹤岗市，是黑龙江流域文明发祥地之一，是黑龙江省东部中心城市之一，也是对俄开放的重要门户。
 
-开江时，江面冰层逐渐消融，大小不一的冰排顺流而下。
+东抱广袤的三江平原，西枕巍峨的小兴安岭，南衔秀美的松花江，北倚壮阔的黑龙江，处在“江臂岭怀”合拢的金三角。
 
-洁白冰体与江水相映，形成壮阔的春日景观。
+让我们用歌曲打开这座小城的美丽风景和烟火日常。
 
-据悉，黑龙江嘉荫段今年开江比历年提前10天左右。
-
-目前，江面仍有部分区域冰雪未完全消融，为保障开江期间沿岸安全稳定，相关部门已全力做好江面巡查、安全防护、应急保障等各项工作。
-
-(制作 于琨 视频来源 嘉荫县委宣传部） 责任编辑：【罗攀】
+(来源：中国民主建国会鹤岗市委员会） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 14:07 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 14:02 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 13:57 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 13:53 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 13:51 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 14:13 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 14:08 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 14:06 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 14:07 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 14:02 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 14:22 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 14:09 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 14:05 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 14:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 14:04 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 14:07 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 14:00 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 14:08 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 14:16 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 13:58 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 14:13 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 14:03 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 14:22 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 13:59 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [斗破苍穹](http://www.blog.minike.top/Article/details/79565895.shtml)
-- 2026-06-29 13:55 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/86614077.shtml)
-- 2026-06-29 14:00 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/263601105.shtml)
-- 2026-06-29 14:05 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/39566883.shtml)
-- 2026-06-29 14:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/965385513.shtml)
-- 2026-06-29 14:12 - [起风了](http://www.share.minike.top/Article/details/2519799934.shtml)
-- 2026-06-29 14:08 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/6183717494.shtml)
-- 2026-06-29 13:55 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/5126467985.shtml)
-- 2026-06-29 13:52 - [伊朗球员致歉](https://www.share.kurohicncr.top/Article/details/2168963.shtml)
-- 2026-06-29 13:49 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/92372545469.shtml)
-- 2026-06-29 14:12 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/20238848.shtml)
-- 2026-06-29 13:51 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/571629.shtml)
-- 2026-06-29 14:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/086242680690.shtml)
-- 2026-06-29 13:58 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/41458615987.shtml)
-- 2026-06-29 14:04 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.kurohicncr.top/Article/details/3713903.shtml)
+- 2026-06-29 14:08 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/32720739.shtml)
+- 2026-06-29 14:15 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/1211766.shtml)
+- 2026-06-29 13:55 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/67056739062.shtml)
+- 2026-06-29 13:55 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/4771765.shtml)
+- 2026-06-29 13:58 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/5343138.shtml)
+- 2026-06-29 14:23 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/312313698191.shtml)
+- 2026-06-29 14:18 - [普京称考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/83436856.shtml)
+- 2026-06-29 14:18 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/83520773840.shtml)
+- 2026-06-29 14:02 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/98652.shtml)
+- 2026-06-29 14:20 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/137734.shtml)
+- 2026-06-29 14:11 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/10908624408.shtml)
+- 2026-06-29 14:09 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/104277676418.shtml)
+- 2026-06-29 13:56 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/846963898974.shtml)
+- 2026-06-29 14:23 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.kurohicncr.top/Article/details/56597400876.shtml)
+- 2026-06-29 14:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/17070818.shtml)

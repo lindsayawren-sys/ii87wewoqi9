@@ -1,56 +1,59 @@
-# 流水线式分工、层层诈骗后套牢 还原线上兼职诈骗链条→
+# “酱香险企”华贵人寿“将帅”齐调整
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-“足不出户日赚300”“学生宝妈优先”，这样的手机兼职广告总能戳中一些人想轻松赚钱的心理。然而，这份看似低门槛、高回报的工作，背后却藏着由层层套路编织而成的诈骗陷阱。近日，江苏南京栖霞区人民检察院公布了一起关于“线上兼职”的诈骗案，1万多人被骗，涉案金额达3700多万元。“线上兼职”诈骗案 逾万人被骗三千余万元 南京市某职业学校学生小夏在刷短视频时，被一则“外卖优惠券推广兼职”
+来源：北京商报 “酱香险企”再次迎来人事变动。6月2日，北京商报记者注意到，华贵人寿保险股份有限公司（以下简称“华贵人寿”）近期公告，罗振华因年龄原因辞去公司总经理职务。而在近期，华贵人寿董事长刘刚也因组织人事调动辞去董事及董事长职务，由副董事长杨丽代行董事长职责。 近一个月来，华贵人寿董事长、总经理已经先后离任。这家备受市场关注的“茅台系”险企正式进入了“将帅”齐换的人事换挡
 
 ## 正文
 
-“足不出户日赚300”“学生宝妈优先”，这样的手机兼职广告总能戳中一些人想轻松赚钱的心理。
+来源：北京商报 “酱香险企”再次迎来人事变动。
 
-然而，这份看似低门槛、高回报的工作，背后却藏着由层层套路编织而成的诈骗陷阱。
+6月2日，北京商报记者注意到，华贵人寿保险股份有限公司（以下简称“华贵人寿”）近期公告，罗振华因年龄原因辞去公司总经理职务。
 
-近日，江苏南京栖霞区人民检察院公布了一起关于“线上兼职”的诈骗案，1万多人被骗，涉案金额达3700多万元。
+而在近期，华贵人寿董事长刘刚也因组织人事调动辞去董事及董事长职务，由副董事长杨丽代行董事长职责。
 
-“线上兼职”诈骗案 逾万人被骗三千余万元 南京市某职业学校学生小夏在刷短视频时，被一则“外卖优惠券推广兼职”的视频广告吸引，这份兼职宣称可根据推广下单的数量获取佣金。
+近一个月来，华贵人寿董事长、总经理已经先后离任。
 
-小夏按照短视频评论区提供的信息，添加了一个备注为“壹学堂 西西”的客服微信。
+这家备受市场关注的“茅台系”险企正式进入了“将帅”齐换的人事换挡期。
 
-被害人 小夏：外卖、打车、电影票、加油票等优惠，让别人下单会有分红。
+“帅将”一个月内先后离任 华贵人寿近日公告，罗振华因年龄原因辞去公司总经理职务，经董事会决议，自2026年5月15日起不再聘任罗振华为公司总经理。
 
-客服说做这个能月入几千、上万，主要是有空闲时间就能做，感到很心动，也有想挣钱的想法。
+从罗振华的履历来看，其出生于1965年，今年已经61周岁。
 
-和小夏取得联系后，客服人员以“知识学习需要门槛费用”为由，让小夏交纳9.8元的培训报名费。
+罗振华于2020年10月起出任华贵人寿总经理，兼任该公司党委副书记。
 
 ## 相关推荐
 
-- 2026-06-29 14:15 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 13:57 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 14:04 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 14:00 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 14:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 13:56 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 14:08 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 13:49 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 14:13 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 14:10 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 14:04 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 14:02 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 14:01 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 14:11 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 14:20 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 14:09 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 13:56 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 14:10 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 14:20 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 13:55 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 14:04 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 13:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 14:15 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:15 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.minike.top/Article/details/20383977224.shtml)
-- 2026-06-29 14:02 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/709797374774.shtml)
-- 2026-06-29 14:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/069436199552.shtml)
-- 2026-06-29 14:05 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/7523801.shtml)
-- 2026-06-29 14:00 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/851648620.shtml)
-- 2026-06-29 13:48 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/53773.shtml)
-- 2026-06-29 14:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/7701758935.shtml)
-- 2026-06-29 14:12 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/268966.shtml)
-- 2026-06-29 13:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/677159998.shtml)
-- 2026-06-29 14:02 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/160581.shtml)
-- 2026-06-29 13:57 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/09667.shtml)
-- 2026-06-29 14:05 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/855247019.shtml)
-- 2026-06-29 14:08 - [千与千寻](http://www.share.minike.top/Article/details/75625136.shtml)
-- 2026-06-29 13:56 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/2166500315.shtml)
-- 2026-06-29 13:50 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/954170.shtml)
+- 2026-06-29 14:01 - [TOP 无畏契约](http://www.blog.kurohicncr.top/Article/details/504196101.shtml)
+- 2026-06-29 14:19 - [千与千寻](https://www.share.minike.top/Article/details/42906916503.shtml)
+- 2026-06-29 13:56 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/54143092645.shtml)
+- 2026-06-29 14:07 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/420582208747.shtml)
+- 2026-06-29 14:17 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/9565293.shtml)
+- 2026-06-29 14:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/00872314921.shtml)
+- 2026-06-29 14:05 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/08544093548.shtml)
+- 2026-06-29 14:16 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/74746.shtml)
+- 2026-06-29 14:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/17141.shtml)
+- 2026-06-29 14:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/05798.shtml)
+- 2026-06-29 14:18 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/54755420.shtml)
+- 2026-06-29 14:02 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/20672598.shtml)
+- 2026-06-29 14:10 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/7781115864.shtml)
+- 2026-06-29 14:17 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/09854.shtml)
+- 2026-06-29 14:16 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/24690052.shtml)

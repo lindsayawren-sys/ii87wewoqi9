@@ -1,60 +1,61 @@
-# 贝克休斯将以约14.5亿美元把Waygate业务出售给瑞典海克斯康
+# 2026年服贸会将打造“会展+”融合业态
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-海克斯康计划通过战略举措、生产优化、中国本土化布局及收入协同效应提升 Waygate 利润率 两家公司宣布，美国油田服务企业贝克休斯（Baker Hughes）将以约 14.5 亿美元现金，把旗下维格特技术（Waygate Technologies）业务出售给瑞典工业科技公司海克斯康（Hexagon）。 Waygate Technologies 总部位于德国，主营专业测试与检测
+中新网北京6月1日电 (记者 吕少威)2026年中国国际服务贸易交易会(下称“服贸会”)将于9月9日至9月13日在北京首钢园区举办。本届服贸会将打破传统会展场馆的物理边界，把工业遗存更新地标、产业创新成果展示和“吃住行游购娱”有机结合，推出多条会展小镇“游览线路”和服贸会专属促消费活动，打造“会展+”融合业态。 首钢集团有限公司党委常委、副总经理姜楠在6月1日举行的新闻发布会上
 
 ## 正文
 
-海克斯康计划通过战略举措、生产优化、中国本土化布局及收入协同效应提升 Waygate 利润率 两家公司宣布，美国油田服务企业贝克休斯（Baker Hughes）将以约 14.5 亿美元现金，把旗下维格特技术（Waygate Technologies）业务出售给瑞典工业科技公司海克斯康（Hexagon）。
+中新网北京6月1日电 (记者 吕少威)2026年中国国际服务贸易交易会(下称“服贸会”)将于9月9日至9月13日在北京首钢园区举办。
 
-Waygate Technologies 总部位于德国，主营专业测试与检测技术，用于评估各行业材料的结构完整性。
+本届服贸会将打破传统会展场馆的物理边界，把工业遗存更新地标、产业创新成果展示和“吃住行游购娱”有机结合，推出多条会展小镇“游览线路”和服贸会专属促消费活动，打造“会展+”融合业态。
 
-该业务 2025 财年实现营收约 6.3 亿美元，息税前利润率为 10%。
+首钢集团有限公司党委常委、副总经理姜楠在6月1日举行的新闻发布会上提到上述内容。
 
-贝克休斯首席执行官洛伦佐・西莫内利周一表示，公司正聚焦核心优势以实现更高回报，同时加快对高增长领域的投资。
+姜楠表示，今年是服贸会与首钢园携手同行的第六年。
 
-海克斯康称，Waygate 将与公司现有技术整合，带来市场增长与价值创造机遇。
+六年来，首钢园充分发挥资源禀赋优势，持续更新升级场馆硬件和服务保障，形成以工业风、花园式、聚落式为特色的现代会展新模式。
 
-公司计划通过战略举措、生产优化、中国本土化布局及收入协同效应，提升 Waygate 的利润率。
+今年，首钢园将以“会展小镇”的全新姿态呈现，聚焦北京西部最大的活力片区，建设“两园一河”水岸客厅，在生态共建、文旅互动、产业共赢等方面呈现新变化、新特点，为服贸会带来更多精彩。
 
-海克斯康拟通过现金及现有债务为本次交易提供资金，预计交易于 2026 年下半年完成。
+姜楠提到，首钢集团紧抓“两园一河”和服贸会永久会址建设重大机遇，高标准打造首钢园国际会展小镇，尊重“山水、工业”与“历史、未来”的交融对话，将中央轴线叠加广场街道形成“一环六轴”小镇空间结构。
 
-责任编辑：郭明煜
+在整体风貌上，首钢园将展现“山水入园、工业为景”的独特游览体验。
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 14:17 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 14:00 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 13:57 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 14:17 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 13:59 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 14:11 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 13:54 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 14:00 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 14:05 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 13:57 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 13:56 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 14:12 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 14:07 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 13:59 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 14:15 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 14:08 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 14:13 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 14:08 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 14:11 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 14:20 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 14:05 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 14:13 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 14:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 14:08 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 14:06 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 14:08 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 13:59 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 14:07 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:00 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/2940674411.shtml)
-- 2026-06-29 14:10 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/69902250.shtml)
-- 2026-06-29 14:04 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/953229232.shtml)
-- 2026-06-29 14:09 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/16194375.shtml)
-- 2026-06-29 14:04 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/151123074156.shtml)
-- 2026-06-29 13:51 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/385646187.shtml)
-- 2026-06-29 13:56 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.kurohicncr.top/Article/details/21133.shtml)
-- 2026-06-29 14:12 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/26442053.shtml)
-- 2026-06-29 14:02 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/297257.shtml)
-- 2026-06-29 14:16 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/352910371.shtml)
-- 2026-06-29 14:12 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/87680.shtml)
-- 2026-06-29 13:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/589413612093.shtml)
-- 2026-06-29 13:56 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/87715.shtml)
-- 2026-06-29 13:54 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/39124.shtml)
-- 2026-06-29 13:57 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/323119136722.shtml)
+- 2026-06-29 14:13 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/36294086.shtml)
+- 2026-06-29 14:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/0639782506.shtml)
+- 2026-06-29 14:07 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/73500.shtml)
+- 2026-06-29 13:59 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/964103.shtml)
+- 2026-06-29 14:18 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.minike.top/Article/details/30284720.shtml)
+- 2026-06-29 14:00 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/73263.shtml)
+- 2026-06-29 14:23 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.kurohicncr.top/Article/details/89019659271.shtml)
+- 2026-06-29 14:12 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/5355146.shtml)
+- 2026-06-29 14:12 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/70350208.shtml)
+- 2026-06-29 13:57 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/719209321592.shtml)
+- 2026-06-29 14:02 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/015314.shtml)
+- 2026-06-29 13:59 - [张真源解读相思锁](http://www.share.minike.top/Article/details/73767.shtml)
+- 2026-06-29 14:02 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/164666.shtml)
+- 2026-06-29 13:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/85030261697.shtml)
+- 2026-06-29 13:57 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/4764925185.shtml)

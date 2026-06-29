@@ -1,57 +1,57 @@
-# “李静训和她的时代”展览再现隋代绚丽图景
+# 韩国央行称受中东局势影响，通胀率短期内将维持在3%以上
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网北京4月13日电(记者 应妮)正在中国国家博物馆展出的“李静训和她的时代”是当下最受关注的展览之一。 展览主角身份显赫而命运多舛：李静训曾祖父是北周骠骑大将军李贤，外祖父为北周宣帝宇文赟，外祖母杨丽华既是北周皇后，也是隋文帝杨坚的嫡长女。外祖母视她为掌上明珠，让她在万千宠爱中度过绚丽而短暂的童年……这是个仅活到八岁的小女孩。 展览展品精良，中国国家博物馆和10余家考古文博
+韩国央行周二表示，由于中东局势持续紧张，高油价的影响蔓延至其他经济领域，预计韩国通胀率短期内将维持在3%以上。 韩国央行研究部主任李智浩在一次评估通胀趋势的会议上表示：“由于石油产品价格上涨速度依然居高不下，预计6月份的通胀率将与5月份的水平相近。” “5月份消费者价格涨幅显著高于4月份，原因是石油产品价格上涨速度加快，服务价格上涨，尤其是与旅行相关的服务，例如国内和国际机票。
 
 ## 正文
 
-中新网北京4月13日电(记者 应妮)正在中国国家博物馆展出的“李静训和她的时代”是当下最受关注的展览之一。
+韩国央行周二表示，由于中东局势持续紧张，高油价的影响蔓延至其他经济领域，预计韩国通胀率短期内将维持在3%以上。
 
-展览主角身份显赫而命运多舛：李静训曾祖父是北周骠骑大将军李贤，外祖父为北周宣帝宇文赟，外祖母杨丽华既是北周皇后，也是隋文帝杨坚的嫡长女。
+韩国央行研究部主任李智浩在一次评估通胀趋势的会议上表示：“由于石油产品价格上涨速度依然居高不下，预计6月份的通胀率将与5月份的水平相近。
 
-外祖母视她为掌上明珠，让她在万千宠爱中度过绚丽而短暂的童年……这是个仅活到八岁的小女孩。
+” “5月份消费者价格涨幅显著高于4月份，原因是石油产品价格上涨速度加快，服务价格上涨，尤其是与旅行相关的服务，例如国内和国际机票。
 
-展览展品精良，中国国家博物馆和10余家考古文博单位的390余件(套)的精品文物，重现隋代政治制度、经济交流、社会文化、民族融合等多方面的绚丽图景。
+” 当天早些时候公布的政府数据显示，韩国5月份消费者价格同比上涨3.1%，创下26个月以来的最高纪录。
 
-尤为值得一提的是，中国目前公布的195件禁止出国(境)展览文物，此次展览中就有三件：天津博物馆的白釉龙柄传瓶、李静训墓出土的绿玻璃盖罐和绿玻璃扁瓶。
+4月份的通胀率为2.6%。
 
-李静训的另一个名字更为知名——李小孩。
+5月份石油产品价格飙升24.2%，占整体消费者价格涨幅的0.92个百分点。
 
-“小孩”是她的字，墓中出土的各色瓷器、玻璃器、金银器等不仅华贵无比，也小巧精致，颇有玩具之意。
+这是自2022年俄乌冲突初期油价飙升35.2%以来的最大涨幅。
 
-在13日的媒体采访中，该展策展人、中国国家博物馆副研究馆员赵玉亮表示，殊为难得的是，李静训墓没有被盗扰，出土文物完整，因而可作为隋代的纪年标准器。
+汽油价格上涨23.1%，柴油价格更是猛增33.3%。
 
 ## 相关推荐
 
-- 2026-06-29 13:54 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 13:52 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 13:56 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 13:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 13:48 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 14:02 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 13:58 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 13:57 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 14:02 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 14:06 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 14:03 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 14:14 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 14:12 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 14:10 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 14:01 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 14:13 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 14:04 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 13:57 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 13:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 14:13 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 14:12 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 13:56 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/27136.shtml)
-- 2026-06-29 13:59 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/652302915.shtml)
-- 2026-06-29 14:06 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.kurohicncr.top/Article/details/34642.shtml)
-- 2026-06-29 13:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/23886.shtml)
-- 2026-06-29 14:03 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/641609645016.shtml)
-- 2026-06-29 13:50 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/182454.shtml)
-- 2026-06-29 13:57 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/71073.shtml)
-- 2026-06-29 14:13 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/963793379.shtml)
-- 2026-06-29 13:56 - [比亚迪为什么卖得越多市值越低](https://www.share.kurohicncr.top/Article/details/20778416.shtml)
-- 2026-06-29 14:15 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/048648859.shtml)
-- 2026-06-29 14:07 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/103987020145.shtml)
-- 2026-06-29 13:52 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/120258.shtml)
-- 2026-06-29 14:00 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/104164961667.shtml)
-- 2026-06-29 14:06 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/615645.shtml)
-- 2026-06-29 14:14 - [强⁶](https://www.blog.kurohicncr.top/Article/details/399565047141.shtml)
+- 2026-06-29 14:09 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/56852497273.shtml)
+- 2026-06-29 14:20 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/31533941951.shtml)
+- 2026-06-29 14:16 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/14170482.shtml)
+- 2026-06-29 14:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/46999488.shtml)
+- 2026-06-29 14:13 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/528263334591.shtml)
+- 2026-06-29 14:18 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/4097276.shtml)
+- 2026-06-29 14:13 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/939204264518.shtml)
+- 2026-06-29 14:08 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/8057764.shtml)
+- 2026-06-29 14:18 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/199388787.shtml)
+- 2026-06-29 14:02 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/531947.shtml)
+- 2026-06-29 14:17 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/95043276144.shtml)
+- 2026-06-29 14:16 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/70159398.shtml)
+- 2026-06-29 14:15 - [绘画区你赢了](http://www.share.minike.top/Article/details/73193531899.shtml)
+- 2026-06-29 14:12 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/04971075784.shtml)
+- 2026-06-29 14:09 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/594805793907.shtml)

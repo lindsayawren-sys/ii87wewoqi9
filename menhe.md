@@ -1,57 +1,59 @@
-# BP悄然挺进新能源热点区域 纳米比亚协议移交关键资产控制权
+# 连涨3日！百亿银行ETF华宝（512800）再涨1%，单日超2亿资金加仓
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-英国石油公司（BP）正在悄然但意义深远地进入纳米比亚海上能源领域，并且在此过程中掌握了控制权。 该公司正从Eco Atlantic手中收购一组勘探许可证60%的股权，同时获得这些区块的作业权。这些区块包括Cooper、Guy和Tamar区域，均属于一个因成为潜在新油气热点而近期备受关注的地区。 对Eco Atlantic而言，这看起来更像是一个战略性步骤而非退步。该公司保留了2
+6月2日，银行板块延续强势，沪农商行涨超3%，中信银行涨超2%，招商银行、中国银行、建设银行等涨幅居前。百亿顶流银行ETF华宝（512800）场内价格涨逾1%。从日线走势看，自5月29日盘中下探阶段新低后，掉头向上连涨3日，接连收复5日、10日、20日线，逼近半年线，行情拐点或已出现。 近期板块轮动加速，行情波动加大，部分资金或存在高低切换需求。顶流银行ETF华宝（512800
 
 ## 正文
 
-英国石油公司（BP）正在悄然但意义深远地进入纳米比亚海上能源领域，并且在此过程中掌握了控制权。
+6月2日，银行板块延续强势，沪农商行涨超3%，中信银行涨超2%，招商银行、中国银行、建设银行等涨幅居前。
 
-该公司正从Eco Atlantic手中收购一组勘探许可证60%的股权，同时获得这些区块的作业权。
+百亿顶流银行ETF华宝（512800）场内价格涨逾1%。
 
-这些区块包括Cooper、Guy和Tamar区域，均属于一个因成为潜在新油气热点而近期备受关注的地区。
+从日线走势看，自5月29日盘中下探阶段新低后，掉头向上连涨3日，接连收复5日、10日、20日线，逼近半年线，行情拐点或已出现。
 
-对Eco Atlantic而言，这看起来更像是一个战略性步骤而非退步。
+近期板块轮动加速，行情波动加大，部分资金或存在高低切换需求。
 
-该公司保留了25%的股权，因此如果项目进展顺利，它仍能受益，但它正将繁重的工作交给一家规模更大、资源更丰富、经验更丰富的公司。
+顶流银行ETF华宝（512800）资金面显著活跃，昨日单日大举吸金2.13亿元，近10日资金累计净流入逾3亿元。
 
-从BP的角度来看，这相当直接。
+今年以来行情极致集中于科技成长等弹性板块，价值方向明显跑输。
 
-它进入了一个有前景的区域，并掌握了项目推进的控制权，这在勘探阶段至关重要。
+截至5月末，中证银行指数年内累计下跌6.87%，落后于大盘，42家上市银行全线“破净”，性价比凸显，高股息特性亦有望持续吸引长期资金配置。
 
-责任编辑：张俊 SF065
+银河证券指出，银行基本面拐点基本确立，2026年业绩进入改善通道。
 
 ## 相关推荐
 
-- 2026-06-29 13:54 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 13:51 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 14:06 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 13:57 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 13:52 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 13:53 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 14:11 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 13:58 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 14:05 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 14:10 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 13:52 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 14:05 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 14:08 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 14:14 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 14:07 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 14:01 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 14:17 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 14:07 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 14:13 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 13:58 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 14:06 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 14:17 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 14:23 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 14:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [汪东城回应45岁婚约](http://www.share.minike.top/Article/details/954318435.shtml)
-- 2026-06-29 13:53 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/4323742862.shtml)
-- 2026-06-29 14:04 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/4053588.shtml)
-- 2026-06-29 13:51 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/13485.shtml)
-- 2026-06-29 14:11 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/6756595543.shtml)
-- 2026-06-29 13:51 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.kurohicncr.top/Article/details/4304112898.shtml)
-- 2026-06-29 13:52 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/46987.shtml)
-- 2026-06-29 14:14 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/1189298713.shtml)
-- 2026-06-29 13:59 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/4369494508.shtml)
-- 2026-06-29 13:51 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/381399039.shtml)
-- 2026-06-29 14:04 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/44099693722.shtml)
-- 2026-06-29 13:48 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.minike.top/Article/details/260702.shtml)
-- 2026-06-29 13:58 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/99835523333.shtml)
-- 2026-06-29 13:48 - [F1奥地利大奖赛正赛集锦](http://www.blog.kurohicncr.top/Article/details/74748.shtml)
-- 2026-06-29 13:55 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/982690.shtml)
+- 2026-06-29 14:15 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/72530.shtml)
+- 2026-06-29 14:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/5449677.shtml)
+- 2026-06-29 14:08 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/628196406.shtml)
+- 2026-06-29 14:22 - [欧洲超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/235518.shtml)
+- 2026-06-29 14:00 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/08233090877.shtml)
+- 2026-06-29 14:00 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/737488282.shtml)
+- 2026-06-29 13:56 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/62981.shtml)
+- 2026-06-29 14:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/290229.shtml)
+- 2026-06-29 14:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/977817171811.shtml)
+- 2026-06-29 14:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/66727859.shtml)
+- 2026-06-29 14:18 - [海清白玉兰奖运](http://www.share.minike.top/Article/details/18641626332.shtml)
+- 2026-06-29 14:19 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/08496163.shtml)
+- 2026-06-29 14:08 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/48573.shtml)
+- 2026-06-29 14:05 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/169697.shtml)
+- 2026-06-29 14:12 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/92497.shtml)

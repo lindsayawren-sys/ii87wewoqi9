@@ -1,54 +1,57 @@
-# 美联储官员古尔斯比：战争对美国经济的影响取决于冲突持续时长
+# 前任美联储主席鲍威尔：美联储正遭遇一场 “压力测试”
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-芝加哥联邦储备银行行长奥斯坦·古尔斯比表示，伊朗冲突对美国经济的影响取决于战争持续的时间。 “如果油价连续数月维持在每桶90美元、100美元以上，那么在美国我们就必须把这一点纳入我们的计算中，”古尔斯比周一在接受福克斯新闻采访时表示。 古尔斯比表示，如果能源价格长期居高不下，可能会刺激能源生产领域的投资，但也可能对消费者信心造成影响。 “如果消费者信心和情绪开始恶化，不要感到惊
+鲍威尔表示，美国联邦储备委员会正处于一场“压力测试”的煎熬之中，这场测试威胁着全球最大经济体的实力与稳定。他称特朗普试图解雇央行官员的行为，正在破坏法治原则。 鲍威尔上周结束八年主席任期、重回美联储理事一职。周日在波士顿，他发表讲话称，美联储“与美国许多其他机构一样……正在经历一场压力测试”。 “如果任何一届政府能找到借口，因政策分歧罢免美联储官员，那么未来的政府也会照做。”鲍
 
 ## 正文
 
-芝加哥联邦储备银行行长奥斯坦·古尔斯比表示，伊朗冲突对美国经济的影响取决于战争持续的时间。
+鲍威尔表示，美国联邦储备委员会正处于一场“压力测试”的煎熬之中，这场测试威胁着全球最大经济体的实力与稳定。
 
-“如果油价连续数月维持在每桶90美元、100美元以上，那么在美国我们就必须把这一点纳入我们的计算中，”古尔斯比周一在接受福克斯新闻采访时表示。
+他称特朗普试图解雇央行官员的行为，正在破坏法治原则。
 
-古尔斯比表示，如果能源价格长期居高不下，可能会刺激能源生产领域的投资，但也可能对消费者信心造成影响。
+鲍威尔上周结束八年主席任期、重回美联储理事一职。
 
-“如果消费者信心和情绪开始恶化，不要感到惊讶，”古尔斯比说。
+周日在波士顿，他发表讲话称，美联储“与美国许多其他机构一样……正在经历一场压力测试”。
 
-他称消费者一直是美国经济中最强大的力量。
+“如果任何一届政府能找到借口，因政策分歧罢免美联储官员，那么未来的政府也会照做。
 
-古尔斯比表示，能源价格上涨最终可能会外溢，导致机票和食品价格上涨。
+”鲍威尔在领取本年度约翰・肯尼迪“勇气楷模奖”时补充道。
 
-责任编辑：丁文武
+“公众将不再相信，央行的决策只会基于全体美国人的最大利益。
+
+美联储的公信力将荡然无存。
 
 ## 相关推荐
 
-- 2026-06-29 14:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 14:11 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 14:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 14:13 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 14:08 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 13:59 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 13:56 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 14:08 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 13:57 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 13:50 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 14:07 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 14:20 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 14:12 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 13:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 14:02 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 14:09 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 14:23 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 14:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 14:17 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 14:01 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 13:58 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:50 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/4037791336.shtml)
-- 2026-06-29 13:57 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/831340.shtml)
-- 2026-06-29 14:16 - [退休化学教授帮医药研发人员制毒](http://www.blog.kurohicncr.top/Article/details/88770.shtml)
-- 2026-06-29 13:51 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/443494.shtml)
-- 2026-06-29 14:01 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/3527065924.shtml)
-- 2026-06-29 13:49 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/763719.shtml)
-- 2026-06-29 13:54 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/252741201116.shtml)
-- 2026-06-29 14:17 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/0294624.shtml)
-- 2026-06-29 14:10 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/60821312.shtml)
-- 2026-06-29 13:52 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/442050975373.shtml)
-- 2026-06-29 13:59 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/00376200278.shtml)
-- 2026-06-29 13:48 - [王楚钦3比0周启豪](https://www.share.kurohicncr.top/Article/details/850391.shtml)
-- 2026-06-29 14:06 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/75183.shtml)
-- 2026-06-29 14:02 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/85898687910.shtml)
-- 2026-06-29 14:03 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.kurohicncr.top/Article/details/0059191.shtml)
+- 2026-06-29 13:59 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.minike.top/Article/details/85648.shtml)
+- 2026-06-29 13:56 - [女心理师](http://www.blog.minike.top/Article/details/0576873.shtml)
+- 2026-06-29 14:23 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/8443835.shtml)
+- 2026-06-29 14:17 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/93128718581.shtml)
+- 2026-06-29 13:56 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/1650631540.shtml)
+- 2026-06-29 14:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/4096902579.shtml)
+- 2026-06-29 14:02 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/89939908.shtml)
+- 2026-06-29 14:03 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/785812106.shtml)
+- 2026-06-29 14:03 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.minike.top/Article/details/1721944.shtml)
+- 2026-06-29 13:58 - [金刚川](https://www.blog.minike.top/Article/details/0639500450.shtml)
+- 2026-06-29 14:06 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/07405616905.shtml)
+- 2026-06-29 14:07 - [吴昕要助理买的药6年前已停产](https://www.share.minike.top/Article/details/47060967.shtml)
+- 2026-06-29 14:07 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/755128348.shtml)
+- 2026-06-29 14:17 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/25509051.shtml)
+- 2026-06-29 14:05 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/60890623260.shtml)

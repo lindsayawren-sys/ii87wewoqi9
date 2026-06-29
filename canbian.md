@@ -1,57 +1,58 @@
-# 光大期货：4月13日能源化工日报
+# ATFX汇市前瞻:非农来袭叠加褐皮书 黄金美元迎大波动
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-原油：地缘左右市场情绪 油价或仍乐观 （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 1、截至周五，油价周度整体重心下移，其中WTI 5月合约收盘至96.57美元/桶，周度跌幅14.66%。布伦特6月合约收盘至95.20美元/桶，周度跌幅13.71%。SC2605以636.6元/桶收盘，周度跌幅11.73%。油价呈现美以伊冲突以来最大单周跌幅。周中受
+专题：ATFX外汇专栏投稿 6月1日，5月非农就业报告与ADP数据 ▲ATFX图 本周五20点30分，美国公布五月非农就业报告，其中新增非农就业人口数据最受关注。市场预期值8.5万人，低于前值11.5万人，预期偏悲观。目前驱动美国就业市场变化的核心因素是AI岗位替代和特朗普的移民政策，这两项因素在五月份都没有出现明显变化。我们预期，数据公布值不会偏离11.5万人的前值过大。 本
 
 ## 正文
 
-原油：地缘左右市场情绪 油价或仍乐观 （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 1、截至周五，油价周度整体重心下移，其中WTI 5月合约收盘至96.57美元/桶，周度跌幅14.66%。
+专题：ATFX外汇专栏投稿 6月1日，5月非农就业报告与ADP数据 ▲ATFX图 本周五20点30分，美国公布五月非农就业报告，其中新增非农就业人口数据最受关注。
 
-布伦特6月合约收盘至95.20美元/桶，周度跌幅13.71%。
+市场预期值8.5万人，低于前值11.5万人，预期偏悲观。
 
-SC2605以636.6元/桶收盘，周度跌幅11.73%。
+目前驱动美国就业市场变化的核心因素是AI岗位替代和特朗普的移民政策，这两项因素在五月份都没有出现明显变化。
 
-油价呈现美以伊冲突以来最大单周跌幅。
+我们预期，数据公布值不会偏离11.5万人的前值过大。
 
-周中受到美伊启动为期两周的停火协议，并促进和谈。
+本周三20点15分，美国将公布小非农ADP数据。
 
-2、地缘方面来看，自2月底战争爆发以来，原油市场剧烈震荡，当前价格仍较冲突前高出逾30%。
+市场预期值11万人，略高于前值10.9万人。
 
-市场关注焦点正转向本周宣布的停火能否持续，以及是否能够达成持久和平，从而恢复经霍尔木兹海峡的能源运输。
+小非农预期变化不大，意味着周五的非农出现超预期数据的概率较低，黄金和美元的波动可能相对温和。
 
-目前，通过这一关键水道的运输仍主要限于与德黑兰有关联的船只。
+美联储褐皮书 ▲ATFX图 本周四凌晨两点，美联储将公布年内第四份褐皮书。
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 13:53 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 13:57 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 14:06 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 14:11 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 13:55 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 13:58 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 14:06 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 14:13 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 14:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 14:00 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 14:23 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 14:03 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 14:15 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 14:15 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 14:11 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 13:57 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 14:11 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 14:11 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 14:23 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 14:10 - [欧洲超1300例超额死亡与高温有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 14:18 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 14:02 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:50 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/5111375.shtml)
-- 2026-06-29 14:01 - [AG 钟意](https://www.blog.minike.top/Article/details/574552451759.shtml)
-- 2026-06-29 14:11 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/30214812913.shtml)
-- 2026-06-29 13:51 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/8475900523.shtml)
-- 2026-06-29 14:01 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/84020539295.shtml)
-- 2026-06-29 13:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/126090023227.shtml)
-- 2026-06-29 14:14 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/503615650.shtml)
-- 2026-06-29 13:54 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/300593289702.shtml)
-- 2026-06-29 14:04 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/861810901.shtml)
-- 2026-06-29 13:59 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.kurohicncr.top/Article/details/31418952.shtml)
-- 2026-06-29 13:51 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/688230649898.shtml)
-- 2026-06-29 14:15 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/659113.shtml)
-- 2026-06-29 14:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/825352687695.shtml)
-- 2026-06-29 13:52 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/29778740.shtml)
-- 2026-06-29 14:11 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/679324040.shtml)
+- 2026-06-29 13:58 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/65297268471.shtml)
+- 2026-06-29 13:57 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/245506578630.shtml)
+- 2026-06-29 14:18 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/898904971.shtml)
+- 2026-06-29 14:14 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/76160618.shtml)
+- 2026-06-29 14:16 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/956698760065.shtml)
+- 2026-06-29 14:06 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/52401.shtml)
+- 2026-06-29 13:58 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/817145507.shtml)
+- 2026-06-29 14:16 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/6470859412.shtml)
+- 2026-06-29 13:59 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/58182.shtml)
+- 2026-06-29 14:23 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/08618367.shtml)
+- 2026-06-29 14:20 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/8493135.shtml)
+- 2026-06-29 14:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/66795547889.shtml)
+- 2026-06-29 13:56 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/500859038.shtml)
+- 2026-06-29 14:17 - [欧洲超1300例超额死亡与高温有关](http://www.blog.kurohicncr.top/Article/details/021820.shtml)
+- 2026-06-29 14:13 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/04051.shtml)

@@ -1,44 +1,58 @@
-# 珂玛科技可转债发行安排
+# 陈存友入主一年后，超达装备把机器人推到台前：南通汽车模具公司寻找第二增长曲线 | 长三角资本局
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中国上市公司网讯4月14日，苏州珂玛材料科技股份有限公司(证券代码：301611，证券简称：珂玛科技)披露了向不特定对象发行可转换公司债券发行公告，公司具体的发行安排如下表所示：
+文|新浪财经上海站 十里 5月29日，一场在上海举行的投资者交流会，把超达装备这家南通汽车模具公司重新推到聚光灯下。 交流会上，超达装备董事长陈存友将智能机器人业务放在了更靠前的位置。他表示，公司争取将智能机器人打造为“第二增长曲线”。这句话背后，是一家传统汽车模具企业在新实控人入主后，对资本市场讲出的新故事：原本服务于汽车内外饰模具、检具和自动化工装的制造公司，开始试图借助机
 
 ## 正文
 
-中国上市公司网讯4月14日，苏州珂玛材料科技股份有限公司(证券代码：301611，证券简称：珂玛科技)披露了向不特定对象发行可转换公司债券发行公告，公司具体的发行安排如下表所示：
+文|新浪财经上海站 十里 5月29日，一场在上海举行的投资者交流会，把超达装备这家南通汽车模具公司重新推到聚光灯下。
+
+交流会上，超达装备董事长陈存友将智能机器人业务放在了更靠前的位置。
+
+他表示，公司争取将智能机器人打造为“第二增长曲线”。
+
+这句话背后，是一家传统汽车模具企业在新实控人入主后，对资本市场讲出的新故事：原本服务于汽车内外饰模具、检具和自动化工装的制造公司，开始试图借助机器人业务完成估值重估。
+
+超达装备的主业并不复杂。
+
+公司长期深耕汽车内外饰模具、汽车检具、自动化工装设备等领域，客户主要来自汽车产业链。
+
+2025年，公司实现营业收入7.92亿元，同比增长9.94%；归母净利润1.32亿元，同比增长37.14%；扣非净利润1.28亿元，同比增长36.68%。
+
+从年报看，传统业务仍能贡献利润，但进入2026年一季度后，公司出现了收入增长、利润下滑的情况。
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 13:50 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 14:00 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 14:12 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 13:57 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 13:54 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 13:48 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 14:10 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 13:49 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 14:14 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 14:10 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 13:59 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 14:08 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 14:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 13:59 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 14:22 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 13:59 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 14:15 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 14:06 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 14:20 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 14:05 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 14:00 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 14:22 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 13:59 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [比亚迪为什么卖得越多市值越低](https://www.blog.kurohicncr.top/Article/details/1411453.shtml)
-- 2026-06-29 14:16 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/672896.shtml)
-- 2026-06-29 14:13 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/4035900.shtml)
-- 2026-06-29 13:51 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/3400552.shtml)
-- 2026-06-29 14:02 - [日媒称韩国史诗级上上签终成噩梦](http://www.blog.minike.top/Article/details/673616.shtml)
-- 2026-06-29 14:14 - [和阿根廷球员家属一起看球](http://www.share.minike.top/Article/details/975142611100.shtml)
-- 2026-06-29 14:04 - [记者暗访贵州和云南多个养老机构](https://www.blog.minike.top/Article/details/53061222541.shtml)
-- 2026-06-29 13:54 - [沙丘](http://www.share.kurohicncr.top/Article/details/78826.shtml)
-- 2026-06-29 14:01 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/025576261439.shtml)
-- 2026-06-29 14:14 - [异世界一点都不好玩！](https://www.share.kurohicncr.top/Article/details/1704508588.shtml)
-- 2026-06-29 13:48 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/776393364.shtml)
-- 2026-06-29 14:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/8721743.shtml)
-- 2026-06-29 14:14 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/44239528.shtml)
-- 2026-06-29 13:48 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/523358535557.shtml)
-- 2026-06-29 13:50 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/9300332755.shtml)
+- 2026-06-29 14:13 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/41786.shtml)
+- 2026-06-29 14:18 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/896962426.shtml)
+- 2026-06-29 14:11 - [A股限售股解禁一览](https://www.share.minike.top/Article/details/1821728.shtml)
+- 2026-06-29 14:06 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/094968271550.shtml)
+- 2026-06-29 14:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/546716966.shtml)
+- 2026-06-29 13:54 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/2928523474.shtml)
+- 2026-06-29 14:05 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/304393537.shtml)
+- 2026-06-29 14:09 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/34896896.shtml)
+- 2026-06-29 14:21 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/3568912.shtml)
+- 2026-06-29 14:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/69549.shtml)
+- 2026-06-29 13:56 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/4059240209.shtml)
+- 2026-06-29 14:23 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/75000848.shtml)
+- 2026-06-29 13:59 - [亚洲成世界杯最大失意者联盟](http://www.blog.minike.top/Article/details/309167100231.shtml)
+- 2026-06-29 14:11 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/27574.shtml)
+- 2026-06-29 14:14 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/16628479.shtml)

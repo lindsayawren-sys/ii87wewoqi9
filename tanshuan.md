@@ -1,48 +1,51 @@
-# 央行：2026年3月末社会融资规模存量为456.46万亿元，同比增长7.9%
+# 祈福生活服务购买约3.02万安士已分配银条
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-4月13日，中国人民银行发布公告，初步统计，2026年3月末社会融资规模存量为456.46万亿元，同比增长7.9%。 其中，对实体经济发放的人民币贷款余额277.3万亿元，同比增长5.8%；对实体经济发放的外币贷款折合人民币余额1.12万亿元，同比下降5.3%；委托贷款余额11.25万亿元，同比增长0.2%；信托贷款余额4.68万亿元，同比增长7.5%；未贴现的银行承兑汇票余额
+祈福生活服务（03686）发布公告，于2026年6月1日，本集团通过动用其内部资源透过该银行下达指令购买约3.02万安士已分配银条（第五次白银投资，连同第一次白银投资、第二次白银投资、第三次白银投资及第四次白银投资统称白银投资），对价约为1810万港元（即人民币1580万元），而有关指令已于同日进行配对。第五次白银投资预期将于2026年6月3日完成，而上述对价预期将由本集团于结
 
 ## 正文
 
-4月13日，中国人民银行发布公告，初步统计，2026年3月末社会融资规模存量为456.46万亿元，同比增长7.9%。
+祈福生活服务（03686）发布公告，于2026年6月1日，本集团通过动用其内部资源透过该银行下达指令购买约3.02万安士已分配银条（第五次白银投资，连同第一次白银投资、第二次白银投资、第三次白银投资及第四次白银投资统称白银投资），对价约为1810万港元（即人民币1580万元），而有关指令已于同日进行配对。
 
-其中，对实体经济发放的人民币贷款余额277.3万亿元，同比增长5.8%；对实体经济发放的外币贷款折合人民币余额1.12万亿元，同比下降5.3%；委托贷款余额11.25万亿元，同比增长0.2%；信托贷款余额4.68万亿元，同比增长7.5%；未贴现的银行承兑汇票余额2.73万亿元，同比增长2.3%；企业债券余额35.16万亿元，同比增长7.9%；政府债券余额98.47万亿元，同比增长15.9%；非金融企业境内股票余额12.31万亿元，同比增长4.2%。
+第五次白银投资预期将于2026年6月3日完成，而上述对价预期将由本集团于结算时以现金支付。
 
-责任编辑：朱赫楠
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:55 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 14:15 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 13:59 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 13:54 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 14:10 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 14:16 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 14:16 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 14:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 14:14 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 14:10 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 14:01 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 14:01 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 14:11 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 14:05 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 14:03 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 13:55 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 14:09 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 14:03 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 14:05 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 14:14 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 14:10 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 14:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 13:56 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 14:12 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 13:58 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 14:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 14:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/41533.shtml)
-- 2026-06-29 13:50 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/00625864748.shtml)
-- 2026-06-29 14:06 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/744432849.shtml)
-- 2026-06-29 13:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/897714.shtml)
-- 2026-06-29 14:03 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/97056828422.shtml)
-- 2026-06-29 14:17 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/8150383005.shtml)
-- 2026-06-29 13:49 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/0113106805.shtml)
-- 2026-06-29 13:55 - [张真源解读相思锁](https://www.share.minike.top/Article/details/530648752.shtml)
-- 2026-06-29 13:50 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/9426453.shtml)
-- 2026-06-29 14:00 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/152109811914.shtml)
-- 2026-06-29 14:16 - [记者暗访贵州和云南多个养老机构](http://www.share.kurohicncr.top/Article/details/89136.shtml)
-- 2026-06-29 14:09 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/9622517856.shtml)
-- 2026-06-29 13:59 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/31035.shtml)
-- 2026-06-29 14:17 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/32671.shtml)
-- 2026-06-29 13:50 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/8577517283.shtml)
+- 2026-06-29 14:09 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/45974905.shtml)
+- 2026-06-29 14:12 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/1758730559.shtml)
+- 2026-06-29 13:56 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/2289882.shtml)
+- 2026-06-29 14:14 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/802807758341.shtml)
+- 2026-06-29 14:05 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.minike.top/Article/details/44227.shtml)
+- 2026-06-29 13:58 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.kurohicncr.top/Article/details/597092069832.shtml)
+- 2026-06-29 14:01 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/915146.shtml)
+- 2026-06-29 14:05 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/3304578601.shtml)
+- 2026-06-29 14:00 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/29967.shtml)
+- 2026-06-29 14:11 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/454243498.shtml)
+- 2026-06-29 13:55 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/21561453533.shtml)
+- 2026-06-29 14:00 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/1865200.shtml)
+- 2026-06-29 13:59 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/00597795.shtml)
+- 2026-06-29 14:23 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/3521497416.shtml)
+- 2026-06-29 13:58 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/562928.shtml)

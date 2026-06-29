@@ -1,61 +1,56 @@
-# 调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”
+# 中国美院毕业季启幕 近三千件作品铺展“无墙的学院”
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-澳大利亚公司监管机构的一项最新研究显示，临近退休的澳大利亚人中，近一半担心退休后钱会用完，并且在停止工作后对管理个人财务缺乏信心。 约有250万澳大利亚人将在未来十年退休，澳大利亚证券和投资委员会的研究发现，在接受调查的50至66岁人群中，48%的人表示担心自己会“活到储蓄花光”。只有三分之一的受访者称，他们有信心在退休后保持经济上的宽裕舒适。 尽管澳大利亚规模达4.5万亿澳元
+中新网杭州6月1日电(曹丹)6月1日晚，随着一场融合影像、音乐与时装的开幕展演在浙江杭州上演，壮游·2026中国美术学院毕业季暨国际青年艺术对话正式启幕。本届毕业季设立九大展区，集中呈现2881位毕业生的近3000件毕业创作，以开放的姿态将艺术节日转化为一场面向全社会的文化盛会。 自2009年率先面向公众举办毕业展示周以来，中国美术学院不断打破学院围墙。2019年起，毕业展走向
 
 ## 正文
 
-澳大利亚公司监管机构的一项最新研究显示，临近退休的澳大利亚人中，近一半担心退休后钱会用完，并且在停止工作后对管理个人财务缺乏信心。
+中新网杭州6月1日电(曹丹)6月1日晚，随着一场融合影像、音乐与时装的开幕展演在浙江杭州上演，壮游·2026中国美术学院毕业季暨国际青年艺术对话正式启幕。
 
-约有250万澳大利亚人将在未来十年退休，澳大利亚证券和投资委员会的研究发现，在接受调查的50至66岁人群中，48%的人表示担心自己会“活到储蓄花光”。
+本届毕业季设立九大展区，集中呈现2881位毕业生的近3000件毕业创作，以开放的姿态将艺术节日转化为一场面向全社会的文化盛会。
 
-只有三分之一的受访者称，他们有信心在退休后保持经济上的宽裕舒适。
+自2009年率先面向公众举办毕业展示周以来，中国美术学院不断打破学院围墙。
 
-尽管澳大利亚规模达4.5万亿澳元（3.2万亿美元）的养老金行业位居全球领先的退休保障体系之列，但多项调查一再显示，澳大利亚人对自己停止工作后的财务状况普遍深感焦虑。
+2019年起，毕业展走向杭城，形成内外打通、“无墙的学院”。
 
-监管机构也一直向该行业施压，要求其为开始支取养老金储蓄的民众提供更多方案选择。
+今年毕业季以“壮游”为主题，倡导学子在行走中体认天地、以经验拓展心灵——山川即课堂，风云皆典籍，艺术在流动世界中建立形式。
 
-年金提供商兼投资管理公司Challenger周一发布的另一项独立研究显示，生活成本上升连续第三年成为60岁以上澳大利亚人最担忧的问题。
+当晚的开幕现场，秀道如远行之路延伸，主题曲《壮游》以音乐回应青年人的理想与时代情绪。
 
-随着白领岗位的弹性工作选择增多，使人们能够更长时间留在劳动力市场，越来越多的澳大利亚人一直工作到70多岁。
+近140套毕业设计时装组成四大叙事篇章，与纪录片《我照见我》等影像作品交织，构成一次关于启程的空间叙事。
 
-责任编辑：于健 SF069
+作为毕业季的重要组成部分，“2026国际青年艺术对话”系列活动同步开启，下设国际艺术院校校长对话、国际青年艺术家对话及“感知中国·四海艺同”国际青年艺术作品展三项活动，汇聚20余所国际美院院长与50余个国家和地区青年艺术家，形成覆盖创作、教学、研究、评论和策展的系统网络。
 
 ## 相关推荐
 
-- 2026-06-29 13:59 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 14:00 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 13:53 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 14:11 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 13:56 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 13:58 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 14:01 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 13:54 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 13:55 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 14:06 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 13:48 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 14:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 14:17 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 13:51 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 14:06 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 13:56 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 14:00 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 14:08 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 14:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 14:19 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 13:54 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 14:07 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 13:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 14:12 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 14:18 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/423328478.shtml)
-- 2026-06-29 14:17 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/3717911.shtml)
-- 2026-06-29 14:15 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/434676240.shtml)
-- 2026-06-29 14:10 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/4921938.shtml)
-- 2026-06-29 14:10 - [吴建豪老婆](http://www.share.kurohicncr.top/Article/details/327814810469.shtml)
-- 2026-06-29 13:57 - [F1奥地利大奖赛正赛集锦](https://www.blog.minike.top/Article/details/58764.shtml)
-- 2026-06-29 13:58 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/7682893254.shtml)
-- 2026-06-29 13:54 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/5988850404.shtml)
-- 2026-06-29 13:55 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/8190755.shtml)
-- 2026-06-29 14:12 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/911017413.shtml)
-- 2026-06-29 14:14 - [赵露思爸爸拍vlog翻车了](https://www.blog.kurohicncr.top/Article/details/44298895.shtml)
-- 2026-06-29 13:48 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/16725684.shtml)
-- 2026-06-29 14:03 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/798670.shtml)
-- 2026-06-29 14:16 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/855976.shtml)
-- 2026-06-29 13:51 - [媒体：高考后消费应量力而行适度有度](https://www.share.kurohicncr.top/Article/details/57719790.shtml)
+- 2026-06-29 14:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/661321415.shtml)
+- 2026-06-29 14:22 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/6320328951.shtml)
+- 2026-06-29 14:20 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/038976627.shtml)
+- 2026-06-29 14:18 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/3161764.shtml)
+- 2026-06-29 13:58 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/134079717242.shtml)
+- 2026-06-29 14:17 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.share.minike.top/Article/details/3241983.shtml)
+- 2026-06-29 14:16 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/07563.shtml)
+- 2026-06-29 14:20 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/91427367160.shtml)
+- 2026-06-29 14:15 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/2325769189.shtml)
+- 2026-06-29 14:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/17896.shtml)
+- 2026-06-29 14:19 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/61882.shtml)
+- 2026-06-29 14:21 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/366790830.shtml)
+- 2026-06-29 13:58 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/71354.shtml)
+- 2026-06-29 13:56 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/42404652.shtml)
+- 2026-06-29 14:06 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/89981620.shtml)

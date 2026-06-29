@@ -1,58 +1,58 @@
-# 股东、高管又来抄底！7家银行披露增持公告，涉及资金超15亿元
+# 韩国股市不断超车 已越过印度成为世界第六大股市
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者叶麦穗 银行板块今年虽然表现平平，但是仍迎来了高管的密集增持，从国有大行、股份制银行到地方中小银行，多位高管与核心股东纷纷出手增持，以实际资金投入表达对银行长期价值与发展前景的看好。 根据同花顺统计，开年以来已经有7家银行披露了增持情况，合计增持金额达到了15.44亿元。 多家银行披露增持公告 近日，苏农银行发布关于部分高级管理人员自愿增持公司股份完成的公告
+随着全球人工智能建设所依赖的芯片巨头股价持续飙升，韩国股市已超越印度股市，排到世界第六。 彭博汇编的数据显示，今年在韩上市公司总市值飙升86%，达到5万亿美元，而在印上市公司总市值则下降至4.8万亿美元。 新晋万亿美元市值俱乐部成员三星电子和SK海力士，是韩股涨势的主要推手，凭借它们在AI存储芯片领域的主导地位，推动韩国KOSPI指数在2026年上涨了逾100%。韩国股市今年已
 
 ## 正文
 
-21世纪经济报道记者叶麦穗 银行板块今年虽然表现平平，但是仍迎来了高管的密集增持，从国有大行、股份制银行到地方中小银行，多位高管与核心股东纷纷出手增持，以实际资金投入表达对银行长期价值与发展前景的看好。
+随着全球人工智能建设所依赖的芯片巨头股价持续飙升，韩国股市已超越印度股市，排到世界第六。
 
-根据同花顺统计，开年以来已经有7家银行披露了增持情况，合计增持金额达到了15.44亿元。
+彭博汇编的数据显示，今年在韩上市公司总市值飙升86%，达到5万亿美元，而在印上市公司总市值则下降至4.8万亿美元。
 
-多家银行披露增持公告 近日，苏农银行发布关于部分高级管理人员自愿增持公司股份完成的公告。
+新晋万亿美元市值俱乐部成员三星电子和SK海力士，是韩股涨势的主要推手，凭借它们在AI存储芯片领域的主导地位，推动韩国KOSPI指数在2026年上涨了逾100%。
 
-具体来看，苏农银行公告称，该行于2025年11月11日披露了《苏农银行关于部分高级管理人员自愿增持公司股份计划的公告》。
+韩国股市今年已陆续超过了加拿大、德国、英国和法国股市。
 
-该行行长王亮、副行长费海滨、耿植基于对公司未来发展前景的信心和对公司长期投资价值的认同，计划自公告披露之日起6个月内，通过上海证券交易所交易系统集中竞价交易方式增持不少于180万元人民币公司A股股份。
+“对于一个不久前还把5000点设为雄心勃勃的KOSPI目标的市场来说，赶上印度是一个意义非凡的里程碑，”Asset Value Investors高级投资分析师Ross McGarry表示。
 
-公告还显示，截至2026年4月10日，根据本次增持计划，增持主体通过上海证券交易所系统以集中竞价方式累计增持该行A股股份35.52万股，占该行当前已发行A股普通股股份的0.0176%，累计增持金额为183.20万元，本次增持计划已实施完成。
+“不过，今年的上涨行情主要归功于存储周期 —— 三星和SK海力士挑起了大梁。
 
-无独有偶。
+真正的考验在于，韩国能否通过真正的公司治理改革来维持这一价值重估势头。
 
-4月9日，邮储银行发布公告称，公司控股股东——中国邮政集团于2025年4月8日至2026年4月7日，通过上海证券交易所集中竞价方式累计增持A股约1.03亿股，占新增股本后总股份的0.0858%，累计增持金额为5.26亿元，增持计划已按期完成。
+” 反观印度，其股市则受到卢比贬值、创纪录的外资流出以及匮乏与AI基础设施直接相关的公司等因素的困扰。
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 13:51 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 13:58 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 13:57 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 13:48 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 13:49 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 14:09 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 14:06 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 13:56 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 14:14 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 13:52 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 14:10 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 13:56 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 14:22 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 14:13 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 13:57 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 14:15 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 14:03 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 14:16 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 14:01 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 14:19 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 14:16 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 14:23 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 14:06 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/2790309.shtml)
-- 2026-06-29 14:16 - [美人鱼](https://www.blog.minike.top/Article/details/3534603.shtml)
-- 2026-06-29 14:12 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/972977702.shtml)
-- 2026-06-29 14:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/95013494.shtml)
-- 2026-06-29 14:07 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/149243447.shtml)
-- 2026-06-29 14:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/9407567630.shtml)
-- 2026-06-29 14:06 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/41521462.shtml)
-- 2026-06-29 14:02 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/92555.shtml)
-- 2026-06-29 14:16 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/10910.shtml)
-- 2026-06-29 14:00 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/42352829213.shtml)
-- 2026-06-29 13:49 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/9141996344.shtml)
-- 2026-06-29 13:57 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/344871.shtml)
-- 2026-06-29 13:54 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.kurohicncr.top/Article/details/899825714.shtml)
-- 2026-06-29 14:00 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.minike.top/Article/details/15759.shtml)
-- 2026-06-29 14:07 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/218657.shtml)
+- 2026-06-29 14:01 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/07546790558.shtml)
+- 2026-06-29 14:23 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/405212003410.shtml)
+- 2026-06-29 14:00 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/819203437.shtml)
+- 2026-06-29 14:10 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/13820179680.shtml)
+- 2026-06-29 14:23 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/633605969.shtml)
+- 2026-06-29 14:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/95173.shtml)
+- 2026-06-29 14:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/030951452.shtml)
+- 2026-06-29 14:14 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/84967948.shtml)
+- 2026-06-29 13:59 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/3828864897.shtml)
+- 2026-06-29 14:15 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/725432978.shtml)
+- 2026-06-29 13:56 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/1250796024.shtml)
+- 2026-06-29 14:07 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/515534803609.shtml)
+- 2026-06-29 14:16 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/33923.shtml)
+- 2026-06-29 14:03 - [NBA交易](http://www.share.kurohicncr.top/Article/details/250791.shtml)
+- 2026-06-29 13:56 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/767310486217.shtml)

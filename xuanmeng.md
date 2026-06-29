@@ -1,57 +1,56 @@
-# 乡村三大球运动会在贵州台江启动 面向全国开放办赛
+# 合规为王！这款软件可以查看基金实时估值，来了解下？
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网贵州台江4月12日电 (记者 瞿宏伦)12日，由贵州与海南联合举办的乡村三大球(篮球、足球、排球)运动会(以下简称：运动会)在“村BA”发源地——贵州省台江县台盘村启动。运动会以三大球为纽带，推动两省文旅体协同发展，旨在将“草根赛事”升级为可持续的乡村体育盛会。贵州的“村超”“村BA”发源于黔东南苗族侗族自治州，每年吸引数以万计的观众现场观赛；海南的“村VA”排球赛同样火
+2026年伊始，一场席卷基金销售行业的合规风暴悄然来袭。证监会证券基金机构监管司发布《机构监管情况通报》，明确要求基金销售机构及第三方网络平台按期下架“基金实时估值”“加仓榜”“实盘榜”等功能，禁止通过“净值参考”“板块涨跌”等形式变相提供估值服务。蚂蚁财富、同花顺基金、京东金融等多家主流代销渠道迅速响应，于1月30日前完成功能调整。一时间，“无估值可看”成为众多基民共同的焦虑
 
 ## 正文
 
-中新网贵州台江4月12日电 (记者 瞿宏伦)12日，由贵州与海南联合举办的乡村三大球(篮球、足球、排球)运动会(以下简称：运动会)在“村BA”发源地——贵州省台江县台盘村启动。
+2026年伊始，一场席卷基金销售行业的合规风暴悄然来袭。
 
-运动会以三大球为纽带，推动两省文旅体协同发展，旨在将“草根赛事”升级为可持续的乡村体育盛会。
+证监会证券基金机构监管司发布《机构监管情况通报》，明确要求基金销售机构及第三方网络平台按期下架“基金实时估值”“加仓榜”“实盘榜”等功能，禁止通过“净值参考”“板块涨跌”等形式变相提供估值服务。
 
-贵州的“村超”“村BA”发源于黔东南苗族侗族自治州，每年吸引数以万计的观众现场观赛；海南的“村VA”排球赛同样火爆，村村有球队、月月有比赛。
+蚂蚁财富、同花顺基金、京东金融等多家主流代销渠道迅速响应，于1月30日前完成功能调整。
 
-贵州省体育局党委委员、副局长靖琦伟说，贵州与海南虽相隔千里，但都有着浓厚的乡村体育氛围和群众基础。
+一时间，“无估值可看”成为众多基民共同的焦虑来源。
 
-希望通过两省的先行先试，积累办赛经验，完善竞赛规程，形成标准化、可复制的办赛模板，为全国推广打下坚实基础。
+合规风暴背后的深层逻辑 这并非监管的临时起意。
 
-靖琦伟表示，运动会的初心，不止于贵州、海南两省之间的交流，更在于搭建一个全国性的乡村体育平台。
+长期以来，基金实时估值功能始终存在一个根本性困境：它基于基金季报披露的历史持仓进行估算，无法反映基金经理的实时调仓，与实际净值经常存在偏差。
 
-“我们坚信，乡村三大球完全有条件、有能力办成覆盖全国、全民参与的品牌赛事。
+更关键的是，这一功能极大地助长了投资者的短线交易冲动——看到估值跌了就恐慌赎回，估值涨了就追涨买入，把基金当成了股票来炒。
 
-” 海南体育职业技术学院院长洪家云认为，将以此次联合办赛为契机，建立琼黔两省体育交流合作长效机制，在赛事举办、人才培养、产业发展等方面开展深入合作，实现优势互补、共同发展。
+监管此次坚决出手，核心目标正是“斩断短期炒作诱导、纠偏投资理念、规范基金销售生态”。
 
 ## 相关推荐
 
-- 2026-06-29 14:13 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 13:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 14:00 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 13:51 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 14:02 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 14:17 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 13:48 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 14:17 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 14:15 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 14:03 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 14:12 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 14:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 13:58 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 14:20 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 13:54 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 14:04 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 14:15 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 13:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 13:54 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 14:06 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 14:02 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [医药股集体爆发](https://www.share.minike.top/Article/details/5522889216.shtml)
-- 2026-06-29 14:09 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/35383.shtml)
-- 2026-06-29 14:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/76938215.shtml)
-- 2026-06-29 14:03 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/07757600.shtml)
-- 2026-06-29 13:56 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/6729680942.shtml)
-- 2026-06-29 14:06 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/5693517705.shtml)
-- 2026-06-29 13:49 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/79540.shtml)
-- 2026-06-29 13:50 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.minike.top/Article/details/037496259488.shtml)
-- 2026-06-29 14:12 - [三都主：淘汰赛我会支持日本](http://www.blog.kurohicncr.top/Article/details/033281500429.shtml)
-- 2026-06-29 13:58 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/009608594657.shtml)
-- 2026-06-29 14:10 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/50761578865.shtml)
-- 2026-06-29 14:08 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/640180265471.shtml)
-- 2026-06-29 14:11 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/2575640545.shtml)
-- 2026-06-29 14:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/262015026469.shtml)
-- 2026-06-29 14:05 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/0763998236.shtml)
+- 2026-06-29 14:02 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/76402.shtml)
+- 2026-06-29 14:13 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/660666507404.shtml)
+- 2026-06-29 13:59 - [一生一世](https://www.blog.minike.top/Article/details/77016.shtml)
+- 2026-06-29 14:18 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/180247217061.shtml)
+- 2026-06-29 14:01 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/0103600816.shtml)
+- 2026-06-29 14:06 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/2933321.shtml)
+- 2026-06-29 14:02 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/61685297746.shtml)
+- 2026-06-29 14:15 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/60383010484.shtml)
+- 2026-06-29 14:12 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/24822.shtml)
+- 2026-06-29 14:06 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/12548147182.shtml)
+- 2026-06-29 14:06 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/09915.shtml)
+- 2026-06-29 14:03 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/2012428472.shtml)
+- 2026-06-29 14:07 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.minike.top/Article/details/523822.shtml)
+- 2026-06-29 14:19 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/1473025240.shtml)
+- 2026-06-29 14:07 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/0127107.shtml)

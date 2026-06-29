@@ -1,59 +1,51 @@
-# 深圳海关缉私局破获空港旅检渠道特大走私黄金出境案
+# 中国平安：将于6月10日实施2025年年度权益分派 每股派发1.75元
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网深圳4月13日电 (记者 索有为)深圳海关缉私局13日通报，该局日前破获一起空港旅检渠道特大走私黄金出境案，共抓获犯罪嫌疑人11名，查证涉嫌走私的黄金及其制品130千克，案值7800万元，摧毁一个涵盖中国内地采购、揽货通关、境外销售全流程链条的走私犯罪网络。 深圳宝安机场海关日前在对一趟深圳出境航班进行行李查验时，发现楼某、李某等3名旅客未向海关申报，在随身行李和托运行李
+6月1日金融一线消息，中国平安今日发布2025年年度权益分派实施公告称，本次利润分配以方案实施前的公司总股本18107641995股为基数，每股派发现金红利1.75元（含税），共计派发现金红利人民币31688373491.25元。其中，公司 A 股股本为10660065083 股，A 股共计派发现金红利人民币 18655113895.25 元。除息日为2026年6月10日。 责
 
 ## 正文
 
-中新网深圳4月13日电 (记者 索有为)深圳海关缉私局13日通报，该局日前破获一起空港旅检渠道特大走私黄金出境案，共抓获犯罪嫌疑人11名，查证涉嫌走私的黄金及其制品130千克，案值7800万元，摧毁一个涵盖中国内地采购、揽货通关、境外销售全流程链条的走私犯罪网络。
+6月1日金融一线消息，中国平安今日发布2025年年度权益分派实施公告称，本次利润分配以方案实施前的公司总股本18107641995股为基数，每股派发现金红利1.75元（含税），共计派发现金红利人民币31688373491.25元。
 
-深圳宝安机场海关日前在对一趟深圳出境航班进行行李查验时，发现楼某、李某等3名旅客未向海关申报，在随身行李和托运行李中夹带手镯、戒指等黄金饰品近400件，总重达2.8千克，明显超出合理自用范围。
+其中，公司 A 股股本为10660065083 股，A 股共计派发现金红利人民币 18655113895.25 元。
 
-面对询问，该3人回答前后矛盾、疑点重重，海关立即将线索通报机场海关缉私分局。
+除息日为2026年6月10日。
 
-缉私警察介入后，通过对夹藏的黄金饰品种类、数量及刻意分散藏匿的行为进行研判分析，认为这并非偶发行为，背后极有可能隐藏着有组织的走私犯罪活动，随即成立专案组，并锁定一个盘踞在广州的走私黄金出境团伙。
-
-经查，以黄某、方某为首的货主团伙，安排人员在深圳多家珠宝公司采购黄金及其制品，通过快递邮寄至彭某团伙位于广州的货代物流公司处，再由彭某组织“水客”以行李夹藏方式，通过跨境航班走私出境，最终流向黄某在境外开设的金店销售牟利。
-
-据介绍，黄某有走私犯罪前科，对海关监管规则十分熟悉，反侦查意识强。
-
-其在境外拥有某国内黄金首饰品牌授权店，虽能以低于市场价在国内采购和加工黄金，却不具备合法出口资质，遂通过“自买自卖”、跨境走私方式牟取暴利。
-
-深圳海关缉私局在全面查清犯罪事实后集中收网。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 14:13 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 14:03 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 14:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 14:16 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 13:49 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 13:48 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 13:53 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 14:01 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 13:54 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 13:51 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 14:15 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 13:49 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 14:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 14:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 14:04 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 13:59 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 14:21 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 14:00 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 14:19 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 14:18 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 13:59 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 14:03 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 13:57 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 13:54 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 14:23 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/028287705.shtml)
-- 2026-06-29 13:59 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/675651.shtml)
-- 2026-06-29 14:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/245374659.shtml)
-- 2026-06-29 14:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/6168509473.shtml)
-- 2026-06-29 13:57 - [流金岁月](https://www.share.minike.top/Article/details/85873917.shtml)
-- 2026-06-29 14:16 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/6200797.shtml)
-- 2026-06-29 14:10 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/421518903.shtml)
-- 2026-06-29 13:51 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/98651489979.shtml)
-- 2026-06-29 14:00 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/936746243702.shtml)
-- 2026-06-29 14:07 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/78425323.shtml)
-- 2026-06-29 14:05 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/8620105.shtml)
-- 2026-06-29 13:53 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/05882.shtml)
-- 2026-06-29 14:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/6739792957.shtml)
-- 2026-06-29 14:15 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/77745.shtml)
-- 2026-06-29 14:04 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/625378.shtml)
+- 2026-06-29 13:56 - [105年初心滚烫](http://www.share.minike.top/Article/details/6960160.shtml)
+- 2026-06-29 14:00 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/9364533.shtml)
+- 2026-06-29 14:15 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/551080610032.shtml)
+- 2026-06-29 14:21 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/9673440.shtml)
+- 2026-06-29 14:16 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/20046111.shtml)
+- 2026-06-29 14:01 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/89181049975.shtml)
+- 2026-06-29 14:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/988432428.shtml)
+- 2026-06-29 14:00 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/307754906.shtml)
+- 2026-06-29 14:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/90076.shtml)
+- 2026-06-29 13:56 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/1852697.shtml)
+- 2026-06-29 14:05 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/21292496842.shtml)
+- 2026-06-29 14:18 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/39618667.shtml)
+- 2026-06-29 14:16 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/7431311.shtml)
+- 2026-06-29 14:07 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/180574594297.shtml)
+- 2026-06-29 13:59 - [AG 钟意](http://www.share.minike.top/Article/details/69795294914.shtml)

@@ -1,60 +1,44 @@
-# 邦达亚洲:中东局势重燃通胀预期 黄金承压下行
+# 以军空袭加沙城海边人群 致2死多伤
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-4月13日，随着美伊达成“短暂停火”、谈判陷入僵持，一位知名投资人最新警告称，就算美国经济陷入困境，这次也不要指望美联储会急于出手帮忙。 Ruchir Sharma目前是财富管理和金融咨询公司洛克菲勒国际的主席。洛克菲勒资本管理公司最初以约翰·D·洛克菲勒家族办公室的形式成立于1882年，现专注为超高净值和高净值个人及家庭、机构和企业提供战略建议。洛克菲勒国际是该公司旗下事业部
+发布时间：2026年06月01日 10:45 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-4月13日，随着美伊达成“短暂停火”、谈判陷入僵持，一位知名投资人最新警告称，就算美国经济陷入困境，这次也不要指望美联储会急于出手帮忙。
-
-Ruchir Sharma目前是财富管理和金融咨询公司洛克菲勒国际的主席。
-
-洛克菲勒资本管理公司最初以约翰·D·洛克菲勒家族办公室的形式成立于1882年，现专注为超高净值和高净值个人及家庭、机构和企业提供战略建议。
-
-洛克菲勒国际是该公司旗下事业部，旨在拓展美国以外市场的业务版图。
-
-他还创建了投资公司Breakout Capital，并担任首席执行官，该公司主要投资于新兴市场。
-
-Sharma在接受最新采访时表示，他认为美联储在降息以提振经济增长方面束手无策。
-
-他指出，尽管油价上涨给经济增长带来风险，但考虑到通胀率已连续60个月高于美联储2%的目标，美联储放松货币政策的空间非常有限。
-
-另外，世界银行行长彭安杰上周五表示，即使美国总统特朗普宣布的脆弱停火协议能够维持，中东战争仍将对全球经济产生连锁冲击。
+发布时间：2026年06月01日 10:45 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 13:59 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 14:03 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 14:09 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 13:50 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 13:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 13:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 13:50 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 14:12 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 13:48 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 13:55 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 14:00 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 13:49 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 14:07 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 14:07 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 13:59 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 14:03 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 14:05 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 14:06 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 13:54 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 14:12 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 14:20 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 14:22 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 14:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 14:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 14:12 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 14:10 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/02518.shtml)
-- 2026-06-29 14:09 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/7930895.shtml)
-- 2026-06-29 14:05 - [强⁶](http://www.blog.kurohicncr.top/Article/details/9207876050.shtml)
-- 2026-06-29 13:52 - [去了一趟潮汕。](https://www.share.kurohicncr.top/Article/details/020668251.shtml)
-- 2026-06-29 14:04 - [人民日报评“AI脸看腻了”](https://www.share.kurohicncr.top/Article/details/27589.shtml)
-- 2026-06-29 13:55 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/702095.shtml)
-- 2026-06-29 14:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/818236732.shtml)
-- 2026-06-29 13:59 - [韩国政府将对世界杯出局追责](https://www.blog.kurohicncr.top/Article/details/909268769447.shtml)
-- 2026-06-29 13:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/92208.shtml)
-- 2026-06-29 13:56 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/75087681.shtml)
-- 2026-06-29 14:04 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/2045804.shtml)
-- 2026-06-29 13:56 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/3545520480.shtml)
-- 2026-06-29 13:48 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/1971723824.shtml)
-- 2026-06-29 14:07 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/4631695457.shtml)
-- 2026-06-29 13:58 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/31754.shtml)
+- 2026-06-29 13:58 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/7249934581.shtml)
+- 2026-06-29 14:04 - [A股](http://www.blog.kurohicncr.top/Article/details/05828391.shtml)
+- 2026-06-29 14:05 - [市民骑哈啰单车79分钟付30元](https://www.share.kurohicncr.top/Article/details/4829512513.shtml)
+- 2026-06-29 14:17 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/299935897602.shtml)
+- 2026-06-29 14:14 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/9377477144.shtml)
+- 2026-06-29 14:12 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/218980780452.shtml)
+- 2026-06-29 14:00 - [这一刀 会很帅](https://www.share.minike.top/Article/details/518557014793.shtml)
+- 2026-06-29 14:04 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/7237655.shtml)
+- 2026-06-29 14:22 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/88850141.shtml)
+- 2026-06-29 14:11 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/654997.shtml)
+- 2026-06-29 14:00 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/225650.shtml)
+- 2026-06-29 14:23 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/32049342.shtml)
+- 2026-06-29 14:13 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.minike.top/Article/details/3317889.shtml)
+- 2026-06-29 14:03 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/178280584139.shtml)
+- 2026-06-29 14:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/87400129.shtml)

@@ -1,56 +1,52 @@
-# 日本10年期国债收益率升至2.49%，创1997年以来新高
+# 黄仁勋称英伟达正与合作伙伴共同努力解决供应瓶颈问题
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-随着地缘政治风险影响通胀预期和政策不确定性，日本债券市场开始大幅重新定价。周一东京市场，日本10年期国债收益率上升5.5个基点至2.49%，创下1997年以来最高水平，此前美国总统唐纳德·特朗普表示美国将开始对霍尔木兹海峡实施全面海上封锁。此前，华盛顿与德黑兰之间周末的谈判未能达成协议，并削弱了上周脆弱的停火能够维持的预期。在利率市场，反应是广泛的：10年期国债期货下跌多达55
+英伟达首席执行官黄仁勋在台北告诉记者，该公司已获得整个供应链的支持，将能够强劲增长，目前仍受到供应的限制。 黄仁勋表示，面对短缺的情况，英伟达正努力与供应商协调合作。 他表示，每个供应链都应该尽可能多元化且具备备援能力，这样企业才能拥有韧性。 黄仁勋还说，未来英伟达将逐步扩充新款Spark个人电脑芯片的产品线。责任编辑：于健 SF069
 
 ## 正文
 
-随着地缘政治风险影响通胀预期和政策不确定性，日本债券市场开始大幅重新定价。
+英伟达首席执行官黄仁勋在台北告诉记者，该公司已获得整个供应链的支持，将能够强劲增长，目前仍受到供应的限制。
 
-周一东京市场，日本10年期国债收益率上升5.5个基点至2.49%，创下1997年以来最高水平，此前美国总统唐纳德·特朗普表示美国将开始对霍尔木兹海峡实施全面海上封锁。
+黄仁勋表示，面对短缺的情况，英伟达正努力与供应商协调合作。
 
-此前，华盛顿与德黑兰之间周末的谈判未能达成协议，并削弱了上周脆弱的停火能够维持的预期。
+他表示，每个供应链都应该尽可能多元化且具备备援能力，这样企业才能拥有韧性。
 
-在利率市场，反应是广泛的：10年期国债期货下跌多达55个基点至129.27，而5年期国债收益率上升4个基点至1.9%。
+黄仁勋还说，未来英伟达将逐步扩充新款Spark个人电脑芯片的产品线。
 
-宏观背景正变得更为复杂，尤其对仍然严重依赖进口能源的日本经济而言。
-
-中东紧张局势升级推高了油价，这可能加剧日本的通胀压力，而持续的日元疲软通过进一步提高进口成本放大了这种效应。
-
-日元汇率再次逼近160日元兑1美元水平，促使官员发出更强硬的口头警告。
-
-财务大臣片山五月表示，当局准备在多个市场采取行动，反映出对汇率波动影响家庭和整体经济的担忧。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 13:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 14:04 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 14:05 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 14:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 13:55 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 13:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 14:13 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 14:10 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 14:12 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 14:12 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 14:08 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 13:55 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 13:54 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 14:00 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 14:00 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 14:19 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 13:56 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 14:12 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 14:20 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 13:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 14:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/92950.shtml)
-- 2026-06-29 13:48 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/55136793806.shtml)
-- 2026-06-29 13:48 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/58170999008.shtml)
-- 2026-06-29 14:05 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/42726.shtml)
-- 2026-06-29 13:54 - [F1奥地利正赛战报](https://www.share.kurohicncr.top/Article/details/66768.shtml)
-- 2026-06-29 13:49 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/87669048.shtml)
-- 2026-06-29 14:15 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/170696093.shtml)
-- 2026-06-29 14:05 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/3010802762.shtml)
-- 2026-06-29 14:12 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/55718668.shtml)
-- 2026-06-29 13:57 - [急先锋](http://www.share.minike.top/Article/details/31297079056.shtml)
-- 2026-06-29 13:48 - [F1奥地利大奖赛正赛集锦](https://www.share.kurohicncr.top/Article/details/9443703.shtml)
-- 2026-06-29 13:53 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/355030790.shtml)
-- 2026-06-29 13:51 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/19004.shtml)
-- 2026-06-29 14:00 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/29236969.shtml)
-- 2026-06-29 14:15 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/74686474.shtml)
+- 2026-06-29 14:12 - [斛珠夫人](http://www.blog.minike.top/Article/details/06833007729.shtml)
+- 2026-06-29 13:59 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.kurohicncr.top/Article/details/535021009362.shtml)
+- 2026-06-29 14:16 - [新一代影后杨紫](https://www.share.kurohicncr.top/Article/details/123223.shtml)
+- 2026-06-29 14:17 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/7459861134.shtml)
+- 2026-06-29 14:14 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/880746.shtml)
+- 2026-06-29 14:20 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/186279160.shtml)
+- 2026-06-29 14:19 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/29502011.shtml)
+- 2026-06-29 13:58 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/7343345.shtml)
+- 2026-06-29 13:57 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/24091584.shtml)
+- 2026-06-29 14:18 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/39531242.shtml)
+- 2026-06-29 13:55 - [C罗关心罗德里戈伤情](https://www.share.kurohicncr.top/Article/details/6053778589.shtml)
+- 2026-06-29 14:21 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/589063.shtml)
+- 2026-06-29 13:56 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/38997.shtml)
+- 2026-06-29 14:17 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/67905578241.shtml)
+- 2026-06-29 14:06 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/827366467364.shtml)

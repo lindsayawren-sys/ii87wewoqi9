@@ -1,60 +1,48 @@
-# 财务造假，退市！300391明日将摘牌
+# 【看见中国】“我一定要扎根义乌” 尼泊尔商人Bishnu的“必需努”
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！长药退4月12日晚发布公告称，公司股票已被深交所决定终止上市，于3月20日进入退市整理期，最后交易日期为4月10日，将在4月13日被摘牌。 公司已聘请中山证券有限责任公司担任主办券商，并与其签订《委托股票转让协议》，聘请其提供股份转让服务，代理公司在证券交易所市场登记结算系统股份退出登记，办理股票重新确认及
+发布时间：2026年06月01日 17:52 来源：中国新闻网 “我一定要努力扎根义乌”“我一定要向更多尼泊尔商人推介义乌”“我一定要进一步促进尼中交流与友谊”……从2002年第一次来到浙江义乌，到如今在这里扎根24年，尼泊尔商人毕需努(Bishnu)感慨万千。在这里，他一次次喊出“必须努力”的目标，也一次次让自己与义乌的联系愈发紧密。 近日，毕需努在采访中分享了他与义乌的故事
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年06月01日 17:52 来源：中国新闻网 “我一定要努力扎根义乌”“我一定要向更多尼泊尔商人推介义乌”“我一定要进一步促进尼中交流与友谊”……从2002年第一次来到浙江义乌，到如今在这里扎根24年，尼泊尔商人毕需努(Bishnu)感慨万千。
 
-长药退4月12日晚发布公告称，公司股票已被深交所决定终止上市，于3月20日进入退市整理期，最后交易日期为4月10日，将在4月13日被摘牌。
+在这里，他一次次喊出“必须努力”的目标，也一次次让自己与义乌的联系愈发紧密。
 
-公司已聘请中山证券有限责任公司担任主办券商，并与其签订《委托股票转让协议》，聘请其提供股份转让服务，代理公司在证券交易所市场登记结算系统股份退出登记，办理股票重新确认及全国股份转让系统股份登记结算等事宜。
+近日，毕需努在采访中分享了他与义乌的故事。
 
-Wind数据显示，截至4月10日，长药退股价为0.19元/股，今年以来累计跌幅达78.16%。
-
-连续三年虚增收入和利润 1月23日，公司收到证监会作出的《行政处罚决定书》。
-
-经查，*ST长药连续三年虚增收入和利润，违反证券法律法规。
-
-证监会对上市公司责令改正，给予警告，并处以1000万元罚款。
-
-深交所1月23日公告称，对因涉嫌财务数据存在虚假记载被证监会立案的“*ST立方”“*ST长药”进行重点监控。
+(董易鑫 刘子琳 浙江义乌报道） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 14:12 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 13:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 14:09 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 13:58 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 13:52 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 13:58 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 14:13 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 14:10 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 13:55 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 14:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 13:52 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 14:01 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 14:10 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 14:08 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 14:15 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 13:59 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 14:05 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 13:56 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 14:05 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 14:08 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 14:22 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 14:13 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 14:21 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 14:04 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/6071425.shtml)
-- 2026-06-29 14:04 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.kurohicncr.top/Article/details/34691279641.shtml)
-- 2026-06-29 13:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/0408344824.shtml)
-- 2026-06-29 13:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/21864983.shtml)
-- 2026-06-29 13:59 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/11354788.shtml)
-- 2026-06-29 14:05 - [Canna纳尔8-0对位单杀Doran](http://www.blog.minike.top/Article/details/291812698.shtml)
-- 2026-06-29 13:48 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/29221058930.shtml)
-- 2026-06-29 14:06 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/44525.shtml)
-- 2026-06-29 14:17 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/884295021316.shtml)
-- 2026-06-29 13:53 - [记者暗访贵州和云南多个养老机构](https://www.blog.kurohicncr.top/Article/details/81964123.shtml)
-- 2026-06-29 13:58 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/119118.shtml)
-- 2026-06-29 14:11 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.kurohicncr.top/Article/details/89971159729.shtml)
-- 2026-06-29 14:10 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/0891324389.shtml)
-- 2026-06-29 13:58 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/93449156722.shtml)
-- 2026-06-29 14:05 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/490664550.shtml)
+- 2026-06-29 14:21 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.kurohicncr.top/Article/details/94954.shtml)
+- 2026-06-29 14:07 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/889700209.shtml)
+- 2026-06-29 13:57 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/2558639711.shtml)
+- 2026-06-29 14:20 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/9100529.shtml)
+- 2026-06-29 13:54 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/514580817.shtml)
+- 2026-06-29 14:15 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/514352.shtml)
+- 2026-06-29 13:55 - [起风了](http://www.blog.minike.top/Article/details/42610.shtml)
+- 2026-06-29 14:03 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/70337948991.shtml)
+- 2026-06-29 14:23 - [多只A股发布股价异动公告](https://www.blog.kurohicncr.top/Article/details/412786.shtml)
+- 2026-06-29 14:07 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/18197.shtml)
+- 2026-06-29 14:06 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/38920.shtml)
+- 2026-06-29 14:24 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/20388330.shtml)
+- 2026-06-29 13:57 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.minike.top/Article/details/418875001.shtml)
+- 2026-06-29 14:07 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/988962213776.shtml)
+- 2026-06-29 14:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/408511.shtml)

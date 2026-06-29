@@ -1,56 +1,47 @@
-# 千元机市场大撤退，华为趁机「抄底」？
+# 中金：德昌电机控股维持跑赢行业评级 目标价39.85港元
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：豹变 千元机的涨幅有多大？ 最近发布的荣耀x80i起售价为1999，而上一代的x70i起售价才1399，足足涨了600元。 以前的千元机变成了中端机，而真正的千元机则在远去。 有数据显示，2026年一季度，1000元以下新机市场占比从2023年的22%暴跌至2.7%。曾经撑起手机市场半壁江山的千元机，
+中金发布研报称，考虑原料价格上涨、下游客户价格压力等因素，下调德昌电机控股（00179）FY26年盈利预期21.4%至2.13亿美元，引入FY27年盈利预测2.25亿美元，对应FY26/FY27 14.4/13.6x P/E。考虑公司SOFC业务进度提振估值，该行暂时维持跑赢行业评级及目标价39.85港元，对应 FY26/FY27 22.5/21.2x P/E，较当前股价有56
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中金发布研报称，考虑原料价格上涨、下游客户价格压力等因素，下调德昌电机控股（00179）FY26年盈利预期21.4%至2.13亿美元，引入FY27年盈利预测2.25亿美元，对应FY26/FY27 14.4/13.6x P/E。
 
-来源：豹变 千元机的涨幅有多大？
+考虑公司SOFC业务进度提振估值，该行暂时维持跑赢行业评级及目标价39.85港元，对应 FY26/FY27 22.5/21.2x P/E，较当前股价有56.15%空间。
 
-最近发布的荣耀x80i起售价为1999，而上一代的x70i起售价才1399，足足涨了600元。
-
-以前的千元机变成了中端机，而真正的千元机则在远去。
-
-有数据显示，2026年一季度，1000元以下新机市场占比从2023年的22%暴跌至2.7%。
-
-曾经撑起手机市场半壁江山的千元机，正在以惊人的速度收缩。
-
-但千元机不会彻底消失。
-
-厂商们在涨价潮下开始调整产品策略，有些倾向撤退，有些则发起了新进攻。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 13:54 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 14:01 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 14:17 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 14:16 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 13:49 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 14:03 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 14:15 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 13:53 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 13:58 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 14:03 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 14:16 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 14:11 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 14:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 14:04 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 14:13 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 13:57 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 14:06 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 13:56 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 14:05 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 13:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:10 - [起风了](https://www.share.kurohicncr.top/Article/details/3114108197.shtml)
-- 2026-06-29 13:56 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/072064279.shtml)
-- 2026-06-29 14:03 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/38460436854.shtml)
-- 2026-06-29 14:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/9679516928.shtml)
-- 2026-06-29 14:03 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/375399.shtml)
-- 2026-06-29 14:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/975758.shtml)
-- 2026-06-29 13:57 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/40516669.shtml)
-- 2026-06-29 14:15 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/9988107572.shtml)
-- 2026-06-29 14:07 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/5709294014.shtml)
-- 2026-06-29 14:15 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/2230643.shtml)
-- 2026-06-29 13:55 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/595188445628.shtml)
-- 2026-06-29 14:17 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/32268953.shtml)
-- 2026-06-29 13:56 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/10675608676.shtml)
-- 2026-06-29 14:10 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/1772739.shtml)
-- 2026-06-29 14:10 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/40442555.shtml)
+- 2026-06-29 13:59 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/77595.shtml)
+- 2026-06-29 13:54 - [C罗关心罗德里戈伤情](https://www.share.minike.top/Article/details/6343495.shtml)
+- 2026-06-29 14:20 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.minike.top/Article/details/641483.shtml)
+- 2026-06-29 13:56 - [为什么6月以来北方频繁降雨](https://www.blog.minike.top/Article/details/71871968126.shtml)
+- 2026-06-29 13:56 - [斛珠夫人](https://www.blog.minike.top/Article/details/6827354.shtml)
+- 2026-06-29 14:22 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/3460563846.shtml)
+- 2026-06-29 14:10 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/8217727.shtml)
+- 2026-06-29 14:12 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/584739781549.shtml)
+- 2026-06-29 14:01 - [四川宜宾地震](http://www.share.minike.top/Article/details/5376229573.shtml)
+- 2026-06-29 14:21 - [哈兰德之歌火到国外](https://www.blog.minike.top/Article/details/9123136.shtml)
+- 2026-06-29 13:57 - [媒体评恋与深空争议](http://www.share.kurohicncr.top/Article/details/903658602975.shtml)
+- 2026-06-29 14:13 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/89002.shtml)
+- 2026-06-29 13:58 - [加拿大92分钟绝杀](http://www.share.kurohicncr.top/Article/details/03890.shtml)
+- 2026-06-29 14:23 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/382774009225.shtml)
+- 2026-06-29 14:17 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/052359.shtml)

@@ -1,61 +1,60 @@
-# 同业存单发行缩量2万亿元！多家银行实际认购量不及预期
+# 宁夏彭阳：夏管正当时 苹果疏果套袋促丰产
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-来源：中国经营报 记者：慈玉鹏 Wind数据显示，今年1月1日至4月13日，同业存单发行额共计7.22万亿元，相比去年同期减少2万亿元。 主动补充负债意愿减弱 具体来说，今年截至4月13日，同业存单共发行只数共计5177个，相比去年同期减少1106只；发行额共计7.22万亿元，相比去年同期9.25万亿元缩减2万亿元。 中国邮政储蓄银行研究员娄飞鹏告诉记者，同业存单发行同比大减主
+中新网固原6月2日电 (记者 李佩珊)进入6月，正是苹果树夏季精细化管护、提质增产的关键节点。宁夏优质苹果特色产区固原市彭阳县各大苹果种植基地抢抓农时，全面开展疏果、套袋作业，以科学化、标准化田间管理，夯实秋季丰产丰收基础，带动群众稳定增收。 在彭阳县红河镇柴沟流域苹果示范基地，连片果园绿意盎然，枝头缀满青涩幼果。务工人员穿梭林间，严格遵循“去小留大、去弱留强、去密留稀、去病留
 
 ## 正文
 
-来源：中国经营报 记者：慈玉鹏 Wind数据显示，今年1月1日至4月13日，同业存单发行额共计7.22万亿元，相比去年同期减少2万亿元。
+中新网固原6月2日电 (记者 李佩珊)进入6月，正是苹果树夏季精细化管护、提质增产的关键节点。
 
-主动补充负债意愿减弱 具体来说，今年截至4月13日，同业存单共发行只数共计5177个，相比去年同期减少1106只；发行额共计7.22万亿元，相比去年同期9.25万亿元缩减2万亿元。
+宁夏优质苹果特色产区固原市彭阳县各大苹果种植基地抢抓农时，全面开展疏果、套袋作业，以科学化、标准化田间管理，夯实秋季丰产丰收基础，带动群众稳定增收。
 
-中国邮政储蓄银行研究员娄飞鹏告诉记者，同业存单发行同比大减主要是实体融资需求偏弱，银行出现资产荒，叠加存款增长充裕，主动减少高成本同业负债；同时，市场流动性整体宽松，银行对存单依赖度下降；再者监管引导压降同业负债占比，叠加存单备案额度改革与市场观望情绪，银行发行意愿和供给同步收缩，整体从主动扩表转为被动调节。
+在彭阳县红河镇柴沟流域苹果示范基地，连片果园绿意盎然，枝头缀满青涩幼果。
 
-一位股份行人士表示，2026年以来同业存单发行量减少，由多重因素叠加导致。
+务工人员穿梭林间，严格遵循“去小留大、去弱留强、去密留稀、去病留健”原则，精细疏除畸形果、病虫果、弱小密果，保留健壮果，减少养分消耗，促进果实均衡生长。
 
-需求端，优质信贷资产稀缺，贷款投放承压，银行主动补充负债的意愿大幅减弱。
+疏果之后，套袋工作同步推进。
 
-成本端，2025 年年末至 2026 年年初资金面阶段性偏紧，发行利率一度上行，叠加一二级市场价格背离，投资者一级市场认购积极性下降。
+套袋既能隔绝病虫鸟害、减少农药残留，又能营造避光恒温环境，让苹果着色均匀、果形端正、口感更佳，是培育高端果品、提升附加值的关键措施。
 
-实际认购量低于计划发行 近日，多家银行在中国货币网公示了同业存单发行情况。
+该基地负责人祁国勋表示，基地现有500亩苹果园，正组织60余名工作人员集中开展疏果套袋。
 
-例如，广东华兴银行2026年度第168期同业存单计划发行3.0亿元，实际认购量1.0亿元，占比33.33%；该行2026年度第169期同业存单计划发行量3.0亿元，实际认购量0.7亿元，占比23.33%。
+“通过精细化管护，可以提高果实色度、脆度与风味，推动优质果走向高端市场，卖出好价钱。
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 13:53 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 14:00 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 14:02 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 13:49 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 14:11 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 14:16 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 13:51 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 14:00 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 14:03 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 14:01 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 14:05 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 14:14 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 14:07 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 13:52 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 14:21 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 14:01 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 14:04 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 14:02 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 13:56 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 14:14 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 14:13 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 13:55 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 13:58 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 14:16 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 14:02 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 14:06 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 14:13 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 14:15 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:10 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/86970437643.shtml)
-- 2026-06-29 14:10 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/15684697.shtml)
-- 2026-06-29 14:16 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/709581943751.shtml)
-- 2026-06-29 14:06 - [强⁶](http://www.share.minike.top/Article/details/945514.shtml)
-- 2026-06-29 14:04 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/819998972420.shtml)
-- 2026-06-29 13:57 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/88501.shtml)
-- 2026-06-29 13:54 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/295003.shtml)
-- 2026-06-29 13:52 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/8636479.shtml)
-- 2026-06-29 13:49 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/394444.shtml)
-- 2026-06-29 13:52 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/52611622429.shtml)
-- 2026-06-29 13:59 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/012673184248.shtml)
-- 2026-06-29 14:09 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/61536.shtml)
-- 2026-06-29 13:58 - [为什么6月以来北方频繁降雨](http://www.share.kurohicncr.top/Article/details/692270045203.shtml)
-- 2026-06-29 14:13 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/50839.shtml)
-- 2026-06-29 14:01 - [王佳佳江疏影13年前后同框对比](https://www.blog.minike.top/Article/details/020079267.shtml)
+- 2026-06-29 14:13 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/35624.shtml)
+- 2026-06-29 13:59 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/271484.shtml)
+- 2026-06-29 14:15 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/71687.shtml)
+- 2026-06-29 14:14 - [啊啊啊](http://www.share.minike.top/Article/details/6771168.shtml)
+- 2026-06-29 14:20 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/3806891.shtml)
+- 2026-06-29 14:20 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/10743298.shtml)
+- 2026-06-29 14:10 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/59930.shtml)
+- 2026-06-29 14:18 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/77209271.shtml)
+- 2026-06-29 13:57 - [加拿大92分钟绝杀成世界杯首个16强](http://www.blog.kurohicncr.top/Article/details/95569325282.shtml)
+- 2026-06-29 14:12 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/64501819.shtml)
+- 2026-06-29 13:54 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/4940450422.shtml)
+- 2026-06-29 13:56 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/8968290.shtml)
+- 2026-06-29 14:03 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/4484267.shtml)
+- 2026-06-29 14:19 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/1548727.shtml)
+- 2026-06-29 14:05 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/4402537.shtml)

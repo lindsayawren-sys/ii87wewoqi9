@@ -1,53 +1,59 @@
-# 美媒：特朗普正考虑对伊朗实施有限打击，以打破谈判僵局
+# 当AI开始操控情绪，人类该担何责
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网4月13日电 据《华尔街日报》援引知情人士消息，美国总统特朗普及其幕僚正考虑在封锁霍尔木兹海峡的同时，恢复对伊朗的有限军事打击，以此打破和平谈判的僵局。 美国消费者新闻与商业频道(CNBC)报道称，目前尚不清楚特朗普是否会恢复对伊朗的空袭。 此前报道，美国东部时间4月7日晚，特朗普在社交媒体宣布与伊朗停火两周。在美伊谈判陷入僵局后，特朗普又威胁封锁霍尔木兹海峡。美国中央司
+思想者观察 当AI开始操控情绪，人类该担何责 最关键的变化并不在于机器如今能够生成内容，而在于它们开始能够生成语境。传统的内容生成仅提供信息或文本，但缺乏对信息背后的因果关系、叙事逻辑及情绪语境的把控。而人工智能代理能够在生成内容的同时嵌入特定语境，塑造事件的因果链、情绪氛围或社会语境，从而更有效地影响受众的理解、判断和情绪反应。 OpenClaw，即俗称的“龙虾”，是一种能够
 
 ## 正文
 
-中新网4月13日电 据《华尔街日报》援引知情人士消息，美国总统特朗普及其幕僚正考虑在封锁霍尔木兹海峡的同时，恢复对伊朗的有限军事打击，以此打破和平谈判的僵局。
+思想者观察 当AI开始操控情绪，人类该担何责 最关键的变化并不在于机器如今能够生成内容，而在于它们开始能够生成语境。
 
-美国消费者新闻与商业频道(CNBC)报道称，目前尚不清楚特朗普是否会恢复对伊朗的空袭。
+传统的内容生成仅提供信息或文本，但缺乏对信息背后的因果关系、叙事逻辑及情绪语境的把控。
 
-此前报道，美国东部时间4月7日晚，特朗普在社交媒体宣布与伊朗停火两周。
+而人工智能代理能够在生成内容的同时嵌入特定语境，塑造事件的因果链、情绪氛围或社会语境，从而更有效地影响受众的理解、判断和情绪反应。
 
-在美伊谈判陷入僵局后，特朗普又威胁封锁霍尔木兹海峡。
+OpenClaw，即俗称的“龙虾”，是一种能够在个人设备上执行任务的人工智能代理，例如安排日程、阅读电子邮件、通过应用发送消息、使用互联网进行购物等，甚至经过配置后可以自动调用API。
 
-美国中央司令部随后发表声明称，将于美东时间4月13日上午10时起，对所有进出伊朗港口的海上交通实施封锁。
+它颠覆了传统AI“一问一答”的模式，可以全天候待命并按用户设定的指令主动办事。
+
+也就是说，大多数流行的人工智能工具(如ChatGPT)通过直接响应用户提示来工作，而像OpenClaw这样的“代理型人工智能”则能够根据指令自主执行操作。
+
+只不过，用户需要通过指令指导、训练它，同时须花费一定成本使用AI模型或租用服务器，该过程被称为“养龙虾”。
+
+OpenClaw的出现，使得缺乏技术背景的用户也可以轻松创建个人AI助手。
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 14:08 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 13:54 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 14:07 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 14:00 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 13:59 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 14:03 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 14:11 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 14:04 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 14:02 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 13:53 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 14:05 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 14:17 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 13:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 14:23 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 14:03 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 13:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 14:10 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 14:20 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 14:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 14:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 14:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 14:07 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 14:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 14:14 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 13:56 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [美国近12万名科技员工被解雇](https://www.blog.kurohicncr.top/Article/details/1387242586.shtml)
-- 2026-06-29 13:53 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/630597111382.shtml)
-- 2026-06-29 14:11 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/542770183.shtml)
-- 2026-06-29 13:53 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.minike.top/Article/details/09319353.shtml)
-- 2026-06-29 13:50 - [NBA交易](http://www.share.kurohicncr.top/Article/details/706459397910.shtml)
-- 2026-06-29 14:13 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/232450450.shtml)
-- 2026-06-29 14:02 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.minike.top/Article/details/209280.shtml)
-- 2026-06-29 14:17 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/29294459.shtml)
-- 2026-06-29 13:50 - [6月我国降水为何偏多](http://www.blog.kurohicncr.top/Article/details/91885.shtml)
-- 2026-06-29 14:16 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/7048801760.shtml)
-- 2026-06-29 13:53 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/006515.shtml)
-- 2026-06-29 13:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/1981400397.shtml)
-- 2026-06-29 14:09 - [斛珠夫人](https://www.blog.minike.top/Article/details/60540947988.shtml)
-- 2026-06-29 14:16 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/1768910.shtml)
-- 2026-06-29 13:52 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/77648267.shtml)
+- 2026-06-29 13:55 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/434896042.shtml)
+- 2026-06-29 14:11 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/876269.shtml)
+- 2026-06-29 13:56 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.kurohicncr.top/Article/details/93582.shtml)
+- 2026-06-29 13:58 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/4841367170.shtml)
+- 2026-06-29 13:56 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/56523.shtml)
+- 2026-06-29 13:56 - [薛之谦演唱会](http://www.blog.minike.top/Article/details/385738324388.shtml)
+- 2026-06-29 14:16 - [记者暗访贵州和云南多个养老机构](http://www.share.kurohicncr.top/Article/details/0713625000.shtml)
+- 2026-06-29 14:07 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/363692.shtml)
+- 2026-06-29 14:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/246720148.shtml)
+- 2026-06-29 14:12 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/020379.shtml)
+- 2026-06-29 13:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/66079.shtml)
+- 2026-06-29 14:11 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/485961.shtml)
+- 2026-06-29 14:17 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/79070929.shtml)
+- 2026-06-29 13:55 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/157615518.shtml)
+- 2026-06-29 14:23 - [小娘惹](https://www.share.minike.top/Article/details/88212102069.shtml)

@@ -1,61 +1,57 @@
-# 海泰发展（600082）索赔征集：两年虚增4.78亿，这些投资者可索赔
+# 2026中国环塔国际拉力赛收车 外籍车手：希望更多人来中国参赛
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 公司主要承担天津高新区开发建设、招商引资、科技孵化、产业投资及运营等职能，拥有雄厚的资源储备和开发经验，多年来为天津高新区的发展做出了卓越贡献。 根据申万行业分类（2021），海泰发展属于房地产-房地产开发-产业地产。 2026年4月10日，公司收到中国证监会天津监管局出具的《行政处罚事先告知书》（编号：津证监处罚告知〔2026
+发布时间：2026年06月02日 13:45 来源：中国新闻网 6月1日，2026中国环塔国际拉力赛在新疆阿克苏市闭幕。本届赛事历时17天，总赛程约7500公里，吸引了中国、俄罗斯、西班牙、墨西哥等多个国家和地区的车手参赛。多位选手表示这是20年来难度最高的一届环塔。赛事跨越多样地貌，13个赛段单日里程可达七八百公里，松软沙漠、坑洼赛道对车手体能与赛车性能都提出极高要求，车队也
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 公司主要承担天津高新区开发建设、招商引资、科技孵化、产业投资及运营等职能，拥有雄厚的资源储备和开发经验，多年来为天津高新区的发展做出了卓越贡献。
+发布时间：2026年06月02日 13:45 来源：中国新闻网 6月1日，2026中国环塔国际拉力赛在新疆阿克苏市闭幕。
 
-根据申万行业分类（2021），海泰发展属于房地产-房地产开发-产业地产。
+本届赛事历时17天，总赛程约7500公里，吸引了中国、俄罗斯、西班牙、墨西哥等多个国家和地区的车手参赛。
 
-2026年4月10日，公司收到中国证监会天津监管局出具的《行政处罚事先告知书》（编号：津证监处罚告知〔2026〕8号）： 经查明，当事人涉嫌违法的事实如下： 2021年至2022年，海泰发展作为中间商参与由下游公司主导的棉花贸易业务，未能有效识别该类业务合同、单据和资金形成闭环，相关商品的风险、报酬未实质性转移，不应确认相应的营业收入、营业成本及利润。
+多位选手表示这是20年来难度最高的一届环塔。
 
-海泰发展2021年年报、2022年年报存在虚假记载，其中营业收入分别虚增252，088，298.81元、226，371，248.67元， 占当期披露营业收入比例分别为27.66%、45.88%；营业成本分别虚增249，416，523.22元、224，385，212.42元，占当期披露营业成本比例分别为31.22%、57.59%；利润总额分别虚增2，671，775.59元、1，986，036.25元，占当期披露利润总额比例分别为17.77%、12.10%。
+赛事跨越多样地貌，13个赛段单日里程可达七八百公里，松软沙漠、坑洼赛道对车手体能与赛车性能都提出极高要求，车队也需要全天候待命修整车辆。
 
-2026年2月28日，公司披露了《立案告知书的公告》，因公司因涉嫌信息披露违法违规被立案。
+海内外车手均表示，环塔不仅是突破自我极限的赛场，更是连接各国友谊的桥梁，在这里既领略了新疆风光与中国文化，也收获了真挚情谊，不少车手已经定下明年参赛的目标，期待再赴极限之约。
 
-立案后，公司股票的表现如下： 索赔区间：2022年4月30日至2026年2月27日之间买入，且2026年2月28日及以后卖出或继续持有的投资者，包括个人投资者和机构投资者。
-
-（本文由万商天勤（上海）律师事务所刘彦梅律师供稿，不代表新浪财经的观点。
-
-刘彦梅律师，中国证券业协会讲师，辽宁大学法律硕士，主要从事金融诉讼、公司诉讼。
+(贾志鹏 新疆报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 13:52 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 13:51 - [F1奥地利大奖赛正赛集锦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 13:50 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 13:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 14:12 - [F1奥地利大奖赛正赛集锦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 13:55 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 14:03 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 14:14 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 14:11 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 13:52 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 13:56 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 13:57 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 14:02 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 14:11 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 14:19 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 14:02 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 14:00 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 14:21 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 14:13 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 14:07 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 14:18 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 14:04 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 13:58 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 14:02 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 13:55 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 14:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 14:15 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 14:05 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 14:14 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [《昨夜将至》为何是悬疑黑马](http://www.share.minike.top/Article/details/8955218794.shtml)
-- 2026-06-29 14:15 - [F1奥地利正赛战报](http://www.share.minike.top/Article/details/071428.shtml)
-- 2026-06-29 13:55 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/1728713.shtml)
-- 2026-06-29 14:12 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/69859791456.shtml)
-- 2026-06-29 13:48 - [女子遭家暴两次起诉离婚均被驳回](https://www.blog.minike.top/Article/details/809126555.shtml)
-- 2026-06-29 14:03 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/58443.shtml)
-- 2026-06-29 14:10 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/444986231124.shtml)
-- 2026-06-29 13:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/2695270721.shtml)
-- 2026-06-29 13:48 - [航空运输旅客服务质量国标将实施](http://www.blog.kurohicncr.top/Article/details/5822872175.shtml)
-- 2026-06-29 14:07 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/16318781.shtml)
-- 2026-06-29 14:13 - [医药股集体爆发](https://www.blog.minike.top/Article/details/960264389.shtml)
-- 2026-06-29 14:11 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/185094612.shtml)
-- 2026-06-29 14:01 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/742487.shtml)
-- 2026-06-29 13:48 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/296675888.shtml)
-- 2026-06-29 13:53 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/95107888857.shtml)
+- 2026-06-29 13:59 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/88639.shtml)
+- 2026-06-29 14:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/772579.shtml)
+- 2026-06-29 14:01 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/788332817.shtml)
+- 2026-06-29 14:19 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/8783629.shtml)
+- 2026-06-29 14:11 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/6675141.shtml)
+- 2026-06-29 14:14 - [A股](http://www.blog.kurohicncr.top/Article/details/813400039793.shtml)
+- 2026-06-29 14:12 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/283288909164.shtml)
+- 2026-06-29 14:00 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/85552.shtml)
+- 2026-06-29 13:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/900515928.shtml)
+- 2026-06-29 14:16 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/014889054.shtml)
+- 2026-06-29 14:00 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/90318.shtml)
+- 2026-06-29 14:08 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/523810744019.shtml)
+- 2026-06-29 14:11 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/824890.shtml)
+- 2026-06-29 13:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/6649454.shtml)
+- 2026-06-29 14:13 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/32509076.shtml)

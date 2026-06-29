@@ -1,59 +1,56 @@
-# 投资者遭遇“剧本杀”？围绕*ST汇科的“保壳”交易异象丛生
+# 中国起诉性侵害未成年人犯罪近五年首次下降
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-界面新闻记者 赵阳戈 A股的“保壳季”，从来不缺惊心动魄的剧情。 从4月9日尾盘离奇“闪崩”20CM跌停，到次日巨量封单“一字板”涨停，*ST汇科（维权）（300561.SZ）的近2万名股东被动坐了“极速过山车”。从“地狱”到“天堂”的切换，源于一份深夜发布的年报和一纸申请摘帽的公告。 *ST汇科惊心动魄走势的背后，暴露出了ST股投机的巨大风险，值得每一位市场参与者深思。 4月
+中新社北京6月1日电 (记者 张素)中国最高人民检察院6月1日发布《未成年人检察工作白皮书(2025)》(下称“白皮书”)。其中显示，2025年全国检察机关起诉强奸、猥亵儿童等性侵害未成年人犯罪42873人，同比下降5.5%，系近五年首次下降。白皮书称，最高人民检察院密切关注犯罪态势变化，对2020年以来检察机关办理的性侵害未成年人犯罪案件情况进行专题调研，会同最高人民法院、教
 
 ## 正文
 
-界面新闻记者 赵阳戈 A股的“保壳季”，从来不缺惊心动魄的剧情。
+中新社北京6月1日电 (记者 张素)中国最高人民检察院6月1日发布《未成年人检察工作白皮书(2025)》(下称“白皮书”)。
 
-从4月9日尾盘离奇“闪崩”20CM跌停，到次日巨量封单“一字板”涨停，*ST汇科（维权）（300561.SZ）的近2万名股东被动坐了“极速过山车”。
+其中显示，2025年全国检察机关起诉强奸、猥亵儿童等性侵害未成年人犯罪42873人，同比下降5.5%，系近五年首次下降。
 
-从“地狱”到“天堂”的切换，源于一份深夜发布的年报和一纸申请摘帽的公告。
+白皮书称，最高人民检察院密切关注犯罪态势变化，对2020年以来检察机关办理的性侵害未成年人犯罪案件情况进行专题调研，会同最高人民法院、教育部、公安部等16部门出台《关于依法从严惩处和防范性侵害未成年人违法犯罪的意见》，指导各地一体推进线索发现、从严惩处、保护救助、综合治理和预防教育等工作。
 
-*ST汇科惊心动魄走势的背后，暴露出了ST股投机的巨大风险，值得每一位市场参与者深思。
+白皮书提到，对奸淫幼女、教师性侵未成年学生等案件，检察机关坚决依法严惩。
 
-4月9日，A股市场整体表现较为平稳，*ST汇科早盘平开后走势随行就市并无太多异样，午后还出现了一些拉升。
+最高人民检察院调卷审查湖南刘某某强奸案，认为原生效判决量刑不当，依法督促监督纠正，法院启动再审，刘某某从有期徒刑六年被改判有期徒刑八年。
 
-然而，就在收盘前的半小时，风云突变，抛单如瀑布般倾泻而下，将股价死死按在20%的跌停板上，直至收盘。
+各地检察机关抗诉改判性侵害未成年人犯罪案件260余件。
 
-4月13日，公司继续20CM封住涨停板。
+白皮书还称，对组织、强迫、引诱、容留、介绍未成年人卖淫，组织未成年人有偿陪侍犯罪，持续加大打击力度。
 
-来源：同花顺 这种尾盘突袭式的“核按钮”，通常被视为资金出逃的极端信号。
+6月1日发布的《北京未成年人检察工作实践与探索(2021—2025)》称，北京检察机关依法从严惩治侵害未成年人犯罪，特别是强奸、猥亵，组织、强迫、引诱、容留、介绍卖淫等性侵害未成年人犯罪，100%提前介入侦查引导取证，准确把握性侵害未成年人案件的证据审查判断和证明标准，严厉打击组织未成年人进行有偿陪侍等活动，依法提出从业禁止、禁止令等建议。
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 13:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 14:13 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 14:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 14:08 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 14:09 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 14:03 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 13:50 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 14:10 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 14:04 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 14:11 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 14:00 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 14:06 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 14:20 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 14:04 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 14:11 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 14:07 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 14:10 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 14:07 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 14:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 14:23 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 14:10 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 14:11 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:03 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/99205721728.shtml)
-- 2026-06-29 13:50 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/449679554.shtml)
-- 2026-06-29 14:14 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/24648658211.shtml)
-- 2026-06-29 13:54 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/9348107251.shtml)
-- 2026-06-29 13:50 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/226252.shtml)
-- 2026-06-29 14:09 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/02988755.shtml)
-- 2026-06-29 13:56 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/1960111335.shtml)
-- 2026-06-29 13:49 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/33810263.shtml)
-- 2026-06-29 14:15 - [起风了](https://www.share.kurohicncr.top/Article/details/4853071.shtml)
-- 2026-06-29 13:56 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/04071.shtml)
-- 2026-06-29 14:08 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/920719813.shtml)
-- 2026-06-29 14:01 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/0704270594.shtml)
-- 2026-06-29 13:50 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/09311743.shtml)
-- 2026-06-29 14:05 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/29976.shtml)
-- 2026-06-29 13:57 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/41874.shtml)
+- 2026-06-29 14:23 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/4116263.shtml)
+- 2026-06-29 14:17 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/10629.shtml)
+- 2026-06-29 14:11 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/58529512.shtml)
+- 2026-06-29 14:05 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/923977599.shtml)
+- 2026-06-29 13:59 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/55414242.shtml)
+- 2026-06-29 13:54 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.kurohicncr.top/Article/details/85002.shtml)
+- 2026-06-29 14:06 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/86856047.shtml)
+- 2026-06-29 14:18 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/7202256.shtml)
+- 2026-06-29 14:13 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.minike.top/Article/details/7172021.shtml)
+- 2026-06-29 14:02 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/32420155866.shtml)
+- 2026-06-29 14:04 - [周生如故](http://www.share.kurohicncr.top/Article/details/484626279.shtml)
+- 2026-06-29 13:59 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/3956999528.shtml)
+- 2026-06-29 14:23 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/22019596.shtml)
+- 2026-06-29 14:16 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/39676695.shtml)
+- 2026-06-29 13:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/919323026.shtml)

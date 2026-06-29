@@ -1,44 +1,48 @@
-# 习言道｜必须实事求是、求真务实、真抓实干
+# 泓富产业信托遭ESR Asset Management (Prosperity) Limited减持16.8万股
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-党的十八大以来，习近平总书记高度重视政绩观问题，多次明确“以实干出政绩”的实践路径。他指出——
+香港联交所最新资料显示，5月27日，ESR Asset Management （Prosperity） Limited减持泓富产业信托（00808）16.8万股，每股作价1.4406港元，总金额约为24.2万港元。减持后最新持股数目约为1.21亿股，最新持股比例为7.6%。责任编辑：卢昱君
 
 ## 正文
 
-党的十八大以来，习近平总书记高度重视政绩观问题，多次明确“以实干出政绩”的实践路径。
+香港联交所最新资料显示，5月27日，ESR Asset Management （Prosperity） Limited减持泓富产业信托（00808）16.8万股，每股作价1.4406港元，总金额约为24.2万港元。
 
-他指出——
+减持后最新持股数目约为1.21亿股，最新持股比例为7.6%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 13:55 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 13:57 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 13:51 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 14:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 13:59 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 14:04 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 14:06 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 14:09 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 14:10 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 14:06 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 13:57 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 13:58 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 14:09 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 14:05 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 13:59 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 14:18 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 14:10 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 14:18 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 13:55 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 13:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 14:21 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/244211072593.shtml)
-- 2026-06-29 13:50 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/1065597692.shtml)
-- 2026-06-29 14:09 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.blog.kurohicncr.top/Article/details/5289364281.shtml)
-- 2026-06-29 13:53 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/20150362.shtml)
-- 2026-06-29 13:51 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/32435298727.shtml)
-- 2026-06-29 14:06 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/242802763815.shtml)
-- 2026-06-29 13:57 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/26902359.shtml)
-- 2026-06-29 13:53 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/596677217521.shtml)
-- 2026-06-29 14:06 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/749715191930.shtml)
-- 2026-06-29 14:07 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/602966945486.shtml)
-- 2026-06-29 14:11 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/9619927.shtml)
-- 2026-06-29 14:02 - [俄称继续推进 乌称打击俄军设施](http://www.blog.kurohicncr.top/Article/details/636887.shtml)
-- 2026-06-29 14:14 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/551304110.shtml)
-- 2026-06-29 14:17 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/26599617529.shtml)
-- 2026-06-29 14:04 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/88475731.shtml)
+- 2026-06-29 14:07 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/150583038.shtml)
+- 2026-06-29 14:17 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/277283736473.shtml)
+- 2026-06-29 13:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/73504705.shtml)
+- 2026-06-29 14:02 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/5249648.shtml)
+- 2026-06-29 13:59 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/6539014662.shtml)
+- 2026-06-29 14:20 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/6901328260.shtml)
+- 2026-06-29 13:54 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/68590913705.shtml)
+- 2026-06-29 13:58 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/34102.shtml)
+- 2026-06-29 14:09 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/703224529.shtml)
+- 2026-06-29 14:06 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/66162.shtml)
+- 2026-06-29 14:12 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/1285493.shtml)
+- 2026-06-29 14:09 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/404257269489.shtml)
+- 2026-06-29 14:17 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.minike.top/Article/details/448289824597.shtml)
+- 2026-06-29 14:22 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/93483853220.shtml)
+- 2026-06-29 14:19 - [女心理师](http://www.share.minike.top/Article/details/65951.shtml)

@@ -1,61 +1,57 @@
-# 高盛盘前跌4% 一季度股票交易收入创纪录、业绩超预期
+# “真证书”随便卖 “假考试”包通过……部分职业技能证书黑灰产调查
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 高盛周一公布一季度业绩，凭借创纪录的股票交易表现和超预期的投行业务收入，整体结果好于市场预期。 公司公布核心数据： 该行利润同比增长 19% 至 56.3 亿美元，合每股 17.55 美元；营收增长 14% 至 172.3 亿美元。 年初以来，机构投资者在 AI 驱动的市场波动中调整新仓位，华尔街各大交易部门业务繁忙。高盛股票交易
+“真证书”随便卖 “假考试”包通过 ——部分职业技能证书黑灰产调查 职业技能证书是衡量职业技能水平的重要凭证，也是人才认定的重要标准。但记者近期在闲鱼、淘宝等网站上发现，不少商户明码标价销售职业技能证书，其中不乏国家部委下属正规行业协会颁发的证书，只需几百元即可购买。人社部官网可查询验证的职业技能等级证书同样公开叫卖，甚至还存在代考和舞弊包过服务。 有关人士认为，职业技能等级证
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 高盛周一公布一季度业绩，凭借创纪录的股票交易表现和超预期的投行业务收入，整体结果好于市场预期。
+“真证书”随便卖 “假考试”包通过 ——部分职业技能证书黑灰产调查 职业技能证书是衡量职业技能水平的重要凭证，也是人才认定的重要标准。
 
-公司公布核心数据： 该行利润同比增长 19% 至 56.3 亿美元，合每股 17.55 美元；营收增长 14% 至 172.3 亿美元。
+但记者近期在闲鱼、淘宝等网站上发现，不少商户明码标价销售职业技能证书，其中不乏国家部委下属正规行业协会颁发的证书，只需几百元即可购买。
 
-年初以来，机构投资者在 AI 驱动的市场波动中调整新仓位，华尔街各大交易部门业务繁忙。
+人社部官网可查询验证的职业技能等级证书同样公开叫卖，甚至还存在代考和舞弊包过服务。
 
-高盛股票交易业务创下史上最佳季度表现，推动全行实现第二高单季营收。
+有关人士认为，职业技能等级证书乱象严重损害了官方评价体系与行业协会的公信力，影响职业技能等级评价体系的健康运行，增加了技能人才“注水”现象，应加强多方联动，斩断买卖证书的黑灰产。
 
-股票业务收入增长 27% 至 53.3 亿美元，超出市场预期约 4.2 亿美元，主要得益于大宗经纪业务中对冲基金客户融资活动增加，以及现货股票产品买卖撮合量提升。
+中介公司全程代办 一些证书仅几百元 日前，记者通过闲鱼商户“知识产权工作者联盟”，联系购买一本机械设备安装工的证书。
 
-投行业务费用大涨 48% 至 28.4 亿美元，超出预期约 3.4 亿美元，主要由已完成并购交易咨询收入激增带动，同时股票与债券承销收入也有所上升。
+其介绍，他们是住建部旗下行业协会，证书全国通用，工种有69个，统一价格300元/本，只需提供身份证和本人照片，一周内出证。
 
-但固定收益业务表现不佳。
+记者问询“是否需要培训和考试”，店主答“可全部代办”。
 
-该板块收入下滑 10% 至 40.1 亿美元，较市场预期大幅低 9.1 亿美元，缺口异常明显。
+按其要求，记者提供了相关材料，并支付了300元购证费。
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 13:49 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 14:01 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 14:12 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 13:55 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 14:16 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 13:50 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 14:07 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 13:48 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 13:57 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 14:17 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 14:16 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 14:10 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 14:08 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 13:50 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 14:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 14:06 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 14:04 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 14:18 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 14:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 14:00 - [韩体育部长回应李在明痛批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 13:58 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 14:04 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 14:23 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 14:13 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 14:21 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/762516263.shtml)
-- 2026-06-29 14:00 - [沙特足协主席发布声明主动请辞](https://www.share.kurohicncr.top/Article/details/414745987.shtml)
-- 2026-06-29 13:49 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/03303786339.shtml)
-- 2026-06-29 14:09 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/71849.shtml)
-- 2026-06-29 14:01 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/75369.shtml)
-- 2026-06-29 14:00 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/649662145.shtml)
-- 2026-06-29 14:03 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.minike.top/Article/details/961687.shtml)
-- 2026-06-29 14:12 - [周杰伦演唱会真的好多人啊](http://www.share.kurohicncr.top/Article/details/37883.shtml)
-- 2026-06-29 14:17 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/390604.shtml)
-- 2026-06-29 13:54 - [爸爸当家](https://www.blog.minike.top/Article/details/68625.shtml)
-- 2026-06-29 14:15 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/5319539.shtml)
-- 2026-06-29 13:50 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/39968757.shtml)
-- 2026-06-29 14:13 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/5071873.shtml)
-- 2026-06-29 13:53 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/42679.shtml)
-- 2026-06-29 13:57 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.minike.top/Article/details/94021.shtml)
+- 2026-06-29 13:56 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/960001977.shtml)
+- 2026-06-29 14:05 - [明星大侦探第四季](https://www.share.minike.top/Article/details/6542125.shtml)
+- 2026-06-29 13:56 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/324618658687.shtml)
+- 2026-06-29 14:17 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/99596223142.shtml)
+- 2026-06-29 14:19 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/85007.shtml)
+- 2026-06-29 13:56 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/6683857839.shtml)
+- 2026-06-29 14:07 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/075751057.shtml)
+- 2026-06-29 14:00 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/6293826.shtml)
+- 2026-06-29 14:09 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/49543118174.shtml)
+- 2026-06-29 14:03 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/2492166982.shtml)
+- 2026-06-29 14:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/904976206836.shtml)
+- 2026-06-29 14:13 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/23187.shtml)
+- 2026-06-29 14:04 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.minike.top/Article/details/22753843096.shtml)
+- 2026-06-29 13:57 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/21793796.shtml)
+- 2026-06-29 14:05 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/53749885497.shtml)

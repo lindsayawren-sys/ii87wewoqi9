@@ -1,61 +1,60 @@
-# 马斯克再次指责南非当局阻挠星链获得运营许可
+# 创业板指收涨2.66% CPO概念掀涨停潮
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-专题：一季报期至 四大主线布局正当时 SpaceX首席执行官埃隆·马斯克周末再次指责南非政府阻挠其卫星互联网服务“星链”（Starlink）获得运营许可证，理由是他不是黑人，尽管他出生在南非。 马斯克在X网站上发帖称，南非“不允许星链项目获得许可”，并将此举与种族歧视联系起来。他还声称，有人多次提出，“让我们假装星链南非公司是由黑人运营，以此换取许可证，但我出于原则拒绝了。”
+中新经纬6月2日电 周二，A股三大指数集体反弹。截至收盘，上证指数涨0.43%，报4075.10点；深证成指涨1.63%，报15591.13点；创业板指涨2.66%，报4055.87点。 沪深两市成交额2.77万亿元，较上一个交易日缩量845亿元。个股跌多涨少，全市场超3800只个股下跌。 来源：同花顺 盘面上，行业板块中，元件、贵金属、非金属材料、电子化学品等板块领涨，影视院
 
 ## 正文
 
-专题：一季报期至 四大主线布局正当时 SpaceX首席执行官埃隆·马斯克周末再次指责南非政府阻挠其卫星互联网服务“星链”（Starlink）获得运营许可证，理由是他不是黑人，尽管他出生在南非。
+中新经纬6月2日电 周二，A股三大指数集体反弹。
 
-马斯克在X网站上发帖称，南非“不允许星链项目获得许可”，并将此举与种族歧视联系起来。
+截至收盘，上证指数涨0.43%，报4075.10点；深证成指涨1.63%，报15591.13点；创业板指涨2.66%，报4055.87点。
 
-他还声称，有人多次提出，“让我们假装星链南非公司是由黑人运营，以此换取许可证，但我出于原则拒绝了。
+沪深两市成交额2.77万亿元，较上一个交易日缩量845亿元。
 
-” 马斯克将这场争议定性为原则问题，认为无论针对哪个群体，都不应鼓励歧视。
+个股跌多涨少，全市场超3800只个股下跌。
 
-他还抨击了南非政客，呼吁民众抵制他所称的种族主义官员。
+来源：同花顺 盘面上，行业板块中，元件、贵金属、非金属材料、电子化学品等板块领涨，影视院线、游戏、文化传媒、互联网电商、纺织制造等板块跌幅居前。
 
-这一指控之所以引人注目，是因为星链已成为许多市场备受瞩目的连接方案，而马斯克的言论表明，南非的情况是个例外，他认为这是政治因素而非技术或市场需求造成的。
+概念板块中，CPO概念、培育钻石、铜缆高速连接、光纤概念等板块涨幅居前，赛马概念、NFT概念、足球概念、短剧游戏等板块领跌。
 
-考虑到马斯克本人曾强调他与南非有着个人联系（他的出生地就在南非），这种反差就显得更加尖锐。
+CPO概念掀涨停潮，阿莱德、天洋新材、中京电子、深圳华强、亨通光电、东山精密、鸿远电子等涨停，新易盛涨超9%。
 
-责任编辑：于健 SF069
+个股方面，今日其他涨停股部分如下：太极实业(10.01%)、永鼎股份(10.00%)。
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 13:56 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 14:00 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 14:00 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 13:49 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 13:57 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 14:02 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 14:07 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 14:03 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 14:02 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 14:10 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 13:50 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 14:07 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 14:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 14:01 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 14:06 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 14:20 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 13:54 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 14:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 13:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 13:57 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 14:03 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 14:12 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 14:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 14:07 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 13:59 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 14:04 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 14:19 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 14:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:07 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/76413877615.shtml)
-- 2026-06-29 14:10 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/851942119.shtml)
-- 2026-06-29 14:15 - [双高胎](https://www.blog.minike.top/Article/details/0609535.shtml)
-- 2026-06-29 14:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/0298554.shtml)
-- 2026-06-29 14:15 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/9992771.shtml)
-- 2026-06-29 14:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/972509708.shtml)
-- 2026-06-29 13:48 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/7348051.shtml)
-- 2026-06-29 14:04 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/81091.shtml)
-- 2026-06-29 14:14 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/6373575300.shtml)
-- 2026-06-29 14:04 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/1074722914.shtml)
-- 2026-06-29 13:54 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/55321.shtml)
-- 2026-06-29 13:48 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/9720606833.shtml)
-- 2026-06-29 14:15 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/241428952.shtml)
-- 2026-06-29 13:50 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/30850760363.shtml)
-- 2026-06-29 13:57 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/53450556088.shtml)
+- 2026-06-29 14:21 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/931910091.shtml)
+- 2026-06-29 14:03 - [周深双眼皮贴又掉了](http://www.blog.minike.top/Article/details/2578174.shtml)
+- 2026-06-29 14:02 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/04333495.shtml)
+- 2026-06-29 14:17 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/03586.shtml)
+- 2026-06-29 14:22 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/614841551.shtml)
+- 2026-06-29 14:17 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/64086435.shtml)
+- 2026-06-29 14:03 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/71117953124.shtml)
+- 2026-06-29 14:13 - [急先锋](https://www.share.kurohicncr.top/Article/details/25190337.shtml)
+- 2026-06-29 13:55 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/1372525.shtml)
+- 2026-06-29 13:58 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/399901.shtml)
+- 2026-06-29 13:57 - [王楚钦美国大满贯晋级32强](http://www.blog.minike.top/Article/details/522411798580.shtml)
+- 2026-06-29 14:02 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/42561479886.shtml)
+- 2026-06-29 14:08 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/0558297073.shtml)
+- 2026-06-29 14:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/28128.shtml)
+- 2026-06-29 14:23 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/78743357.shtml)

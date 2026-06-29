@@ -1,56 +1,60 @@
-# 总便秘？快自查有没有这些小习惯！丨健康习惯研究所
+# 小米新车型刷新纽北SUV圈速纪录
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-总便秘？快自查有没有这些小习惯！丨健康习惯研究所 明明饮食规律，却总被便秘困扰？试过多种方法，却还是难解烦恼？ 总以为自己是“肠道天生脆弱”，却没想过，可能是日常生活中的一些小习惯，在悄悄“拖慢”肠道的节奏。 这些不良小习惯，你中了几条？评论区留言，说说你的便秘困扰～ 文案：王宁 (来源：“健康中国”微信公众号)
+近期，世界互联网大会高级会员单位小米公司在北京举行人车家全生态新品发布会，正式发布全新小米YU7家族，新增小米YU7 GT、YU7标准版两大车型。同场发布的还有小米17 Max、耳夹式耳机、手环10 Pro及多款科技家电新品。公开信息显示，位于德国的纽博格林北环赛道（简称“纽北”）被业内认为是全球顶级车企的试金石，路面有着大量起伏颠簸，如高速飞坡、连续抛跳等。跑纽北，可以验证车
 
 ## 正文
 
-总便秘？
+近期，世界互联网大会高级会员单位小米公司在北京举行人车家全生态新品发布会，正式发布全新小米YU7家族，新增小米YU7 GT、YU7标准版两大车型。
 
-快自查有没有这些小习惯！
+同场发布的还有小米17 Max、耳夹式耳机、手环10 Pro及多款科技家电新品。
 
-丨健康习惯研究所 明明饮食规律，却总被便秘困扰？
+公开信息显示，位于德国的纽博格林北环赛道（简称“纽北”）被业内认为是全球顶级车企的试金石，路面有着大量起伏颠簸，如高速飞坡、连续抛跳等。
 
-试过多种方法，却还是难解烦恼？
+跑纽北，可以验证车辆在各种极端环境中的稳定性，打磨各种弯道性能。
 
-总以为自己是“肠道天生脆弱”，却没想过，可能是日常生活中的一些小习惯，在悄悄“拖慢”肠道的节奏。
+选配赛道专业套装的YU7 GT以7分22秒755刷新纽北SUV圈速纪录，较原纪录提升14秒。
 
-这些不良小习惯，你中了几条？
+据介绍，YU7 GT取得的成绩，源于背后的动力、底盘和制动系统。
 
-评论区留言，说说你的便秘困扰～ 文案：王宁 (来源：“健康中国”微信公众号)
+动力方面，该车搭载小米新一代超级电机V8s EVO，最高转速达28000rpm，峰值功率450kW，搭配前电机V6s Plus前驱版，双电机系统综合最大功率达738kW，换算为1003匹马力，零百加速仅需2.92秒，最高时速可达300km。
+
+底盘方面，YU7 GT搭载小米蛟龙底盘大师版，由小米汽车欧洲研发中心技术专家深度参与调校。
 
 ## 相关推荐
 
-- 2026-06-29 14:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 14:11 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 13:51 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 14:16 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 13:57 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 13:55 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 13:59 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 14:08 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 14:16 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 13:53 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 14:16 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 13:58 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 14:02 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 14:14 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 13:59 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 14:11 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 14:10 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 14:05 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 13:57 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 14:00 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 14:22 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 14:00 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 14:04 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 13:59 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 14:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 14:13 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/55872122417.shtml)
-- 2026-06-29 14:03 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/283565.shtml)
-- 2026-06-29 14:04 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/612251.shtml)
-- 2026-06-29 14:14 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/96344482581.shtml)
-- 2026-06-29 14:13 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/8779002586.shtml)
-- 2026-06-29 14:00 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/12473.shtml)
-- 2026-06-29 13:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/07870.shtml)
-- 2026-06-29 14:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/83423935.shtml)
-- 2026-06-29 13:59 - [唐艺昕女儿接唐艺昕回家](http://www.blog.kurohicncr.top/Article/details/4464215.shtml)
-- 2026-06-29 13:48 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/973012345358.shtml)
-- 2026-06-29 14:10 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/67862.shtml)
-- 2026-06-29 14:14 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/1470309.shtml)
-- 2026-06-29 14:05 - [天道](https://www.blog.minike.top/Article/details/639431.shtml)
-- 2026-06-29 14:10 - [事关个税 明日截止请抓紧办理](https://www.share.kurohicncr.top/Article/details/72291.shtml)
-- 2026-06-29 14:10 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/266584.shtml)
+- 2026-06-29 14:11 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/67162810058.shtml)
+- 2026-06-29 13:57 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/587563.shtml)
+- 2026-06-29 14:09 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/407171062.shtml)
+- 2026-06-29 14:11 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/05078.shtml)
+- 2026-06-29 14:02 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/57310057.shtml)
+- 2026-06-29 13:59 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/180401.shtml)
+- 2026-06-29 13:58 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/28790696950.shtml)
+- 2026-06-29 14:06 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/75811856336.shtml)
+- 2026-06-29 14:08 - [迈巴赫提车第二天发现大灯起雾](http://www.share.minike.top/Article/details/28652.shtml)
+- 2026-06-29 14:05 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/23837128.shtml)
+- 2026-06-29 14:08 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/13746747.shtml)
+- 2026-06-29 14:19 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/304871.shtml)
+- 2026-06-29 14:10 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/24318851.shtml)
+- 2026-06-29 14:01 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/37482.shtml)
+- 2026-06-29 14:10 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/88158586.shtml)

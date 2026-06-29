@@ -1,60 +1,59 @@
-# 促进高校毕业生就业 两部门部署开展“优企进校 招才引智”专项行动
+# 陕西多地“开镰”收麦 系统化保障颗粒归仓
 
-> 更新时间：2026-06-29 14:18:02 UTC+8
+> 更新时间：2026-06-29 14:24:03 UTC+8
 
 ## 摘要
 
-中新网4月14日电 据“工信微报”微信公众号消息，工业和信息化部、教育部近日联合印发通知，部署开展“优企进校 招才引智”专项行动。本次专项行动分为两个阶段，第一阶段为2026年4月至6月，第二阶段为2026年10月至12月。专项行动服务对象包括以专精特新中小企业为重点的中小企业，以2026届高校毕业生为重点的高校毕业生；将通过开展专精特新中小企业进校园活动、强化校企供需对接、提
+中新网西安6月2日电 (李一璠)记者2日从陕西省农业农村厅获悉，截至6月1日，该省累计收获小麦132.14万亩，占应收面积9.32%；油菜235.10万亩，占应收面积83.28%。累计夏播粮食187.56万亩，占预播面积17.05%。 近日，陕西多地“开镰”收麦，金黄麦田里机声隆隆，联合收割机来回穿梭，饱满麦粒源源不断装入运粮车。 目前，陕西“三夏”农机化生产各项工作有序开展，
 
 ## 正文
 
-中新网4月14日电 据“工信微报”微信公众号消息，工业和信息化部、教育部近日联合印发通知，部署开展“优企进校 招才引智”专项行动。
+中新网西安6月2日电 (李一璠)记者2日从陕西省农业农村厅获悉，截至6月1日，该省累计收获小麦132.14万亩，占应收面积9.32%；油菜235.10万亩，占应收面积83.28%。
 
-本次专项行动分为两个阶段，第一阶段为2026年4月至6月，第二阶段为2026年10月至12月。
+累计夏播粮食187.56万亩，占预播面积17.05%。
 
-专项行动服务对象包括以专精特新中小企业为重点的中小企业，以2026届高校毕业生为重点的高校毕业生；将通过开展专精特新中小企业进校园活动、强化校企供需对接、提升就业服务质效等三方面工作，进一步推动高校毕业生与专精特新中小企业精准对接，助力企业强化人才引育、优化人才结构，促进高校毕业生实现更加充分更高质量就业。
+近日，陕西多地“开镰”收麦，金黄麦田里机声隆隆，联合收割机来回穿梭，饱满麦粒源源不断装入运粮车。
 
-关于开展“优企进校 招才引智”专项行动的通知 工信厅联企业〔2026〕158号 各省、自治区、直辖市及计划单列市、新疆生产建设兵团中小企业主管部门、教育厅(教委、教育局)，部属各高等学校、部省合建各高等学校： 为深入贯彻党中央、国务院关于稳定和扩大高校毕业生等重点群体就业、促进中小企业专精特新发展的决策部署，以深化人才供需精准匹配为导向，进一步推动高校毕业生与专精特新中小企业精准对接，助力企业强化人才引育、优化人才结构，促进高校毕业生实现更加充分更高质量就业，工业和信息化部、教育部决定组织开展2026年“优企进校 招才引智”专项行动，由各省、自治区、直辖市及计划单列市中小企业主管部门、教育行政部门具体承办。
+目前，陕西“三夏”农机化生产各项工作有序开展，预计投入“三夏”生产的农机具总量达34.4万台(套)，其中，小麦联合收割机2.1万台(含履带式2800台)，能够满足该省小麦机收需求。
 
-现将有关事项通知如下。
+陕西省农业机械化发展中心日前发布《2026年陕西省粮食烘干仓储设施服务信息》，全面公示该省粮食烘干点位资源。
 
-一、行动名称 2026年“优企进校 招才引智”专项行动 二、时间安排 结合高校毕业生求职特点，本次“优企进校 招才引智”专项行动分为两个阶段，第一阶段为2026年4月至6月，第二阶段为2026年10月至12月。
+同时，该省共组建常态化应急作业服务队538支，在册应急作业机手5758人，针对极端天气易发区域开展常态化应急演练，确保关键时刻“拉得出、用得上”。
 
-三、服务对象 以专精特新中小企业为重点的中小企业，以2026届高校毕业生为重点的高校毕业生。
+“我今年种了20多亩麦子，这几天天气晴好，为小麦抢收提供了宝贵的窗口期。
 
-四、行动内容 (一)开展专精特新中小企业进校园活动。
+今年农业机械多，不仅价位合适，服务也很好。
 
 ## 相关推荐
 
-- 2026-06-29 14:09 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 14:04 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 14:10 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 14:13 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 14:11 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 14:09 - [韩国政府将对世界杯出局追责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 14:15 - [2025年人口增长10强城市出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 14:14 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 14:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 13:58 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 13:56 - [伊朗球员致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 14:09 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 13:59 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 13:58 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 14:06 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 14:24 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 14:13 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 14:16 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 14:22 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 14:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 14:04 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 14:01 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 13:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 13:57 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 14:13 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 14:02 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 14:07 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/914247801.shtml)
-- 2026-06-29 13:53 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/29378720.shtml)
-- 2026-06-29 13:50 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/583957.shtml)
-- 2026-06-29 13:52 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/94711.shtml)
-- 2026-06-29 13:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/0811535199.shtml)
-- 2026-06-29 13:56 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/926307.shtml)
-- 2026-06-29 14:10 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/09196.shtml)
-- 2026-06-29 13:57 - [A股](https://www.share.minike.top/Article/details/82315494.shtml)
-- 2026-06-29 14:15 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.kurohicncr.top/Article/details/006998674.shtml)
-- 2026-06-29 14:17 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/6659252496.shtml)
-- 2026-06-29 14:10 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/5948618.shtml)
-- 2026-06-29 13:57 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/70278.shtml)
-- 2026-06-29 13:48 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/783457.shtml)
-- 2026-06-29 13:54 - [欧洲超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/38954407298.shtml)
-- 2026-06-29 14:04 - [双高胎](http://www.share.kurohicncr.top/Article/details/235642.shtml)
+- 2026-06-29 14:18 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/998008939.shtml)
+- 2026-06-29 14:06 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/00917308454.shtml)
+- 2026-06-29 14:03 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/73442.shtml)
+- 2026-06-29 14:05 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/390326.shtml)
+- 2026-06-29 14:16 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/30717979694.shtml)
+- 2026-06-29 14:01 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.minike.top/Article/details/5813496557.shtml)
+- 2026-06-29 14:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/414106906.shtml)
+- 2026-06-29 14:05 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/71727630.shtml)
+- 2026-06-29 13:57 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/09487.shtml)
+- 2026-06-29 14:12 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.minike.top/Article/details/38538.shtml)
+- 2026-06-29 14:07 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/3992340656.shtml)
+- 2026-06-29 14:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/6578006120.shtml)
+- 2026-06-29 14:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/68861317.shtml)
+- 2026-06-29 14:12 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/553261.shtml)
+- 2026-06-29 14:23 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/959408.shtml)
