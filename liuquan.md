@@ -1,58 +1,53 @@
-# 李家超祝贺黎家盈博士参与神舟二十三号载人飞行任务
+# 小摩：中金公司首季业绩料胜预期 重申行业首选股
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月23日 16:46 来源：中国新闻网 香港特区行政长官李家超5月23日发表祝贺香港载荷专家参与神舟二十三号载人飞行任务的致辞。 他在致辞中表示：“今日，香港特区迎来参与国家伟大航天事业历史性的一日！中国载人航天工程办公室公布，来自香港的载荷专家黎家盈博士，将成为神舟二十三号飞行乘组的成员，前往中国空间站执行任务。我衷心感谢国家对香港的信任，以及对香港创
+摩根大通发布研报称，中金公司（03908）预料今年首季净利润同比增长65至90%，数据胜于预期，相信股价将出现正面反应。展望未来，小摩预期中金的财报将支撑其股价于短期内表现强势，而中金合并东兴证券及信达证券后所带来的进展与协同效应、海外业务的增长及机构业务复苏，应能进一步推动估值重估。该行重申对中金的“增持”评级，并继续将其列为行业首选股。责任编辑：史丽君
 
 ## 正文
 
-发布时间：2026年05月23日 16:46 来源：中国新闻网 香港特区行政长官李家超5月23日发表祝贺香港载荷专家参与神舟二十三号载人飞行任务的致辞。
+摩根大通发布研报称，中金公司（03908）预料今年首季净利润同比增长65至90%，数据胜于预期，相信股价将出现正面反应。
 
-他在致辞中表示：“今日，香港特区迎来参与国家伟大航天事业历史性的一日！
+展望未来，小摩预期中金的财报将支撑其股价于短期内表现强势，而中金合并东兴证券及信达证券后所带来的进展与协同效应、海外业务的增长及机构业务复苏，应能进一步推动估值重估。
 
-中国载人航天工程办公室公布，来自香港的载荷专家黎家盈博士，将成为神舟二十三号飞行乘组的成员，前往中国空间站执行任务。
+该行重申对中金的“增持”评级，并继续将其列为行业首选股。
 
-我衷心感谢国家对香港的信任，以及对香港创科人员的肯定和支持。
-
-我亦祝贺黎家盈博士代表香港特区骄傲地参与国家航天任务，在太空翱翔探索。
-
-创新科技及工业局局长孙东教授会率领香港特区的代表团，参与在酒泉卫星发射中心举行的出征仪式。
-
-我期待与各位香港市民和全国同胞，一起见证神舟二十三号发射升空。
-
-星空浩瀚，逐梦远航。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:26 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:30 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:20 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:23 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:37 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:18 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:24 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:38 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:34 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:29 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:41 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:39 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:35 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:38 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:38 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:18 - [4月16日人民币对美元中间价报6.8616 下调34个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:34 - [厦门钨业：子公司金龙稀土进入创新层](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:46 - [镜观·回响丨在交流中深化中越青年情谊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:32 - [中金：维持波司登跑赢行业评级 目标价5.65港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:23 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:45 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:19 - [伊朗称在与美国会谈期间讨论了解冻资产问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:29 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:35 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:22 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:26 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:35 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:40 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:27 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:43 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:14 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:16 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:16 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:42 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:21 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:36 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:17 - [河南南阳：警车亮灯守护三轮平安归途](http://www.share.kurohicncr.top/Article/details/862616691.shtml)
+- 2026-06-29 11:26 - [云南印发实施意见全面推进共有精神家园建设](http://www.blog.minike.top/Article/details/92819484538.shtml)
+- 2026-06-29 11:43 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.share.kurohicncr.top/Article/details/05964658458.shtml)
+- 2026-06-29 11:20 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.blog.minike.top/Article/details/8681872.shtml)
+- 2026-06-29 11:36 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](http://www.share.kurohicncr.top/Article/details/22809053.shtml)
+- 2026-06-29 11:22 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](http://www.share.minike.top/Article/details/221942.shtml)
+- 2026-06-29 11:43 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](http://www.blog.kurohicncr.top/Article/details/9443951.shtml)
+- 2026-06-29 11:46 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](http://www.blog.kurohicncr.top/Article/details/150155356.shtml)
+- 2026-06-29 11:21 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](http://www.share.kurohicncr.top/Article/details/4838997490.shtml)
+- 2026-06-29 11:16 - [国家统计局：一季度全国居民人均可支配收入12782元](http://www.blog.kurohicncr.top/Article/details/30166909.shtml)
+- 2026-06-29 11:28 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](http://www.blog.kurohicncr.top/Article/details/802598489009.shtml)
+- 2026-06-29 11:46 - [陆军某旅着力培养过硬兵棋骨干队伍](http://www.blog.kurohicncr.top/Article/details/062096992546.shtml)
+- 2026-06-29 11:36 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](http://www.blog.kurohicncr.top/Article/details/4205349803.shtml)
+- 2026-06-29 11:36 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](http://www.share.kurohicncr.top/Article/details/5205859.shtml)

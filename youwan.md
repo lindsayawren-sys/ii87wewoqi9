@@ -1,58 +1,58 @@
-# 吉林打造汽车文化盛会 工业文旅融合焕发新魅力
+# 新华时评·首季经济观察丨稳健开局展现中国经济韧性底气
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网长春5月24日电 (谭伟旗 金乔)24日，为期两天的首届吉林省转速汽车文化展正在长春净月高新区举行。活动汇聚全国18个省份的汽车爱好者，展出500余台定制性能车辆，是东北地区兼具规格与规模的汽车文化盛会。 此次活动由吉林省文旅厅指导，创新融合汽车文化、商业服务、休闲旅游、产业教育多元业态，打造沉浸式互动消费新场景，带动全省汽车运动与服务消费升级。 现场多款珍稀典藏车型亮相
+新华社北京4月16日电 题：稳健开局展现中国经济韧性底气 新华社记者谢希瑶 GDP同比增长5.0%——“十五五”开局之年的春天，我国经济实现良好开局。4月16日公布的首季国民经济运行数据显示，主要宏观指标增速回升，不仅为完成全年目标任务、实现“十五五”平稳开局打下坚实基础，更展现出中国经济在高质量发展中不断增强的韧性和底气。 “稳”是鲜明信号，更是信心之基。今年以来，面对不稳定
 
 ## 正文
 
-中新网长春5月24日电 (谭伟旗 金乔)24日，为期两天的首届吉林省转速汽车文化展正在长春净月高新区举行。
+新华社北京4月16日电 题：稳健开局展现中国经济韧性底气 新华社记者谢希瑶 GDP同比增长5.0%——“十五五”开局之年的春天，我国经济实现良好开局。
 
-活动汇聚全国18个省份的汽车爱好者，展出500余台定制性能车辆，是东北地区兼具规格与规模的汽车文化盛会。
+4月16日公布的首季国民经济运行数据显示，主要宏观指标增速回升，不仅为完成全年目标任务、实现“十五五”平稳开局打下坚实基础，更展现出中国经济在高质量发展中不断增强的韧性和底气。
 
-此次活动由吉林省文旅厅指导，创新融合汽车文化、商业服务、休闲旅游、产业教育多元业态，打造沉浸式互动消费新场景，带动全省汽车运动与服务消费升级。
+“稳”是鲜明信号，更是信心之基。
 
-现场多款珍稀典藏车型亮相，包括搭载专属定制变速箱的千匹E46、三浦庆亲笔签名Supra等；车尾箱市集、电竞互动、遥控赛车比拼等趣味活动同步开展，贴合年轻群体消费喜好，赋能汽车运动潮流发展。
+今年以来，面对不稳定不确定因素明显增多的外部环境，特别是在去年一季度高基数的情况下，我国固定资产投资增速由负转正，货物进出口总额季度增速创近五年最高，工业经济稳中提速……成绩来之不易、难能可贵，充分印证我国经济基础稳、优势多、韧性强、潜能大的特点没有改变，也为中国经济稳中求进注入强劲信心。
 
-吉林大学汽车工程学院学生赛车队携三台自研改装赛车参展，直观展示院校在汽车工程、智能驾驶、赛事研发领域的科创实力。
+创新为经济发展持续注入新动能。
 
-“我们希望借助展会平台，让观众了解高校汽车科创成果，同时与各地改装爱好者、从业者交流，以行业经验反哺校园研发与实践教学。
+当前，越来越多行业向高端化、智能化、绿色化转型升级。
 
-”车队队长刘宁正说。
+一季度，装备制造业增加值增速明显快于全部规上工业，高技术制造业技术含量更高，新兴领域投资增势较好，一个个向好的数据彰显新动能日益增添经济发展的活力。
 
-来自辽宁大连的改装团队携六台定制车辆亮相。
+民生向暖的成色更足。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:30 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:43 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:15 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:43 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:30 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:34 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:19 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:37 - [男子吃半根变苦黄瓜致肝衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:31 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:22 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:26 - [Hims & Hers股价周四上涨：监管突破助推](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:30 - [（经济观察）万商云集广交会 折射中国外贸新气象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:37 - [五一假期首日火车票今日开售 超全抢票攻略来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:23 - [距下次会议仅剩两周，欧洲央行仍未就利率走向给市场明确信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:27 - [实达集团营收缩水超2亿，退市警报拉响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:19 - [一季度“零发行”后银行二永债4月抢闸，会否冲击债市利差？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:33 - [戈壁湿地奏响春日序曲 万鸟翩跹染绿丝路古道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:41 - [美国和伊朗或考虑延长停火 霍尔木兹海峡局势仍高度紧张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:41 - [铝业股午前集体走高 中国铝业涨超5%俄铝涨超3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:30 - [中国经济开门红，靠的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:26 - [同济大学回应“一教师论文数据存疑”：已成立调查组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:18 - [南京将打造国际航空货运枢纽 开辟及加密近远洋干线航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:14 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:14 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:29 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:43 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:17 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:16 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:24 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:21 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:30 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:24 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:34 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:33 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:18 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](http://www.blog.minike.top/Article/details/26246106.shtml)
+- 2026-06-29 11:32 - [美国将封锁范围扩大至受制裁船只](http://www.share.minike.top/Article/details/128654805385.shtml)
+- 2026-06-29 11:32 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](http://www.blog.minike.top/Article/details/3991338882.shtml)
+- 2026-06-29 11:28 - [涉“幽灵外卖”，抖音被罚5689万](http://www.blog.kurohicncr.top/Article/details/44263.shtml)
+- 2026-06-29 11:39 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](http://www.blog.minike.top/Article/details/459843.shtml)
+- 2026-06-29 11:26 - [黎巴嫩总统同美国国务卿通话](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](http://www.blog.minike.top/Article/details/813396.shtml)
+- 2026-06-29 11:36 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](http://www.blog.kurohicncr.top/Article/details/6874248.shtml)
+- 2026-06-29 11:24 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](http://www.share.minike.top/Article/details/2220957.shtml)
+- 2026-06-29 11:17 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](http://www.share.minike.top/Article/details/5628393.shtml)
+- 2026-06-29 11:29 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [北京“两区”建设加速推进 高水平开放释放发展新动能](http://www.share.minike.top/Article/details/7240674.shtml)
+- 2026-06-29 11:39 - [济宁太白湖新区：花海伴赛事 产业促民生](http://www.blog.minike.top/Article/details/480966809380.shtml)
+- 2026-06-29 11:21 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](http://www.share.minike.top/Article/details/672702572.shtml)

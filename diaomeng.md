@@ -1,54 +1,48 @@
-# 山西留神峪煤矿曾被列入全国灾害严重生产煤矿名单
+# 董宇辉谈消博会壮锦包走红
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网5月23日电 (记者 李京统)2026年5月22日19时35分，山西省沁源县通洲集团留神峪煤矿发生瓦斯爆炸事故，已造成90人死亡，现场搜救仍在进行。山西通洲集团留神峪煤业有限公司隶属于山西通洲煤焦集团股份有限公司(下称通洲集团)。 国家矿山安全监察局曾于2024年4月15日发布全国灾害严重生产煤矿名单，该名单包含全国高瓦斯、煤与瓦斯突出、水文地质类型复杂或极复杂、冲击地压
+发布时间：2026年04月16日 20:39 来源：中国新闻网 董宇辉谈消博会时表示，广西展馆的壮锦包十分火爆，它沿用传统壮锦纹样与设计，又通过工业化量产保障供应。这款产品将传统工艺与现代设计、推广相结合，成功走红畅销，是传统文化创新出圈的优秀案例。(张静 高萌） 责任编辑：【宋宇晟】
 
 ## 正文
 
-中新网5月23日电 (记者 李京统)2026年5月22日19时35分，山西省沁源县通洲集团留神峪煤矿发生瓦斯爆炸事故，已造成90人死亡，现场搜救仍在进行。
+发布时间：2026年04月16日 20:39 来源：中国新闻网 董宇辉谈消博会时表示，广西展馆的壮锦包十分火爆，它沿用传统壮锦纹样与设计，又通过工业化量产保障供应。
 
-山西通洲集团留神峪煤业有限公司隶属于山西通洲煤焦集团股份有限公司(下称通洲集团)。
+这款产品将传统工艺与现代设计、推广相结合，成功走红畅销，是传统文化创新出圈的优秀案例。
 
-国家矿山安全监察局曾于2024年4月15日发布全国灾害严重生产煤矿名单，该名单包含全国高瓦斯、煤与瓦斯突出、水文地质类型复杂或极复杂、冲击地压等灾害严重的生产煤矿(不含长期停产煤矿)。
-
-其中，通洲集团旗下四家公司上榜，包括山西通洲集团晋杨煤业有限公司、山西通洲集团安神煤业有限公司、山西通洲集团安达煤业有限公司以及本次事故主体山西通洲集团留神峪煤业有限公司。
-
-四家煤矿均位于沁源县，灾害类型均为高瓦斯。
+(张静 高萌） 责任编辑：【宋宇晟】
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:38 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:36 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:25 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:38 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:42 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:15 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:16 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:36 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:38 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:27 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:36 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:37 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:36 - [云南瑞丽边检站为骨折缅甸旅客开通“紧急通道”入境就医](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:34 - [新华时评·首季经济观察丨稳健开局展现中国经济韧性底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:22 - [迪拜启用全球首个综合空中出租车起降场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:29 - [长三角港口从“互连”迈向“深融” “连申快航”年运量突破15.2万标箱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:38 - [凌晨，见证历史！全线大涨！美联储，重磅发布！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:17 - [圣贝拉集团：受托人根据股份奖励计划购买合共9.2万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:23 - [麦迪科技：4月13日召开业绩说明会，投资者参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:24 - [开局之年看中国·开放自贸港：三亚芒果闯世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:44 - [Hims & Hers股价周四上涨：监管突破助推](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:21 - [（经济观察）万商云集广交会 折射中国外贸新气象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:42 - [五一假期首日火车票今日开售 超全抢票攻略来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:26 - [距下次会议仅剩两周，欧洲央行仍未就利率走向给市场明确信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:27 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:30 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:26 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:27 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:36 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:37 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:30 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:37 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:21 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:19 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:34 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:40 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:25 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:17 - [厦门钨业：子公司金龙稀土进入创新层](http://www.share.minike.top/Article/details/635095224491.shtml)
+- 2026-06-29 11:35 - [镜观·回响丨在交流中深化中越青年情谊](http://www.share.kurohicncr.top/Article/details/6144884.shtml)
+- 2026-06-29 11:23 - [中金：维持波司登跑赢行业评级 目标价5.65港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](http://www.blog.minike.top/Article/details/11494.shtml)
+- 2026-06-29 11:18 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](http://www.blog.kurohicncr.top/Article/details/54800.shtml)
+- 2026-06-29 11:30 - [伊朗称在与美国会谈期间讨论了解冻资产问题](http://www.share.minike.top/Article/details/733125.shtml)
+- 2026-06-29 11:36 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](http://www.share.minike.top/Article/details/809374.shtml)
+- 2026-06-29 11:35 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](http://www.blog.kurohicncr.top/Article/details/98780313447.shtml)
+- 2026-06-29 11:45 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](http://www.share.minike.top/Article/details/102614218724.shtml)
+- 2026-06-29 11:22 - [美国将封锁范围扩大至受制裁船只](http://www.blog.kurohicncr.top/Article/details/7163393.shtml)
+- 2026-06-29 11:29 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](http://www.share.minike.top/Article/details/26616664325.shtml)
+- 2026-06-29 11:32 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [黎巴嫩总统同美国国务卿通话](http://www.blog.kurohicncr.top/Article/details/336246796.shtml)
+- 2026-06-29 11:36 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](https://github.com/lisacumin64-arch)

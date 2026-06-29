@@ -1,57 +1,56 @@
-# 特朗普称可能于24日决定是否恢复对伊军事行动
+# Stena DrillMAX将在希腊近海钻探首口深水井
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-当地时间5月23日，美国总统特朗普表示，他将于当天晚些时候与谈判团队会面，讨论伊朗方面最新提议，并可能于24日决定是否恢复军事行动。 特朗普称，目前达成协议的可能性“大约占一半”。他说，美方要么达成“一项好的协议”，要么将对伊朗采取更强硬行动。 据称，特朗普当天将与特使威特科夫和女婿库什纳等人举行会谈，美国副总统万斯预计也将参加。 正在参与斡旋的巴基斯坦陆军参谋长穆尼尔已于23
+海上钻井承包商Stena Drilling已与Energean签订合同，将在希腊近海开展勘探钻井活动。 该活动预计于2027年初启动，将在希腊近海、位于爱奥尼亚海西北部的2号区块钻探一口确定井，并要求采用控压钻井技术。 这将是希腊有史以来钻探的第一口深水海上井。 Stena Drilling表示：“Stena Drilling与Energean有着长期成功的合作关系，此前曾在以
 
 ## 正文
 
-当地时间5月23日，美国总统特朗普表示，他将于当天晚些时候与谈判团队会面，讨论伊朗方面最新提议，并可能于24日决定是否恢复军事行动。
+海上钻井承包商Stena Drilling已与Energean签订合同，将在希腊近海开展勘探钻井活动。
 
-特朗普称，目前达成协议的可能性“大约占一半”。
+该活动预计于2027年初启动，将在希腊近海、位于爱奥尼亚海西北部的2号区块钻探一口确定井，并要求采用控压钻井技术。
 
-他说，美方要么达成“一项好的协议”，要么将对伊朗采取更强硬行动。
+这将是希腊有史以来钻探的第一口深水海上井。
 
-据称，特朗普当天将与特使威特科夫和女婿库什纳等人举行会谈，美国副总统万斯预计也将参加。
+Stena Drilling表示：“Stena Drilling与Energean有着长期成功的合作关系，此前曾在以色列和摩洛哥进行过多轮作业。
 
-正在参与斡旋的巴基斯坦陆军参谋长穆尼尔已于23日离开德黑兰。
+这一良好的业绩记录充分证明了Stena Drilling支持Energean活动的能力，我们期待继续与Energean合作，共同完成安全、高效、成功的作业。
 
-巴基斯坦方面表示，各方“朝着最终谅解取得了令人鼓舞的进展”，但协议尚未最终达成。
+” Stena DrillMAX是一座第六代恶劣环境双活动动态定位（DP3）钻井船，能够在水深达10，000英尺的海域进行钻井作业。
 
-特朗普表示，他只会接受涵盖铀浓缩及伊朗现有铀库存等问题的协议。
-
-不过，这些问题预计不会在当前讨论中的意向文件中得到详细解决。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:22 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:16 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:15 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:20 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:32 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:21 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:24 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:43 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:31 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:23 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:33 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:28 - [全球智能鸿沟如何破解？这份报告给出答案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:42 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:28 - [新疆新设草湖市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:32 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:30 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:31 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:44 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:38 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:32 - [海军航空大学某大队：更新知识体系 厚植打赢底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:36 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:34 - [Uber将收购Delivery Hero额外4.5%的股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:28 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:21 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:30 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:41 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:22 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:36 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:17 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:30 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:25 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:35 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:20 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:31 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:18 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:17 - [上海外贸进出口总值实现“季、月双创纪录”开局](http://www.blog.minike.top/Article/details/834094308587.shtml)
+- 2026-06-29 11:32 - [中国国防部：敦促日方同军国主义彻底切割](http://www.blog.minike.top/Article/details/66860974211.shtml)
+- 2026-06-29 11:18 - [中国财长出席2026年G20财长和央行行长第一次会议](http://www.blog.minike.top/Article/details/132920126.shtml)
+- 2026-06-29 11:16 - [翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股](http://www.share.kurohicncr.top/Article/details/3964474.shtml)
+- 2026-06-29 11:42 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](http://www.blog.kurohicncr.top/Article/details/4472956138.shtml)
+- 2026-06-29 11:22 - [液态金属在太空有何应用前景？中国科研团队深度解析全景前瞻](http://www.share.kurohicncr.top/Article/details/311442947.shtml)
+- 2026-06-29 11:39 - [国家医保局：全国近四成统筹地区已完成上年度清算](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [贝森特：可以理解美联储暂缓降息](http://www.blog.minike.top/Article/details/196762078232.shtml)
+- 2026-06-29 11:20 - [洪水猛兽还是有效工具？专家学者聚焦AI视域下的青少年科幻写作](http://www.share.minike.top/Article/details/634759311.shtml)
+- 2026-06-29 11:18 - [老外体验无人驾驶：“万万没想到，比司机开还稳”](http://www.share.kurohicncr.top/Article/details/837647442889.shtml)
+- 2026-06-29 11:19 - [挖机销量增近三成，工程机械“金三”来了](http://www.blog.minike.top/Article/details/019280.shtml)
+- 2026-06-29 11:17 - [开局之年看中国·开放自贸港：“艇”进三亚](http://www.blog.minike.top/Article/details/127243.shtml)
+- 2026-06-29 11:19 - [首次原子尺度证实 中国科学家发现金属/载体三维体相参与催化新机制](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [财信宏观丨供给韧性较强，需求修复待提速—2026年1-3月经济数据点评](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [酒价内参4月16日价格发布：水晶剑南春小幅上涨1元/瓶](http://www.blog.minike.top/Article/details/157947626.shtml)

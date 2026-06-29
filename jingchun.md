@@ -1,58 +1,56 @@
-# 中国—东盟人工智能产业创新中心成立
+# “任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-5月24日，中国—东盟人工智能产业创新中心(以下简称“中国—东盟AI中心”)成立仪式在北京举行。工业和信息化部副部长柯吉欣、东盟秘书长高金洪出席仪式并致辞。 在中国—东盟数字部长会议机制框架下，中方与东盟各方持续深化合作，以人工智能为纽带构建跨境合作链条，共同打造互利共赢的“数字丝绸之路”。为推进《中国—东盟全面战略伙伴关系行动计划(2026—2030)》，落实《2026年中国
+中新网北京4月16日电 (记者 应妮)2026年4月15日是著名哲学家、宗教学家、历史学家，国家图书馆名誉馆长，中国文化书院导师任继愈先生诞辰110周年纪念日。由中国文化书院、国家图书馆、北京大学哲学系联合主办的“汤一介当代学人讲座”第九讲“任继愈：学术人生与人生境界”，日前在国家图书馆学津堂开讲。 讲座由北京大学哲学系宗教学系主任、中国文化书院导师程乐松教授主讲。他指出，作为
 
 ## 正文
 
-5月24日，中国—东盟人工智能产业创新中心(以下简称“中国—东盟AI中心”)成立仪式在北京举行。
+中新网北京4月16日电 (记者 应妮)2026年4月15日是著名哲学家、宗教学家、历史学家，国家图书馆名誉馆长，中国文化书院导师任继愈先生诞辰110周年纪念日。
 
-工业和信息化部副部长柯吉欣、东盟秘书长高金洪出席仪式并致辞。
+由中国文化书院、国家图书馆、北京大学哲学系联合主办的“汤一介当代学人讲座”第九讲“任继愈：学术人生与人生境界”，日前在国家图书馆学津堂开讲。
 
-在中国—东盟数字部长会议机制框架下，中方与东盟各方持续深化合作，以人工智能为纽带构建跨境合作链条，共同打造互利共赢的“数字丝绸之路”。
+讲座由北京大学哲学系宗教学系主任、中国文化书院导师程乐松教授主讲。
 
-为推进《中国—东盟全面战略伙伴关系行动计划(2026—2030)》，落实《2026年中国—东盟数字合作计划》，工业和信息化部在凝聚多方共识基础上，推动成立中国—东盟AI中心，着力打造面向东盟的人工智能多边合作平台，充分发挥中国与东盟产业互补优势，持续深化人工智能领域务实合作。
+他指出，作为当代中国最具影响力的思想家，任继愈先生双耕于哲学与宗教学领域，对这两个学科的当代建构都有开创与奠基之功。
 
-中国—东盟AI中心将重点聚焦四方面工作：一是推动技术研发与创新合作，加强大模型等新一代人工智能技术在工业典型场景中的应用，加快产业智能化升级。
+从提出问题到确立方法，从基本文献的整理到学科价值的设定，任继愈先生不仅厚植学术，形成了诸多深刻洞见，还发起和组织了诸多在学科建制意义上的重大基础项目，在培养学科研究人才的基础上开创了具有强烈时代感的学术风格。
 
-二是构建人工智能产业合作生态，建立中国与东盟国家人工智能产业对话机制，促进双多边贸易投资。
+“从沉潜学术的精细深沉，到宏阔笃实的学科视野，直至慎终如始的家国情怀，都体现了任继愈先生为代表的当代中国学人的精神取向与人格魅力。
 
-三是深化人工智能治理实践，加强标准化协同与治理工具开发，形成更具共识的治理框架和规则。
+不妨说，任继愈先生既是时代精神的缩影，也是未来思想的风向。
 
-四是助力区域能力建设，共建智能基础设施，共享人工智能发展红利，推动弥合全球智能鸿沟。
+” 在现场评议中，中国社会科学院世界宗教研究所研究员赵法生教授表示，程乐松教授的报告有几个令人印象深刻的关键词——全幅的学问、笃实与勇毅、深陷与超拔，分别体现了任先生学问的宽度、为学的风格和人格的风范。
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:14 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:32 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:29 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:27 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:26 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:26 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:19 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:23 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:31 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:19 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:42 - [市场监管总局：将深入开展CCC认证守底线专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:24 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:23 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:23 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:22 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:28 - [中东局势变化对我国外贸有何影响？国家统计局回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:23 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:40 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:44 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:35 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:34 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:37 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:41 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:30 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:31 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:42 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:30 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:39 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:36 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:25 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:25 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:18 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.share.kurohicncr.top/Article/details/453075.shtml)
+- 2026-06-29 11:40 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](http://www.blog.minike.top/Article/details/0268286.shtml)
+- 2026-06-29 11:27 - [韩国第一季度接待外国游客476万人次，创历史新高](http://www.share.kurohicncr.top/Article/details/0647004.shtml)
+- 2026-06-29 11:45 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](http://www.blog.minike.top/Article/details/827193.shtml)
+- 2026-06-29 11:29 - [采购商谈消博会：这里是一座“全球好物中转站”](http://www.share.minike.top/Article/details/0483338421.shtml)
+- 2026-06-29 11:32 - [渤海银行：首席信息官谢凯任职资格获批](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](http://www.blog.minike.top/Article/details/05271990.shtml)
+- 2026-06-29 11:36 - [国际能源署署长：欧洲仅剩够用6周航空燃油](http://www.blog.kurohicncr.top/Article/details/111463797.shtml)
+- 2026-06-29 11:21 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](http://www.blog.minike.top/Article/details/210862691858.shtml)
+- 2026-06-29 11:31 - [酒价内参4月17日价格发布，青花郎下跌2元](http://www.blog.kurohicncr.top/Article/details/435234441.shtml)
+- 2026-06-29 11:33 - [外交部提醒赴美国中国公民注意入境安全风险](http://www.blog.minike.top/Article/details/88505488928.shtml)
+- 2026-06-29 11:33 - [Stena DrillMAX将在希腊近海钻探首口深水井](http://www.share.minike.top/Article/details/5941550773.shtml)
+- 2026-06-29 11:35 - [在沙地种下一片“云朵玫瑰”](http://www.blog.kurohicncr.top/Article/details/243783686477.shtml)

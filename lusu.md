@@ -1,48 +1,56 @@
-# 美国南卡州一沙滩发生踩踏事件 至少19人受伤
+# 百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网5月25日电 据美国广播公司(ABC)报道，当地时间24日凌晨，美国南卡罗来纳州大西洋海滩发生踩踏事件，造成至少19人受伤。 据报道，警方推测，事件的起因可能是有人突然在人群中奔跑，引发连锁反应。警方称，“这一过程仅持续了几秒钟”。 报道称，至少19人在该事件中受伤，其中3人被送往医院，伤者均无生命危险。
+发布时间：2026年04月16日 21:11 来源：中国新闻网 矿物晶体属于特殊的矿产资源，具有独特的艺术价值和观赏价值。4月15日，位于福建省惠安县的崇武古城矿博馆吸引了众多参观者。该馆集研学、旅游、地质文化、地质矿物展出、科普为一体。 记者看到，馆藏矿物晶体标本涵盖多类品种，其中不乏祖母绿、青金石、绿松石、葡萄石、结晶石、石英与绿莹石共生的矿物晶体等百余件，最小的几克拉，最
 
 ## 正文
 
-中新网5月25日电 据美国广播公司(ABC)报道，当地时间24日凌晨，美国南卡罗来纳州大西洋海滩发生踩踏事件，造成至少19人受伤。
+发布时间：2026年04月16日 21:11 来源：中国新闻网 矿物晶体属于特殊的矿产资源，具有独特的艺术价值和观赏价值。
 
-据报道，警方推测，事件的起因可能是有人突然在人群中奔跑，引发连锁反应。
+4月15日，位于福建省惠安县的崇武古城矿博馆吸引了众多参观者。
 
-警方称，“这一过程仅持续了几秒钟”。
+该馆集研学、旅游、地质文化、地质矿物展出、科普为一体。
 
-报道称，至少19人在该事件中受伤，其中3人被送往医院，伤者均无生命危险。
+记者看到，馆藏矿物晶体标本涵盖多类品种，其中不乏祖母绿、青金石、绿松石、葡萄石、结晶石、石英与绿莹石共生的矿物晶体等百余件，最小的几克拉，最大的达十几吨，在灯光的映衬下，闪烁着耀眼的光芒，让人目不暇接。
+
+馆方表示，惠安是著名的“世界石雕之都”，雕艺作品展示了惠安人的工匠精神。
+
+而矿物晶体是大自然经过上亿年或更久时间形成的一种奇观，代表了自然界的鬼斧神工。
+
+通过展览让更多游客看到大自然天然形成的矿物晶体。
+
+(记者 吴晟炜） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:14 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:30 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:42 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:21 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:33 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:27 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:33 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:24 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:21 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:37 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:45 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:29 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:21 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:28 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:36 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:29 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:19 - [市场监管总局：将深入开展CCC认证守底线专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:38 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:19 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:41 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:37 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:23 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:40 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:40 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:40 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:42 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:34 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:19 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:21 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:16 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:24 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:16 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.blog.minike.top/Article/details/21090856.shtml)
+- 2026-06-29 11:39 - [一季度增城西站中欧班列开行量同比增长24%](http://www.blog.minike.top/Article/details/8337907.shtml)
+- 2026-06-29 11:41 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.share.kurohicncr.top/Article/details/14461768999.shtml)
+- 2026-06-29 11:43 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.blog.minike.top/Article/details/3493097755.shtml)
+- 2026-06-29 11:33 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.share.minike.top/Article/details/5869321.shtml)
+- 2026-06-29 11:39 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](http://www.share.minike.top/Article/details/70150206.shtml)
+- 2026-06-29 11:45 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.share.kurohicncr.top/Article/details/366545985691.shtml)
+- 2026-06-29 11:40 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](http://www.blog.kurohicncr.top/Article/details/2183537.shtml)
+- 2026-06-29 11:38 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [韩国第一季度接待外国游客476万人次，创历史新高](http://www.blog.minike.top/Article/details/3588275780.shtml)
+- 2026-06-29 11:41 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](http://www.blog.minike.top/Article/details/8394170.shtml)
+- 2026-06-29 11:42 - [采购商谈消博会：这里是一座“全球好物中转站”](http://www.blog.minike.top/Article/details/27349245547.shtml)
+- 2026-06-29 11:17 - [渤海银行：首席信息官谢凯任职资格获批](http://www.share.minike.top/Article/details/989357149.shtml)
+- 2026-06-29 11:35 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](http://www.blog.minike.top/Article/details/1787524489.shtml)
+- 2026-06-29 11:38 - [国际能源署署长：欧洲仅剩够用6周航空燃油](http://www.blog.kurohicncr.top/Article/details/7522607458.shtml)

@@ -1,58 +1,58 @@
-# 创新药企陷“生死局”，谁能为“最后一公里”买单？
+# GQY视讯大幅修正业绩，锁定*ST维权已开启
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！21世纪经济报道记者季媛媛 2025年，中国创新药产业交出了一份足以让全球瞩目的成绩单。国家药监局最新数据显示，2025年全年批准上市1类创新药76个品种，大幅超过2024年全年的48个，创历史新高。 此外，2025年我国创新药对外授权交易总金额超过1300亿美元，授权交易数量超过150笔，同样创历史新高。
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、大幅下修年度业绩 4月16日晚，GQY视讯（维权）的一纸公告让近3万户股东彻夜难眠。根据GQY视讯发布的《2025年度业绩预告修正公告》，公司预计2025年度营业收入由原先的1.02亿元至1.44亿元，修正至7500万元至8400万元。这意味着，原本勉强跨过1亿元“生命线”的营收，一夜之间被打了六折。 因收入低于1亿元，根据
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、大幅下修年度业绩 4月16日晚，GQY视讯（维权）的一纸公告让近3万户股东彻夜难眠。
 
-21世纪经济报道记者季媛媛 2025年，中国创新药产业交出了一份足以让全球瞩目的成绩单。
+根据GQY视讯发布的《2025年度业绩预告修正公告》，公司预计2025年度营业收入由原先的1.02亿元至1.44亿元，修正至7500万元至8400万元。
 
-国家药监局最新数据显示，2025年全年批准上市1类创新药76个品种，大幅超过2024年全年的48个，创历史新高。
+这意味着，原本勉强跨过1亿元“生命线”的营收，一夜之间被打了六折。
 
-此外，2025年我国创新药对外授权交易总金额超过1300亿美元，授权交易数量超过150笔，同样创历史新高。
+因收入低于1亿元，根据相关规定，在2025年年度报告正式披露后，公司股票将被实施退市风险警示，股票简称前将冠以“*ST”字样。
 
-我国在研新药管线约占全球30%，位列全球第二。
+在注册制背景下，ST股票的退市风险极高。
 
-然而，在“创新井喷”的背后，一场关于“谁来买单”的困局正悄然发酵。
+鉴于公司基本面已发生根本性恶化且面临投资者诉讼，普通投资者应尽量规避，切勿盲目抄底。
 
-在近日举行的医药健康产业与保险融合发展论坛上，一个直抵产业痛点的追问被关注：创新药的价值如何从临床走向支付？
+二、信披不准确引发索赔 此次事件最令投资者愤慨的，并非业绩亏损，而是业绩预告的严重失准。
 
-对此，不少业内人士给出了几乎一致的答案：单一的医保支付体系无法承载这个产业链条的完整循环，商保必须站出来。
+在今年1月底发布的业绩预告中，GQY视讯曾表示营收为1.02亿元至1.44亿元，并未提示营收不足亿元的风险。
 
 ## 相关推荐
 
-- 2026-06-29 11:33 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:38 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:23 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:41 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:37 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:24 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:34 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:38 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:18 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:43 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:29 - [中金：维持波司登跑赢行业评级 目标价5.65港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:45 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:46 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:24 - [伊朗称在与美国会谈期间讨论了解冻资产问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:34 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:19 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:25 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:24 - [美国将封锁范围扩大至受制裁船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:18 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:21 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:37 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:24 - [黎巴嫩总统同美国国务卿通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:23 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:41 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:15 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:23 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:26 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:18 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:20 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:26 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:40 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:28 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:39 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:36 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:38 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](http://www.blog.kurohicncr.top/Article/details/135459.shtml)
+- 2026-06-29 11:34 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](http://www.share.kurohicncr.top/Article/details/00389.shtml)
+- 2026-06-29 11:22 - [陆军某旅着力培养过硬兵棋骨干队伍](http://www.share.kurohicncr.top/Article/details/5181300806.shtml)
+- 2026-06-29 11:35 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](http://www.share.kurohicncr.top/Article/details/396459642.shtml)
+- 2026-06-29 11:19 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](http://www.blog.minike.top/Article/details/9485437.shtml)
+- 2026-06-29 11:19 - [上美股份将于6月23日派发末期股息每股0.75元](http://www.share.kurohicncr.top/Article/details/36668.shtml)
+- 2026-06-29 11:19 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](http://www.blog.minike.top/Article/details/23134.shtml)
+- 2026-06-29 11:44 - [中国驻日大使馆接连遭到恐怖威胁](http://www.share.minike.top/Article/details/50714.shtml)
+- 2026-06-29 11:37 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](http://www.share.kurohicncr.top/Article/details/8195080.shtml)
+- 2026-06-29 11:17 - [海南这个园区有点东西：学生一校入学 可共享多校课程](http://www.share.minike.top/Article/details/27884849.shtml)
+- 2026-06-29 11:40 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](http://www.blog.kurohicncr.top/Article/details/37495143746.shtml)
+- 2026-06-29 11:26 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](http://www.share.minike.top/Article/details/1656022243.shtml)
+- 2026-06-29 11:43 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](http://www.blog.minike.top/Article/details/640460382.shtml)
+- 2026-06-29 11:18 - [多重利好叠加提振预期 消费板块能否苦尽甘来](http://www.share.minike.top/Article/details/6038053072.shtml)
+- 2026-06-29 11:31 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lisacumin64-arch)

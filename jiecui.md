@@ -1,59 +1,54 @@
-# 湖北省武穴市委统战部召开机关干部大会部署近期重点工作
+# “世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-聚焦中心大局 汇聚统战力量——市委统战部召开机关干部大会部署近期重点工作 近日，市委统战部召开部机关干部大会，受市委常委、统战部部长徐楷委托，统战部分管日常工作的副部长张雄主持会议并讲话。会议深入学习贯彻市委近期重要会议精神，全面部署当前和下一阶段统战重点工作，强调要始终坚持"市委中心工作聚焦到哪里，统一战线的资源和力量就汇聚到哪里"，以更高站位、更实举措、更硬作风，为武穴建设
+今年4月16日是韩国“世越”号客轮倾覆事故发生12周年。韩国总统李在明当天表示，将竭尽全力，防止国民生命安全因国家和资金缺位而受到威胁的事件再次发生。 李在明当天在青瓦台主持了首席辅佐官会议，他在会上向“世越”号倾覆事故的遇难者家属和事故幸存者表示深切慰问。李在明强调，应彻底根除把成本置于安全之上、把利益置于生命之上的错误认知；也必须切实建立起生命高于金钱的社会文化。他指出，为
 
 ## 正文
 
-聚焦中心大局 汇聚统战力量——市委统战部召开机关干部大会部署近期重点工作 近日，市委统战部召开部机关干部大会，受市委常委、统战部部长徐楷委托，统战部分管日常工作的副部长张雄主持会议并讲话。
+今年4月16日是韩国“世越”号客轮倾覆事故发生12周年。
 
-会议深入学习贯彻市委近期重要会议精神，全面部署当前和下一阶段统战重点工作，强调要始终坚持"市委中心工作聚焦到哪里，统一战线的资源和力量就汇聚到哪里"，以更高站位、更实举措、更硬作风，为武穴建设‘一区四基地’贡献统战智慧和力量。
+韩国总统李在明当天表示，将竭尽全力，防止国民生命安全因国家和资金缺位而受到威胁的事件再次发生。
 
-会议传达了徐楷部长对近期统战工作的指示要求。
+李在明当天在青瓦台主持了首席辅佐官会议，他在会上向“世越”号倾覆事故的遇难者家属和事故幸存者表示深切慰问。
 
-徐楷部长指出，当前武穴正处于高质量发展的关键期、项目建设的攻坚期，统一战线作为党的重要法宝，必须主动融入大局、服务大局，找准工作切入点和着力点，把统战优势转化为发展优势，把统战资源转化为发展动能。
+李在明强调，应彻底根除把成本置于安全之上、把利益置于生命之上的错误认知；也必须切实建立起生命高于金钱的社会文化。
 
-全体统战干部要提高政治站位，强化责任担当，以"时时放心不下"的责任感和"事事落实到位"的执行力，推动各项重点工作落地见效。
+他指出，为了不让这样的悲剧重演，所有人都应竭尽全力。
 
-会议要求，要始终锚定市委中心工作，精准对接全市发展大局，充分发挥统一战线人才荟萃、智力密集、联系广泛的独特优势，深入推进"楚商回乡"工程，广泛凝聚在外楚商和企业家力量，持续深化"统战+"模式，不断优化营商环境和服务保障，吸引更多资金、技术、人才向武穴汇聚；要全力服务重大产业项目建设，主动靠前担当作为，积极协调解决项目推进过程中的堵点难点问题，助力产业链完善和产业集群发展；要积极参与城市更新行动，发挥统一战线协调关系、化解矛盾的重要作用，协助做好政策解读、群众引导等工作，引导广大统战成员为城市建设和民生改善建言献策、贡献力量。
+2014年4月16日，载有476人的“世越”号客轮从韩国西北部仁川港出发，前往西南部济州岛，在西南海域进水翻沉，导致304人遇难，多数是参加修学旅行的安山市檀园高中师生。
 
-要始终绷紧安全稳定这根弦，坚决守住统战领域安全底线，常态化排查化解各类风险隐患，切实筑牢和谐稳定的坚固防线，为全市高质量发展营造良好环境。
-
-会议强调，全体机关干部要迅速把思想和行动统一到市委决策部署上来，以"拼抢实"的状态和作风，真抓实干、埋头苦干，确保各项工作任务圆满完成。
+(总台记者 张昀）
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:34 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:30 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:34 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:41 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:43 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:18 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:33 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:27 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:19 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:20 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:43 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:14 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:31 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:40 - [连连数字于4月15日斥资99.71万港元回购16.25万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:39 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:22 - [酒价内参4月17日价格发布，古井贡古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:39 - [新晋退休人士最后悔的事：没多存点钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:30 - [IEA警示历史性石油冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:38 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:26 - [A股盘前速递：黄金涨回4800美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:28 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:17 - [澳大利亚一炼油厂发生大火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:38 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:14 - [数码产品单品最高暴涨1860元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:43 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:43 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:36 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:15 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:41 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:21 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:18 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:24 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:22 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:17 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:29 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:41 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](http://www.share.kurohicncr.top/Article/details/68449781466.shtml)
+- 2026-06-29 11:17 - [全球智能鸿沟如何破解？这份报告给出答案！](http://www.blog.minike.top/Article/details/93162.shtml)
+- 2026-06-29 11:40 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](http://www.share.kurohicncr.top/Article/details/5683064.shtml)
+- 2026-06-29 11:29 - [新疆新设草湖市](http://www.blog.kurohicncr.top/Article/details/55218750.shtml)
+- 2026-06-29 11:31 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](http://www.blog.kurohicncr.top/Article/details/57806.shtml)
+- 2026-06-29 11:40 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](http://www.blog.kurohicncr.top/Article/details/03607272.shtml)
+- 2026-06-29 11:17 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](http://www.blog.minike.top/Article/details/1164981991.shtml)
+- 2026-06-29 11:25 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](http://www.share.kurohicncr.top/Article/details/3764064.shtml)
+- 2026-06-29 11:35 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](http://www.blog.minike.top/Article/details/771095.shtml)
+- 2026-06-29 11:22 - [海军航空大学某大队：更新知识体系 厚植打赢底气](http://www.share.kurohicncr.top/Article/details/96572.shtml)
+- 2026-06-29 11:18 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](http://www.blog.minike.top/Article/details/596282.shtml)
+- 2026-06-29 11:33 - [Uber将收购Delivery Hero额外4.5%的股份](http://www.blog.minike.top/Article/details/6413524491.shtml)
+- 2026-06-29 11:35 - [中国驻日本大使馆提醒在日中国公民注意人身安全](http://www.share.kurohicncr.top/Article/details/2192594423.shtml)
+- 2026-06-29 11:19 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](http://www.share.minike.top/Article/details/912525.shtml)
+- 2026-06-29 11:16 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lisacumin64-arch)

@@ -1,44 +1,53 @@
-# 山西留神峪煤矿瓦斯爆炸事故新闻发布会现场为遇难者默哀
+# 第二届西藏微短剧大赛正式启动征稿
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-今天(5月23日)，山西省长治市召开新闻发布会，介绍山西通洲集团留神峪煤矿瓦斯爆炸事故有关情况。 发布会现场，全体起立，向遇难人员默哀。
+发布时间：2026年04月16日 16:22 来源：中国新闻网 4月15日，在四川成都举办的第十三届中国网络视听大会上，“新时代新西藏新篇章”第二届西藏微短剧大赛正式启动。本届大赛紧扣铸牢中华民族共同体意识，围绕“时代之光”“团结之歌”“人文之美”三大方向征稿，鼓励运用4K、AI技术创作。大赛升级扶持奖励与传播渠道，致力推动西藏故事走向海内外。据悉，去年首届大赛佳作频出，《去桃
 
 ## 正文
 
-今天(5月23日)，山西省长治市召开新闻发布会，介绍山西通洲集团留神峪煤矿瓦斯爆炸事故有关情况。
+发布时间：2026年04月16日 16:22 来源：中国新闻网 4月15日，在四川成都举办的第十三届中国网络视听大会上，“新时代新西藏新篇章”第二届西藏微短剧大赛正式启动。
 
-发布会现场，全体起立，向遇难人员默哀。
+本届大赛紧扣铸牢中华民族共同体意识，围绕“时代之光”“团结之歌”“人文之美”三大方向征稿，鼓励运用4K、AI技术创作。
+
+大赛升级扶持奖励与传播渠道，致力推动西藏故事走向海内外。
+
+据悉，去年首届大赛佳作频出，《去桃花盛开的地方》全网播放量超3亿并译介海外。
+
+现诚邀全国创作者走进西藏，共谱精品。
+
+(视频来源 西藏自治区广播电视局） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:37 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:33 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:41 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:41 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:33 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:31 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:29 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:30 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:32 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:19 - [伊朗称在与美国会谈期间讨论了解冻资产问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:35 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:37 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:42 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:24 - [美国将封锁范围扩大至受制裁船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:31 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:44 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:43 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:20 - [黎巴嫩总统同美国国务卿通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:20 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:44 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:27 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:32 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:40 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:39 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:25 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:24 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:29 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:42 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:24 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:39 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:22 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:29 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:15 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:39 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](http://www.blog.minike.top/Article/details/44402613966.shtml)
+- 2026-06-29 11:20 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](http://www.blog.kurohicncr.top/Article/details/289511612445.shtml)
+- 2026-06-29 11:26 - [上美股份将于6月23日派发末期股息每股0.75元](http://www.share.kurohicncr.top/Article/details/42116177582.shtml)
+- 2026-06-29 11:45 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](http://www.blog.kurohicncr.top/Article/details/2548089.shtml)
+- 2026-06-29 11:35 - [中国驻日大使馆接连遭到恐怖威胁](http://www.blog.minike.top/Article/details/509770123063.shtml)
+- 2026-06-29 11:38 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](http://www.share.minike.top/Article/details/38494.shtml)
+- 2026-06-29 11:28 - [海南这个园区有点东西：学生一校入学 可共享多校课程](http://www.share.kurohicncr.top/Article/details/061301.shtml)
+- 2026-06-29 11:30 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](http://www.blog.minike.top/Article/details/765850.shtml)
+- 2026-06-29 11:39 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](http://www.blog.minike.top/Article/details/90880.shtml)
+- 2026-06-29 11:25 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](http://www.blog.minike.top/Article/details/61456.shtml)
+- 2026-06-29 11:45 - [多重利好叠加提振预期 消费板块能否苦尽甘来](http://www.blog.minike.top/Article/details/23702726439.shtml)
+- 2026-06-29 11:17 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](http://www.share.kurohicncr.top/Article/details/2284422.shtml)
+- 2026-06-29 11:33 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [中国国家中医药管理局原局长于文明被公诉](http://www.share.kurohicncr.top/Article/details/01787291756.shtml)
+- 2026-06-29 11:41 - [德意志银行预计美联储2026年将维持利率不变](http://www.share.minike.top/Article/details/20835740257.shtml)

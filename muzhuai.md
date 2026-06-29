@@ -1,59 +1,57 @@
-# 第三届粤港澳大湾区博士博士后创新创业大赛启动
+# 致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网广州5月25日电 (记者 程景伟)“才汇湾区·博创未来”——湾区项目博士后学术交流活动暨第三届粤港澳大湾区博士博士后创新创业大赛启动仪式24日在香港科技大学(广州)举行。 2025年起，广东省人力资源和社会保障厅、全国博士后管委会办公室联合香港学者协会、澳门科学技术协进会，实施“香江学者计划”“澳门青年学者计划”湾区项目，支持内地博士后赴港澳高校深造。 湾区项目覆盖先进制
+近日，致公党营口市委会召开了2025年度参政议政工作总结会议暨2026年度参政议政立题会议。市委会领导班子、市委委员、各支部、各专委会代表，参政议政专委会骨干党员参会，会议由市委会副主委王战英主持。 会议通报了2025年市委会参政议政工作开展情况——过去的一年，市委会紧扣上级工作部署，系统谋划、严管提质，扎实开展课题调研、提案撰写与社情民意报送，创新实地调研、数字赋能与跨部门协
 
 ## 正文
 
-中新网广州5月25日电 (记者 程景伟)“才汇湾区·博创未来”——湾区项目博士后学术交流活动暨第三届粤港澳大湾区博士博士后创新创业大赛启动仪式24日在香港科技大学(广州)举行。
+近日，致公党营口市委会召开了2025年度参政议政工作总结会议暨2026年度参政议政立题会议。
 
-2025年起，广东省人力资源和社会保障厅、全国博士后管委会办公室联合香港学者协会、澳门科学技术协进会，实施“香江学者计划”“澳门青年学者计划”湾区项目，支持内地博士后赴港澳高校深造。
+市委会领导班子、市委委员、各支部、各专委会代表，参政议政专委会骨干党员参会，会议由市委会副主委王战英主持。
 
-湾区项目覆盖先进制造、人工智能、集成电路、生物医药等急需紧缺领域，与广东现代化产业体系发展高度契合，通过“项目+港澳导师+博士后”模式，进一步打通基础研究、应用开发与产业落地之间的壁垒，实现粤港澳三地在人才培养、科研资源、产学研成果转化等领域的互补共赢，开辟粤港澳博士后联合培养新通道。
+会议通报了2025年市委会参政议政工作开展情况——过去的一年，市委会紧扣上级工作部署，系统谋划、严管提质，扎实开展课题调研、提案撰写与社情民意报送，创新实地调研、数字赋能与跨部门协作，建言实效显著提升。
 
-湾区项目实施两年来，粤港澳三地合作意愿高涨，反响热烈，累计共有723人次申报，其中2026年申报量同比增长超10%，2026年“澳门青年学者计划”湾区项目资助名额更是实现翻倍扩容。
+完成参政议政调研报告26篇，提交社情民意信息60篇，多篇获省市领导批示，并在致公全省参政议政会议作经验交流，履职实效稳步提升。
 
-此次活动现场正式启动第三届粤港澳大湾区博士博士后创新创业大赛。
+2026年要增强责任感和使命感，围绕经济发展和民生保障等重点领域精准建言，着力提升调研报告成果转化率和反映社情民意信息质效；同时课题深度、成果转化率、骨干队伍能力仍有提升空间，下一步将靶向改进、提质增效。
 
-本届大赛决赛将于今年10月底在东莞松山湖举办。
+会上宣读了2025年度参政议政工作先进集体、突出贡献奖个人，以及高质量调研奖、“十佳”调研报告奖、优质成果奖、优秀社情民意信息奖获奖名单，以表彰先进、树立标杆，激励全体党员履职尽责、争先创优。
 
-大赛自2022年创办以来，已累计吸引超过5500个项目、近2万名海内外高层次人才参与，促成现场签约项目195个、签约总金额突破35亿元，成为粤港澳大湾区规格最高的博士博士后双创品牌赛事。
+为扎实推进 2026 年度参政议政工作，会议专题部署重点调研课题任务。
 
-本届大赛结合广东产业发展需要，增设相关赛道，并在赛制设计、资源导入、项目对接、激励奖励等方面推陈出新、全面升级。
+市委会紧扣中央、省、市决策部署与履职重点，严格规范立题程序，广泛征集选题、集中研讨论证，科学确定中央、省、市三级重点调研课题，明确立项各级重点调研课题共29项，涵盖先进制造、教育科技、文旅消费、人工智能、银发经济、医疗卫生等重点领域。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:27 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:21 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:26 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:31 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:25 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:35 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:39 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:32 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:30 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:29 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:23 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:26 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:17 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:38 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:36 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:26 - [多重利好叠加提振预期 消费板块能否苦尽甘来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:21 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:22 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:40 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:33 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:20 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:20 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:29 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:32 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:18 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:39 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:40 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:30 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:33 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:37 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:15 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:40 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:28 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:41 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:45 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.blog.kurohicncr.top/Article/details/448107787.shtml)
+- 2026-06-29 11:31 - [澳大利亚一炼油厂发生大火](http://www.share.minike.top/Article/details/77279181.shtml)
+- 2026-06-29 11:34 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [话剧《四世同堂》首次登陆澳大利亚](http://www.blog.kurohicncr.top/Article/details/461740532231.shtml)
+- 2026-06-29 11:34 - [中国HH-200航空商用无人运输系统首架机首飞成功](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.blog.minike.top/Article/details/177181848260.shtml)
+- 2026-06-29 11:19 - [一季度增城西站中欧班列开行量同比增长24%](http://www.share.minike.top/Article/details/88087692.shtml)
+- 2026-06-29 11:24 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.blog.minike.top/Article/details/825333397341.shtml)
+- 2026-06-29 11:41 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.blog.kurohicncr.top/Article/details/9638423.shtml)
+- 2026-06-29 11:26 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.share.kurohicncr.top/Article/details/4249383383.shtml)
+- 2026-06-29 11:38 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.share.kurohicncr.top/Article/details/97028733.shtml)
+- 2026-06-29 11:28 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](http://www.blog.kurohicncr.top/Article/details/725197890185.shtml)
+- 2026-06-29 11:34 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](http://www.share.minike.top/Article/details/1982917967.shtml)
+- 2026-06-29 11:26 - [韩国第一季度接待外国游客476万人次，创历史新高](http://www.blog.kurohicncr.top/Article/details/72077796.shtml)

@@ -1,59 +1,60 @@
-# 重庆永川山洪现场：粗木横亘河道 救援队地毯式搜救
+# 余金生被执行死刑！系杀害网红“罗大美”主犯
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新社重庆永川5月24日电 题：重庆永川山洪现场：粗木横亘河道 救援队地毯式搜救 中新社记者 刘相琳 “我在这里住了40年，都没像昨晚那么害怕过。”重庆市永川区茶山竹海街道大桥村村民唐良菊对中新社记者说。回想起凌晨暴雨时的情景，她的腿依然会发抖。“几个以前认识的同村人，还没有找到。” 5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地灾，最大降雨出现在永川
+2026年4月16日，河南省南阳市中级人民法院遵照最高人民法院下达的执行死刑命令，对余金生执行死刑。南阳市人民检察院依法派员临场监督。执行前，余金生与其近亲属进行了会见。 “罗大美”是谁？ 公开报道显示，“罗大美”本名尚某锋，河南一位知名反串网红，常发布女装扮相表演的视频，也会直播销售彩妆、护肤品，其社交平台账号粉丝一度破百万。 2023年7月，“罗大美”发了最后一条微信朋友圈
 
 ## 正文
 
-中新社重庆永川5月24日电 题：重庆永川山洪现场：粗木横亘河道 救援队地毯式搜救 中新社记者 刘相琳 “我在这里住了40年，都没像昨晚那么害怕过。
+2026年4月16日，河南省南阳市中级人民法院遵照最高人民法院下达的执行死刑命令，对余金生执行死刑。
 
-”重庆市永川区茶山竹海街道大桥村村民唐良菊对中新社记者说。
+南阳市人民检察院依法派员临场监督。
 
-回想起凌晨暴雨时的情景，她的腿依然会发抖。
+执行前，余金生与其近亲属进行了会见。
 
-“几个以前认识的同村人，还没有找到。
+“罗大美”是谁？
 
-” 5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地灾，最大降雨出现在永川区茶山竹海街道，凌晨2时至4时最大雨量达到296.6毫米、最大小时雨量103.6毫米，导致永川区茶山竹海街道、中山路街道、双石镇散点多发事件。
+公开报道显示，“罗大美”本名尚某锋，河南一位知名反串网红，常发布女装扮相表演的视频，也会直播销售彩妆、护肤品，其社交平台账号粉丝一度破百万。
 
-截至24日14时30分，共导致3人遇难，17人失联。
+2023年7月，“罗大美”发了最后一条微信朋友圈并在微信上告诉家人，有事要外出“躲躲”，没事别发信息。
 
-记者前往永川区茶山竹海街道，沿途看见山洪将多处路段淹没，车辆无法正常通行。
+同年10月18日，“罗大美”的妹妹发布长文证实“罗大美”遭人劫财后杀害。
 
-不少农田、温室大棚、苗木基地，浸泡在浑浊的水中。
+凶手是谁？
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:19 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:16 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:28 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:43 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:38 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:19 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:27 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:37 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:18 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:38 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:32 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:27 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:28 - [云南印发实施意见全面推进共有精神家园建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:44 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:38 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:45 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:31 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:17 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:43 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:39 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:45 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:28 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:44 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:16 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:22 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:42 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:16 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:17 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:14 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:17 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:31 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:28 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:40 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:18 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:43 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:40 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:35 - [李小冉王濛奖杯放地上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:16 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:27 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](http://www.blog.minike.top/Article/details/636032436147.shtml)
+- 2026-06-29 11:18 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](http://www.share.minike.top/Article/details/93039903.shtml)
+- 2026-06-29 11:22 - [长光辰芯首挂上市 早盘高开81.80%](http://www.share.kurohicncr.top/Article/details/87496.shtml)
+- 2026-06-29 11:31 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [中国向伊朗提供紧急人道主义援助](http://www.share.kurohicncr.top/Article/details/983060882114.shtml)
+- 2026-06-29 11:44 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](http://www.share.kurohicncr.top/Article/details/1630060195.shtml)
+- 2026-06-29 11:24 - [浙江启用防汛防台机器狗“AI防汛勇士”](http://www.blog.kurohicncr.top/Article/details/824269418.shtml)
+- 2026-06-29 11:25 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.share.kurohicncr.top/Article/details/69896456462.shtml)
+- 2026-06-29 11:33 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](http://www.blog.minike.top/Article/details/64788992944.shtml)
+- 2026-06-29 11:39 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.blog.kurohicncr.top/Article/details/444367781.shtml)
+- 2026-06-29 11:39 - [受伊朗战争持续影响，欧洲股市料将低开](http://www.blog.minike.top/Article/details/3332726103.shtml)
+- 2026-06-29 11:16 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.blog.kurohicncr.top/Article/details/479099.shtml)

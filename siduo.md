@@ -1,56 +1,50 @@
-# 青海大部地区出现降水天气 地质灾害风险升高
+# 外交部提醒赴美国中国公民注意入境安全风险
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-中新网西宁5月24日电 (赵海梅 钟岚琪 孙睿)青海省气象局24日通报称，5月23日08时至5月24日08时，全省4480个站点中共有1838个出现降水，其中大雨7站次、中雨296站次、小雨1535站次。未来三天全省大部仍将持续多降水天气，气温下降6摄氏度至8摄氏度，地质灾害风险升高。 监测显示，5月23日08时至24日08时，青海省最大降水量出现在互助哈拉直沟乡刘家村，为34
+来源：央视网 央视网消息：近日，约20位中国学者持有效合法签证赴美国参加学术会议，在美国西雅图机场遭海关与边境保护局（CBP）执法人员无理盘查并被拒绝入境。 鉴于西雅图塔科马国际机场连续发生针对中国学者恶意盘查滋扰情况，外交部和中国驻美国使领馆提醒近期拟赴美人员增强安全防范意识，避免从该机场入境，同时请提前详细了解美国入境规定，做好各项准备。如遇美方执法人员盘查，冷静理性应对。
 
 ## 正文
 
-中新网西宁5月24日电 (赵海梅 钟岚琪 孙睿)青海省气象局24日通报称，5月23日08时至5月24日08时，全省4480个站点中共有1838个出现降水，其中大雨7站次、中雨296站次、小雨1535站次。
+来源：央视网 央视网消息：近日，约20位中国学者持有效合法签证赴美国参加学术会议，在美国西雅图机场遭海关与边境保护局（CBP）执法人员无理盘查并被拒绝入境。
 
-未来三天全省大部仍将持续多降水天气，气温下降6摄氏度至8摄氏度，地质灾害风险升高。
+鉴于西雅图塔科马国际机场连续发生针对中国学者恶意盘查滋扰情况，外交部和中国驻美国使领馆提醒近期拟赴美人员增强安全防范意识，避免从该机场入境，同时请提前详细了解美国入境规定，做好各项准备。
 
-监测显示，5月23日08时至24日08时，青海省最大降水量出现在互助哈拉直沟乡刘家村，为34.2毫米；城镇最大降水量出现在互助，为21毫米。
+如遇美方执法人员盘查，冷静理性应对。
 
-24日10时，青海省自然资源厅与青海省气象局联合发布地质灾害气象风险预警：根据过去48小时降水实况和未来24小时降水预报，结合地质灾害易发程度，2026年5月24日10时至5月24日20时，西宁市主城区、大通、湟中区及海东市平安、互助、乐都、化隆、民和等区域地质灾害气象风险预警等级为Ⅲ级(黄色预警)，气象因素致地质灾害发生风险较高。
-
-青海省气象与自然资源部门联合提示：预警区域需加强山区、沟谷、边坡巡查监测，公众尽量避开河道、陡坡、陡崖等危险地带；雨雪天气导致路面湿滑、高海拔路段易结冰，交通出行需减速慢行；中东部湿冷明显，民众注意添衣保暖；农牧、设施农业、户外施工、文旅景区需提前防范连阴雨与降温影响，密切关注最新预警信息，落实安全防护措施。
-
-(完)
+联系方式 外交部全球领事保护与服务应急热线（24小时）： +86-10-12308 +86-10-65612308 驻美国使馆领事保护与协助电话： +1-202-495-2216 驻纽约总领馆领事保护与协助电话： +1-212-695-3125 驻旧金山总领馆领事保护与协助电话： +1-415-929-6998 驻洛杉矶总领馆领事保护与协助电话： +1-213-807-8052 驻芝加哥总领馆领事保护与协助电话： +1-312-397-3015责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:27 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:37 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:42 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:22 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:28 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:35 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:31 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:42 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:39 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:37 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:28 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:42 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:35 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:28 - [全球智能鸿沟如何破解？这份报告给出答案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:30 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:33 - [新疆新设草湖市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:18 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:42 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:27 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:46 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:33 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:43 - [海军航空大学某大队：更新知识体系 厚植打赢底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:17 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:32 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:25 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:16 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:24 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:23 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:17 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:14 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:33 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:33 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:37 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:41 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:17 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:35 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:33 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:25 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](http://www.blog.kurohicncr.top/Article/details/7718470.shtml)
+- 2026-06-29 11:17 - [上海外贸进出口总值实现“季、月双创纪录”开局](http://www.share.minike.top/Article/details/301325.shtml)
+- 2026-06-29 11:28 - [中国国防部：敦促日方同军国主义彻底切割](http://www.blog.minike.top/Article/details/241809.shtml)
+- 2026-06-29 11:28 - [中国财长出席2026年G20财长和央行行长第一次会议](http://www.share.minike.top/Article/details/7864476262.shtml)
+- 2026-06-29 11:29 - [翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股](http://www.blog.minike.top/Article/details/488851558958.shtml)
+- 2026-06-29 11:33 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](http://www.blog.minike.top/Article/details/07627701.shtml)
+- 2026-06-29 11:41 - [液态金属在太空有何应用前景？中国科研团队深度解析全景前瞻](http://www.blog.minike.top/Article/details/49099451113.shtml)
+- 2026-06-29 11:31 - [国家医保局：全国近四成统筹地区已完成上年度清算](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [贝森特：可以理解美联储暂缓降息](http://www.share.minike.top/Article/details/054779658055.shtml)
+- 2026-06-29 11:34 - [洪水猛兽还是有效工具？专家学者聚焦AI视域下的青少年科幻写作](http://www.blog.kurohicncr.top/Article/details/3446348.shtml)
+- 2026-06-29 11:30 - [老外体验无人驾驶：“万万没想到，比司机开还稳”](http://www.share.kurohicncr.top/Article/details/152356445999.shtml)
+- 2026-06-29 11:38 - [挖机销量增近三成，工程机械“金三”来了](http://www.share.minike.top/Article/details/3757026.shtml)
+- 2026-06-29 11:29 - [开局之年看中国·开放自贸港：“艇”进三亚](http://www.blog.minike.top/Article/details/559167.shtml)
+- 2026-06-29 11:18 - [首次原子尺度证实 中国科学家发现金属/载体三维体相参与催化新机制](http://www.blog.minike.top/Article/details/1032634661.shtml)
+- 2026-06-29 11:41 - [财信宏观丨供给韧性较强，需求修复待提速—2026年1-3月经济数据点评](http://www.blog.minike.top/Article/details/06463.shtml)

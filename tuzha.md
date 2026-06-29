@@ -1,56 +1,60 @@
-# 京港高铁（雄商段）全线拉通试验正式启动
+# 中国国家中医药管理局原局长于文明被公诉
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网郑州5月25日电 (刘鹏 闫爽)5月25日凌晨5时13分，55432次高速综合检测列车从河南商丘站平稳驶出，标志着京港高铁(雄商段)全线拉通试验工作正式启动，联调联试取得重要阶段性成果，为线路后续试运行、开通运营筑牢安全与设备基础。 全线拉通试验是联调联试过程中的重要一环。试验期间，铁路部门将对全线轨道、供电、接触网、通信等各系统开展全面综合验证，确保各项指标全面达标、系
+中新社北京4月17日电 (记者 张素)中国官方17日通报国家中医药管理局原局长于文明涉案进展。最高人民检察院依法以涉嫌受贿罪对于文明作出逮捕决定，并指定由天津市人民检察院第一分院审查起诉。 天津市人民检察院第一分院近日已向天津市第一中级人民法院提起公诉。检察机关起诉指控称，被告人于文明利用担任国家中医药管理局副局长职务上的便利以及职权或者地位形成的便利条件，为他人谋取利益，非法
 
 ## 正文
 
-中新网郑州5月25日电 (刘鹏 闫爽)5月25日凌晨5时13分，55432次高速综合检测列车从河南商丘站平稳驶出，标志着京港高铁(雄商段)全线拉通试验工作正式启动，联调联试取得重要阶段性成果，为线路后续试运行、开通运营筑牢安全与设备基础。
+中新社北京4月17日电 (记者 张素)中国官方17日通报国家中医药管理局原局长于文明涉案进展。
 
-全线拉通试验是联调联试过程中的重要一环。
+最高人民检察院依法以涉嫌受贿罪对于文明作出逮捕决定，并指定由天津市人民检察院第一分院审查起诉。
 
-试验期间，铁路部门将对全线轨道、供电、接触网、通信等各系统开展全面综合验证，确保各项指标全面达标、系统匹配稳定，满足高速列车安全运行标准。
+天津市人民检察院第一分院近日已向天津市第一中级人民法院提起公诉。
 
-为保障试验全程安全顺畅，中国铁路郑州局集团有限公司组织各专业协同联动、精准管控。
+检察机关起诉指控称，被告人于文明利用担任国家中医药管理局副局长职务上的便利以及职权或者地位形成的便利条件，为他人谋取利益，非法收受他人财物，数额特别巨大，依法应当以受贿罪追究其刑事责任。
 
-商丘站充分发挥枢纽管控作用，紧盯试验运输组织关键环节，优化列车接发流程，强化站间协同与分界口交接配合，严格落实作业标准，保障试验列车运行安全有序、衔接顺畅高效。
+公开资料显示，于文明生于1963年6月，山东单县人，农工党党员。
 
-郑州机务段提前选拔18名动车组司机骨干组建专项试验组，结合线路特点细化试验大纲，编制操纵提示卡及作业指导书，严格按照试验方案配合完成逐级提速、数据采集等各项任务。
+2004年，他出任国家中医药管理局副局长，2018年任国家中医药管理局局长，2023年卸任。
 
-京港高铁(雄商段)是国家“八纵八横”高速铁路网京港(台)通道的重要组成部分，线路纵贯河北、山东、河南三省，北起雄安站、南抵商丘站，与已通车运营的商合杭高铁无缝衔接，正线全长552公里，设计时速350公里，其中河南段线路长25公里。
+2025年6月，官方通报于文明涉嫌严重职务违法，接受国家监委监察调查。
 
-据了解，京港高铁(雄商段)开通运营后，将在商丘站与东西向徐兰高铁形成十字交叉枢纽格局，进一步夯实商丘区域高铁枢纽地位。
+同年12月，官方通报其涉嫌职务犯罪被移送检察机关审查起诉。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:22 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:38 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:38 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:31 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:21 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:27 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:35 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:35 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:38 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:35 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:34 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:34 - [中东局势变化对我国外贸有何影响？国家统计局回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:17 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:42 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:31 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:31 - [长光辰芯首挂上市 早盘高开81.80%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:45 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:22 - [中国向伊朗提供紧急人道主义援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:37 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:37 - [浙江启用防汛防台机器狗“AI防汛勇士”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:31 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:32 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:37 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:24 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:14 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:34 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:43 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:30 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:33 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:33 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:29 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:35 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:41 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](http://www.share.minike.top/Article/details/60245.shtml)
+- 2026-06-29 11:45 - [韩国第一季度接待外国游客476万人次，创历史新高](http://www.blog.kurohicncr.top/Article/details/3542365444.shtml)
+- 2026-06-29 11:39 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](http://www.blog.minike.top/Article/details/678333112529.shtml)
+- 2026-06-29 11:32 - [采购商谈消博会：这里是一座“全球好物中转站”](http://www.share.minike.top/Article/details/359483323.shtml)
+- 2026-06-29 11:19 - [渤海银行：首席信息官谢凯任职资格获批](http://www.share.kurohicncr.top/Article/details/7126877.shtml)
+- 2026-06-29 11:32 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](http://www.blog.kurohicncr.top/Article/details/781582270651.shtml)
+- 2026-06-29 11:24 - [国际能源署署长：欧洲仅剩够用6周航空燃油](http://www.share.kurohicncr.top/Article/details/036079564.shtml)
+- 2026-06-29 11:22 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](http://www.share.minike.top/Article/details/8348555628.shtml)
+- 2026-06-29 11:31 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](http://www.share.minike.top/Article/details/8373760.shtml)
+- 2026-06-29 11:23 - [酒价内参4月17日价格发布，青花郎下跌2元](http://www.share.minike.top/Article/details/642606026064.shtml)
+- 2026-06-29 11:23 - [外交部提醒赴美国中国公民注意入境安全风险](http://www.share.kurohicncr.top/Article/details/0881282249.shtml)
+- 2026-06-29 11:41 - [Stena DrillMAX将在希腊近海钻探首口深水井](http://www.blog.minike.top/Article/details/88382026.shtml)
+- 2026-06-29 11:46 - [在沙地种下一片“云朵玫瑰”](http://www.share.minike.top/Article/details/614959.shtml)
+- 2026-06-29 11:21 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](http://www.share.minike.top/Article/details/125601088442.shtml)
+- 2026-06-29 11:42 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](http://www.blog.minike.top/Article/details/193799606.shtml)

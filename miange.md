@@ -1,55 +1,57 @@
-# 机构：油价回落或缓和通胀预期
+# 采购商谈消博会：这里是一座“全球好物中转站”
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-受美伊和平协议希望的影响，布伦特原油期货跌破每桶100美元。Pepperstone的Chris Weston表示，如果布伦特原油跌向90美元，随着短期通胀预期小幅缓解，且对2027年加息的隐含押注被温和削减，这可能会让风险资产重获生机。该策略师表示，本周通胀预期将面临考验，届时将发布美国核心个人消费支出价格指数（PCE），预计该指数将同比小幅上升。整体PCE通胀率预计为3.8%
+这里是一座“全球好物中转站” ——消博会架起双循环消费新桥梁 本报记者 王祝华 实习生 文艺妃 夏歆雅 “这里就是一座‘全球好物中转站’。”4月16日，从第六届中国国际消费品博览会(以下简称“消博会”)上满载而归的山西采购商刘云对科技日报记者说。 作为海南自贸港全岛封关运作后的“首秀”，本届消博会汇聚60多个国家和地区超3400个品牌，用一场“买全球、卖全球”的消费盛宴，生动诠
 
 ## 正文
 
-受美伊和平协议希望的影响，布伦特原油期货跌破每桶100美元。
+这里是一座“全球好物中转站” ——消博会架起双循环消费新桥梁 本报记者 王祝华 实习生 文艺妃 夏歆雅 “这里就是一座‘全球好物中转站’。
 
-Pepperstone的Chris Weston表示，如果布伦特原油跌向90美元，随着短期通胀预期小幅缓解，且对2027年加息的隐含押注被温和削减，这可能会让风险资产重获生机。
+”4月16日，从第六届中国国际消费品博览会(以下简称“消博会”)上满载而归的山西采购商刘云对科技日报记者说。
 
-该策略师表示，本周通胀预期将面临考验，届时将发布美国核心个人消费支出价格指数（PCE），预计该指数将同比小幅上升。
+作为海南自贸港全岛封关运作后的“首秀”，本届消博会汇聚60多个国家和地区超3400个品牌，用一场“买全球、卖全球”的消费盛宴，生动诠释双循环格局下的开放活力，成为连接国内外市场的重要纽带。
 
-整体PCE通胀率预计为3.8%——几乎达到美联储目标的两倍。
+国外精品纷至沓来 当日，记者在消博会意大利展馆内看到，一名参展观众在一幅“共建意大利海南之桥”打卡画上，用彩色笔填涂了画中桥的最后一格砖块。
 
-油价下跌可能会限制美元对即将公布的数据的反应。
+这幅画中的桥，一端连着画家达·芬奇、米兰大教堂等意大利符号，另一端衔接苏东坡、海南风光等海南文化元素。
 
-“美元头寸已经变得相当紧张，而能源价格下跌推动的通胀预期下降，可能会导致部分美元多头头寸平仓。
+“观众在消博会为这幅画添彩，便成为中意贸易与文化双向联动的参与者。
 
-“责任编辑：王永生
+”意大利中国工商协会会长胡丽莎说。
+
+在这幅画背后的展厅，是由意大利中国工商协会牵头组织的参展力量——16家首次进入中国、登陆海南的意大利企业。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:37 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:23 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:29 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:26 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:29 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:19 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:27 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:32 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:34 - [外交部提醒赴美国中国公民注意入境安全风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:16 - [Stena DrillMAX将在希腊近海钻探首口深水井](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:26 - [在沙地种下一片“云朵玫瑰”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:21 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:40 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:38 - [美又一核动力航母失火 8名船员受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:34 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:45 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:33 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:37 - [全球智能鸿沟如何破解？这份报告给出答案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:17 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:14 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:21 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:27 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:17 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:43 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:22 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:28 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:19 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:36 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:21 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:27 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:43 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:28 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:40 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:29 - [日本财务大臣：与美国财长密切讨论了外汇问题](http://www.blog.minike.top/Article/details/26217132.shtml)
+- 2026-06-29 11:41 - [多份联储报告显示美国物价飙升](http://www.blog.kurohicncr.top/Article/details/1373510564.shtml)
+- 2026-06-29 11:30 - [光大期货：4月16日金融日报](http://www.share.minike.top/Article/details/005884714026.shtml)
+- 2026-06-29 11:42 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](http://www.blog.minike.top/Article/details/71684704360.shtml)
+- 2026-06-29 11:28 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](http://www.share.kurohicncr.top/Article/details/70945.shtml)
+- 2026-06-29 11:24 - [近3万股东出走中际旭创](http://www.share.kurohicncr.top/Article/details/44184850.shtml)
+- 2026-06-29 11:16 - [韩国称其运载原油船只安全驶离红海](http://www.blog.kurohicncr.top/Article/details/22948454715.shtml)
+- 2026-06-29 11:19 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](http://www.blog.minike.top/Article/details/368009.shtml)
+- 2026-06-29 11:36 - [上海外贸进出口总值实现“季、月双创纪录”开局](http://www.share.kurohicncr.top/Article/details/2084487.shtml)
+- 2026-06-29 11:41 - [中国国防部：敦促日方同军国主义彻底切割](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [中国财长出席2026年G20财长和央行行长第一次会议](http://www.share.kurohicncr.top/Article/details/1847040.shtml)
+- 2026-06-29 11:34 - [翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股](http://www.blog.kurohicncr.top/Article/details/32105717.shtml)
+- 2026-06-29 11:41 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](http://www.share.minike.top/Article/details/430407796416.shtml)
+- 2026-06-29 11:43 - [液态金属在太空有何应用前景？中国科研团队深度解析全景前瞻](http://www.share.minike.top/Article/details/166541510.shtml)
+- 2026-06-29 11:43 - [国家医保局：全国近四成统筹地区已完成上年度清算](http://www.share.kurohicncr.top/Article/details/772308889.shtml)

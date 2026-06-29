@@ -1,57 +1,51 @@
-# 雅诗兰黛与Puig终止合并谈判，组建美妆巨头计划作罢
+# 快讯：恒指高开0.68% 科指涨1.31% 科网股、中资券商股普涨 锂电池股高开
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-美国美妆巨头雅诗兰黛已终止与西班牙竞品Puig的合并谈判，这笔交易原本有望打造一家市值近400亿美元的美妆时尚行业巨头。 雅诗兰黛周四表示，双方已终止此次并购磋商，Puig也证实谈判宣告结束。 当前美妆行业正迎来行业洗牌，若此次合并落地，倩碧、TomFord美妆等雅诗兰黛旗下众多高端品牌，将与Puig旗下CharlotteTilbury、Gaultier等品牌归于同一集团麾下。
+美股周三个别发展，美伊两国同意延长停火，市场观望后续发展，科技股表现强势，标普500指数及纳指再创历史新高，三大指数收市升跌不一。美元持续偏软，美国十年期债息回升至4.28厘水平，金价高位靠稳，油价则反复偏软。 今日港股三大指数集体高开，恒指开盘涨0.68%，报26122.80，恒科指涨1.31%，国企指数涨0.7%。盘面上，科网股普遍上涨，网易、百度涨超3%，京东、阿里巴巴涨
 
 ## 正文
 
-美国美妆巨头雅诗兰黛已终止与西班牙竞品Puig的合并谈判，这笔交易原本有望打造一家市值近400亿美元的美妆时尚行业巨头。
+美股周三个别发展，美伊两国同意延长停火，市场观望后续发展，科技股表现强势，标普500指数及纳指再创历史新高，三大指数收市升跌不一。
 
-雅诗兰黛周四表示，双方已终止此次并购磋商，Puig也证实谈判宣告结束。
+美元持续偏软，美国十年期债息回升至4.28厘水平，金价高位靠稳，油价则反复偏软。
 
-当前美妆行业正迎来行业洗牌，若此次合并落地，倩碧、TomFord美妆等雅诗兰黛旗下众多高端品牌，将与Puig旗下CharlotteTilbury、Gaultier等品牌归于同一集团麾下。
+今日港股三大指数集体高开，恒指开盘涨0.68%，报26122.80，恒科指涨1.31%，国企指数涨0.7%。
 
-雅诗兰黛首席执行官斯特凡・德拉法沃里表示：“我们珍视此次与Puig的沟通交流。
+盘面上，科网股普遍上涨，网易、百度涨超3%，京东、阿里巴巴涨超2%；锂电池股高开，宁德时代涨超4%；中资券商股多数上涨，中金公司涨超3%；创新药概念活跃，荣昌生物涨超2%。
 
-如今我们依旧坚信自身品牌价值、团队实力，以及公司独立运营的竞争力。
-
-” 受谈判终止消息提振，雅诗兰黛股票周四盘后交易大涨11.5%。
-
-今年3月相关并购传闻首次曝光时，其股价曾大跌约20%。
-
-周五早盘，Puig股价下跌13.6%。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:25 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:39 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:36 - [四川宜宾地震现场视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:17 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:26 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:21 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:22 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:33 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:17 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:34 - [特斯拉完成AI5自动驾驶芯片流片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:22 - [网易云音乐于4月15日耗资约1499.57万港元回购11.995万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:21 - [专家解读法国通过文物归还法案 为中国文物回流提供契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:31 - [云南瑞丽边检站为骨折缅甸旅客开通“紧急通道”入境就医](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:16 - [新华时评·首季经济观察丨稳健开局展现中国经济韧性底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:32 - [迪拜启用全球首个综合空中出租车起降场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:18 - [长三角港口从“互连”迈向“深融” “连申快航”年运量突破15.2万标箱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:41 - [凌晨，见证历史！全线大涨！美联储，重磅发布！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:27 - [圣贝拉集团：受托人根据股份奖励计划购买合共9.2万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:26 - [麦迪科技：4月13日召开业绩说明会，投资者参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:36 - [开局之年看中国·开放自贸港：三亚芒果闯世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:35 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:20 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:19 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:38 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:35 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:25 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:19 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:16 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:35 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:42 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:24 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:19 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:20 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:25 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [第二届西藏微短剧大赛正式启动征稿](http://www.blog.kurohicncr.top/Article/details/840532678601.shtml)
+- 2026-06-29 11:17 - [4月16日人民币对美元中间价报6.8616 下调34个基点](http://www.blog.kurohicncr.top/Article/details/6335645.shtml)
+- 2026-06-29 11:31 - [厦门钨业：子公司金龙稀土进入创新层](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [镜观·回响丨在交流中深化中越青年情谊](http://www.blog.minike.top/Article/details/2175790.shtml)
+- 2026-06-29 11:31 - [中金：维持波司登跑赢行业评级 目标价5.65港元](http://www.share.minike.top/Article/details/895783.shtml)
+- 2026-06-29 11:31 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](http://www.blog.minike.top/Article/details/830614.shtml)
+- 2026-06-29 11:28 - [伊朗称在与美国会谈期间讨论了解冻资产问题](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](http://www.blog.minike.top/Article/details/485293163669.shtml)
+- 2026-06-29 11:42 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](http://www.share.minike.top/Article/details/37536.shtml)
+- 2026-06-29 11:34 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](http://www.share.kurohicncr.top/Article/details/49979981.shtml)
+- 2026-06-29 11:43 - [美国将封锁范围扩大至受制裁船只](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](http://www.share.minike.top/Article/details/95286.shtml)
+- 2026-06-29 11:43 - [涉“幽灵外卖”，抖音被罚5689万](http://www.blog.kurohicncr.top/Article/details/94343.shtml)

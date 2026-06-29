@@ -1,61 +1,61 @@
-# 仙侠音乐为何成几代人共同记忆？
+# 海军航空大学某大队：更新知识体系 厚植打赢底气
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 21:13 来源：中国新闻网 2026文化强国建设高峰论坛“共建数智人文湾区”论坛5月22日在深圳举办。 “20年前创作时，我把道家哲理写进了旋律。”香港电影后期制作协会会长、知名影视音乐制作人麦振鸿分享道。从《虞美人》到《仙剑》系列，那些“仙风道骨”的听感，正源于“人法地，地法天，天法道，道法自然”的传统智慧。 “坐下来，自然就流淌出来了。”
+海军航空大学某大队着力增强教育培训质效—— 更新知识体系 厚植打赢底气 -刘佳蔚 姚冠辰 近日，海军航空大学某大队组织晋升教育培训学员，走进青岛马克思主义中国化书苑，在现地教学中接受思想淬炼和精神洗礼。这是该大队坚持“为战育人”根本导向，提升初级指挥教育培训质效的一个缩影。“强军兴军，要在得人，院校教育是培养人才的重要途径。”该大队领导介绍，晋升教育培训学员普遍具备丰富的基层任
 
 ## 正文
 
-发布时间：2026年05月22日 21:13 来源：中国新闻网 2026文化强国建设高峰论坛“共建数智人文湾区”论坛5月22日在深圳举办。
+海军航空大学某大队着力增强教育培训质效—— 更新知识体系 厚植打赢底气 -刘佳蔚 姚冠辰 近日，海军航空大学某大队组织晋升教育培训学员，走进青岛马克思主义中国化书苑，在现地教学中接受思想淬炼和精神洗礼。
 
-“20年前创作时，我把道家哲理写进了旋律。
+这是该大队坚持“为战育人”根本导向，提升初级指挥教育培训质效的一个缩影。
 
-”香港电影后期制作协会会长、知名影视音乐制作人麦振鸿分享道。
+“强军兴军，要在得人，院校教育是培养人才的重要途径。
 
-从《虞美人》到《仙剑》系列，那些“仙风道骨”的听感，正源于“人法地，地法天，天法道，道法自然”的传统智慧。
+”该大队领导介绍，晋升教育培训学员普遍具备丰富的基层任职经历和较强的工作实践能力，他们的自身特点对教学内容和方法手段提出了更高要求。
 
-“坐下来，自然就流淌出来了。
+帮助晋升教育培训学员在有限培训周期内实现能力升级，关键在于帮助他们拓展战略视野、提升思维层次、厚植打赢底气。
 
-”他坦言，秘诀不是技巧，而是将传统文化根基融入音乐。
+为此，该大队针对晋升教育培训学员特点，研究推出一系列“实战化、沉浸式、前瞻性”教学改革措施—— 该大队着眼未来战争联合作战、体系对抗的特点，不断提升作战指挥教学的“含战量”。
 
-“道生一，一生二，二生三，三生万物”——每一首作品都藏着属于我们自己的文化密码。
+他们组织学员在模拟飞行训练中心开展“舰载机跨域支援”想定作业，结合装备性能、气象条件、电磁环境等要素，推演空中打击与防御行动流程，努力实现“从课堂到战场”的无缝衔接。
 
-这也解释了为何十几年过去，这些旋律依然能触动两岸人心。
+他们打破传统课堂边界，常态组织现地教学、实地观摩等活动。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:17 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:33 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:19 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:35 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:29 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:43 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:27 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:29 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:25 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:43 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:43 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:32 - [报告称中国在建核电机组装机容量连续19年保持全球第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:35 - [东艳：一季度外贸数据反映多个“增强”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:22 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:29 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:20 - [中越签署一系列合作文件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:42 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:19 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:18 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:24 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:17 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:38 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:20 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:43 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:37 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:20 - [Stellantis与微软合作部署逾百款AI工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:33 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:36 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:33 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:28 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:40 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:16 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:17 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:19 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:33 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:43 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:28 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:30 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:20 - [中东突发！刚刚，直线拉升！](http://www.share.kurohicncr.top/Article/details/629545140.shtml)
+- 2026-06-29 11:21 - [湖北：以正确政绩观引领“支点建设”新征程](http://www.share.kurohicncr.top/Article/details/7514449328.shtml)
+- 2026-06-29 11:20 - [全球经济的严峻考验](http://www.blog.kurohicncr.top/Article/details/81286251641.shtml)
+- 2026-06-29 11:28 - [Glamox将为Sea1 Offshore的海上能源支持船提供照明](http://www.blog.kurohicncr.top/Article/details/0378300947.shtml)
+- 2026-06-29 11:18 - [在“商量声”中生长：浙江杭州小古城村民主协商发“新枝”](http://www.blog.minike.top/Article/details/537643438243.shtml)
+- 2026-06-29 11:27 - [伊朗最高领导人推动将黎巴嫩纳入美伊和谈](http://www.blog.kurohicncr.top/Article/details/825608810.shtml)
+- 2026-06-29 11:41 - [珠江委积极开展珠江流域水预算管理工作指引研究](http://www.blog.kurohicncr.top/Article/details/9636799065.shtml)
+- 2026-06-29 11:19 - [京东养车赛道日全民见证国货轮胎硬核实力 玲珑大师2代京东独家预售](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [港股硬科技再走强 同类规模最大港股通信息技术ETF(159131)冲高逾2% 机构看好港股二季度尤其是4-5月反弹机会](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [韩国、巴西两国部长商讨能源供应与中东风险](http://www.blog.minike.top/Article/details/64636241.shtml)
+- 2026-06-29 11:29 - [中信建投期货：4月16日工业品早报](http://www.share.minike.top/Article/details/2720197266.shtml)
+- 2026-06-29 11:32 - [华凯易佰1.13亿收购深圳米品盛及香港纽瑞格：压力之下的精品化豪赌](http://www.blog.kurohicncr.top/Article/details/46449.shtml)
+- 2026-06-29 11:21 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.share.minike.top/Article/details/20065991791.shtml)
+- 2026-06-29 11:44 - [重要法案通过！流失在法国的中国国宝，何时能回家？](http://www.blog.kurohicncr.top/Article/details/8933295.shtml)
+- 2026-06-29 11:27 - [胜宏科技公布发售价厘定为每股H股209.88港元](http://www.blog.kurohicncr.top/Article/details/15983.shtml)

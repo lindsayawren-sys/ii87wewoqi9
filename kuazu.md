@@ -1,61 +1,56 @@
-# 西藏那曲拍摄制作《长江第一滴水》《江河源》两部纪录片 共探江河源头
+# 一季度“零发行”后银行二永债4月抢闸，会否冲击债市利差？
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网拉萨5月23日电(达瓦次仁 贡保)大型自然人文纪录片《长江第一滴水》于近日在西藏那曲正式发布。与此同时，记者从那曲市融媒体中心获悉，历时18个月拍摄的另一部纪录片《江河源》也于近日全部完成，即将与观众见面。两部作品均以那曲为核心的江河源头为舞台，用镜头探寻高原水系背后的自然奇观与人文守护。 《长江第一滴水》由那曲安多县人民政府出品、那曲市融媒体中心摄制，历时两年打磨。全片
+财联社4月16日讯（记者 梁柯志）4月以来，银行体系二永债发行迅速开闸并提速。 招商银行4月15日公告，300亿元永续债发行完毕，前5年票面利率2.05%。 上周，工商银行和中信银行相继发布公告称，分别完成发行500亿元二级资本债和400亿元永续债，加上拟发行的民生银行、中国银行分别200亿和300亿的二级资本债、工商银行200亿元永续债，近期发行规模已经1800亿。 华西证券
 
 ## 正文
 
-中新网拉萨5月23日电(达瓦次仁 贡保)大型自然人文纪录片《长江第一滴水》于近日在西藏那曲正式发布。
+财联社4月16日讯（记者 梁柯志）4月以来，银行体系二永债发行迅速开闸并提速。
 
-与此同时，记者从那曲市融媒体中心获悉，历时18个月拍摄的另一部纪录片《江河源》也于近日全部完成，即将与观众见面。
+招商银行4月15日公告，300亿元永续债发行完毕，前5年票面利率2.05%。
 
-两部作品均以那曲为核心的江河源头为舞台，用镜头探寻高原水系背后的自然奇观与人文守护。
+上周，工商银行和中信银行相继发布公告称，分别完成发行500亿元二级资本债和400亿元永续债，加上拟发行的民生银行、中国银行分别200亿和300亿的二级资本债、工商银行200亿元永续债，近期发行规模已经1800亿。
 
-《长江第一滴水》由那曲安多县人民政府出品、那曲市融媒体中心摄制，历时两年打磨。
+华西证券预测2026年二永债发行规模在1.71万亿–1.82万亿元之间。
 
-全片从长江正源姜古迪如冰川的一滴融水切入，跟随其6300公里的奔流轨迹，展开“源头叙事—守护群像—文化联结—科技赋能—入海回响”的史诗结构。
+考虑第一季度发行量为零，此前有市场观点认为，二永债集中供给和发行可能会直接冲击今年债市利差水平。
 
-镜头里，“长江源头第一户”南扎近半个世纪坚持从河边取水、志愿巡河；上海青草沙水库总工程师顾玉亮则因1983年《话说长江》的感召，用四十余年攻克咸潮倒灌等难题。
+财联社记者注意到，近期多家机构认为，从历史经验看二永债供给放量对利差的直接影响较小。
 
-他在片中动情地说：“没有源头的守护，哪来下游这一口纯净？
+但由于其具备较强的交易属性，债市情绪偏弱叠加供给放量时，二永债收益率和品种利差走阔的可能性较大。
 
-” 与《长江第一滴水》聚焦一条大江不同，同期完成的《江河源》则由那曲市水利局出品、那曲市融媒体中心摄制，首次对那曲境内的中国五大江河源头及高原湖泊生态系统进行全景式、高规格影像记录。
+二永债获批额度大增 公开资料显示，4月上旬，工商银行、中信银行和招商银行发布二永债等相关债券额度的批复，三家银行今年额度分别是8000亿、1600亿和730亿，较往年明显增长，其中工商银行额度较2024年增长2倍。
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:17 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:36 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:36 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:21 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:38 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:42 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:24 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:15 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:19 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:27 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:29 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:37 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:15 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:25 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:19 - [七牛智能午后涨超4% AI相关收入占比进一步增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:19 - [全周期、全渠道、全领域——多部门详解药价新规](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:45 - [中国电动三轮车爆火美国 电动三轮车在美国价格翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:23 - [国家统计局：一季度GDP同比增长5.0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:45 - [小摩：中金公司首季业绩料胜预期 重申行业首选股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:18 - [沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:38 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:40 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:18 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:42 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:41 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:27 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:41 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:43 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:19 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:14 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:19 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:39 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:25 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:43 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:23 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:20 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:26 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:27 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:26 - [北京“两区”建设加速推进 高水平开放释放发展新动能](http://www.share.minike.top/Article/details/61738691.shtml)
+- 2026-06-29 11:40 - [济宁太白湖新区：花海伴赛事 产业促民生](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [余金生被执行死刑！系杀害网红“罗大美”主犯](http://www.blog.minike.top/Article/details/895589.shtml)
+- 2026-06-29 11:44 - [一季度郑州机场国际货运量同比增长21.8%](http://www.share.kurohicncr.top/Article/details/786410.shtml)
+- 2026-06-29 11:22 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](http://www.blog.kurohicncr.top/Article/details/5621730.shtml)
+- 2026-06-29 11:35 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](http://www.share.kurohicncr.top/Article/details/4260991558.shtml)
+- 2026-06-29 11:39 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.share.minike.top/Article/details/45550.shtml)
+- 2026-06-29 11:22 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](http://www.share.minike.top/Article/details/1668609.shtml)
+- 2026-06-29 11:45 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [云南印发实施意见全面推进共有精神家园建设](http://www.share.kurohicncr.top/Article/details/875100203.shtml)
+- 2026-06-29 11:35 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.share.kurohicncr.top/Article/details/00723868.shtml)
+- 2026-06-29 11:25 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.share.kurohicncr.top/Article/details/56229932392.shtml)

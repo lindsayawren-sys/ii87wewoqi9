@@ -1,42 +1,50 @@
-# 为AI储能，“含储量”高！新能源电池ETF华宝（159071）今日首发
+# 国家统计局：一季度全国居民人均可支配收入12782元
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-责任编辑：张恒星
+中新网4月16日电(记者 吴家驹 谢艺观)4月16日，国家统计局发布一季度中国经济数据。一季度，全国居民人均可支配收入12782元，同比名义增长4.9%，扣除价格因素实际增长4.0%。全国居民人均可支配收入中位数10433元，同比名义增长5.0%。
 
 ## 正文
 
-责任编辑：张恒星
+中新网4月16日电(记者 吴家驹 谢艺观)4月16日，国家统计局发布一季度中国经济数据。
+
+一季度，全国居民人均可支配收入12782元，同比名义增长4.9%，扣除价格因素实际增长4.0%。
+
+全国居民人均可支配收入中位数10433元，同比名义增长5.0%。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:31 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:30 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:25 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:36 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:16 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:23 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:20 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:42 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:24 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:35 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:23 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:19 - [海南这个园区有点东西：学生一校入学 可共享多校课程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:28 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:36 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:40 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:19 - [多重利好叠加提振预期 消费板块能否苦尽甘来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:39 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:30 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:41 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:40 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:17 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:17 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:15 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:17 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:35 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:30 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:21 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:19 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:19 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:25 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:39 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:24 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:25 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:31 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:43 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:25 - [新晋退休人士最后悔的事：没多存点钱](http://www.share.kurohicncr.top/Article/details/26125.shtml)
+- 2026-06-29 11:22 - [IEA警示历史性石油冲击](http://www.share.minike.top/Article/details/1884922344.shtml)
+- 2026-06-29 11:39 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](http://www.share.kurohicncr.top/Article/details/631831.shtml)
+- 2026-06-29 11:26 - [A股盘前速递：黄金涨回4800美元](http://www.blog.kurohicncr.top/Article/details/84789007764.shtml)
+- 2026-06-29 11:18 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.share.minike.top/Article/details/59201589281.shtml)
+- 2026-06-29 11:38 - [澳大利亚一炼油厂发生大火](http://www.share.minike.top/Article/details/86204402.shtml)
+- 2026-06-29 11:28 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](http://www.share.minike.top/Article/details/0862660260.shtml)
+- 2026-06-29 11:33 - [话剧《四世同堂》首次登陆澳大利亚](http://www.blog.kurohicncr.top/Article/details/47675192326.shtml)
+- 2026-06-29 11:19 - [中国HH-200航空商用无人运输系统首架机首飞成功](http://www.share.kurohicncr.top/Article/details/258980442949.shtml)
+- 2026-06-29 11:24 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.blog.kurohicncr.top/Article/details/83981.shtml)
+- 2026-06-29 11:45 - [一季度增城西站中欧班列开行量同比增长24%](http://www.blog.minike.top/Article/details/9526362520.shtml)
+- 2026-06-29 11:33 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.share.kurohicncr.top/Article/details/21995270.shtml)
+- 2026-06-29 11:26 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.blog.minike.top/Article/details/84771014.shtml)
+- 2026-06-29 11:23 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.share.kurohicncr.top/Article/details/36491692866.shtml)
+- 2026-06-29 11:39 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](http://www.share.minike.top/Article/details/692126854098.shtml)

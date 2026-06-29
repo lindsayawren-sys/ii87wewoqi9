@@ -1,48 +1,56 @@
-# 保险业已赔付湖北等六省份暴雨洪涝灾害损失2.1亿元
+# 红星冷链与红星建设订立建筑合约 对价约2200.38万元
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-记者今天(25日)从金融监管总局了解到，近日，湖北、湖南、贵州、广东、广西、重庆等多地发生暴雨洪涝灾害，截至5月25日上午11时，6省(自治区、直辖市)保险业累计接到因暴雨洪涝灾害报案3.3万件，估损金额7.5亿元，保险机构及时开通快速理赔通道，推动能赔快赔、应赔尽赔、合理预赔，已赔付和预赔付2.1亿元。目前，金融监管总局及其派出机构正指导各保险公司进一步强化风险意识，有力有效
+红星冷链（01641）发布公告，于2026年4月16日，公司与红星建设订立建筑合约，据此，公司同意委聘红星建设为本项目的承建商，对价为人民币2200.38万元，惟须受建筑合约的条款及条件规限。本项目指于中国湖南省长沙市兴建食品加工及配送中心。 公司认为冷冻食品加工是公司冷冻食品仓储专业能力的自然延伸，而非进入一个全新的业务领域，借此可为公司的冷冻食品仓储客户提供增值服务，如肉类
 
 ## 正文
 
-记者今天(25日)从金融监管总局了解到，近日，湖北、湖南、贵州、广东、广西、重庆等多地发生暴雨洪涝灾害，截至5月25日上午11时，6省(自治区、直辖市)保险业累计接到因暴雨洪涝灾害报案3.3万件，估损金额7.5亿元，保险机构及时开通快速理赔通道，推动能赔快赔、应赔尽赔、合理预赔，已赔付和预赔付2.1亿元。
+红星冷链（01641）发布公告，于2026年4月16日，公司与红星建设订立建筑合约，据此，公司同意委聘红星建设为本项目的承建商，对价为人民币2200.38万元，惟须受建筑合约的条款及条件规限。
 
-目前，金融监管总局及其派出机构正指导各保险公司进一步强化风险意识，有力有效做好灾前预警、灾中应急、灾后理赔等各项工作，包括开通绿色通道，简化理赔手续，优化理赔流程，做到能赔快赔、应赔尽赔、合理预赔。
+本项目指于中国湖南省长沙市兴建食品加工及配送中心。
 
-此外，还要主动靠前服务，密切跟进保险赔付和预赔付进度，及时回应客户诉求。
+公司认为冷冻食品加工是公司冷冻食品仓储专业能力的自然延伸，而非进入一个全新的业务领域，借此可为公司的冷冻食品仓储客户提供增值服务，如肉类切割、杀菌、隧道冷冻、分拣及真空包装，从而提高公司在冷冻食品仓储业务领域的竞争力。
 
-(总台央视记者 王雷)
+首先，董事认为公司能够把握市场需求，原因为在公司超过700名冷冻仓储客户中，众多客户已表示其需要冷冻食品加工服务。
+
+其次，新的食品加工设施将位于公司现有的仓储和门店附近，使3个设施能够协同运营并提升彼此的服务。
+
+客户可从公司的仓储设施采购未经加工的冷冻食品，并透过公司的交易平台分销成品。
+
+此举能简化物流，减少协调多个业务伙伴的需要，最终降低运营成本。
+
+红星建设乃通过招标程序甄选，而建筑合约的条款乃由订约方经公平磋商厘定。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:43 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:27 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:16 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:37 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:17 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:35 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:34 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:39 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:14 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:32 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:41 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:24 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:31 - [海军航空大学某大队：更新知识体系 厚植打赢底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:17 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:20 - [Uber将收购Delivery Hero额外4.5%的股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:35 - [中国驻日本大使馆提醒在日中国公民注意人身安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:28 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:17 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:33 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:18 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:20 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:30 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:36 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:40 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:32 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:24 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:26 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:36 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:34 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:23 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:21 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:36 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:19 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:37 - [国家医保局：全国近四成统筹地区已完成上年度清算](http://www.blog.minike.top/Article/details/24475.shtml)
+- 2026-06-29 11:23 - [贝森特：可以理解美联储暂缓降息](http://www.share.minike.top/Article/details/88932.shtml)
+- 2026-06-29 11:30 - [洪水猛兽还是有效工具？专家学者聚焦AI视域下的青少年科幻写作](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [老外体验无人驾驶：“万万没想到，比司机开还稳”](http://www.share.minike.top/Article/details/994702816.shtml)
+- 2026-06-29 11:25 - [挖机销量增近三成，工程机械“金三”来了](http://www.blog.kurohicncr.top/Article/details/261147709.shtml)
+- 2026-06-29 11:43 - [开局之年看中国·开放自贸港：“艇”进三亚](http://www.share.minike.top/Article/details/142863188221.shtml)
+- 2026-06-29 11:26 - [首次原子尺度证实 中国科学家发现金属/载体三维体相参与催化新机制](http://www.share.minike.top/Article/details/1029022677.shtml)
+- 2026-06-29 11:40 - [财信宏观丨供给韧性较强，需求修复待提速—2026年1-3月经济数据点评](http://www.blog.minike.top/Article/details/23649241.shtml)
+- 2026-06-29 11:31 - [酒价内参4月16日价格发布：水晶剑南春小幅上涨1元/瓶](http://www.share.kurohicncr.top/Article/details/29492641.shtml)
+- 2026-06-29 11:41 - [ATFX:特朗普威胁解除鲍威尔职务 美指跌破98点](http://www.share.kurohicncr.top/Article/details/773198.shtml)
+- 2026-06-29 11:26 - [中东突发！刚刚，直线拉升！](http://www.blog.kurohicncr.top/Article/details/45015489058.shtml)
+- 2026-06-29 11:38 - [湖北：以正确政绩观引领“支点建设”新征程](http://www.share.kurohicncr.top/Article/details/858307446.shtml)
+- 2026-06-29 11:42 - [全球经济的严峻考验](http://www.share.minike.top/Article/details/042140089.shtml)
+- 2026-06-29 11:35 - [Glamox将为Sea1 Offshore的海上能源支持船提供照明](http://www.blog.minike.top/Article/details/5159171043.shtml)
+- 2026-06-29 11:21 - [在“商量声”中生长：浙江杭州小古城村民主协商发“新枝”](https://github.com/lisacumin64-arch)

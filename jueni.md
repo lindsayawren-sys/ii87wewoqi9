@@ -1,49 +1,57 @@
-# 微软为人工智能时代重塑领导层
+# 商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-微软（MSFT）拆解了其长期存在的高级领导层架构，组建了一个更精干的“公司领导”团队，并设立每周的Copilot立会。首席执行官Satya Nadella正将人工智能的执行权集中化，以加速公司在AI领域的创新和产品落地。责任编辑：张俊 SF065
+中新网4月16日电 商务部新闻发言人何亚东4月16日表示，截至4月12日，2026年消费品以旧换新销售额5029.4亿元，惠及6977.7万人次。 商务部16日举行例行新闻发布会。会上，有记者问：2026年全国消费促进月活动已于3月初启动，请问活动开展成效如何，有哪些亮点和特色？ 何亚东表示，2026年全国消费促进月于3月举办，主要有以下三个特点。 一是强化政策引领。优化实施消
 
 ## 正文
 
-微软（MSFT）拆解了其长期存在的高级领导层架构，组建了一个更精干的“公司领导”团队，并设立每周的Copilot立会。
+中新网4月16日电 商务部新闻发言人何亚东4月16日表示，截至4月12日，2026年消费品以旧换新销售额5029.4亿元，惠及6977.7万人次。
 
-首席执行官Satya Nadella正将人工智能的执行权集中化，以加速公司在AI领域的创新和产品落地。
+商务部16日举行例行新闻发布会。
 
-责任编辑：张俊 SF065
+会上，有记者问：2026年全国消费促进月活动已于3月初启动，请问活动开展成效如何，有哪些亮点和特色？
+
+何亚东表示，2026年全国消费促进月于3月举办，主要有以下三个特点。
+
+一是强化政策引领。
+
+优化实施消费品以旧换新政策，突出绿色智能，为新产业发展提供广阔市场。
+
+截至4月12日，2026年消费品以旧换新销售额5029.4亿元，惠及6977.7万人次。
+
+在以旧换新政策带动下，绿色智能产品销售快速增长，“科技+消费”广受欢迎。
 
 ## 相关推荐
 
-- 2026-06-29 11:15 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:26 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:27 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:41 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:23 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:16 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:36 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:26 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:21 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:17 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:15 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:39 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:38 - [黎巴嫩总统同美国国务卿通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:34 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:44 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:25 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:20 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:34 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:43 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:35 - [北京“两区”建设加速推进 高水平开放释放发展新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:39 - [济宁太白湖新区：花海伴赛事 产业促民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:39 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:29 - [余金生被执行死刑！系杀害网红“罗大美”主犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:35 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:28 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:33 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:22 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:24 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:28 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:39 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:23 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:26 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:29 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:21 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:19 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:22 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](http://www.blog.kurohicncr.top/Article/details/93190393805.shtml)
+- 2026-06-29 11:30 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](http://www.blog.kurohicncr.top/Article/details/5593896.shtml)
+- 2026-06-29 11:30 - [多重利好叠加提振预期 消费板块能否苦尽甘来](http://www.share.minike.top/Article/details/474752.shtml)
+- 2026-06-29 11:38 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](http://www.share.kurohicncr.top/Article/details/67680.shtml)
+- 2026-06-29 11:28 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](http://www.share.kurohicncr.top/Article/details/491235590823.shtml)
+- 2026-06-29 11:35 - [中国国家中医药管理局原局长于文明被公诉](http://www.blog.minike.top/Article/details/811308.shtml)
+- 2026-06-29 11:22 - [德意志银行预计美联储2026年将维持利率不变](http://www.share.minike.top/Article/details/65648.shtml)
+- 2026-06-29 11:35 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](http://www.share.minike.top/Article/details/08911306016.shtml)
+- 2026-06-29 11:31 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](http://www.blog.kurohicncr.top/Article/details/524939.shtml)
+- 2026-06-29 11:41 - [惠伦晶体立案审查通过，符合要求还可加入](http://www.share.kurohicncr.top/Article/details/6428908158.shtml)
+- 2026-06-29 11:17 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](http://www.blog.minike.top/Article/details/1415082263.shtml)
+- 2026-06-29 11:17 - [市场监管总局：将深入开展CCC认证守底线专项行动](http://www.blog.kurohicncr.top/Article/details/66686.shtml)
+- 2026-06-29 11:37 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](http://www.share.kurohicncr.top/Article/details/877788494.shtml)
+- 2026-06-29 11:35 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](http://www.blog.minike.top/Article/details/900722764.shtml)
+- 2026-06-29 11:40 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](http://www.share.kurohicncr.top/Article/details/89195329.shtml)

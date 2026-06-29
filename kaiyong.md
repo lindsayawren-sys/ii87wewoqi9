@@ -1,61 +1,54 @@
-# 服饰服装年报|2025年服装行业分化加剧 美邦服饰、安正时尚继续亏损
+# 海南这个园区有点东西：学生一校入学 可共享多校课程
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：新消费主张/cici 2025年，国内服饰服装行业在“外需承压、内需弱复苏”的宏观背景下交出了一份分化鲜明的成绩单。国家统计局数据显示，全年服装鞋帽针纺织品零售额同比仅增长3.2%，行业整体处于周期底部震荡。但细分赛道及不同品牌的经营质量差异巨大：运动户外板块继续保持强劲
+发布时间：2026年04月17日 12:58 来源：中国新闻网 4月16日，记者走进海南陵水黎安国际教育创新试验区(简称“黎安试验区”)，这个试验区由中国教育部和海南省共建，是海南自由贸易港建设的13个重点园区之一，也是推动海南国际教育创新岛建设的重要平台。 黎安试验区在办学模式创新和制度集成创新方面，探索开创了“大共享+小学院”的办学模式。在这里，各高校拥有独立教学空间，而图
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月17日 12:58 来源：中国新闻网 4月16日，记者走进海南陵水黎安国际教育创新试验区(简称“黎安试验区”)，这个试验区由中国教育部和海南省共建，是海南自由贸易港建设的13个重点园区之一，也是推动海南国际教育创新岛建设的重要平台。
 
-出品：新浪财经上市公司研究院 作者：新消费主张/cici 2025年，国内服饰服装行业在“外需承压、内需弱复苏”的宏观背景下交出了一份分化鲜明的成绩单。
+黎安试验区在办学模式创新和制度集成创新方面，探索开创了“大共享+小学院”的办学模式。
 
-国家统计局数据显示，全年服装鞋帽针纺织品零售额同比仅增长3.2%，行业整体处于周期底部震荡。
+在这里，各高校拥有独立教学空间，而图书馆、体育场馆、公共教学楼等设施则实现全面共享，推动资源高效利用与跨校互动。
 
-但细分赛道及不同品牌的经营质量差异巨大：运动户外板块继续保持强劲增长，男装品牌利润端显著修复，而女装及部分休闲装企业则面临营收下滑或亏损扩大的困境。
+此外，试验区创新性提出并实践“五互一共”国际化人才培养模式，即中外互鉴、文理互通、学科互融、课程互选、学分互认和“管理共商”。
 
-截至各公司年报披露，本文选取了李宁、特步、361度、探路者、三夫户外、海澜之家等20家代表性上市公司，从“业绩双增、增收不增利、增利不增收、业绩双降、利润亏损”五个维度进行对比分析。
+通过这种模式，来推进入驻高校发挥各自学科优势，共享教育资源、共建教育体系、共治教育园区。
 
-共有6家公司实现营收与归母净利润同比双增长，运动户外赛道表现最为突出。
+目前园区内设置的共享课程已经有300多门，涵盖文、理、工、体、艺等多个领域，选课学生超7000人次，覆盖所有入驻高校，有力推动了高质量人才培养。
 
-特步2025年营收141.51亿元，同比增长4.2%，归母净利润13.72亿元，同比增长10.8%，净利润创历史新高，专业运动分部收入大增30.8%。
-
-361度实现营收111.46亿元，同比增长10.6%，归母净利润13.09亿元，同比增长14.0%，连续五年保持营收净利双位数增长，电商业务增速达25.9%。
+(林士杰 陈英清 部分视频来源 黎安试验区) 责任编辑：【苏亦瑜】
 
 ## 相关推荐
 
-- 2026-06-29 11:16 - [当地回应多辆“百吨王”强行冲卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:33 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:21 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:35 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:25 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:14 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:38 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:39 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:42 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:37 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:17 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:18 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:15 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:19 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:20 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:34 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:40 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:22 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:27 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:33 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:21 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:44 - [市场监管总局：将深入开展CCC认证守底线专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:28 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:22 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:23 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:29 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:20 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:20 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:23 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:33 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:25 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:14 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:36 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:24 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:22 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:23 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:27 - [哈尔滨“全城追菠萝蜜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:31 - [一季度增城西站中欧班列开行量同比增长24%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.blog.minike.top/Article/details/1161091.shtml)
+- 2026-06-29 11:43 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.blog.kurohicncr.top/Article/details/4482865.shtml)
+- 2026-06-29 11:42 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.share.minike.top/Article/details/082240337996.shtml)
+- 2026-06-29 11:33 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.share.kurohicncr.top/Article/details/0374918437.shtml)
+- 2026-06-29 11:32 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](http://www.share.minike.top/Article/details/9250205.shtml)
+- 2026-06-29 11:38 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](http://www.share.kurohicncr.top/Article/details/04698094.shtml)
+- 2026-06-29 11:24 - [韩国第一季度接待外国游客476万人次，创历史新高](http://www.blog.minike.top/Article/details/31423536.shtml)
+- 2026-06-29 11:29 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](http://www.blog.kurohicncr.top/Article/details/8326946.shtml)
+- 2026-06-29 11:45 - [采购商谈消博会：这里是一座“全球好物中转站”](http://www.share.kurohicncr.top/Article/details/8318327276.shtml)
+- 2026-06-29 11:38 - [渤海银行：首席信息官谢凯任职资格获批](http://www.blog.minike.top/Article/details/826689891.shtml)
+- 2026-06-29 11:19 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](http://www.share.kurohicncr.top/Article/details/43098092717.shtml)
+- 2026-06-29 11:34 - [国际能源署署长：欧洲仅剩够用6周航空燃油](http://www.share.kurohicncr.top/Article/details/553494066647.shtml)
+- 2026-06-29 11:40 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](http://www.share.kurohicncr.top/Article/details/122642.shtml)

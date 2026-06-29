@@ -1,56 +1,61 @@
-# 广东举行高技能人才专题招聘活动 释放超1.5万个岗位
+# 距下次会议仅剩两周，欧洲央行仍未就利率走向给市场明确信号
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网广州5月23日电 (记者 程景伟)“百万英才汇南粤”2026年高技能人才专题招聘活动23日在广东省轻工业技师学院增城校区举行。 此次活动由广东省委人才办、省人力资源和社会保障厅、省教育厅联合主办，300余家企业参加招聘，线上线下释放超15000个岗位，岗位设置贴合产业发展实际，覆盖技术研发、生产制造、运营管理、市场服务全链条。 据统计，现场吸引超1.1万人次求职者入场，初
+距欧洲央行下一次会议仅剩不到两周，欧元区政策制定者仍未就未来利率走向做出明确表态。 路孚特数据显示，金融市场目前押注欧洲央行将在 4 月 29—30 日会议上按兵不动，6 月加息。多数交易员预计，欧洲央行关键利率年底将至少升至 2.5%，较当前水平加息 50 个基点或更多。 德国央行行长约阿希姆・纳格尔周三在华盛顿举行的 IMF 春季会议上接受 CNBC 采访时表示，油价波动已
 
 ## 正文
 
-中新网广州5月23日电 (记者 程景伟)“百万英才汇南粤”2026年高技能人才专题招聘活动23日在广东省轻工业技师学院增城校区举行。
+距欧洲央行下一次会议仅剩不到两周，欧元区政策制定者仍未就未来利率走向做出明确表态。
 
-此次活动由广东省委人才办、省人力资源和社会保障厅、省教育厅联合主办，300余家企业参加招聘，线上线下释放超15000个岗位，岗位设置贴合产业发展实际，覆盖技术研发、生产制造、运营管理、市场服务全链条。
+路孚特数据显示，金融市场目前押注欧洲央行将在 4 月 29—30 日会议上按兵不动，6 月加息。
 
-据统计，现场吸引超1.1万人次求职者入场，初步达成就业意向2500多人次，人才供需对接精准度高、落地成效显著。
+多数交易员预计，欧洲央行关键利率年底将至少升至 2.5%，较当前水平加息 50 个基点或更多。
 
-招聘会特设“先进制造业”与“现代服务业”两大专区。
+德国央行行长约阿希姆・纳格尔周三在华盛顿举行的 IMF 春季会议上接受 CNBC 采访时表示，油价波动已让欧洲央行处于 “基准情景与不利情景之间”。
 
-小鹏集团、海天机械等制造业龙头企业与京东、中移铁通等服务企业同台揽才，西门子更是联合50家生态企业组团推出千余个岗位。
+“整体局势非常不明朗、迷雾重重，两周后我们必须决定下一步怎么走。
 
-电驱试验技师、机器人试制技师、智慧家庭工程师、AI设计师……岗位遍布新能源、智能制造、工业机器人、智能运维等新赛道。
+” 他称，相关数据和消息每天都在更新。
 
-在制造业与服务业加速融合的趋势下，企业不再满足于招聘掌握单一技能的人才，而是急需兼具设备操作、系统管理、客户服务的技能复合型人才。
+纳格尔指出，霍尔木兹海峡能否重新开放是当前不确定性的核心，并称这一关键水道是 “世界经济体系的要害”。
 
-招聘会上，企业岗位设置呈现出明显的“两业融合”特征，从单纯的制造端向数字营销、智能运维、新零售等现代服务业延伸，精准匹配产业链与价值链的深度融合需求。
+“如果不确定性进一步加剧，也会影响我们两周后开会时的决策。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:27 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:36 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:38 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:41 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:33 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:37 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:14 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:31 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:33 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:22 - [同济大学回应“一教师论文数据存疑”：已成立调查组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:22 - [南京将打造国际航空货运枢纽 开辟及加密近远洋干线航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:29 - [七牛智能午后涨超4% AI相关收入占比进一步增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:24 - [全周期、全渠道、全领域——多部门详解药价新规](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:44 - [中国电动三轮车爆火美国 电动三轮车在美国价格翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:17 - [国家统计局：一季度GDP同比增长5.0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:38 - [小摩：中金公司首季业绩料胜预期 重申行业首选股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:31 - [沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:26 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:25 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:41 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:28 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:16 - [珠江流域部分中小河流近期可能出现超警洪水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:38 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:18 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:23 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:43 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:27 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:26 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:17 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:31 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:40 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:25 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:18 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:20 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:28 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:20 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:42 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:34 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:31 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](http://www.blog.kurohicncr.top/Article/details/215665636073.shtml)
+- 2026-06-29 11:43 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](http://www.blog.kurohicncr.top/Article/details/2196816183.shtml)
+- 2026-06-29 11:19 - [北京“两区”建设加速推进 高水平开放释放发展新动能](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [济宁太白湖新区：花海伴赛事 产业促民生](http://www.blog.minike.top/Article/details/4684012.shtml)
+- 2026-06-29 11:20 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](http://www.blog.minike.top/Article/details/35860613.shtml)
+- 2026-06-29 11:39 - [余金生被执行死刑！系杀害网红“罗大美”主犯](http://www.share.minike.top/Article/details/294976304788.shtml)
+- 2026-06-29 11:44 - [一季度郑州机场国际货运量同比增长21.8%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](http://www.blog.minike.top/Article/details/22992.shtml)
+- 2026-06-29 11:24 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.blog.kurohicncr.top/Article/details/215122.shtml)
+- 2026-06-29 11:32 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](http://www.share.minike.top/Article/details/896714.shtml)
+- 2026-06-29 11:45 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](http://www.share.kurohicncr.top/Article/details/747863.shtml)
+- 2026-06-29 11:40 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [河南南阳：警车亮灯守护三轮平安归途](http://www.blog.minike.top/Article/details/93954238.shtml)
+- 2026-06-29 11:19 - [云南印发实施意见全面推进共有精神家园建设](http://www.share.minike.top/Article/details/943888.shtml)

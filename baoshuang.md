@@ -1,60 +1,47 @@
-# 保运作！多只A50、A500指数基金先后“出招”
+# 渤海银行：首席信息官谢凯任职资格获批
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-每经记者|黄小聪 每经编辑|叶峰 近日，多只规模较小的A50、A500指数基金纷纷召开持有人大会，主要议案均与基金运作有关。 记者注意到，中银中证A500指数增强基金、汇安中证A500指数基金虽召开持有人大会审议持续运作议案，但均告失败。而新华中证A50ETF召开持有人大会，直接把基金合同的终止条款修改了。 此外，国联中证A50联接基金、银河中证A500ETF联接基金也要召开持
+4月16日，渤海银行（09668）发布公告，近日收到国家金融监督管理总局关于谢凯担任公司首席信息官任职资格的批复。根据公告，谢凯自2026年4月13日起正式履职。
 
 ## 正文
 
-每经记者|黄小聪 每经编辑|叶峰 近日，多只规模较小的A50、A500指数基金纷纷召开持有人大会，主要议案均与基金运作有关。
+4月16日，渤海银行（09668）发布公告，近日收到国家金融监督管理总局关于谢凯担任公司首席信息官任职资格的批复。
 
-记者注意到，中银中证A500指数增强基金、汇安中证A500指数基金虽召开持有人大会审议持续运作议案，但均告失败。
-
-而新华中证A50ETF召开持有人大会，直接把基金合同的终止条款修改了。
-
-此外，国联中证A50联接基金、银河中证A500ETF联接基金也要召开持有人大会，审议的也是基金持续运作的议案。
-
-密集召开持有人大会 5月21日，中银中证A500指数增强基金、汇安中证A500指数基金公告了近期召开持有人大会的情况，两只基金的持有人大会均召开失败。
-
-具体来看，出席中银中证A500指数增强基金持有人大会的有效表决份额共5818.69份，占权益登记日总份额2170万份的0.0268%，远低于二分之一的要求。
-
-而出席汇安中证A500指数基金持有人大会的有效表决份额共2.17万份，占权益登记日总份额2693万份的0.08%，同样大幅低于二分之一。
-
-记者注意到，这两只基金召开持有人大会审议的议案均是关于基金的持续运作，但从结果来看，均未能表决成功。
+根据公告，谢凯自2026年4月13日起正式履职。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:38 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:25 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:25 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:15 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:43 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:41 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:29 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:35 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:31 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:42 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:24 - [Stena DrillMAX将在希腊近海钻探首口深水井](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:18 - [在沙地种下一片“云朵玫瑰”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:22 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:40 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:22 - [美又一核动力航母失火 8名船员受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:40 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:29 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:18 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:20 - [全球智能鸿沟如何破解？这份报告给出答案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:36 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:43 - [新疆新设草湖市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:29 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:16 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:34 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:26 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:37 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:17 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:33 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:21 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:16 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:36 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:14 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:38 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:14 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:14 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:33 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:28 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:37 - [多份联储报告显示美国物价飙升](http://www.share.minike.top/Article/details/7880572567.shtml)
+- 2026-06-29 11:28 - [光大期货：4月16日金融日报](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](http://www.blog.kurohicncr.top/Article/details/212750066.shtml)
+- 2026-06-29 11:45 - [近3万股东出走中际旭创](http://www.share.minike.top/Article/details/7102609309.shtml)
+- 2026-06-29 11:23 - [韩国称其运载原油船只安全驶离红海](http://www.share.kurohicncr.top/Article/details/241979921.shtml)
+- 2026-06-29 11:46 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](http://www.blog.kurohicncr.top/Article/details/3457680769.shtml)
+- 2026-06-29 11:23 - [上海外贸进出口总值实现“季、月双创纪录”开局](http://www.blog.kurohicncr.top/Article/details/245648283.shtml)
+- 2026-06-29 11:37 - [中国国防部：敦促日方同军国主义彻底切割](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [中国财长出席2026年G20财长和央行行长第一次会议](http://www.share.kurohicncr.top/Article/details/18100.shtml)
+- 2026-06-29 11:25 - [翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](http://www.blog.kurohicncr.top/Article/details/410209.shtml)
+- 2026-06-29 11:20 - [液态金属在太空有何应用前景？中国科研团队深度解析全景前瞻](http://www.blog.minike.top/Article/details/47777.shtml)
+- 2026-06-29 11:39 - [国家医保局：全国近四成统筹地区已完成上年度清算](http://www.share.kurohicncr.top/Article/details/49531428.shtml)
+- 2026-06-29 11:33 - [贝森特：可以理解美联储暂缓降息](http://www.blog.kurohicncr.top/Article/details/054413910717.shtml)

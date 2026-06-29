@@ -1,57 +1,55 @@
-# 一碗公道饭 万里琼侨情
+# 伊朗警告：美勿充当霍尔木兹海峡“警察”
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-中新社海南琼海5月25日电 题：一碗公道饭 万里琼侨情 中新社记者 符宇群 芭蕉叶为盘，嘉积鸭鲜嫩入味，原汤焖制的饭团香气浓郁，荤素汤汁均分均等、厚薄一致。在海南侨乡琼海，一碗地道的公道饭，藏着乡土烟火，系着侨脉乡愁，是烙印在当地人心底的味蕾记忆。 琼海嘉积南门市场里，王记公道饭店店主张泰霞有条不紊地炖煮番鸭、熬制“杯贡”，鲜香漫溢街巷，引得食客纷至沓来。她深耕公道饭制作多年，
+中新网4月17日电 据外媒报道，伊朗最高领袖军事顾问穆赫辛·雷扎伊15日警告称，如果美国在霍尔木兹海峡“指手划脚”，伊朗将击沉美军船舰。 据报道，雷扎伊当天在接受伊朗国家电视台采访时说，“(美国总统)特朗普想当霍尔木兹海峡的警察”，这难道是美军的真正职责所在吗？ 雷扎伊警告称，美军船舰处于伊朗导弹射程内，伊朗将“摧毁”它们。“我们会击沉所有船只。没有人能逃脱我们的追击。”
 
 ## 正文
 
-中新社海南琼海5月25日电 题：一碗公道饭 万里琼侨情 中新社记者 符宇群 芭蕉叶为盘，嘉积鸭鲜嫩入味，原汤焖制的饭团香气浓郁，荤素汤汁均分均等、厚薄一致。
+中新网4月17日电 据外媒报道，伊朗最高领袖军事顾问穆赫辛·雷扎伊15日警告称，如果美国在霍尔木兹海峡“指手划脚”，伊朗将击沉美军船舰。
 
-在海南侨乡琼海，一碗地道的公道饭，藏着乡土烟火，系着侨脉乡愁，是烙印在当地人心底的味蕾记忆。
+据报道，雷扎伊当天在接受伊朗国家电视台采访时说，“(美国总统)特朗普想当霍尔木兹海峡的警察”，这难道是美军的真正职责所在吗？
 
-琼海嘉积南门市场里，王记公道饭店店主张泰霞有条不紊地炖煮番鸭、熬制“杯贡”，鲜香漫溢街巷，引得食客纷至沓来。
+雷扎伊警告称，美军船舰处于伊朗导弹射程内，伊朗将“摧毁”它们。
 
-她深耕公道饭制作多年，深谙这份美食背后的文化底蕴：“公道饭的根，扎在南洋侨韵与琼海乡土人情之中。
+“我们会击沉所有船只。
 
-” 作为公道饭的核心食材，嘉积鸭又称番鸭，是早年琼海“番客”远赴南洋后引进回乡，历经本土化成为琼海特色名产。
+没有人能逃脱我们的追击。
 
-在物资匮乏的年代，乡邻几户常凑钱合买鸡鸭鹅等家禽，推举“公道头”掌勺分餐，禽肉、饭团、汤汁、蘸料样样均分。
-
-“公道饭”由此而来，展现出邻里共享、互助和睦的乡土底色。
-
-“我们精选本地散养嘉积鸭，以清水搭配姜、盐、胡椒慢煮至九成熟，出锅后趁热以细盐涂抹鸭身，最大程度锁住鸭肉细嫩鲜香的本味。
+”
 
 ## 相关推荐
 
-- 2026-06-29 11:16 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:31 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:25 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:32 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:25 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:17 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:34 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:32 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:41 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:17 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:21 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:24 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:45 - [一季度增城西站中欧班列开行量同比增长24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:39 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:34 - [美财长贝森特承诺支持日本推进投资审查机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:36 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:28 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:18 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:32 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:36 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:21 - [韩国第一季度接待外国游客476万人次，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:38 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:27 - [采购商谈消博会：这里是一座“全球好物中转站”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:17 - [渤海银行：首席信息官谢凯任职资格获批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:43 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:14 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:34 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:35 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:25 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:16 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:23 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:39 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:33 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:32 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:38 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:32 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:23 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:34 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](http://www.blog.kurohicncr.top/Article/details/04147163.shtml)
+- 2026-06-29 11:44 - [世界气象组织秘书长调研全民早期预警重庆实践](http://www.share.kurohicncr.top/Article/details/08081.shtml)
+- 2026-06-29 11:28 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](http://www.blog.minike.top/Article/details/249447.shtml)
+- 2026-06-29 11:37 - [报告称中国在建核电机组装机容量连续19年保持全球第一](http://www.share.minike.top/Article/details/57137141464.shtml)
+- 2026-06-29 11:31 - [东艳：一季度外贸数据反映多个“增强”](http://www.blog.minike.top/Article/details/15043382.shtml)
+- 2026-06-29 11:38 - [又见大“肉签”！301666，中一签最高赚近10万元](http://www.blog.minike.top/Article/details/6127497251.shtml)
+- 2026-06-29 11:36 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](http://www.blog.kurohicncr.top/Article/details/6396771684.shtml)
+- 2026-06-29 11:17 - [中越签署一系列合作文件](http://www.share.kurohicncr.top/Article/details/2674225890.shtml)
+- 2026-06-29 11:24 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](http://www.blog.kurohicncr.top/Article/details/522176399.shtml)
+- 2026-06-29 11:29 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](http://www.blog.kurohicncr.top/Article/details/11024915.shtml)
+- 2026-06-29 11:42 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](http://www.share.kurohicncr.top/Article/details/803302.shtml)
+- 2026-06-29 11:29 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](http://www.share.minike.top/Article/details/6328506705.shtml)
+- 2026-06-29 11:25 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](http://www.share.minike.top/Article/details/912608129775.shtml)
+- 2026-06-29 11:27 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](http://www.blog.kurohicncr.top/Article/details/0442509884.shtml)
+- 2026-06-29 11:37 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](http://www.blog.minike.top/Article/details/4860314.shtml)

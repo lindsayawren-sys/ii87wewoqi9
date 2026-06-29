@@ -1,58 +1,54 @@
-# 002931，001225！2连涨停，紧急提示！事关机器人业务！
+# 海外采购商广交会叹中国科技发展：这里仿佛生活在2050年
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！因股票交易连续2个交易日（2026年5月21日、2026年5月22日）收盘价格涨幅偏离值累计超过20%，5月24日晚间锋龙股份（002931）披露股票交易异常波动公告。 此前，2025年末锋龙股份曾公告，优必选拟受让上市公司29.99%股份。而公开资料显示，优必选存在具身智能人形机器人业务、教育智能机器人及
+发布时间：2026年04月16日 20:42 来源：中国新闻网 第139届中国进出口商品交易会(广交会)4月15日在广州开幕。本届广交会参展企业超过3.2万家，其中拥有“专精特新”“单项冠军”等称号的优质企业超过1.1万家，均超往届水平。 “常办常新” 的广交会吸引大量采购商，总体量稳质升。截至4月9日，预登记采购商超21万人；确认参会头部采购企业290家，同比增长30%；14
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月16日 20:42 来源：中国新闻网 第139届中国进出口商品交易会(广交会)4月15日在广州开幕。
 
-因股票交易连续2个交易日（2026年5月21日、2026年5月22日）收盘价格涨幅偏离值累计超过20%，5月24日晚间锋龙股份（002931）披露股票交易异常波动公告。
+本届广交会参展企业超过3.2万家，其中拥有“专精特新”“单项冠军”等称号的优质企业超过1.1万家，均超往届水平。
 
-此前，2025年末锋龙股份曾公告，优必选拟受让上市公司29.99%股份。
+“常办常新” 的广交会吸引大量采购商，总体量稳质升。
 
-而公开资料显示，优必选存在具身智能人形机器人业务、教育智能机器人及智能机器人解决方案业务、物流智能机器人及智能机器人解决方案业务、其他行业定制智能机器人及智能机器人解决方案业务、消费级机器人及其他硬件设备业务五个业务板块。
+截至4月9日，预登记采购商超21万人；确认参会头部采购企业290家，同比增长30%；148家工商机构确认组团参会，同比增长17.5%。
 
-因此，锋龙股份也成为备受资本市场关注的机器人概念股。
+据介绍，为顺应外贸发展新趋势、新特点，本届广交会展品专区增至179个，首次增设智能穿戴、显示技术、消费级无人机、集成房屋及庭院设施等9个专区。
 
-自上述消息发布后的约两个多月间，锋龙股份股价上涨超过五倍，后逐步回落。
+更多新企业、新产品、新技术走向世界，服务全球消费者。
 
-对于近两日的股价异动，锋龙股份在24日晚间公告中称，公司前期披露的信息不存在需要更正、补充之处；公司未发现近期公共媒体报道了可能或已经对公司股票及其衍生品种交易价格产生较大影响的未公开重大信息；公司已披露的经营情况、内外部经营环境未发生重大变化。
-
-对于机器人概念，该公司强调，优必选承诺在本次收购完成后36个月内，不存在向上市公司注入其所持有资产的计划。
+(记者 韦杰夫 蔡敏婕 广东报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 11:14 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:15 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:15 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:40 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:40 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:18 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:20 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:15 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:18 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:33 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:42 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:23 - [国际能源署署长：欧洲仅剩够用6周航空燃油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:21 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:18 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:42 - [酒价内参4月17日价格发布，青花郎下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:37 - [外交部提醒赴美国中国公民注意入境安全风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:33 - [Stena DrillMAX将在希腊近海钻探首口深水井](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:18 - [在沙地种下一片“云朵玫瑰”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:21 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:35 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:19 - [美又一核动力航母失火 8名船员受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:24 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:27 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:17 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:14 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:38 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:30 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:37 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:24 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:31 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:33 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:34 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:33 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:37 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](http://www.blog.minike.top/Article/details/6012686029.shtml)
+- 2026-06-29 11:40 - [浙江舟山嵊泗：“东海鲜”下船上岸](http://www.blog.minike.top/Article/details/47936756829.shtml)
+- 2026-06-29 11:17 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](http://www.blog.kurohicncr.top/Article/details/02718344443.shtml)
+- 2026-06-29 11:30 - [Stellantis与微软合作部署逾百款AI工具](http://www.blog.kurohicncr.top/Article/details/86913718195.shtml)
+- 2026-06-29 11:19 - [日本财务大臣：与美国财长密切讨论了外汇问题](http://www.blog.minike.top/Article/details/983053.shtml)
+- 2026-06-29 11:30 - [多份联储报告显示美国物价飙升](http://www.share.kurohicncr.top/Article/details/09951848.shtml)
+- 2026-06-29 11:23 - [光大期货：4月16日金融日报](http://www.blog.kurohicncr.top/Article/details/20637.shtml)
+- 2026-06-29 11:33 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](http://www.share.kurohicncr.top/Article/details/672059.shtml)
+- 2026-06-29 11:29 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [近3万股东出走中际旭创](http://www.share.minike.top/Article/details/67114493652.shtml)
+- 2026-06-29 11:26 - [韩国称其运载原油船只安全驶离红海](http://www.blog.minike.top/Article/details/3885438176.shtml)
+- 2026-06-29 11:31 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](http://www.blog.minike.top/Article/details/3694550398.shtml)
+- 2026-06-29 11:24 - [上海外贸进出口总值实现“季、月双创纪录”开局](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [中国国防部：敦促日方同军国主义彻底切割](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [中国财长出席2026年G20财长和央行行长第一次会议](http://www.blog.kurohicncr.top/Article/details/97260.shtml)

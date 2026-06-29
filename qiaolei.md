@@ -1,42 +1,56 @@
-# 亲身见证神23发射升空 香港保安局副局长感到非常震撼：这是国家给予香港的肯定、信任与厚爱
+# 4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月25日 09:36 来源：中国新闻网 亲身见证神23发射升空 香港保安局副局长感到非常震撼：这是国家给予香港的肯定、信任与厚爱 责任编辑：【李光伟】
+周四美股成交额第1名英伟达收跌0.26%，成交263.93亿美元。在此之前，该股已经连续11个交易日上涨，是自2023年以来最长的连涨纪录。 英伟达一直受益于对AI硬件的持续需求。在上个月的GTC大会上，英伟达首席执行官黄仁勋表示，截至2027年，该公司的GPU订单总额超过1万亿美元，其中包括Blackwell及下一代Vera Rubin芯片。 英伟达还否认了有关其寻求收购一家
 
 ## 正文
 
-发布时间：2026年05月25日 09:36 来源：中国新闻网 亲身见证神23发射升空 香港保安局副局长感到非常震撼：这是国家给予香港的肯定、信任与厚爱 责任编辑：【李光伟】
+周四美股成交额第1名英伟达收跌0.26%，成交263.93亿美元。
+
+在此之前，该股已经连续11个交易日上涨，是自2023年以来最长的连涨纪录。
+
+英伟达一直受益于对AI硬件的持续需求。
+
+在上个月的GTC大会上，英伟达首席执行官黄仁勋表示，截至2027年，该公司的GPU订单总额超过1万亿美元，其中包括Blackwell及下一代Vera Rubin芯片。
+
+英伟达还否认了有关其寻求收购一家大型PC制造商的报道。
+
+该公司表示，未与任何计算机制造商进行收购谈判，此前相关猜测曾短暂推高戴尔和惠普的股价。
+
+另外，英伟达发布了一套针对量子计算的新开源模型。
+
+英伟达的数据中心收入同比增长75%，目前占其总销售额的88%，这凸显出AI需求仍是英伟达的主要驱动力。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:29 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:38 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:22 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:17 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:16 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:43 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:37 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:43 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:32 - [中国驻日本大使馆提醒在日中国公民注意人身安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:26 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:35 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:22 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:46 - [报告称中国在建核电机组装机容量连续19年保持全球第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:18 - [东艳：一季度外贸数据反映多个“增强”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:24 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:43 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:36 - [中越签署一系列合作文件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:41 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:37 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:22 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:18 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:16 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:15 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:22 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:43 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:29 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:25 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:22 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:37 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:33 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:25 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:18 - [首次原子尺度证实 中国科学家发现金属/载体三维体相参与催化新机制](http://www.blog.kurohicncr.top/Article/details/850167.shtml)
+- 2026-06-29 11:23 - [财信宏观丨供给韧性较强，需求修复待提速—2026年1-3月经济数据点评](http://www.blog.kurohicncr.top/Article/details/22201.shtml)
+- 2026-06-29 11:38 - [酒价内参4月16日价格发布：水晶剑南春小幅上涨1元/瓶](http://www.share.kurohicncr.top/Article/details/954176707.shtml)
+- 2026-06-29 11:30 - [ATFX:特朗普威胁解除鲍威尔职务 美指跌破98点](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [中东突发！刚刚，直线拉升！](http://www.share.minike.top/Article/details/57272180.shtml)
+- 2026-06-29 11:31 - [湖北：以正确政绩观引领“支点建设”新征程](http://www.blog.kurohicncr.top/Article/details/078635017551.shtml)
+- 2026-06-29 11:34 - [全球经济的严峻考验](http://www.blog.minike.top/Article/details/023052.shtml)
+- 2026-06-29 11:34 - [Glamox将为Sea1 Offshore的海上能源支持船提供照明](http://www.blog.minike.top/Article/details/71942094737.shtml)
+- 2026-06-29 11:16 - [在“商量声”中生长：浙江杭州小古城村民主协商发“新枝”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [伊朗最高领导人推动将黎巴嫩纳入美伊和谈](http://www.blog.minike.top/Article/details/160640.shtml)
+- 2026-06-29 11:38 - [珠江委积极开展珠江流域水预算管理工作指引研究](http://www.blog.minike.top/Article/details/120365952.shtml)
+- 2026-06-29 11:31 - [京东养车赛道日全民见证国货轮胎硬核实力 玲珑大师2代京东独家预售](http://www.share.minike.top/Article/details/705554514942.shtml)
+- 2026-06-29 11:19 - [港股硬科技再走强 同类规模最大港股通信息技术ETF(159131)冲高逾2% 机构看好港股二季度尤其是4-5月反弹机会](http://www.blog.kurohicncr.top/Article/details/93273.shtml)
+- 2026-06-29 11:25 - [韩国、巴西两国部长商讨能源供应与中东风险](http://www.share.kurohicncr.top/Article/details/221321485651.shtml)
+- 2026-06-29 11:21 - [中信建投期货：4月16日工业品早报](http://www.blog.kurohicncr.top/Article/details/409054282047.shtml)

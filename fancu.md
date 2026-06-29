@@ -1,57 +1,56 @@
-# 航天员黎家盈作为载荷专家 目前整体状态良好
+# 新晋退休人士最后悔的事：没多存点钱
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-今天(5月23日)上午，神舟二十三号载人飞行任务新闻发布会在酒泉卫星发射中心召开。 发言人介绍，飞行乘组由朱杨柱、张志远、黎家盈组成。其中，黎家盈入选前在香港特别行政区政府警务处工作。 航天员黎家盈于2024年8月入队，先后完成了8大类200余项训练科目，累计1700多个学时，以优秀成绩通过了飞行资格评定。根据任务安排，完成了空间科学研究与技术试验、空间站组合体管理，以及载人飞
+从领薪水过日子转为靠储蓄生活，往往会让人直面残酷的现实。 美国全美人寿退休研究所的调查显示，过去五年内退休的人群中，超过半数已经后悔没有存够钱，近三成则希望自己更早开始储蓄。 正所谓，事后诸葛亮谁都会当。 “生活必需品和医疗成本不断上涨，加剧了退休人士的不安与焦虑。” 全美人寿退休解决方案总裁凯文・杰斯泰斯对雅虎财经表示，“与退休前的预期相比，他们不得不更加节俭地开支。” 当被
 
 ## 正文
 
-今天(5月23日)上午，神舟二十三号载人飞行任务新闻发布会在酒泉卫星发射中心召开。
+从领薪水过日子转为靠储蓄生活，往往会让人直面残酷的现实。
 
-发言人介绍，飞行乘组由朱杨柱、张志远、黎家盈组成。
+美国全美人寿退休研究所的调查显示，过去五年内退休的人群中，超过半数已经后悔没有存够钱，近三成则希望自己更早开始储蓄。
 
-其中，黎家盈入选前在香港特别行政区政府警务处工作。
+正所谓，事后诸葛亮谁都会当。
 
-航天员黎家盈于2024年8月入队，先后完成了8大类200余项训练科目，累计1700多个学时，以优秀成绩通过了飞行资格评定。
+“生活必需品和医疗成本不断上涨，加剧了退休人士的不安与焦虑。
 
-根据任务安排，完成了空间科学研究与技术试验、空间站组合体管理，以及载人飞船和空间机械臂操作等飞行任务强化训练，满足执行飞行任务的各项要求，作为神舟二十三号飞行任务的载荷专家，目前整体状态良好、乘组配合默契。
+” 全美人寿退休解决方案总裁凯文・杰斯泰斯对雅虎财经表示，“与退休前的预期相比，他们不得不更加节俭地开支。
 
-发言人还介绍，关于香港力量如何助力国家航天事业发展，近些年，我们欣喜地看到香港科研力量积极融入国家航天事业发展大局。
+” 当被问及会给年轻时的自己什么建议时，退休人士的答案是：“预估所需的钱要比你想象的更多，别以为自己想工作多久就能工作多久，退休前不要入不敷出。
 
-香港高校和科研机构与国家相关科研团队进行了深入交流合作。
+” 仅有五分之一的退休人士能完全依靠养老金和（或）社保这类固定收入生活，不动用退休储蓄。
 
-本月刚刚发射的天舟十号货运飞船，搭载了由香港高校承研的轻小型温室气体点源探测载荷，可对中低纬度范围内重点排放点源的大气CO2和CH4浓度进行高分辨率监测。
+换句话说：绝大多数人都要靠退休储蓄维持生计，这也让他们焦躁不安。
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:24 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:27 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:33 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:34 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:25 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:23 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:36 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:38 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:43 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:27 - [话剧《四世同堂》首次登陆澳大利亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:30 - [中国HH-200航空商用无人运输系统首架机首飞成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:44 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:18 - [一季度增城西站中欧班列开行量同比增长24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:17 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:32 - [美财长贝森特承诺支持日本推进投资审查机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:34 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:34 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:41 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:24 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [张月一直记得陈瑶想当队长的遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:20 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:18 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:24 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:38 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:17 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:28 - [T1 3-0 TLAW数据雷达图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:34 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:36 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:16 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:22 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:23 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:16 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:37 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:18 - [Uber将收购Delivery Hero额外4.5%的股份](http://www.blog.kurohicncr.top/Article/details/4335910898.shtml)
+- 2026-06-29 11:36 - [中国驻日本大使馆提醒在日中国公民注意人身安全](http://www.blog.minike.top/Article/details/47999.shtml)
+- 2026-06-29 11:28 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](http://www.share.minike.top/Article/details/2579268.shtml)
+- 2026-06-29 11:45 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](http://www.share.minike.top/Article/details/81281491.shtml)
+- 2026-06-29 11:27 - [报告称中国在建核电机组装机容量连续19年保持全球第一](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [东艳：一季度外贸数据反映多个“增强”](http://www.share.minike.top/Article/details/14535961146.shtml)
+- 2026-06-29 11:40 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](http://www.share.minike.top/Article/details/76862260.shtml)
+- 2026-06-29 11:44 - [中越签署一系列合作文件](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](http://www.share.kurohicncr.top/Article/details/029340.shtml)
+- 2026-06-29 11:45 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](http://www.blog.kurohicncr.top/Article/details/638301.shtml)
+- 2026-06-29 11:21 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:17 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](https://github.com/lisacumin64-arch)

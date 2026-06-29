@@ -1,59 +1,58 @@
-# 云南昭通谋划“十五五”：以“五向”之力绘“甜蜜”图景
+# 第十五届中国饭店文化节将在横琴和澳门两地举办
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网昆明5月22日电 (时文枝)云南省“开局起步‘十五五’”主题系列新闻发布会·昭通专场22日举行，发布“十五五”期间，昭通市将通过坚持向新、向深、向绿、向实、向安“五向而行”，加快构建现代化产业体系、开放发展、美丽昭通建设、民生事业发展及安全发展新格局，不断把民众对美好生活的向往变为现实。昭通市位于云南省东北部，地处云、贵、川三省结合部，是长江上游重要的生态安全屏障，也是全
+中新网澳门4月17日电 “第十五届中国饭店文化节暨2026粤澳饭店业合作发展大会”将于4月21日至4月25日在横琴粤澳深度合作区、澳门特区两地同步举办。澳门酒店旅业商会作为该活动澳门合作伙伴，17日举行发布会介绍相关情况。据介绍，活动内容涵盖主论坛、平行论坛及专题活动等多个板块。主论坛将举办2026饭店业品牌发展大会，由经济学家、行业专家解读宏观经济新环境，会上发布《2026酒
 
 ## 正文
 
-中新网昆明5月22日电 (时文枝)云南省“开局起步‘十五五’”主题系列新闻发布会·昭通专场22日举行，发布“十五五”期间，昭通市将通过坚持向新、向深、向绿、向实、向安“五向而行”，加快构建现代化产业体系、开放发展、美丽昭通建设、民生事业发展及安全发展新格局，不断把民众对美好生活的向往变为现实。
+中新网澳门4月17日电 “第十五届中国饭店文化节暨2026粤澳饭店业合作发展大会”将于4月21日至4月25日在横琴粤澳深度合作区、澳门特区两地同步举办。
 
-昭通市位于云南省东北部，地处云、贵、川三省结合部，是长江上游重要的生态安全屏障，也是全国脱贫人口最多的地级市。
+澳门酒店旅业商会作为该活动澳门合作伙伴，17日举行发布会介绍相关情况。
 
-中共昭通市委副书记、市人民政府市长冯皓表示，随着矿产资源加速产业化、绿色能源发展壮大、人力资源优势加快释放、区位交通优势不断凸显及营商环境提升赋能，未来五年必将是昭通高质量发展的黄金时期。
+据介绍，活动内容涵盖主论坛、平行论坛及专题活动等多个板块。
 
-矿产资源和绿色能源是昭通市产业发展的两张“王牌”。
+主论坛将举办2026饭店业品牌发展大会，由经济学家、行业专家解读宏观经济新环境，会上发布《2026酒店业发展报告》《2026酒店集团及品牌发展报告》及酒店集团规模TOP50、品牌领跑者TOP100榜单。
 
-近年来，该市聚力打造高原特色农业、绿色能源、绿色硅铝、磷基及新能源电池材料、现代服务业“五个千亿级”产业集群，综合产值已突破3500亿元。
+平行论坛包括首届粤澳饭店业合作发展大会、2026饭店业高质量发展标杆案例分享会、第六届酒店数字化发展论坛、首届休闲度假生态合作大会、第六届饭店工匠节等活动。
 
-中共昭通市委常委、市人民政府常务副市长梁凌云介绍，“十五五”时期，该市将以做强高原特色农业、建设千亿级绿色能源基地、壮大绿色硅铝产业集群等举措，全力推动“五个千亿元级”产业集群提质增效。
+澳门酒店旅业商会会长张健中表示，澳门在“一国两制”下拥有自由港、单独关税区及广泛的国际联系网络等独特优势，希望借此次活动推动中国内地和澳门旅游酒店业品牌出海协同平台建设；同时借助澳门国际先进酒店管理经验，推动中国饭店业服务标准、绿色标准与国际接轨。
 
-在开放发展方面，依托“一市连四省”的独特区位和“一港融四方”的枢纽功能，“十五五”时期，昭通市将以水富港为核心，融合高速公路、高铁、机场等重大交通基础设施，构建“1小时融入成渝及滇中城市群、2小时通达周边省会、3小时链接全国主要城市、5小时辐射南亚东南亚核心节点”的大通道、大枢纽、大集散中心，力争全市高速公路通车里程达1300公里，水富港年吞吐量超2000万吨。
+此外，中国饭店文化节期间，澳门酒店旅业商会将与中国饭店协会共同发布《粤澳饭店产业协作发展三年行动计划》，明确连续三年在琴澳举办中国饭店文化节活动。
 
-“我们将用心呵护昭通的蓝天白云、绿水青山、良田沃土、峡谷风光，确保赤水河水质稳定保持在Ⅱ类及以上，20个县级及以上集中式饮用水水源地水质达标率保持100%，持续筑牢长江上游重要生态安全屏障，加快构建美丽昭通建设新格局。
+“商会亦将积极发挥自身资源优势，继续致力于探索粤澳酒店、文旅产业在人才培养、标准互认、品牌联动、绿色低碳等领域的合作路径，将国家级高水平活动项目引入并留在横琴，促进琴澳一体化发展。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:28 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:30 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:41 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:22 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:38 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:38 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:27 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:36 - [李小冉王濛奖杯放地上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:20 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:41 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:19 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:33 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:39 - [伊朗称在与美国会谈期间讨论了解冻资产问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:40 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:31 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:22 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:22 - [美国将封锁范围扩大至受制裁船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:31 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:30 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:40 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:31 - [黎巴嫩总统同美国国务卿通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:19 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:32 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:35 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:24 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:23 - [王冰冰解读世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:20 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:15 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:27 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:36 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:19 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:36 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:15 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:43 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:29 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](http://www.blog.kurohicncr.top/Article/details/2476404169.shtml)
+- 2026-06-29 11:17 - [上美股份将于6月23日派发末期股息每股0.75元](http://www.blog.kurohicncr.top/Article/details/957676.shtml)
+- 2026-06-29 11:44 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](http://www.share.kurohicncr.top/Article/details/0714368924.shtml)
+- 2026-06-29 11:28 - [海南这个园区有点东西：学生一校入学 可共享多校课程](http://www.blog.kurohicncr.top/Article/details/965524.shtml)
+- 2026-06-29 11:33 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](http://www.share.minike.top/Article/details/06927662.shtml)
+- 2026-06-29 11:29 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:17 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [多重利好叠加提振预期 消费板块能否苦尽甘来](http://www.share.kurohicncr.top/Article/details/738293.shtml)
+- 2026-06-29 11:37 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](http://www.blog.minike.top/Article/details/63638368495.shtml)
+- 2026-06-29 11:18 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [中国国家中医药管理局原局长于文明被公诉](http://www.share.minike.top/Article/details/5403607299.shtml)

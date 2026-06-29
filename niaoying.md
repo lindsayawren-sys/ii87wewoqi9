@@ -1,47 +1,57 @@
-# 5月23日隔夜要闻：道指再创新高 标普500指数连续第八周上涨 油价微涨 伦铜上涨 金价走低
+# 美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-市场 5月23日收盘：道指再创新高 标普500指数连续第八周上涨 5月23日美股成交额前20：富途非法跨境展业被重罚被罚18.5亿 5月23日热门中概股多数下跌 富途控股跌27.53%，蔚来跌7.05% 大宗商品综述：油价微涨 伦铜上涨 金价走低 欧洲市场录得逾一个月最大单周涨幅 市场憧憬伊朗和平解决方案达成 宏观 特朗普与国家安全团队举行会议 商讨对伊战事 沃什宣誓就任美联储
+美国财政部长贝森特重申，美国不会续签允许临时销售部分俄罗斯和伊朗原油的通用许可。 “我们将不会续签俄罗斯石油的通用许可，也不会续签伊朗石油的通用许可，”贝森特周三在白宫新闻发布会上说。 问题的症结在于霍尔木兹海峡原油运输近乎瘫痪。这一扰动导致油价飙升，并给严重依赖该地区石油进口的美国亚洲盟友造成日益沉重的打击。 特朗普政府此前曾发布临时豁免，授权购买一些已经装船、原本受制裁的俄
 
 ## 正文
 
-市场 5月23日收盘：道指再创新高 标普500指数连续第八周上涨 5月23日美股成交额前20：富途非法跨境展业被重罚被罚18.5亿 5月23日热门中概股多数下跌 富途控股跌27.53%，蔚来跌7.05% 大宗商品综述：油价微涨 伦铜上涨 金价走低 欧洲市场录得逾一个月最大单周涨幅 市场憧憬伊朗和平解决方案达成 宏观 特朗普与国家安全团队举行会议 商讨对伊战事 沃什宣誓就任美联储主席 特朗普称希望其“完全独立” 美国国务卿鲁比奥称伊朗谈判取得进展，伊朗外交部暗示远未达成协议 特朗普政府宣布外国人必须回本国申请绿卡 或对移民群体造成广泛影响 美国众议院小组将调查预测市场中的内幕交易行为 美国贸易代表称政府仍在考虑芯片关税 以提振国内芯片制造 美国家情报总监加巴德辞职隐情曝光 伊朗外交部发言人：当前伊美谈判不涉及核问题 塔斯尼姆通讯社：巴基斯坦继续在伊朗和
+美国财政部长贝森特重申，美国不会续签允许临时销售部分俄罗斯和伊朗原油的通用许可。
+
+“我们将不会续签俄罗斯石油的通用许可，也不会续签伊朗石油的通用许可，”贝森特周三在白宫新闻发布会上说。
+
+问题的症结在于霍尔木兹海峡原油运输近乎瘫痪。
+
+这一扰动导致油价飙升，并给严重依赖该地区石油进口的美国亚洲盟友造成日益沉重的打击。
+
+特朗普政府此前曾发布临时豁免，授权购买一些已经装船、原本受制裁的俄罗斯和伊朗原油。
+
+但针对俄罗斯原油的豁免已经到期，而针对伊朗原油的豁免定于周日失效。
+
+特朗普政府官员此前曾表示，两项豁免都不太可能得到续签。
+
+在对俄罗斯的豁免到期前，印度、菲律宾等几个亚洲国家曾游说美国延长该豁免，但未能成功。
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:29 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:39 - [男子吃半根变苦黄瓜致肝衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:28 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:37 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:18 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:33 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:26 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:30 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:16 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:28 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:26 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:21 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:32 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:38 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:42 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:27 - [中国向伊朗提供紧急人道主义援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:36 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:16 - [浙江启用防汛防台机器狗“AI防汛勇士”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:41 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:31 - [安徽淮北：云海罩城 宛如美丽画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:31 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:44 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:37 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:44 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:40 - [连连数字于4月15日斥资99.71万港元回购16.25万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:36 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:34 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:16 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:28 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:16 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:38 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:36 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:24 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:38 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:42 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:34 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:28 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:42 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:36 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:37 - [酒价内参4月17日价格发布，青花郎下跌2元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [外交部提醒赴美国中国公民注意入境安全风险](http://www.blog.kurohicncr.top/Article/details/0099435.shtml)
+- 2026-06-29 11:18 - [Stena DrillMAX将在希腊近海钻探首口深水井](http://www.blog.minike.top/Article/details/562878114003.shtml)
+- 2026-06-29 11:30 - [在沙地种下一片“云朵玫瑰”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](http://www.blog.kurohicncr.top/Article/details/5042527.shtml)
+- 2026-06-29 11:25 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](http://www.blog.minike.top/Article/details/741184012818.shtml)
+- 2026-06-29 11:31 - [美又一核动力航母失火 8名船员受伤](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](http://www.blog.kurohicncr.top/Article/details/40846248.shtml)
+- 2026-06-29 11:29 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](http://www.blog.kurohicncr.top/Article/details/058720.shtml)
+- 2026-06-29 11:39 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [全球智能鸿沟如何破解？这份报告给出答案！](http://www.share.kurohicncr.top/Article/details/25592261595.shtml)
+- 2026-06-29 11:40 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [新疆新设草湖市](http://www.blog.kurohicncr.top/Article/details/19290346650.shtml)
+- 2026-06-29 11:17 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](http://www.share.minike.top/Article/details/941602283.shtml)
+- 2026-06-29 11:21 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](https://github.com/lisacumin64-arch)

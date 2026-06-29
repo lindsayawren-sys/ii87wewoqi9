@@ -1,47 +1,59 @@
-# Stellantis公布600亿欧元转型计划
+# 镜观·回响丨在交流中深化中越青年情谊
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-Stellantis（STLA）公布了一项五年计划，目标是到2027年实现工业自由现金流转正，到2028年实现每年60亿欧元的成本节约，并推出60多款新车或改款车型，涵盖混合动力和纯电动汽车。该计划旨在应对全球汽车行业的电动化转型和激烈的市场竞争。责任编辑：张俊 SF065
+4月15日，中共中央总书记、国家主席习近平同越共中央总书记、国家主席苏林在北京共同会见参加“红色研学之旅”的中越青年代表。 一年前的春天，习近平总书记在访问越南期间宣布，中方将在今后3年邀请越南青年赴华开展“红色研学之旅”，沿着两党两国老一辈领导人的革命足迹，探寻中越友好的红色基因，感受中国式现代化的万千气象。 元首引领，民心相亲。此次两党两国领导人在京会见的中越青年代表，正在
 
 ## 正文
 
-Stellantis（STLA）公布了一项五年计划，目标是到2027年实现工业自由现金流转正，到2028年实现每年60亿欧元的成本节约，并推出60多款新车或改款车型，涵盖混合动力和纯电动汽车。
+4月15日，中共中央总书记、国家主席习近平同越共中央总书记、国家主席苏林在北京共同会见参加“红色研学之旅”的中越青年代表。
 
-该计划旨在应对全球汽车行业的电动化转型和激烈的市场竞争。
+一年前的春天，习近平总书记在访问越南期间宣布，中方将在今后3年邀请越南青年赴华开展“红色研学之旅”，沿着两党两国老一辈领导人的革命足迹，探寻中越友好的红色基因，感受中国式现代化的万千气象。
 
-责任编辑：张俊 SF065
+元首引领，民心相亲。
+
+此次两党两国领导人在京会见的中越青年代表，正在参加“红色研学之旅”之“不忘初心”研学营。
+
+从广州到北京，年轻的朋友们相互学习，深入交流，书写下两国友好与合作的青春篇章。
+
+从2025年5月至2026年3月，越南青年来华“红色研学之旅”项目已在全国10个省(区、市)举办8期主题研学营，累计1000余名越南青少年参加。
+
+“中越友好的根基在人民、未来在青年。
+
+” 习近平总书记深刻的寄语，传递出将中越友好世世代代传承下去的殷切希冀。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:28 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:18 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:27 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:21 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:16 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:35 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:28 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:15 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:32 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:27 - [美国将封锁范围扩大至受制裁船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:26 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:41 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:28 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:18 - [黎巴嫩总统同美国国务卿通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:44 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:34 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:46 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:20 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:37 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:40 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:37 - [北京“两区”建设加速推进 高水平开放释放发展新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:20 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:20 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:36 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:22 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:20 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:33 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:35 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:27 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:32 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:35 - [少年吃隔夜见手青后满屋见动画场景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:18 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:26 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:41 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:23 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](http://www.share.kurohicncr.top/Article/details/1254588068.shtml)
+- 2026-06-29 11:38 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](http://www.blog.kurohicncr.top/Article/details/91694.shtml)
+- 2026-06-29 11:27 - [海南这个园区有点东西：学生一校入学 可共享多校课程](http://www.share.minike.top/Article/details/5897377.shtml)
+- 2026-06-29 11:37 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](http://www.blog.kurohicncr.top/Article/details/7326695.shtml)
+- 2026-06-29 11:17 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](http://www.share.minike.top/Article/details/0292819654.shtml)
+- 2026-06-29 11:41 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [多重利好叠加提振预期 消费板块能否苦尽甘来](http://www.share.kurohicncr.top/Article/details/19993530.shtml)
+- 2026-06-29 11:21 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](http://www.share.kurohicncr.top/Article/details/888532.shtml)
+- 2026-06-29 11:22 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](http://www.blog.kurohicncr.top/Article/details/90358578242.shtml)
+- 2026-06-29 11:23 - [中国国家中医药管理局原局长于文明被公诉](http://www.share.minike.top/Article/details/569435268059.shtml)
+- 2026-06-29 11:34 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](http://www.blog.kurohicncr.top/Article/details/831367377.shtml)
+- 2026-06-29 11:46 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](http://www.share.kurohicncr.top/Article/details/265328.shtml)
+- 2026-06-29 11:32 - [惠伦晶体立案审查通过，符合要求还可加入](http://www.share.kurohicncr.top/Article/details/7466721629.shtml)

@@ -1,61 +1,47 @@
-# 301096，筹划控制权变更！
+# 厦门钨业：子公司金龙稀土进入创新层
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！公司股票明日（25日）起停牌。 百诚医药（301096）5月24日晚间公告，公司于近日收到公司控股股东、实际控制人邵春能、楼金芳的通知，控股股东、实际控制人邵春能、楼金芳及其一致行动人正在筹划涉及公司控制权变更的重大事项，该事宜可能导致公司控制权发生变更。目
+4月16日，厦门钨业（600549）发布公告，控股子公司福建省金龙稀土股份有限公司（874673）为全国中小企业股份转让系统挂牌企业，于2026年4月17日起进入创新层。
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-公司股票明日（25日）起停牌。
-
-百诚医药（301096）5月24日晚间公告，公司于近日收到公司控股股东、实际控制人邵春能、楼金芳的通知，控股股东、实际控制人邵春能、楼金芳及其一致行动人正在筹划涉及公司控制权变更的重大事项，该事宜可能导致公司控制权发生变更。
-
-目前，各方主体正在就具体方案、协议等相关事项进行论证和磋商。
-
-鉴于上述事项尚存在重大不确定性，为保证公平信息披露，维护投资者利益，避免公司股价异常波动，根据《深圳证券交易所创业板股票上市规则》《深圳证券交易所上市公司自律监管指引第6号——停复牌》等的有关规定，经公司向深圳证券交易所申请，公司股票将于2026年5月25日（星期一） 开市起停牌，预计停牌时间不超过2个交易日。
-
-停牌期间，公司将根据上述事项进展情况，严格按照法律法规的规定和要求履行信息披露义务。
-
-待上述事项确定后，公司将及时发布相关公告并申请公司股票复牌。
-
-据了解，百诚医药成立于2011年6月，是一家以技术开发为核心的，集创新性、全价值链、平台化、共融型属性于一体的综合性医药研发上市公司，聚焦于药品全生命周期管理，致力于打造医药生态集群，搭建全领域互通桥梁，与合作伙伴实现共融共享高质量发展。
+4月16日，厦门钨业（600549）发布公告，控股子公司福建省金龙稀土股份有限公司（874673）为全国中小企业股份转让系统挂牌企业，于2026年4月17日起进入创新层。
 
 ## 相关推荐
 
-- 2026-06-29 11:33 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:28 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:16 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:41 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:14 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:23 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:28 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:34 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:31 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:31 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:30 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:17 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:20 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:40 - [美国将封锁范围扩大至受制裁船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:26 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:36 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:29 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:25 - [黎巴嫩总统同美国国务卿通话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:45 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:32 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:32 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:43 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:39 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:27 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:33 - [北京“两区”建设加速推进 高水平开放释放发展新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:41 - [济宁太白湖新区：花海伴赛事 产业促民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:15 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:38 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:39 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:31 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:18 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:32 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:37 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:38 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:23 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:19 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:35 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:23 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:38 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:31 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:28 - [上美股份将于6月23日派发末期股息每股0.75元](http://www.share.minike.top/Article/details/323275165796.shtml)
+- 2026-06-29 11:21 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](http://www.blog.kurohicncr.top/Article/details/02925439505.shtml)
+- 2026-06-29 11:44 - [中国驻日大使馆接连遭到恐怖威胁](http://www.blog.kurohicncr.top/Article/details/00728100876.shtml)
+- 2026-06-29 11:33 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [海南这个园区有点东西：学生一校入学 可共享多校课程](http://www.share.kurohicncr.top/Article/details/481312.shtml)
+- 2026-06-29 11:31 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](http://www.blog.kurohicncr.top/Article/details/2551189325.shtml)
+- 2026-06-29 11:40 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](http://www.blog.minike.top/Article/details/41761604350.shtml)
+- 2026-06-29 11:42 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](http://www.blog.kurohicncr.top/Article/details/6711988260.shtml)
+- 2026-06-29 11:32 - [多重利好叠加提振预期 消费板块能否苦尽甘来](http://www.share.kurohicncr.top/Article/details/45852501664.shtml)
+- 2026-06-29 11:32 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](http://www.blog.minike.top/Article/details/98800973846.shtml)
+- 2026-06-29 11:26 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](http://www.share.minike.top/Article/details/662957269329.shtml)
+- 2026-06-29 11:34 - [中国国家中医药管理局原局长于文明被公诉](http://www.blog.minike.top/Article/details/094328.shtml)
+- 2026-06-29 11:44 - [德意志银行预计美联储2026年将维持利率不变](http://www.share.kurohicncr.top/Article/details/16177.shtml)
+- 2026-06-29 11:22 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](http://www.share.kurohicncr.top/Article/details/4842347.shtml)
+- 2026-06-29 11:30 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](http://www.blog.kurohicncr.top/Article/details/8716112470.shtml)

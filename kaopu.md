@@ -1,60 +1,56 @@
-# 未来三天江南江汉江淮黄淮等地有强降水
+# 昆明长水国际机场东二跑道投用 缓解高峰运行压力
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-中新网5月25日电 据中央气象台网站消息，昨日，陕西、四川、湖北、河南、安徽、江苏、浙江等地部分地区出现大到暴雨，局地大暴雨或特大暴雨。预计未来三天四川盆地、华北南部、黄淮、江淮、江汉、江南北部等地有强降雨，部分地区并伴有雷暴大风、短时强降水等强对流天气，安徽、湖北等地有暴雨灾害中高风险，局地发生山洪、地质灾害和农田渍涝、城市暴雨积涝风险高，需关注对农业生产、交通运输、城市运行
+中新网昆明4月16日电 (马初霞 马聪)16日6时40分，随着东方航空新加坡—昆明MU9648航班平稳降落在昆明长水国际机场(以下简称昆明机场)东二跑道，标志着该机场东二跑道及附属滑行道、东货运机坪正式投入运行。至此，昆明机场飞行区运行体系完成全面升级，枢纽保障能力和运行效率迈上新台阶。 昆明机场是中国面向南亚、东南亚的重要枢纽机场。此次投用的东二跑道为新建4F级跑道，长400
 
 ## 正文
 
-中新网5月25日电 据中央气象台网站消息，昨日，陕西、四川、湖北、河南、安徽、江苏、浙江等地部分地区出现大到暴雨，局地大暴雨或特大暴雨。
+中新网昆明4月16日电 (马初霞 马聪)16日6时40分，随着东方航空新加坡—昆明MU9648航班平稳降落在昆明长水国际机场(以下简称昆明机场)东二跑道，标志着该机场东二跑道及附属滑行道、东货运机坪正式投入运行。
 
-预计未来三天四川盆地、华北南部、黄淮、江淮、江汉、江南北部等地有强降雨，部分地区并伴有雷暴大风、短时强降水等强对流天气，安徽、湖北等地有暴雨灾害中高风险，局地发生山洪、地质灾害和农田渍涝、城市暴雨积涝风险高，需关注对农业生产、交通运输、城市运行等影响，并警惕风雹等强对流天气的危害。
+至此，昆明机场飞行区运行体系完成全面升级，枢纽保障能力和运行效率迈上新台阶。
 
-陕西四川湖北安徽江西等地出现强降雨 昨日8时至今日6时，西北地区东部、华北西部、内蒙古河套地区、四川盆地、江汉、江淮、江南北部和东部等地部分地区出现大到暴雨，陕西汉中、河南信阳、四川巴中、江西上饶和景德镇及湖北中部、安徽北部、江苏中部、浙江西部等局地大暴雨，湖北孝感和荆门、安徽池州和安庆、江西上饶局地特大暴雨(250～383毫米)；上述地区最大小时降雨量40～80毫米，局地90～124毫米。
+昆明机场是中国面向南亚、东南亚的重要枢纽机场。
 
-江南江汉江淮黄淮等地有强降水 25日至27日，中东部将有较大范围降雨过程，华北南部、黄淮大部、江汉、江淮、江南中北部、西南地区东部及西藏东南部、吉林东部等地有中到大雨，部分地区有暴雨或大暴雨，局地特大暴雨，并伴有雷暴大风、短时强降水或冰雹等强对流天气。
+此次投用的东二跑道为新建4F级跑道，长4000米、宽45米，同步建设平行滑行道、联络道及快速脱离滑行道，并配套助航灯光、导航设备、消防救援通道等系统工程。
 
-预计，5月25日08时至26日08时，华北南部、黄淮西部、江淮大部、江汉大部、江南北部及重庆中北部等地部分地区有大到暴雨，其中，安徽、湖北东部和西南部、重庆北部等地部分地区有大暴雨，湖北东部、安徽西部等地部分地区有特大暴雨(250～300毫米)，局地可达350毫米以上。
+东货运机坪新建远机位16个，机位类型覆盖C、D、E、F多种机型，并具备灵活转换能力，可有效提升货运保障效率和机位周转能力，为航空物流发展提供有力支撑。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过80毫米)，局地有雷暴大风或冰雹等强对流天气。
+在运行模式方面，东二跑道启用后，将根据空管批复实施独立运行或相关平行运行模式，与既有跑道形成协同分工、错峰运行的格局，进一步提升航班起降效率，有效缓解高峰时段运行压力。
 
-中央气象台5月25日06时继续发布暴雨橙色预警和强对流天气黄色预警。
+随着东二跑道投用，昆明机场同步对飞行区运行结构进行优化调整，即关闭东一跑道及部分滑行道，分三个阶段加快推进新增联络道建设工程，全面重构地面滑行组织和机位运行体系。
 
-国内未来三天具体预报 5月25日08时至26日08时，华北南部、黄淮西部、江淮、江汉、江南北部、四川盆地东部、西藏东南部等地部分地区有中到大雨，其中，河北南部、安徽大部、江苏西部、湖北东部和西南部等地部分地区有暴雨或大暴雨，湖北东部、安徽西部等地局地特大暴雨(250～300毫米)。
+东一跑道将于2027年内重新投入使用，届时将形成多跑道并行的高效运行格局，进一步提升运行效率。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:16 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:43 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:19 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:26 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:27 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:23 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:29 - [王冰冰解读世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:38 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:41 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:38 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:31 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:34 - [美又一核动力航母失火 8名船员受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:36 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:26 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:41 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:27 - [全球智能鸿沟如何破解？这份报告给出答案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:18 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:22 - [新疆新设草湖市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:46 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:34 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:17 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:39 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:43 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:38 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:36 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:20 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:22 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:37 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:21 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:24 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:30 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:38 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:34 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:37 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:34 - [近3万股东出走中际旭创](http://www.share.kurohicncr.top/Article/details/618755678096.shtml)
+- 2026-06-29 11:16 - [韩国称其运载原油船只安全驶离红海](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [上海外贸进出口总值实现“季、月双创纪录”开局](http://www.share.kurohicncr.top/Article/details/2436491847.shtml)
+- 2026-06-29 11:43 - [中国国防部：敦促日方同军国主义彻底切割](http://www.share.kurohicncr.top/Article/details/19951413259.shtml)
+- 2026-06-29 11:33 - [中国财长出席2026年G20财长和央行行长第一次会议](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股](http://www.share.minike.top/Article/details/5537531986.shtml)
+- 2026-06-29 11:29 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](http://www.blog.minike.top/Article/details/6187748272.shtml)
+- 2026-06-29 11:20 - [液态金属在太空有何应用前景？中国科研团队深度解析全景前瞻](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [国家医保局：全国近四成统筹地区已完成上年度清算](http://www.share.kurohicncr.top/Article/details/914582.shtml)
+- 2026-06-29 11:27 - [贝森特：可以理解美联储暂缓降息](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [洪水猛兽还是有效工具？专家学者聚焦AI视域下的青少年科幻写作](http://www.blog.kurohicncr.top/Article/details/804804.shtml)
+- 2026-06-29 11:28 - [老外体验无人驾驶：“万万没想到，比司机开还稳”](http://www.share.minike.top/Article/details/6516273807.shtml)
+- 2026-06-29 11:44 - [挖机销量增近三成，工程机械“金三”来了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [开局之年看中国·开放自贸港：“艇”进三亚](http://www.blog.minike.top/Article/details/35155819.shtml)

@@ -1,60 +1,59 @@
-# EnWave第二季度营收骤降69%，亏损扩大至115万加元
+# 五一假期首日火车票今日开售 超全抢票攻略来了
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-EnWave Corporation于5月22日公布了截至2026年3月31日的第二季度财报。数据显示，公司当季营收为116万加元，较去年同期的369万加元大幅下降69%。净亏损为115万加元，而去年同期为盈利76.4万加元。调整后EBITDA录得亏损77.5万加元，去年同期为盈利11.2万加元。每股基本亏损为0.01加元。 公司表示，营收下降的主要原因是大型辐射能真空机器订单
+再有不到半个月就是五一假期了 你计划好去哪儿了吗？ 今天(17日)就可以买 5月1日当天的火车票了 △来源：铁路12306 如何快速抢到心仪的车票？ 带孩子出行怎么买优惠票？ 车票还有哪些用处？ 无论你是计划回家、还是出游 这份实用干货建议收藏↓ 假期抢票手慢无？ 快试试官方“捡漏神器” 假期期间 铁路客流高度集中 如果第一时间没抢到票 别慌 及时提交候补购票订单 助你提高购票
 
 ## 正文
 
-EnWave Corporation于5月22日公布了截至2026年3月31日的第二季度财报。
+再有不到半个月就是五一假期了 你计划好去哪儿了吗？
 
-数据显示，公司当季营收为116万加元，较去年同期的369万加元大幅下降69%。
+今天(17日)就可以买 5月1日当天的火车票了 △来源：铁路12306 如何快速抢到心仪的车票？
 
-净亏损为115万加元，而去年同期为盈利76.4万加元。
+带孩子出行怎么买优惠票？
 
-调整后EBITDA录得亏损77.5万加元，去年同期为盈利11.2万加元。
+车票还有哪些用处？
 
-每股基本亏损为0.01加元。
+无论你是计划回家、还是出游 这份实用干货建议收藏↓ 假期抢票手慢无？
 
-公司表示，营收下降的主要原因是大型辐射能真空机器订单的固有波动性导致机器销售和在建机器数量减少。
+快试试官方“捡漏神器” 假期期间 铁路客流高度集中 如果第一时间没抢到票 别慌 及时提交候补购票订单 助你提高购票成功率 铁路12306的候补购票功能可最大限度使用60个“日期+车次”的购票组合，临时新增的旅客列车席位会优先配售给已提交候补订单的旅客，这样就能提高成功率。
 
-基础版税收入为43.4万加元，同比下降8%；总版税收入为46.5万加元，同比下降2%。
+每名旅客可以保有6个待兑现的候补订单，每个候补订单最多可以添加19名乘车人，支持选择任意3个乘车日期，总计添加不超过60个车次，不再限制席别数量。
 
-毛利率为35%，略高于去年同期的33%，主要得益于大型机器合同制造成本的降低。
+如果旅客选择接受新增列车，还可以进一步提高候补成功率。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:27 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:28 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:34 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:20 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:40 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:16 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:31 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:40 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:15 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:18 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:41 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:26 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:25 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:32 - [中国经济开门红，靠的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:19 - [同济大学回应“一教师论文数据存疑”：已成立调查组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:41 - [南京将打造国际航空货运枢纽 开辟及加密近远洋干线航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:25 - [七牛智能午后涨超4% AI相关收入占比进一步增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:17 - [全周期、全渠道、全领域——多部门详解药价新规](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:17 - [中国电动三轮车爆火美国 电动三轮车在美国价格翻倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:17 - [国家统计局：一季度GDP同比增长5.0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:28 - [小摩：中金公司首季业绩料胜预期 重申行业首选股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:26 - [沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:19 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:27 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:29 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:26 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:31 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:25 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:15 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:28 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:37 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:25 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:16 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:38 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:32 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:21 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:24 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:25 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:16 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:33 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](http://www.share.minike.top/Article/details/531788.shtml)
+- 2026-06-29 11:26 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](http://www.blog.minike.top/Article/details/410161858.shtml)
+- 2026-06-29 11:26 - [北京“两区”建设加速推进 高水平开放释放发展新动能](http://www.blog.minike.top/Article/details/80905.shtml)
+- 2026-06-29 11:16 - [济宁太白湖新区：花海伴赛事 产业促民生](http://www.blog.minike.top/Article/details/38422669.shtml)
+- 2026-06-29 11:45 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [余金生被执行死刑！系杀害网红“罗大美”主犯](http://www.blog.kurohicncr.top/Article/details/9111669140.shtml)
+- 2026-06-29 11:17 - [一季度郑州机场国际货运量同比增长21.8%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](http://www.blog.kurohicncr.top/Article/details/4439025.shtml)
+- 2026-06-29 11:43 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](http://www.share.kurohicncr.top/Article/details/88473792162.shtml)
+- 2026-06-29 11:23 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.blog.minike.top/Article/details/37400.shtml)
+- 2026-06-29 11:40 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](http://www.share.kurohicncr.top/Article/details/6989192.shtml)
+- 2026-06-29 11:25 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](http://www.blog.kurohicncr.top/Article/details/40045662.shtml)
+- 2026-06-29 11:19 - [河南南阳：警车亮灯守护三轮平安归途](http://www.share.kurohicncr.top/Article/details/240210.shtml)

@@ -1,56 +1,47 @@
-# 这波涉华谣言，韩国总统当了“终结者”
+# 上美股份将于6月23日派发末期股息每股0.75元
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-最近，韩国一媒体恶意编造了一起涉华虚假新闻，没想到率先硬刚、公开“手撕”假新闻的竟是韩国总统李在明。 事件始于首尔经济TV的一则不实报道。 该电视台为博取流量，发布虚假视频，声称“中国人大举买入首尔江南944套公寓，扫光多套房持有者抛售的房源”，相关话题随即在网络引发热议。 1 首尔江南区是韩国的顶级富人区，聚集着财阀高管、政客、明星等，拥有顶级的教育资源和高端商业配套，既是韩
+上美股份（02145）发布公告，该公司将于2026年6月23日派发末期股息每股0.75元人民币。责任编辑：卢昱君
 
 ## 正文
 
-最近，韩国一媒体恶意编造了一起涉华虚假新闻，没想到率先硬刚、公开“手撕”假新闻的竟是韩国总统李在明。
+上美股份（02145）发布公告，该公司将于2026年6月23日派发末期股息每股0.75元人民币。
 
-事件始于首尔经济TV的一则不实报道。
-
-该电视台为博取流量，发布虚假视频，声称“中国人大举买入首尔江南944套公寓，扫光多套房持有者抛售的房源”，相关话题随即在网络引发热议。
-
-1 首尔江南区是韩国的顶级富人区，聚集着财阀高管、政客、明星等，拥有顶级的教育资源和高端商业配套，既是韩国房价的绝对“风向标”，也是当地人眼中财富与身份的象征。
-
-韩国歌手鸟叔的代表作《江南Style》描述的就是江南区富人浮华奢靡的生活。
-
-据韩国国土交通部公布的信息，截至2026年5月，江南区住宅平均交易价格为27.62亿韩元(折合人民币1237 万元)。
-
-所以当这则耸人听闻的新闻出现在网络上，不只是韩国网友惊讶，中国网友也感到错愕。
-
-加之新闻标题中“大举买入”“扫光”等词语，暗示这不是正常的市场交易，而是有组织、有预谋的“入侵行动”，制造中国资本正在“攻城略地”的恐慌。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:18 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:26 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:40 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:34 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:17 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:43 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:26 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:18 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:33 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:37 - [多重利好叠加提振预期 消费板块能否苦尽甘来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:16 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:43 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:45 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:24 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:24 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:44 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:35 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:42 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:21 - [市场监管总局：将深入开展CCC认证守底线专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:19 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:23 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:14 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:23 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:20 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:42 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:14 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:41 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:19 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:25 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:36 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:32 - [T1 3-0 TLAW数据雷达图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:28 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:39 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:39 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](http://www.share.kurohicncr.top/Article/details/445466805.shtml)
+- 2026-06-29 11:27 - [话剧《四世同堂》首次登陆澳大利亚](http://www.share.kurohicncr.top/Article/details/61275.shtml)
+- 2026-06-29 11:31 - [中国HH-200航空商用无人运输系统首架机首飞成功](http://www.blog.kurohicncr.top/Article/details/438950137.shtml)
+- 2026-06-29 11:24 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.share.kurohicncr.top/Article/details/97447839257.shtml)
+- 2026-06-29 11:36 - [一季度增城西站中欧班列开行量同比增长24%](http://www.blog.kurohicncr.top/Article/details/119214.shtml)
+- 2026-06-29 11:33 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.share.kurohicncr.top/Article/details/06529196651.shtml)
+- 2026-06-29 11:36 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.blog.kurohicncr.top/Article/details/5797127753.shtml)
+- 2026-06-29 11:44 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.share.minike.top/Article/details/225302562978.shtml)
+- 2026-06-29 11:36 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](http://www.blog.minike.top/Article/details/018435121.shtml)
+- 2026-06-29 11:42 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.blog.minike.top/Article/details/1617962.shtml)
+- 2026-06-29 11:27 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](http://www.blog.kurohicncr.top/Article/details/460728.shtml)
+- 2026-06-29 11:40 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [韩国第一季度接待外国游客476万人次，创历史新高](http://www.blog.minike.top/Article/details/50402.shtml)
+- 2026-06-29 11:31 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](http://www.blog.kurohicncr.top/Article/details/17238010.shtml)
+- 2026-06-29 11:28 - [采购商谈消博会：这里是一座“全球好物中转站”](http://www.share.minike.top/Article/details/29151.shtml)

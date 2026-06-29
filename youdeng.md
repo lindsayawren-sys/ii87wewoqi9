@@ -1,60 +1,57 @@
-# “零关税新航道，新时代全天候中非命运共同体新征程”研讨会开幕
+# 探访亚沙会主媒体中心：一站式服务保障中外媒体报道
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网北京5月25日电 5月22日，外交部副部长苗得雨出席“零关税新航道，新时代全天候中非命运共同体新征程”研讨会开幕式并致辞。 苗得雨表示，对53个非洲建交国全面实施零关税，具象化诠释了习近平主席提出的真实亲诚对非政策理念和正确义利观，为新时代中非合作开辟新航道，为构建新时代全天候中非命运共同体注入新动能，为动荡的世界提供了宝贵的稳定性。零关税实施以来，积极效应稳步释放，为扩
+发布时间：2026年04月17日 16:55 来源：中国新闻网 4月17日，第六届亚洲沙滩运动会(简称“亚沙会”)主媒体中心正在试运行。中新社记者在现场看到，境内外媒体记者已开始进驻开展工作，各类设施配备齐全，各项服务保障有序运行。 本届亚沙会已接到来自境内外媒体的注册人员超1000人，其中境外媒体200余人，覆盖30多个国家和地区。 该中心创新采用“主新闻中心、国际广播中心、
 
 ## 正文
 
-中新网北京5月25日电 5月22日，外交部副部长苗得雨出席“零关税新航道，新时代全天候中非命运共同体新征程”研讨会开幕式并致辞。
+发布时间：2026年04月17日 16:55 来源：中国新闻网 4月17日，第六届亚洲沙滩运动会(简称“亚沙会”)主媒体中心正在试运行。
 
-苗得雨表示，对53个非洲建交国全面实施零关税，具象化诠释了习近平主席提出的真实亲诚对非政策理念和正确义利观，为新时代中非合作开辟新航道，为构建新时代全天候中非命运共同体注入新动能，为动荡的世界提供了宝贵的稳定性。
+中新社记者在现场看到，境内外媒体记者已开始进驻开展工作，各类设施配备齐全，各项服务保障有序运行。
 
-零关税实施以来，积极效应稳步释放，为扩大中非贸易特别是非洲对华出口打开全新机遇之窗。
+本届亚沙会已接到来自境内外媒体的注册人员超1000人，其中境外媒体200余人，覆盖30多个国家和地区。
 
-双方要坚持同向发力，确保零关税红利和发展成果惠及中非人民。
+该中心创新采用“主新闻中心、国际广播中心、官方媒体酒店”三合一模式，将报道、转播、住宿集于一体，为境内外媒体记者提供集约、高效、便捷的一站式服务。
 
-坚持系统赋能，推动中非全产业链合作提质升级，提升非洲内生发展动力。
+亚沙会主新闻中心工作人员告诉中新社记者，该中心设有公共采访间、媒体工作间、新闻发布厅、官方信息服务办公室及网上新闻中心编审室等功能区域。
 
-坚持普惠包容，推动全球南方繁荣振兴，共同构建人类命运共同体。
+其中，媒体工作间配备约100个工位，设置赛事信号大屏，可实时观看所有赛事直播。
 
-肯尼亚驻华大使贝特、来华参加零关税专题研修班的非方学员代表等发言，高度评价中国为构筑开放包容的世界贸易体系发挥领导作用，认为零关税必将有力带动非洲出口、投资和基础设施建设，促进非中携手发展繁荣。
+该中心还设有信息查询区，方便记者查询赛程及奖牌信息。
 
-研讨会由外交部非洲司和人类命运共同体研究中心共同主办。
+新闻发布厅配备中英双语同声传译服务，保障境外注册媒体记者的报道需求。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:27 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:15 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:18 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:41 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:35 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:36 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:30 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:31 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:27 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:27 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:34 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:33 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:24 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:43 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:27 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:32 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:40 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:44 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:42 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:45 - [海南这个园区有点东西：学生一校入学 可共享多校课程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:28 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:41 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:41 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:18 - [多重利好叠加提振预期 消费板块能否苦尽甘来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:23 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:41 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:14 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:32 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:27 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:41 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:29 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:37 - [李小冉王濛奖杯放地上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:21 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:39 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:37 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:28 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:27 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:38 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.blog.kurohicncr.top/Article/details/04010.shtml)
+- 2026-06-29 11:46 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.share.kurohicncr.top/Article/details/7751650.shtml)
+- 2026-06-29 11:39 - [新晋退休人士最后悔的事：没多存点钱](http://www.blog.kurohicncr.top/Article/details/42542705.shtml)
+- 2026-06-29 11:29 - [IEA警示历史性石油冲击](http://www.share.kurohicncr.top/Article/details/08723535.shtml)
+- 2026-06-29 11:43 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](http://www.blog.kurohicncr.top/Article/details/296360355.shtml)
+- 2026-06-29 11:32 - [A股盘前速递：黄金涨回4800美元](http://www.blog.kurohicncr.top/Article/details/425029.shtml)
+- 2026-06-29 11:20 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.blog.minike.top/Article/details/407931940893.shtml)
+- 2026-06-29 11:22 - [澳大利亚一炼油厂发生大火](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](http://www.blog.kurohicncr.top/Article/details/70054.shtml)
+- 2026-06-29 11:29 - [话剧《四世同堂》首次登陆澳大利亚](http://www.blog.minike.top/Article/details/04471.shtml)
+- 2026-06-29 11:22 - [中国HH-200航空商用无人运输系统首架机首飞成功](http://www.blog.minike.top/Article/details/0753081.shtml)
+- 2026-06-29 11:28 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.share.kurohicncr.top/Article/details/14757.shtml)
+- 2026-06-29 11:28 - [一季度增城西站中欧班列开行量同比增长24%](http://www.blog.minike.top/Article/details/70807303.shtml)
+- 2026-06-29 11:18 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.blog.minike.top/Article/details/735423.shtml)

@@ -1,56 +1,53 @@
-# 西藏哲学社科界齐聚一堂：总结75年治藏兴藏成就与启示
+# 周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网拉萨5月23日电 (记者 赵延)5月23日，西藏自治区社科院(社科联)举办庆祝西藏和平解放75周年理论研讨会。深入阐释新时代党的治藏方略，系统总结党领导人民治藏稳藏兴藏的宝贵经验，全面展示新时代西藏各项事业取得的历史性成就、发生的历史性变革。 会上，西藏自治区党委宣传部副部长罗军出席并讲话，自治区社科院党组副书记、院长、社科联主席李小宁致辞，自治区社科院(社科联)班子成员
+发布时间：2026年04月17日 09:34 来源：中国新闻网 4月16日，湖南长沙。台湾旺旺集团副董事长周锡玮就郑丽文率团访陆发表看法。他表示，此次交流让他看到了两岸同胞“都是一家人”的真理，也再次确定了中国人携手同心的方向。他感谢大陆始终将台湾同胞当作家人，分享发展机遇与成就，并呼吁台湾同胞共同珍惜这份“一家人的温暖”，共创中华民族的新盛世。(李盈） 责任编辑：【周驰】
 
 ## 正文
 
-中新网拉萨5月23日电 (记者 赵延)5月23日，西藏自治区社科院(社科联)举办庆祝西藏和平解放75周年理论研讨会。
+发布时间：2026年04月17日 09:34 来源：中国新闻网 4月16日，湖南长沙。
 
-深入阐释新时代党的治藏方略，系统总结党领导人民治藏稳藏兴藏的宝贵经验，全面展示新时代西藏各项事业取得的历史性成就、发生的历史性变革。
+台湾旺旺集团副董事长周锡玮就郑丽文率团访陆发表看法。
 
-会上，西藏自治区党委宣传部副部长罗军出席并讲话，自治区社科院党组副书记、院长、社科联主席李小宁致辞，自治区社科院(社科联)班子成员出席会议，自治区党委党校、社科院、西藏大学、西藏民族大学等科研教学单位的专家学者代表90余人参加会议。
+他表示，此次交流让他看到了两岸同胞“都是一家人”的真理，也再次确定了中国人携手同心的方向。
 
-罗军在讲话中指出，要系统总结党领导人民治藏稳藏兴藏的宝贵经验，聚力构建具有西藏特点的中国哲学社会科学自主知识体系，坚守正确学术导向，打造高原特色学科体系，搭建多学科联合攻关的综合性研究平台，努力推出原创性西藏学术成果，为丰富中国哲学社会科学自主知识体系作出西藏贡献。
+他感谢大陆始终将台湾同胞当作家人，分享发展机遇与成就，并呼吁台湾同胞共同珍惜这份“一家人的温暖”，共创中华民族的新盛世。
 
-同时，还要铸牢中华民族共同体意识，深挖民族团结历史渊源，推动中华民族优秀传统文化传承创新，创新共同体宣传阐释方式，凝聚团结奋进合力。
-
-李小宁在致辞中指出，全区社科工作者扎根西藏大地，聚焦治藏稳藏兴藏的重大理论与实践问题，深耕藏学研究、民族宗教、边疆治理、高质量发展等领域，为自治区党委政府科学决策提供了坚实支撑，为铸牢中华民族共同体意识、推进中华民族共同体建设贡献了学术力量，为讲好西藏故事、传播中国声音发挥了重要作用。
-
-会议举行了主旨论坛，七位专家学者围绕“西藏和平解放75周年的成就与经验”主题，作了主旨发言，回顾了七十五载发展征程，梳理了发展脉络，总结了发展经验，多角度阐述新时代党的治藏方略引领西藏各项事业稳步向前的实践成果。
-
-西藏自治区社科院农村经济研究所副所长、研究员方晓玲分别从三个不同阶段分享了和平解放以来西藏农牧区发展成就方面的内容，她说，从1951年到1965年，西藏先后经历和平解放、民主改革、自治区成立。
+(李盈） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:37 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:17 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:21 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:34 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:36 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:15 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:14 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:15 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:22 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:32 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:32 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:37 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:25 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:21 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:23 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:33 - [海南这个园区有点东西：学生一校入学 可共享多校课程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:30 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:36 - [可可价格暴跌，全球最大巧克力制造商发布盈利预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:29 - [Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:44 - [多重利好叠加提振预期 消费板块能否苦尽甘来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:37 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:32 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:26 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:17 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:41 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:14 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:36 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:35 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:43 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:24 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:19 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:42 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:43 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](http://www.blog.kurohicncr.top/Article/details/575413725878.shtml)
+- 2026-06-29 11:26 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.blog.kurohicncr.top/Article/details/4982778.shtml)
+- 2026-06-29 11:26 - [中东能源危机推动美国原油出口大增，接近历史最高水平](http://www.share.kurohicncr.top/Article/details/153048.shtml)
+- 2026-06-29 11:45 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.blog.kurohicncr.top/Article/details/45910877626.shtml)
+- 2026-06-29 11:18 - [新晋退休人士最后悔的事：没多存点钱](http://www.blog.kurohicncr.top/Article/details/01665356329.shtml)
+- 2026-06-29 11:32 - [IEA警示历史性石油冲击](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](http://www.blog.kurohicncr.top/Article/details/83623.shtml)
+- 2026-06-29 11:33 - [A股盘前速递：黄金涨回4800美元](http://www.blog.kurohicncr.top/Article/details/7083587.shtml)
+- 2026-06-29 11:25 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.share.kurohicncr.top/Article/details/811719.shtml)
+- 2026-06-29 11:45 - [澳大利亚一炼油厂发生大火](http://www.share.kurohicncr.top/Article/details/424993820.shtml)
+- 2026-06-29 11:22 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](http://www.share.minike.top/Article/details/54230308.shtml)
+- 2026-06-29 11:35 - [话剧《四世同堂》首次登陆澳大利亚](http://www.blog.minike.top/Article/details/21418.shtml)
+- 2026-06-29 11:42 - [中国HH-200航空商用无人运输系统首架机首飞成功](http://www.blog.minike.top/Article/details/5004216.shtml)
+- 2026-06-29 11:44 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [一季度增城西站中欧班列开行量同比增长24%](http://www.blog.minike.top/Article/details/25468702915.shtml)

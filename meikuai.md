@@ -1,49 +1,48 @@
-# 记者现场直击 山西煤矿事故已致90人死亡
+# 全球智能鸿沟如何破解？这份报告给出答案！
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月23日 22:15 来源：中国新闻网 记者从山西通洲集团留神峪煤矿瓦斯爆炸事故现场了解到，事故已造成90人死亡，现场搜救仍在进行。(记者 王惠琳 陆祁国 向上 制作 王雪尔) 责任编辑：【曲克】
+原标题：图解丨全球智能鸿沟如何破解？这份报告给出答案！ 统筹：李政葳 文案：孙满桃 设计：董诺 来源：光明网
 
 ## 正文
 
-发布时间：2026年05月23日 22:15 来源：中国新闻网 记者从山西通洲集团留神峪煤矿瓦斯爆炸事故现场了解到，事故已造成90人死亡，现场搜救仍在进行。
+原标题：图解丨全球智能鸿沟如何破解？
 
-(记者 王惠琳 陆祁国 向上 制作 王雪尔) 责任编辑：【曲克】
+这份报告给出答案！
+
+统筹：李政葳 文案：孙满桃 设计：董诺 来源：光明网
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:38 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:35 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:38 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:16 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:25 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:39 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:38 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:38 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:38 - [数码产品单品最高暴涨1860元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:18 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:37 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:34 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:41 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:25 - [海军航空大学某大队：更新知识体系 厚植打赢底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:21 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:19 - [Uber将收购Delivery Hero额外4.5%的股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:45 - [中国驻日本大使馆提醒在日中国公民注意人身安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:33 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:26 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:21 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:27 - [报告称中国在建核电机组装机容量连续19年保持全球第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:37 - [东艳：一季度外贸数据反映多个“增强”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:26 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:44 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:39 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:14 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:25 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:41 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:28 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:39 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:28 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:19 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:30 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:33 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:24 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:43 - [洪水猛兽还是有效工具？专家学者聚焦AI视域下的青少年科幻写作](http://www.blog.minike.top/Article/details/1365369784.shtml)
+- 2026-06-29 11:23 - [老外体验无人驾驶：“万万没想到，比司机开还稳”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [挖机销量增近三成，工程机械“金三”来了](http://www.blog.minike.top/Article/details/60160420.shtml)
+- 2026-06-29 11:29 - [开局之年看中国·开放自贸港：“艇”进三亚](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [首次原子尺度证实 中国科学家发现金属/载体三维体相参与催化新机制](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [财信宏观丨供给韧性较强，需求修复待提速—2026年1-3月经济数据点评](http://www.blog.minike.top/Article/details/72272187.shtml)
+- 2026-06-29 11:23 - [酒价内参4月16日价格发布：水晶剑南春小幅上涨1元/瓶](http://www.share.kurohicncr.top/Article/details/644204.shtml)
+- 2026-06-29 11:30 - [ATFX:特朗普威胁解除鲍威尔职务 美指跌破98点](http://www.blog.minike.top/Article/details/4589372760.shtml)
+- 2026-06-29 11:26 - [中东突发！刚刚，直线拉升！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [湖北：以正确政绩观引领“支点建设”新征程](http://www.share.kurohicncr.top/Article/details/58771885.shtml)
+- 2026-06-29 11:25 - [全球经济的严峻考验](http://www.blog.kurohicncr.top/Article/details/9323495.shtml)
+- 2026-06-29 11:21 - [Glamox将为Sea1 Offshore的海上能源支持船提供照明](http://www.share.minike.top/Article/details/59360600576.shtml)
+- 2026-06-29 11:36 - [在“商量声”中生长：浙江杭州小古城村民主协商发“新枝”](http://www.share.minike.top/Article/details/291008496.shtml)
+- 2026-06-29 11:29 - [伊朗最高领导人推动将黎巴嫩纳入美伊和谈](http://www.blog.kurohicncr.top/Article/details/467474.shtml)
+- 2026-06-29 11:17 - [珠江委积极开展珠江流域水预算管理工作指引研究](https://github.com/lisacumin64-arch)

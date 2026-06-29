@@ -1,50 +1,59 @@
-# 重庆永川突发暴雨引发山洪和地灾 已致3人死亡17人失联
+# 国家发改委：将制定2026—2030年扩大内需战略实施方案
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网5月24日电 据“永川发布”微信公众号消息，5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地灾，最大降雨出现在永川区茶山竹海街道，凌晨2时至4时最大雨量达到296.6毫米、最大小时雨量103.6毫米，导致永川区茶山竹海街道、中山路街道、双石镇散点多发事件。截至24日14时30分，共导致3人死亡，17人失联。目前，救援处置工作正在全力开展。 汛情发生
+中新网4月17日电 4月17日，国新办举行“开局起步‘十五五’”系列主题新闻发布会，介绍“十五五”时期推动经济社会高质量发展有关情况，并答记者问。 针对“下一步宏观政策将如何发力，确保‘十五五’开好局起好步？”的提问，国家发展改革委副主任王昌林介绍，要全面贯彻落实党中央、国务院决策部署，突出抓好以下五个方面的工作： 一是打好宏观政策“组合拳”，提前储备一批综合性政策措施，根据形
 
 ## 正文
 
-中新网5月24日电 据“永川发布”微信公众号消息，5月23日夜间至24日凌晨，重庆市永川区突发瞬时极端特大暴雨引发山洪和地灾，最大降雨出现在永川区茶山竹海街道，凌晨2时至4时最大雨量达到296.6毫米、最大小时雨量103.6毫米，导致永川区茶山竹海街道、中山路街道、双石镇散点多发事件。
+中新网4月17日电 4月17日，国新办举行“开局起步‘十五五’”系列主题新闻发布会，介绍“十五五”时期推动经济社会高质量发展有关情况，并答记者问。
 
-截至24日14时30分，共导致3人死亡，17人失联。
+针对“下一步宏观政策将如何发力，确保‘十五五’开好局起好步？
 
-目前，救援处置工作正在全力开展。
+”的提问，国家发展改革委副主任王昌林介绍，要全面贯彻落实党中央、国务院决策部署，突出抓好以下五个方面的工作： 一是打好宏观政策“组合拳”，提前储备一批综合性政策措施，根据形势需要及时出台。
 
-汛情发生后，市、区两级防汛抗旱应急指挥部迅速启动应急响应，第一时间组织公安、应急、消防等400余人救援抢险队伍赶赴现场，目前救援处置工作正在全力开展。
+二是要着力扩大国内有效需求。
 
-累计紧急避险转移168人，紧急转移安置82人。
+制定2026—2030年扩大内需战略实施方案，推动符合条件的重大工程项目尽早开工建设。
+
+继续推动“两重”建设，更好发挥政府投资的带动放大作用，激发民间投资活力。
+
+稳步实施消费品以旧换新，加快清理消费领域不合理限制性措施。
+
+三是要加强科技创新，加快新兴产业发展，深入实施“人工智能+”行动，打造智能经济新形态；深入贯彻落实全国服务业大会精神，推进服务业扩能提质。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:19 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:19 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:35 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:37 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:36 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:23 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:29 - [新华时评·首季经济观察丨稳健开局展现中国经济韧性底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:46 - [迪拜启用全球首个综合空中出租车起降场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:25 - [长三角港口从“互连”迈向“深融” “连申快航”年运量突破15.2万标箱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:26 - [凌晨，见证历史！全线大涨！美联储，重磅发布！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:22 - [圣贝拉集团：受托人根据股份奖励计划购买合共9.2万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:42 - [麦迪科技：4月13日召开业绩说明会，投资者参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:37 - [开局之年看中国·开放自贸港：三亚芒果闯世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:30 - [Hims & Hers股价周四上涨：监管突破助推](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:33 - [（经济观察）万商云集广交会 折射中国外贸新气象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:30 - [五一假期首日火车票今日开售 超全抢票攻略来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:18 - [距下次会议仅剩两周，欧洲央行仍未就利率走向给市场明确信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:22 - [实达集团营收缩水超2亿，退市警报拉响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:28 - [一季度“零发行”后银行二永债4月抢闸，会否冲击债市利差？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:36 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:41 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:33 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:37 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:31 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:26 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:18 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:19 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:20 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:31 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:38 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:15 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:30 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:38 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:39 - [镜观·回响丨在交流中深化中越青年情谊](http://www.share.minike.top/Article/details/8883438.shtml)
+- 2026-06-29 11:34 - [中金：维持波司登跑赢行业评级 目标价5.65港元](http://www.blog.kurohicncr.top/Article/details/36659.shtml)
+- 2026-06-29 11:32 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [伊朗称在与美国会谈期间讨论了解冻资产问题](http://www.share.kurohicncr.top/Article/details/03391529224.shtml)
+- 2026-06-29 11:22 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](http://www.share.kurohicncr.top/Article/details/828774773650.shtml)
+- 2026-06-29 11:18 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](http://www.blog.kurohicncr.top/Article/details/945621077258.shtml)
+- 2026-06-29 11:35 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:16 - [美国将封锁范围扩大至受制裁船只](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](http://www.share.kurohicncr.top/Article/details/16693.shtml)
+- 2026-06-29 11:30 - [涉“幽灵外卖”，抖音被罚5689万](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:17 - [中国1-3月份城镇固定资产投资增长1.7%，基础设施投资同比增长8.9%](http://www.share.kurohicncr.top/Article/details/81082595107.shtml)
+- 2026-06-29 11:41 - [黎巴嫩总统同美国国务卿通话](http://www.blog.minike.top/Article/details/6018061.shtml)
+- 2026-06-29 11:21 - [长江有色：宏观面谨慎及供应刚性释放 17日铅价或下跌](http://www.blog.minike.top/Article/details/12097.shtml)
+- 2026-06-29 11:45 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](https://github.com/lisacumin64-arch)

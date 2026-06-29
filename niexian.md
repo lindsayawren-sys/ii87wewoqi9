@@ -1,58 +1,50 @@
-# 告别盲目进补！甲状腺与营养的正确打开方式
+# 山西省机关事务管理局原二级巡视员祁晓虎被开除党籍
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-告别盲目进补！甲状腺与营养的正确打开方式get~｜世界甲状腺日 每年5月25日是世界甲状腺日 甲状腺被称作人体“生命发动机”，掌管着我们的新陈代谢、心率调节、情绪波动，以及全身内分泌的平衡。它的健康状况，直接影响着我们的精神状态和身体机能。 而最容易被我们忽略，也最容易掌控的方式，就是饮食——吃对营养，就是守护甲状腺健康最简单、最有效的途径。关键营养素决定甲状腺健康状态 🔹碘
+中新网4月16日电 据山西省纪委监委消息，日前，经山西省委批准，山西省纪委监委对省机关事务管理局原二级巡视员祁晓虎严重违纪违法问题进行了立案审查调查。 经查，祁晓虎理想信念丧失，纪法底线失守，违背组织原则，在职务调整中为他人谋取利益并收受财物；廉洁底线失守，收受礼品、礼金；利用职务便利为他人在业务承揽、款项结算等方面谋取利益，并非法收受巨额财物。 祁晓虎严重违反党的组织纪律、廉
 
 ## 正文
 
-告别盲目进补！
+中新网4月16日电 据山西省纪委监委消息，日前，经山西省委批准，山西省纪委监委对省机关事务管理局原二级巡视员祁晓虎严重违纪违法问题进行了立案审查调查。
 
-甲状腺与营养的正确打开方式get~｜世界甲状腺日 每年5月25日是世界甲状腺日 甲状腺被称作人体“生命发动机”，掌管着我们的新陈代谢、心率调节、情绪波动，以及全身内分泌的平衡。
+经查，祁晓虎理想信念丧失，纪法底线失守，违背组织原则，在职务调整中为他人谋取利益并收受财物；廉洁底线失守，收受礼品、礼金；利用职务便利为他人在业务承揽、款项结算等方面谋取利益，并非法收受巨额财物。
 
-它的健康状况，直接影响着我们的精神状态和身体机能。
+祁晓虎严重违反党的组织纪律、廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，性质严重，影响恶劣，应予严肃处理。
 
-而最容易被我们忽略，也最容易掌控的方式，就是饮食——吃对营养，就是守护甲状腺健康最简单、最有效的途径。
-
-关键营养素决定甲状腺健康状态 🔹碘 碘是甲状腺激素合成的必备原料，但也绝非越多越好。
-
-缺碘容易导致甲减、粗脖病(地方性甲状腺肿)，而碘过量则容易诱发甲亢或自身免疫性甲状腺疾病(如桥本甲状腺炎)。
-
-对于普通人群来说，日常正常食用加碘盐，就能满足身体对碘的需求，无需刻意多吃海带、紫菜等海产品，以避免补碘过量。
-
-🔹硒 硒是甲状腺的天然保护伞，具有抗炎、抗氧化作用，能够减少甲状腺的自身免疫损伤，帮助稳定甲状腺功能。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经山西省纪委常委会会议研究并报山西省委批准，决定给予祁晓虎开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:29 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:39 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:36 - [数码产品单品最高暴涨1860元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:22 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:27 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:27 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:35 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:39 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:32 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:38 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:34 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:18 - [世界最大清洁能源走廊一季度补水超203亿立方米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:39 - [特斯拉完成AI5自动驾驶芯片流片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:35 - [网易云音乐于4月15日耗资约1499.57万港元回购11.995万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:28 - [专家解读法国通过文物归还法案 为中国文物回流提供契机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:24 - [云南瑞丽边检站为骨折缅甸旅客开通“紧急通道”入境就医](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:32 - [新华时评·首季经济观察丨稳健开局展现中国经济韧性底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:37 - [迪拜启用全球首个综合空中出租车起降场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:24 - [长三角港口从“互连”迈向“深融” “连申快航”年运量突破15.2万标箱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:39 - [凌晨，见证历史！全线大涨！美联储，重磅发布！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:44 - [圣贝拉集团：受托人根据股份奖励计划购买合共9.2万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:42 - [麦迪科技：4月13日召开业绩说明会，投资者参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:42 - [开局之年看中国·开放自贸港：三亚芒果闯世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:31 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:34 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:41 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:38 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:23 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:33 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:37 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:36 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:15 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:19 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:22 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:23 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:30 - [南方精工索赔时效只剩两个月 此前部分股民调解](http://www.blog.minike.top/Article/details/388274420.shtml)
+- 2026-06-29 11:45 - [第十五届中国饭店文化节将在横琴和澳门两地举办](http://www.blog.minike.top/Article/details/219721044823.shtml)
+- 2026-06-29 11:39 - [第二届西藏微短剧大赛正式启动征稿](http://www.share.kurohicncr.top/Article/details/391863829066.shtml)
+- 2026-06-29 11:17 - [4月16日人民币对美元中间价报6.8616 下调34个基点](http://www.blog.minike.top/Article/details/71223999286.shtml)
+- 2026-06-29 11:17 - [厦门钨业：子公司金龙稀土进入创新层](http://www.share.minike.top/Article/details/6031871312.shtml)
+- 2026-06-29 11:21 - [镜观·回响丨在交流中深化中越青年情谊](http://www.blog.minike.top/Article/details/78344089859.shtml)
+- 2026-06-29 11:27 - [中金：维持波司登跑赢行业评级 目标价5.65港元](http://www.blog.kurohicncr.top/Article/details/387404391162.shtml)
+- 2026-06-29 11:30 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](http://www.share.minike.top/Article/details/293979808.shtml)
+- 2026-06-29 11:43 - [伊朗称在与美国会谈期间讨论了解冻资产问题](http://www.blog.minike.top/Article/details/2581392.shtml)
+- 2026-06-29 11:31 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](http://www.share.minike.top/Article/details/390462565992.shtml)
+- 2026-06-29 11:31 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](http://www.blog.minike.top/Article/details/310576.shtml)
+- 2026-06-29 11:21 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [美国将封锁范围扩大至受制裁船只](http://www.share.minike.top/Article/details/63646217.shtml)
+- 2026-06-29 11:44 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](http://www.blog.kurohicncr.top/Article/details/035019872.shtml)

@@ -1,61 +1,58 @@
-# “中国荔乡”广东茂名荔枝迎上市高峰
+# 中国经济开门红，靠的是什么？
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网茂名5月23日电 (梁盛 梁晶晶)“小满”节气刚过，广东茂名荔枝便迎来了上市高峰期，且售价持续高企。 高州市农业农村局党组成员邬飞儒介绍说，作为茂名荔枝主产区，高州荔枝从本月20日开始进入上市高峰，预计到月底荔枝会逐渐减少。自荔枝上市以来，不仅价格持续高企，而且在上市高峰期，价格不降反升，目前最高收购价每公斤30元。 3月初，当地特早熟荔枝品种开始采摘销售。在茂名市区文光
+发布时间：2026年04月16日 19:47 来源：中国新闻网 中东局势紧张、外部环境日趋复杂，对中国经济有什么影响？这是4月16日国新办发布会上，记者们最为关注的问题。国家统计局公布的数据显示，今年一季度，国内生产总值同比增长5.0%。尽管国际环境复杂多变，但我们的高质量发展向新向优，新动能继续挑大梁。更关键的是，我们有强大的制度优势、产业优势和人才优势。办法总比困难多，机遇
 
 ## 正文
 
-中新网茂名5月23日电 (梁盛 梁晶晶)“小满”节气刚过，广东茂名荔枝便迎来了上市高峰期，且售价持续高企。
+发布时间：2026年04月16日 19:47 来源：中国新闻网 中东局势紧张、外部环境日趋复杂，对中国经济有什么影响？
 
-高州市农业农村局党组成员邬飞儒介绍说，作为茂名荔枝主产区，高州荔枝从本月20日开始进入上市高峰，预计到月底荔枝会逐渐减少。
+这是4月16日国新办发布会上，记者们最为关注的问题。
 
-自荔枝上市以来，不仅价格持续高企，而且在上市高峰期，价格不降反升，目前最高收购价每公斤30元。
+国家统计局公布的数据显示，今年一季度，国内生产总值同比增长5.0%。
 
-3月初，当地特早熟荔枝品种开始采摘销售。
+尽管国际环境复杂多变，但我们的高质量发展向新向优，新动能继续挑大梁。
 
-在茂名市区文光街的生果隆水果店里，工人正在忙着将荔枝打包装箱发货，快递公司的工作人员也早早“驻扎”到店里帮着忙活。
+更关键的是，我们有强大的制度优势、产业优势和人才优势。
 
-该水果店负责人称，由于今年荔枝产量减少，售价除了上市初期略有浮动外，一直保持在高位。
+办法总比困难多，机遇大于挑战。
 
-为了应对“荔枝季”，店里提前多招了几名工人，每日向全国各地发货白糖罂荔枝数百件，每件5公斤，售价240元。
-
-在以经营荔枝、龙眼出口业务为主的广东铭景农业公司车间里，200多名工人正在忙碌着，为将要出口美国、加拿大和柬埔寨的30吨妃子笑荔枝进行分拣、打包。
+(记者 吴家驹 宋宇晟） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:26 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:38 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:20 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:14 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:17 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:25 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:43 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:16 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:41 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:26 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:18 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:25 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:35 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:32 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:41 - [小摩：中金公司首季业绩料胜预期 重申行业首选股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:27 - [沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:22 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:26 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:45 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:35 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:43 - [珠江流域部分中小河流近期可能出现超警洪水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:26 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:45 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:20 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:17 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:40 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:38 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:28 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:26 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:16 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:37 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:16 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:28 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:35 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:41 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:43 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:37 - [少年吃隔夜见手青后满屋见动画场景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:24 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:14 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:16 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:44 - [一季度郑州机场国际货运量同比增长21.8%](http://www.share.kurohicncr.top/Article/details/47845.shtml)
+- 2026-06-29 11:30 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](http://www.share.minike.top/Article/details/01788.shtml)
+- 2026-06-29 11:22 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](http://www.share.minike.top/Article/details/025797530841.shtml)
+- 2026-06-29 11:39 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.blog.minike.top/Article/details/7991017144.shtml)
+- 2026-06-29 11:44 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](http://www.blog.kurohicncr.top/Article/details/603054.shtml)
+- 2026-06-29 11:30 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](http://www.share.kurohicncr.top/Article/details/26911332.shtml)
+- 2026-06-29 11:39 - [河南南阳：警车亮灯守护三轮平安归途](http://www.share.kurohicncr.top/Article/details/9597678.shtml)
+- 2026-06-29 11:36 - [云南印发实施意见全面推进共有精神家园建设](http://www.share.kurohicncr.top/Article/details/515620.shtml)
+- 2026-06-29 11:41 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.share.kurohicncr.top/Article/details/85123299651.shtml)
+- 2026-06-29 11:29 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](http://www.share.minike.top/Article/details/560769822.shtml)
+- 2026-06-29 11:25 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](http://www.blog.minike.top/Article/details/1728478.shtml)
+- 2026-06-29 11:36 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](http://www.blog.kurohicncr.top/Article/details/666657050.shtml)
+- 2026-06-29 11:44 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](http://www.share.kurohicncr.top/Article/details/0474678068.shtml)

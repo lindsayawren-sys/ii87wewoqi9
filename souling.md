@@ -1,61 +1,61 @@
-# 2025年广西公布58个动植物新物种
+# 最高实时均价逼近1元/度，广东电力现货价格飙升
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网南宁5月23日电 (黄令妍)5月22日，2026年国际生物多样性日广西主场宣传活动举办。广西壮族自治区林业局党组书记、局长蔡中平在活动中介绍，近年来，广西扎实开展陆域生物多样性资源本底调查，全面查清辖区生物资源底数。2025年，广西正式公布了58个动植物新物种。 58个动植物新物种中，陆生脊椎动物7种，维管植物51种。这些新物种的发现，不仅是科学研究的突破，更是广西作为全
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：21世纪经济报道 记者：曹恩惠 近期，广东电力现货市场价格“飙升”的现象引发业内关注。 广东电力交易中心微信公众号发布的数据显示，广东电力现货市场4月16日的发电侧日前加权平均电价为0.528元/千瓦时，环比下降2.28%；4月14日发电侧实时成交平均电价则为0.775元/千瓦时，环比下降5.78%。
 
 ## 正文
 
-中新网南宁5月23日电 (黄令妍)5月22日，2026年国际生物多样性日广西主场宣传活动举办。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-广西壮族自治区林业局党组书记、局长蔡中平在活动中介绍，近年来，广西扎实开展陆域生物多样性资源本底调查，全面查清辖区生物资源底数。
+来源：21世纪经济报道 记者：曹恩惠 近期，广东电力现货市场价格“飙升”的现象引发业内关注。
 
-2025年，广西正式公布了58个动植物新物种。
+广东电力交易中心微信公众号发布的数据显示，广东电力现货市场4月16日的发电侧日前加权平均电价为0.528元/千瓦时，环比下降2.28%；4月14日发电侧实时成交平均电价则为0.775元/千瓦时，环比下降5.78%。
 
-58个动植物新物种中，陆生脊椎动物7种，维管植物51种。
+21世纪经济报道记者注意到，4月13日以来，广东电力现货市场发电侧日前均价最高为0.678元/千瓦时，较上一周（4月6日至4月12日）的最高均价上涨8.57%。
 
-这些新物种的发现，不仅是科学研究的突破，更是广西作为全球生物多样性热点地区的生动印证。
+在实时电价端，本周发电侧最高的实时成交均价暂为4月13日的0.823元/千瓦时，较上一周的最高均价下降15.89%。
 
-这些新物种有以发现地命名的，也有以独特形态特征命名的。
+从实时成交的电价来看，本周广东电力现货市场目前的最高电价虽然较上一周有所减少，但整体仍处于高位。
 
-代表性的新物种如凤山壁虎，发现于西南岩溶国家公园候选区(广西)拟建核心区——河池市凤山县大石围天坑—三门海天窗片区的喀斯特峰丛峡谷中，是喀斯特地貌“物种泵”效应催生的又一标志性特有物种。
+广东电力交易中心发布的《2025年广东电力市场年度报告》显示，广东电力市场去年现货价格的日前加权均价为0.317元/千瓦时，实时加权均价则为0.314元/千瓦时。
 
-全州报春苣苔仅发现于桂林市全州县的垂直岩壁缝隙间，因其模式产地在全州而命名。
+这意味着，就今年4月份的表现来看，广东电力交易市场的日前均价和实时均价均远远高于2025年的水平。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:30 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:33 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:36 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:23 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:21 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:16 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:43 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:30 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:19 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:43 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:18 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:39 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:41 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:29 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:36 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:31 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:35 - [4月16日人民币对美元中间价报6.8616 下调34个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:29 - [厦门钨业：子公司金龙稀土进入创新层](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:36 - [镜观·回响丨在交流中深化中越青年情谊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:42 - [中金：维持波司登跑赢行业评级 目标价5.65港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:45 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:41 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:20 - [伊朗称在与美国会谈期间讨论了解冻资产问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:38 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:29 - [健康观察：免疫规划有了智能体，如何让打疫苗更智慧？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:18 - [拎包免费入住！贵州贵安新区人才保障房宠才力度拉满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:36 - [美国将封锁范围扩大至受制裁船只](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:32 - [建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:16 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:23 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:26 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:24 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:39 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:20 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:19 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:41 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:38 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:16 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:30 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:29 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:34 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:29 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:22 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:46 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](http://www.blog.kurohicncr.top/Article/details/498035.shtml)
+- 2026-06-29 11:32 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](http://www.blog.minike.top/Article/details/4716659920.shtml)
+- 2026-06-29 11:21 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](http://www.blog.kurohicncr.top/Article/details/48503557.shtml)
+- 2026-06-29 11:29 - [国家统计局：一季度全国居民人均可支配收入12782元](http://www.share.minike.top/Article/details/39825.shtml)
+- 2026-06-29 11:29 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](http://www.share.kurohicncr.top/Article/details/926470.shtml)
+- 2026-06-29 11:37 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](http://www.share.minike.top/Article/details/9254890901.shtml)
+- 2026-06-29 11:31 - [陆军某旅着力培养过硬兵棋骨干队伍](http://www.blog.kurohicncr.top/Article/details/9034233397.shtml)
+- 2026-06-29 11:34 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](http://www.share.minike.top/Article/details/09692098.shtml)
+- 2026-06-29 11:17 - [上美股份将于6月23日派发末期股息每股0.75元](http://www.share.minike.top/Article/details/68450544.shtml)
+- 2026-06-29 11:41 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [中国驻日大使馆接连遭到恐怖威胁](http://www.share.kurohicncr.top/Article/details/5107521.shtml)
+- 2026-06-29 11:22 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](http://www.share.kurohicncr.top/Article/details/9738983.shtml)

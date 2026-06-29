@@ -1,54 +1,47 @@
-# 美国驻格陵兰岛领事馆新址开馆 遭当地民众抗议
+# 中国中铁于4月16日斥资4999.96万元回购944.41万股A股
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网5月22日电 据路透社报道，当地时间5月21日，美国在格陵兰岛首府努克的领事馆新址举行开馆仪式，引发当地民众抗议。 据报道，数百名示威者聚集在领事馆外，手持写有“美国住手”的标语牌，并高喊“不就是不”“格陵兰属于格陵兰人”等口号，以此反对美国试图扩大在格陵兰岛影响力的意图。 报道称，格陵兰岛自治政府总理延斯-弗雷德里克·尼尔森及多名政界人士表示，已拒绝出席开馆仪式的邀请。
+中国中铁（00390）发布公告，于2026年4月16日该公司斥资人民币4999.96万元回购944.41万股A股，回购价格为每股人民币5.28-5.31元。责任编辑：卢昱君
 
 ## 正文
 
-中新网5月22日电 据路透社报道，当地时间5月21日，美国在格陵兰岛首府努克的领事馆新址举行开馆仪式，引发当地民众抗议。
+中国中铁（00390）发布公告，于2026年4月16日该公司斥资人民币4999.96万元回购944.41万股A股，回购价格为每股人民币5.28-5.31元。
 
-据报道，数百名示威者聚集在领事馆外，手持写有“美国住手”的标语牌，并高喊“不就是不”“格陵兰属于格陵兰人”等口号，以此反对美国试图扩大在格陵兰岛影响力的意图。
-
-报道称，格陵兰岛自治政府总理延斯-弗雷德里克·尼尔森及多名政界人士表示，已拒绝出席开馆仪式的邀请。
-
-格陵兰岛是丹麦自治领地，有高度自治权，国防和外交事务由丹麦政府掌管。
-
-美国方面多次表示要得到格陵兰岛，遭到丹麦及多方强烈反对。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:27 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:20 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:19 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:37 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:43 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:17 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:42 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:16 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:38 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:15 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:22 - [数码产品单品最高暴涨1860元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:31 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:39 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:20 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:27 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:17 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:23 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:26 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:34 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:26 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:31 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:46 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:41 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:29 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:39 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:43 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:40 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:31 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:20 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:24 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:14 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:37 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:23 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:31 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:32 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:34 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:36 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:23 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:27 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:36 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:18 - [浙江启用防汛防台机器狗“AI防汛勇士”](http://www.blog.minike.top/Article/details/54328269859.shtml)
+- 2026-06-29 11:31 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.share.minike.top/Article/details/703727.shtml)
+- 2026-06-29 11:25 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](http://www.blog.kurohicncr.top/Article/details/3034352599.shtml)
+- 2026-06-29 11:22 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.blog.kurohicncr.top/Article/details/16207.shtml)
+- 2026-06-29 11:33 - [受伊朗战争持续影响，欧洲股市料将低开](http://www.share.minike.top/Article/details/488285866626.shtml)
+- 2026-06-29 11:26 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](http://www.blog.minike.top/Article/details/32769237857.shtml)
+- 2026-06-29 11:27 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.share.kurohicncr.top/Article/details/35281799.shtml)
+- 2026-06-29 11:37 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.blog.kurohicncr.top/Article/details/0134347.shtml)
+- 2026-06-29 11:29 - [新晋退休人士最后悔的事：没多存点钱](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [IEA警示历史性石油冲击](http://www.blog.kurohicncr.top/Article/details/81216.shtml)
+- 2026-06-29 11:26 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [A股盘前速递：黄金涨回4800美元](http://www.share.minike.top/Article/details/2101500153.shtml)

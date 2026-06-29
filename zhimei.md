@@ -1,56 +1,48 @@
-# 哈萨克斯坦拟为“空中出租车”制定监管规则
+# 河南南阳：警车亮灯守护三轮平安归途
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网阿斯塔纳5月23日电 (记者 单璐)据哈萨克斯坦交通部22日消息，哈交通部已起草一揽子法律修正案，拟对“空中出租车”运行及相关低空飞行活动作出规范。 哈交通部表示，过去一年，哈方持续推进“空中出租车”相关法规制度建设。目前，相关修正案已完成协调程序，正处于讨论阶段，预计近期将完成审议并实施。 消息称，哈交通部近日在阿拉套市组织开展“空中出租车”技术测试飞行。此次测试使用电
+发布时间：2026年04月17日 11:27 来源：中国新闻网 4月15日晚，在河南南阳103省道，警车亮灯为三轮车照路护航。(作者：余志刚） 责任编辑：【魏聪聪】
 
 ## 正文
 
-中新网阿斯塔纳5月23日电 (记者 单璐)据哈萨克斯坦交通部22日消息，哈交通部已起草一揽子法律修正案，拟对“空中出租车”运行及相关低空飞行活动作出规范。
+发布时间：2026年04月17日 11:27 来源：中国新闻网 4月15日晚，在河南南阳103省道，警车亮灯为三轮车照路护航。
 
-哈交通部表示，过去一年，哈方持续推进“空中出租车”相关法规制度建设。
-
-目前，相关修正案已完成协调程序，正处于讨论阶段，预计近期将完成审议并实施。
-
-消息称，哈交通部近日在阿拉套市组织开展“空中出租车”技术测试飞行。
-
-此次测试使用电动垂直起降飞行器。
-
-该飞行器采用电力驱动，最高时速可达200公里，飞行距离可达200公里，可用于城市及区域短途出行。
-
-为配合“空中出租车”运行，哈方还正推进相关基础设施建设。
-
-根据规划，到2028年前，哈萨克斯坦计划建设6处垂直起降设施，选址将综合考虑安全要求、交通便利性及与现有基础设施衔接等因素。
+(作者：余志刚） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:19 - [王冰冰解读世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:31 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:34 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:40 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:29 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:42 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:38 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:38 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:34 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:33 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:23 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:35 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:27 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:34 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:31 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:45 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:20 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:30 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:33 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:36 - [百余件“宝石”亮相福建崇武古城矿博馆 “晶”彩世界引游人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:27 - [海南这个园区有点东西：学生一校入学 可共享多校课程](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:18 - [俄罗斯及白俄罗斯青少年运动员可参加国际乒联认证赛事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:22 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:39 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:31 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:37 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:44 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:39 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:22 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:38 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:17 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:33 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:24 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:26 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:33 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:18 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](http://www.share.minike.top/Article/details/5157406291.shtml)
+- 2026-06-29 11:31 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.share.minike.top/Article/details/69998249273.shtml)
+- 2026-06-29 11:23 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](http://www.share.kurohicncr.top/Article/details/770696427945.shtml)
+- 2026-06-29 11:40 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.share.minike.top/Article/details/448870.shtml)
+- 2026-06-29 11:20 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.blog.kurohicncr.top/Article/details/36748990.shtml)
+- 2026-06-29 11:34 - [中东能源危机推动美国原油出口大增，接近历史最高水平](http://www.blog.kurohicncr.top/Article/details/07417.shtml)
+- 2026-06-29 11:46 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.share.minike.top/Article/details/86787961.shtml)
+- 2026-06-29 11:37 - [新晋退休人士最后悔的事：没多存点钱](http://www.blog.minike.top/Article/details/603438.shtml)
+- 2026-06-29 11:23 - [IEA警示历史性石油冲击](http://www.share.minike.top/Article/details/0183834142.shtml)
+- 2026-06-29 11:44 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](http://www.blog.minike.top/Article/details/723408625.shtml)
+- 2026-06-29 11:30 - [A股盘前速递：黄金涨回4800美元](http://www.blog.kurohicncr.top/Article/details/3415278.shtml)
+- 2026-06-29 11:31 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.share.kurohicncr.top/Article/details/60490.shtml)
+- 2026-06-29 11:28 - [澳大利亚一炼油厂发生大火](http://www.share.minike.top/Article/details/956405.shtml)

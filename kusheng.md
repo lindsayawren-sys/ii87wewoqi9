@@ -1,57 +1,57 @@
-# 棚虾适度规模经营正成为中国对虾产业突围关键方向之一
+# 韩国第一季度接待外国游客476万人次，创历史新高
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-中新网茂名5月23日电 (程景伟 梁春桥)2026中国渔业协会棚虾产业大会近日在广东茂名举行。 中国渔业协会常务副会长兼秘书长李胜利表示，我国棚虾养殖已从民间探索发展为对虾产业的重要增长极，年产量占南美白对虾设施养殖的一半以上。在市场价格波动、病害风险、环保压力等多重挑战下，以标准化、集约化、生态化为特征的棚虾适度规模经营，正成为产业突围的关键方向之一。 茂名市农业农村局副局长
+周四公布的数据显示，今年第一季度，韩国接待的外国游客数量创下历史新高，主要得益于上个月防弹少年团（BTS）在首尔市中心举行的里程碑式演唱会吸引了大量粉丝涌入。 根据韩国文化体育观光部的初步数据，今年1月至3月，韩国共接待外国游客476万人次，比2025年同期增长23%，创下历史同期最高纪录。 中国内地游客数量最多，达到约145万人次，同比增长29%；日本游客数量位居第二，达到9
 
 ## 正文
 
-中新网茂名5月23日电 (程景伟 梁春桥)2026中国渔业协会棚虾产业大会近日在广东茂名举行。
+周四公布的数据显示，今年第一季度，韩国接待的外国游客数量创下历史新高，主要得益于上个月防弹少年团（BTS）在首尔市中心举行的里程碑式演唱会吸引了大量粉丝涌入。
 
-中国渔业协会常务副会长兼秘书长李胜利表示，我国棚虾养殖已从民间探索发展为对虾产业的重要增长极，年产量占南美白对虾设施养殖的一半以上。
+根据韩国文化体育观光部的初步数据，今年1月至3月，韩国共接待外国游客476万人次，比2025年同期增长23%，创下历史同期最高纪录。
 
-在市场价格波动、病害风险、环保压力等多重挑战下，以标准化、集约化、生态化为特征的棚虾适度规模经营，正成为产业突围的关键方向之一。
+中国内地游客数量最多，达到约145万人次，同比增长29%；日本游客数量位居第二，达到94万人次，同比增长20%。
 
-茂名市农业农村局副局长钟秀威表示，茂名是广东渔业大市，近年来大力发展对虾适度规模经营，棚虾养殖面积稳步扩大，尾水生态化处理技术日趋成熟，一批龙头企业快速成长，带动千家万户增收致富。
+中国台湾地区游客数量增幅最大，同比增长37.7%，达到54万人次；来自美洲和欧洲的游客数量也增长了17%，达到69万人次。
 
-国家虾蟹产业技术体系首席科学家、中国水产科学研究院南海水产研究所研究员曹煜成介绍了该体系的科技支撑成效。
+经由地区机场入境的游客人数激增近50%，达到85万人次，使到访当地的外国游客比例提升至34.5%。
 
-他称，体系专家研发了分子设计育种、全基因组选择育种等虾蟹育种新技术16套，培育出11个南美白对虾自主新品种，年生产SPF(无特定病原)虾苗突破1800亿尾，占我国良种虾苗市场60%以上，实现对虾良种种源自主可控。
+邮轮旅游呈现强劲反弹，济州、釜山和仁川等主要港口的邮轮到访量达到338艘次，较2025年同期增长52.9%。
 
-大会期间，中国渔业协会组织来自广东、浙江、江苏、福建等地的8位头部对虾养殖企业负责人，共同发起《龙头引领联农带农 推动对虾产业高质量发展倡议》，承诺在联农机制、科技赋能、质量安全、绿色发展等方面协同行动；启动《中国棚虾产业发展报告2026》编制工作。
+一项调查显示，游客使用外国信用卡在韩国的消费总额达3.21万亿韩元（约合21.8亿美元），同比增长23%；同时，游客满意度也从去年的89.7分上升至90.8分，提高了1.1分。
 
-大会设置“产业链协同”“养殖与环保”“产业现状与种业创新”三大主题报告活动，专家和企业代表分享前沿技术与实践案例。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:25 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:40 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:37 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:37 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:20 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:18 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:27 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:20 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:43 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:21 - [酒价内参4月17日价格发布，青花郎下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:33 - [外交部提醒赴美国中国公民注意入境安全风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:18 - [Stena DrillMAX将在希腊近海钻探首口深水井](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:31 - [在沙地种下一片“云朵玫瑰”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:18 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:30 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:23 - [美又一核动力航母失火 8名船员受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:30 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:38 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:36 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:18 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:23 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:31 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:27 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:35 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:18 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:42 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:16 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:30 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:15 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:26 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:35 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:38 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:29 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](http://www.blog.kurohicncr.top/Article/details/85419.shtml)
+- 2026-06-29 11:30 - [Stellantis与微软合作部署逾百款AI工具](http://www.share.minike.top/Article/details/48261.shtml)
+- 2026-06-29 11:42 - [日本财务大臣：与美国财长密切讨论了外汇问题](http://www.share.minike.top/Article/details/502113012509.shtml)
+- 2026-06-29 11:19 - [多份联储报告显示美国物价飙升](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [光大期货：4月16日金融日报](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](http://www.share.kurohicncr.top/Article/details/037533953.shtml)
+- 2026-06-29 11:21 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](http://www.share.kurohicncr.top/Article/details/6911584.shtml)
+- 2026-06-29 11:31 - [近3万股东出走中际旭创](http://www.share.minike.top/Article/details/033313047435.shtml)
+- 2026-06-29 11:38 - [韩国称其运载原油船只安全驶离红海](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](http://www.share.kurohicncr.top/Article/details/6849624.shtml)
+- 2026-06-29 11:45 - [上海外贸进出口总值实现“季、月双创纪录”开局](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [中国国防部：敦促日方同军国主义彻底切割](http://www.share.kurohicncr.top/Article/details/892735588.shtml)
+- 2026-06-29 11:46 - [中国财长出席2026年G20财长和央行行长第一次会议](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [翰思艾泰-B于4月15日耗资约61.99万港元回购2.15万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [全球建筑泰斗诺曼·福斯特到访维晟中心，北京CBD核心区再添大师印记](https://github.com/lisacumin64-arch)

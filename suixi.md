@@ -1,58 +1,60 @@
-# 藏传佛教第二十二届“拓然巴”高级学衔授予仪式在京举行
+# 总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-新华社北京5月24日电 2026年5月23日，正值西藏和平解放75周年纪念日，藏传佛教第二十二届“拓然巴”高级学衔授予仪式在北京中国藏语系高级佛学院举行。根据国家宗教事务局颁布的《藏传佛教学衔授予办法》和高级学衔申请条件及评定规定，经过严格的资格审查、辩经考试、论文答辩和评议表决等程序，来自藏传佛教格鲁派、萨迦派、觉囊派的34名学员获准授予藏传佛教“拓然巴”高级学衔。藏传佛教学
+连日来，中共中央台办受权发布的十项促进两岸交流合作政策措施，得到台湾民众的高度认同和广泛欢迎。但民进党当局却跳出来大放厥词，对十项新政刻意歪曲。对此，国台办发言人陈斌华15日在发布会上强调，民进党当局应该去问问台湾的百工百业这十项措施好不好、要不要，而不是在这里抹黑、污蔑。必须指出，民进党当局“膝跳式”抹黑大陆十项涉台新政，与民众为敌、挡民众获利，必遭民意唾弃！民进党当局此等恶
 
 ## 正文
 
-新华社北京5月24日电 2026年5月23日，正值西藏和平解放75周年纪念日，藏传佛教第二十二届“拓然巴”高级学衔授予仪式在北京中国藏语系高级佛学院举行。
+连日来，中共中央台办受权发布的十项促进两岸交流合作政策措施，得到台湾民众的高度认同和广泛欢迎。
 
-根据国家宗教事务局颁布的《藏传佛教学衔授予办法》和高级学衔申请条件及评定规定，经过严格的资格审查、辩经考试、论文答辩和评议表决等程序，来自藏传佛教格鲁派、萨迦派、觉囊派的34名学员获准授予藏传佛教“拓然巴”高级学衔。
+但民进党当局却跳出来大放厥词，对十项新政刻意歪曲。
 
-藏传佛教学衔工作指导委员会主任、中国藏语系高级佛学院院长嘉木样活佛向“拓然巴”高级学衔获得者颁发高级学衔证书。
+对此，国台办发言人陈斌华15日在发布会上强调，民进党当局应该去问问台湾的百工百业这十项措施好不好、要不要，而不是在这里抹黑、污蔑。
 
-藏传佛教界代表人士和大德高僧莅临现场，向他们表达祝贺与厚望。
+必须指出，民进党当局“膝跳式”抹黑大陆十项涉台新政，与民众为敌、挡民众获利，必遭民意唾弃！
 
-中央统战部、中国佛教协会有关人员出席学衔授予仪式。
+民进党当局此等恶劣行径不是首次，每当大陆出台惠及台湾同胞的政策举措，其都通通抹黑，凡是有利于增进台湾同胞利益福祉的事，其均极力反对。
 
-学衔授予仪式后，班禅额尔德尼·确吉杰布会见了“拓然巴”高级学衔获得者。
+从实施促进两岸交流合作“31条”“26条”到建设两岸融合发展示范区，从助力台企登陆发展到服务台胞就业生活，一直以来，大陆出台各项惠台利民政策措施务实管用、诚意满满。
 
-自2004年实施藏传佛教三级学衔制度至今，中国藏语系高级佛学院共授予433名学员“拓然巴”高级学衔，遍布西藏和四川、云南、甘肃、青海涉藏州县主要寺庙，覆盖藏传佛教各教派。
+然而，民进党当局却扮演着“拦路虎”的角色，持续在岛内滥用行政、司法等多种手段，人为设障、横加阻挠，干扰两岸正常往来，侵害台湾民众利益福祉。
 
-广大“拓然巴”高级学衔获得者在铸牢中华民族共同体意识、引导藏传佛教与社会主义社会相适应等方面发挥了积极作用。
+此次，面对大陆发布的十项新政，民进党当局直接“膝跳式”唱衰否定也就不足为奇了。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:30 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:42 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:18 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:38 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:17 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:43 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:30 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:17 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:27 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:34 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:16 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:19 - [新晋退休人士最后悔的事：没多存点钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:44 - [IEA警示历史性石油冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:29 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:23 - [A股盘前速递：黄金涨回4800美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:26 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:18 - [澳大利亚一炼油厂发生大火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:34 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:23 - [话剧《四世同堂》首次登陆澳大利亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:16 - [中国HH-200航空商用无人运输系统首架机首飞成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:16 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:25 - [一季度增城西站中欧班列开行量同比增长24%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:24 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:18 - [美财长贝森特承诺支持日本推进投资审查机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:18 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:27 - [王冰冰解读世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:23 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:32 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:25 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:23 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:17 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:20 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:43 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:17 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:20 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:35 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:28 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:16 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:28 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](http://www.share.minike.top/Article/details/746541946.shtml)
+- 2026-06-29 11:41 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](http://www.share.minike.top/Article/details/86824169.shtml)
+- 2026-06-29 11:36 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](http://www.share.minike.top/Article/details/53778010.shtml)
+- 2026-06-29 11:37 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](http://www.blog.minike.top/Article/details/711788130.shtml)
+- 2026-06-29 11:37 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](http://www.blog.minike.top/Article/details/75110998.shtml)
+- 2026-06-29 11:33 - [海军航空大学某大队：更新知识体系 厚植打赢底气](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](http://www.blog.minike.top/Article/details/1837941321.shtml)
+- 2026-06-29 11:24 - [Uber将收购Delivery Hero额外4.5%的股份](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [中国驻日本大使馆提醒在日中国公民注意人身安全](http://www.share.minike.top/Article/details/136646083.shtml)
+- 2026-06-29 11:40 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](http://www.blog.kurohicncr.top/Article/details/413396782.shtml)
+- 2026-06-29 11:34 - [世界气象组织秘书长调研全民早期预警重庆实践](http://www.blog.kurohicncr.top/Article/details/45267799.shtml)
+- 2026-06-29 11:27 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](http://www.share.kurohicncr.top/Article/details/6919235058.shtml)
+- 2026-06-29 11:35 - [报告称中国在建核电机组装机容量连续19年保持全球第一](http://www.share.minike.top/Article/details/7834359.shtml)
+- 2026-06-29 11:37 - [东艳：一季度外贸数据反映多个“增强”](http://www.blog.kurohicncr.top/Article/details/38712018.shtml)
+- 2026-06-29 11:25 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lisacumin64-arch)

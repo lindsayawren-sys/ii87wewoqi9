@@ -1,49 +1,60 @@
-# 国家防总针对湖北、重庆启动防汛四级应急响应
+# 话剧《四世同堂》首次登陆澳大利亚
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-中新网5月23日电 据应急管理部微信公众号消息，5月23日，国家防总办公室、应急管理部组织气象、水利、自然资源等部门和湖北、重庆、陕西等重点省份，会商研判23日至27日新一轮强降雨过程发展趋势，部署重点地区防汛工作。根据《国家防汛抗旱应急预案》及有关规定，国家防总于23日15时针对湖北、重庆启动防汛四级应急响应，继续维持针对湖南的防汛四级应急响应。 国家防总办公室派出工作组赴湖
+中新社悉尼4月16日电 (记者 薄雯雯)由中国国家话剧院出品、演出的话剧《四世同堂》16日晚在澳大利亚悉尼首演。 该剧改编自老舍同名小说，由中国国家话剧院院长田沁鑫执导，以抗日战争时期北平小羊圈胡同为叙事空间，通过祁家四代人与街坊邻里的命运沉浮，勾勒出普通民众在乱世中的坚守与抗争。自2010年首演以来，该剧已在全球70余座城市巡演，演出超400场。 在首演前举行的招待会上，中国
 
 ## 正文
 
-中新网5月23日电 据应急管理部微信公众号消息，5月23日，国家防总办公室、应急管理部组织气象、水利、自然资源等部门和湖北、重庆、陕西等重点省份，会商研判23日至27日新一轮强降雨过程发展趋势，部署重点地区防汛工作。
+中新社悉尼4月16日电 (记者 薄雯雯)由中国国家话剧院出品、演出的话剧《四世同堂》16日晚在澳大利亚悉尼首演。
 
-根据《国家防汛抗旱应急预案》及有关规定，国家防总于23日15时针对湖北、重庆启动防汛四级应急响应，继续维持针对湖南的防汛四级应急响应。
+该剧改编自老舍同名小说，由中国国家话剧院院长田沁鑫执导，以抗日战争时期北平小羊圈胡同为叙事空间，通过祁家四代人与街坊邻里的命运沉浮，勾勒出普通民众在乱世中的坚守与抗争。
 
-国家防总办公室派出工作组赴湖北协助指导防汛工作。
+自2010年首演以来，该剧已在全球70余座城市巡演，演出超400场。
+
+在首演前举行的招待会上，中国驻悉尼总领事王愚致辞表示，《四世同堂》是中国现代文学的经典之作，以普通家庭的悲欢离合，折射出中华民族坚韧不屈、守望相助的家国情怀，承载着厚重的中华文化底蕴与人文精神。
+
+此次话剧《四世同堂》登陆悉尼舞台，不仅为澳大利亚观众带来一场高水准的艺术盛宴，更为中澳两国民众打开了一扇相互感知、增进理解的文化之窗。
+
+中国对外文化集团有限公司董事长郭利群介绍，话剧《四世同堂》是文化交流品牌“中华风韵”2026年度精品剧目，旨在让海外民众近距离感受中国文化的独特韵味。
+
+他表示，相信这部镌刻着民族记忆、承载着家国情怀的史诗话剧，将让澳大利亚观众在沉浸式观赏中感受中国文学魅力、读懂中国文化内涵。
+
+“我们跨越赤道带来的不仅是一部话剧，更是老舍先生笔下那座‘北平城’的温度，是一次跨越时空的文化重逢，也是献给海外华人的‘一封家书’。
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:25 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:40 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:30 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:20 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:25 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:38 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:28 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:18 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:41 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:39 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:19 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:27 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:34 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:37 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:29 - [韩国第一季度接待外国游客476万人次，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:45 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:46 - [采购商谈消博会：这里是一座“全球好物中转站”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:45 - [渤海银行：首席信息官谢凯任职资格获批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:39 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:20 - [国际能源署署长：欧洲仅剩够用6周航空燃油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:26 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:42 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:42 - [酒价内参4月17日价格发布，青花郎下跌2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:23 - [外交部提醒赴美国中国公民注意入境安全风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:42 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:41 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:14 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:19 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:42 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:21 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:34 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:18 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:22 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:31 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:17 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:37 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:14 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:17 - [又见大“肉签”！301666，中一签最高赚近10万元](http://www.share.minike.top/Article/details/24344419.shtml)
+- 2026-06-29 11:32 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [中越签署一系列合作文件](http://www.blog.minike.top/Article/details/452410.shtml)
+- 2026-06-29 11:33 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](http://www.blog.kurohicncr.top/Article/details/424848581.shtml)
+- 2026-06-29 11:32 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](http://www.share.kurohicncr.top/Article/details/9216646539.shtml)
+- 2026-06-29 11:17 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](http://www.share.minike.top/Article/details/330997644392.shtml)
+- 2026-06-29 11:26 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](http://www.blog.minike.top/Article/details/4772689032.shtml)
+- 2026-06-29 11:40 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](http://www.share.kurohicncr.top/Article/details/815018.shtml)
+- 2026-06-29 11:24 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](http://www.blog.minike.top/Article/details/294285.shtml)
+- 2026-06-29 11:40 - [浙江舟山嵊泗：“东海鲜”下船上岸](http://www.share.minike.top/Article/details/64703847148.shtml)
+- 2026-06-29 11:39 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](http://www.share.kurohicncr.top/Article/details/2693802.shtml)
+- 2026-06-29 11:39 - [Stellantis与微软合作部署逾百款AI工具](http://www.blog.minike.top/Article/details/863835590.shtml)
+- 2026-06-29 11:44 - [日本财务大臣：与美国财长密切讨论了外汇问题](http://www.blog.minike.top/Article/details/8486931.shtml)
+- 2026-06-29 11:36 - [多份联储报告显示美国物价飙升](http://www.blog.minike.top/Article/details/73370274976.shtml)

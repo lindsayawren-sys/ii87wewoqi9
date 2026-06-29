@@ -1,56 +1,56 @@
-# 优必选午后涨超9% 西部证券维持“买入”评级
+# 中国驻日大使馆接连遭到恐怖威胁
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-优必选（09880）午后涨超9%，截至发稿，股价上涨9.07%，现报122.70港元，成交额16.57亿港元。 5月20日，优必选创始人周剑于微博发文宣布，公司推出消费级人形机器人品牌优世界UWORLD。据了解，“消费级人形机器人”的场景主要面向个人与家庭，当前阶段以情感陪伴、教育娱乐等为核心落地用途，并开始向通用任务服务探索。目前市场已呈现出明显的分层态势，从万元以内的尝鲜级
+今天(4月16日)下午，中国驻日本大使馆举行新闻发布会，临时代办施泳向媒体介绍了近段时间以来驻日使馆接连遭受到恐怖威胁的情况。 施泳表示，3月5日，自称由日本前警察和前自卫队队员组成的组织向使馆寄出恐吓信，威胁称将对中国驻日使领馆发动袭击，使馆收到恐吓信后报警，但日本警方未给予重视，未采取有力措施，至今没有查明事实真相。在19天后，就发生了现役自卫队官员村田晃大持刀翻墙闯入中国
 
 ## 正文
 
-优必选（09880）午后涨超9%，截至发稿，股价上涨9.07%，现报122.70港元，成交额16.57亿港元。
+今天(4月16日)下午，中国驻日本大使馆举行新闻发布会，临时代办施泳向媒体介绍了近段时间以来驻日使馆接连遭受到恐怖威胁的情况。
 
-5月20日，优必选创始人周剑于微博发文宣布，公司推出消费级人形机器人品牌优世界UWORLD。
+施泳表示，3月5日，自称由日本前警察和前自卫队队员组成的组织向使馆寄出恐吓信，威胁称将对中国驻日使领馆发动袭击，使馆收到恐吓信后报警，但日本警方未给予重视，未采取有力措施，至今没有查明事实真相。
 
-据了解，“消费级人形机器人”的场景主要面向个人与家庭，当前阶段以情感陪伴、教育娱乐等为核心落地用途，并开始向通用任务服务探索。
+在19天后，就发生了现役自卫队官员村田晃大持刀翻墙闯入中国使馆的严重事件，中方紧急向日本外务省、警方提出严正交涉。
 
-目前市场已呈现出明显的分层态势，从万元以内的尝鲜级产品，到瞄准未来家庭服务的通用型产品，走向大众的脚步正在持续加快。
+闯馆事件仅一周后，3月31日，又一名自称应急预备自卫官的人通过网络向使馆发出恐怖威胁，称其在中国使馆内安装了远距离遥控炸弹，使馆立即向警方报警，日本警方当天对使馆展开了近两个小时的排弹作业。
 
-西部证券研究指，近日优必选与日立（中国）有限公司正式签署战略合作协议书。
+中国驻日本大使馆表示，上述事件严重违反国际法，严重侵犯中国主权和尊严，威胁中方外交人员的安全和外交机构的馆舍安全，性质影响极恶劣。
 
-根据此次协议书，双方将在日立集团具有市场竞争力的电梯、楼宇系统、医疗健康、工业设备及半导体制造设备等领域展开深度合作，充分发挥优必选在人形机器人方面的技术优势，以及日立在智能制造与系统集成领域的丰富经验，共同开发适用于不同生产场景的智能化解决方案。
-
-该机构表示，25年公司人形机器人营收大增，已经跃升为公司第一大收入来源。
-
-产能方面，截至2025年底，优必选全尺寸具身智能人形机器人已实现年化产能超6000台，为规模化交付奠定了产能基础。
+（来源：CCTV国际时讯）
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:41 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:35 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:31 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:41 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:25 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:26 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:30 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:21 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:27 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:45 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:19 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:20 - [中国国家中医药管理局原局长于文明被公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:20 - [德意志银行预计美联储2026年将维持利率不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:21 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:39 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:23 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:21 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:22 - [市场监管总局：将深入开展CCC认证守底线专项行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:20 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:20 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:40 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:25 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:42 - [中东局势变化对我国外贸有何影响？国家统计局回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:28 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:21 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:17 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:16 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:23 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:19 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:37 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:35 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:42 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:36 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:22 - [中国HH-200航空商用无人运输系统首架机首飞成功](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [西班牙雷普索尔重获委内瑞拉石油资产控制权](http://www.share.minike.top/Article/details/60737.shtml)
+- 2026-06-29 11:33 - [一季度增城西站中欧班列开行量同比增长24%](http://www.blog.minike.top/Article/details/1359206.shtml)
+- 2026-06-29 11:32 - [美军在东太平洋打击所谓“贩毒船” 致3人死亡](http://www.share.minike.top/Article/details/128191703.shtml)
+- 2026-06-29 11:41 - [美财长贝森特承诺支持日本推进投资审查机制](http://www.share.kurohicncr.top/Article/details/3316566.shtml)
+- 2026-06-29 11:28 - [智云股份（300097）投资者索赔再获法院立案，前期已有胜诉](http://www.blog.kurohicncr.top/Article/details/643288.shtml)
+- 2026-06-29 11:34 - [龙蟠科技发盈喜 预期第一季度归母净利润2.00亿元至2.50亿元同比扭亏为盈](http://www.blog.kurohicncr.top/Article/details/670156238.shtml)
+- 2026-06-29 11:27 - [宁德时代：2026年第一季度实现营业收入1291.31亿元](http://www.blog.kurohicncr.top/Article/details/699324676.shtml)
+- 2026-06-29 11:39 - [海外采购商广交会叹中国科技发展：这里仿佛生活在2050年](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [中国专家最新研究为全球川崎病患者急性期治疗提供科学策略](http://www.share.kurohicncr.top/Article/details/06123232013.shtml)
+- 2026-06-29 11:21 - [韩国第一季度接待外国游客476万人次，创历史新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [304亿元大红包！宁德时代回应“配售50亿美元股票”传闻](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:16 - [采购商谈消博会：这里是一座“全球好物中转站”](http://www.share.kurohicncr.top/Article/details/5797112.shtml)
+- 2026-06-29 11:34 - [渤海银行：首席信息官谢凯任职资格获批](http://www.share.kurohicncr.top/Article/details/43900.shtml)
+- 2026-06-29 11:16 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](http://www.share.minike.top/Article/details/776126.shtml)

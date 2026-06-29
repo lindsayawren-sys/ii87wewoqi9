@@ -1,51 +1,56 @@
-# 两部门：落实野生动物致害补偿，探索建立保险赔偿制度
+# 丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-5月22日金融一线消息，国家发展改革委、财政部关于印发《推进生态综合补偿实施方案》的通知。其中提出，加强野生动物致害监测预警防控，开展致害情况评估，落实野生动物致害补偿，探索建立保险赔偿制度。引导金融机构在依法合规、风险可控、商业可持续的前提下，开发与资源环境要素相关的绿色信贷、绿色保险、绿色债券等金融产品和服务，按照市场化法治化原则为符合条件的各类生态产业项目提供融资支持。责
+中新社阿什哈巴德4月16日电 4月16日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德会见土库曼斯坦总统谢尔达尔·别尔德穆哈梅多夫。 丁薛祥首先转达了习近平主席的亲切问候和良好祝愿，表示去年习近平主席同总统先生两度会晤，为双边关系发展擘画了新蓝图。中土关系根植于两千多年的友好交往史，相互支持是两国全面战略伙伴关系的核心要义。中方始终支持土方维护国家独立、主权和领土完整，始
 
 ## 正文
 
-5月22日金融一线消息，国家发展改革委、财政部关于印发《推进生态综合补偿实施方案》的通知。
+中新社阿什哈巴德4月16日电 4月16日，中共中央政治局常委、国务院副总理丁薛祥在阿什哈巴德会见土库曼斯坦总统谢尔达尔·别尔德穆哈梅多夫。
 
-其中提出，加强野生动物致害监测预警防控，开展致害情况评估，落实野生动物致害补偿，探索建立保险赔偿制度。
+丁薛祥首先转达了习近平主席的亲切问候和良好祝愿，表示去年习近平主席同总统先生两度会晤，为双边关系发展擘画了新蓝图。
 
-引导金融机构在依法合规、风险可控、商业可持续的前提下，开发与资源环境要素相关的绿色信贷、绿色保险、绿色债券等金融产品和服务，按照市场化法治化原则为符合条件的各类生态产业项目提供融资支持。
+中土关系根植于两千多年的友好交往史，相互支持是两国全面战略伙伴关系的核心要义。
 
-责任编辑：王馨茹
+中方始终支持土方维护国家独立、主权和领土完整，始终支持土方奉行永久中立政策，始终做土方值得信赖的合作伙伴，也希望土方在涉及中方核心利益和重大关切问题上继续予以坚定支持。
+
+丁薛祥指出，中国全国两会审查批准了“十五五”规划纲要，对未来五年经济社会发展作出部署安排，给包括土库曼斯坦在内的世界各国带来更多机遇。
+
+中方愿本着互利共赢原则，同土方不断拓展合作空间，共谋发展繁荣。
+
+双方要深化天然气合作，打造互联互通、经贸投资、科技创新等领域务实合作新亮点，切实造福两国人民。
+
+别尔德穆哈梅多夫请丁薛祥转达对习近平主席的诚挚问候，表示土方高度重视土中全面战略伙伴关系，由衷钦佩中国发展成就，愿同中方积极推进落实双方共识，坚持把天然气合作作为优先方向，加强基础设施建设、高科技、农业、人文、安全等各领域务实合作，推动土中关系迈上新台阶。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:16 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:30 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:29 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:36 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:38 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:40 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:35 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:24 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:29 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:40 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:24 - [酒价内参4月17日价格发布，古井贡古20下跌6元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:24 - [新晋退休人士最后悔的事：没多存点钱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:36 - [IEA警示历史性石油冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:41 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:43 - [A股盘前速递：黄金涨回4800美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:17 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:28 - [澳大利亚一炼油厂发生大火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:26 - [高尔夫球重庆女子公开赛挥杆 首轮彭严萱63杆破纪录领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:27 - [话剧《四世同堂》首次登陆澳大利亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:22 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:39 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:27 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:28 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:19 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:38 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:17 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:18 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:19 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:41 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:22 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:42 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:14 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:17 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:42 - [红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月](http://www.share.minike.top/Article/details/82935556608.shtml)
+- 2026-06-29 11:44 - [新疆新设草湖市](http://www.share.minike.top/Article/details/1475018300.shtml)
+- 2026-06-29 11:38 - [摩根大通CEO杰米·戴蒙出售价值4,000万美元摩根大通股票](http://www.blog.kurohicncr.top/Article/details/007937.shtml)
+- 2026-06-29 11:44 - [4月17日美股成交额前20：AMD创历史新高，分析称CPU需求爆发将使其受益](http://www.blog.minike.top/Article/details/57218756.shtml)
+- 2026-06-29 11:17 - [日本警察厅长官：必须防止强闯中国使馆类似事件再次发生](http://www.blog.minike.top/Article/details/5140266.shtml)
+- 2026-06-29 11:20 - [特种电子气体龙头2025年净利润下降26.75%！三大员工持股平台3年半9次发布减持计划，已套现超10亿元](http://www.blog.kurohicncr.top/Article/details/50436555.shtml)
+- 2026-06-29 11:29 - [美国制造业产值一季度反弹 增长扩大到AI领域之外](http://www.blog.kurohicncr.top/Article/details/8938865131.shtml)
+- 2026-06-29 11:18 - [海军航空大学某大队：更新知识体系 厚植打赢底气](http://www.share.kurohicncr.top/Article/details/78931.shtml)
+- 2026-06-29 11:22 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](http://www.blog.kurohicncr.top/Article/details/7095262.shtml)
+- 2026-06-29 11:45 - [Uber将收购Delivery Hero额外4.5%的股份](http://www.blog.kurohicncr.top/Article/details/19954495217.shtml)
+- 2026-06-29 11:33 - [中国驻日本大使馆提醒在日中国公民注意人身安全](http://www.blog.minike.top/Article/details/939197673.shtml)
+- 2026-06-29 11:20 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](http://www.share.kurohicncr.top/Article/details/1589571715.shtml)
+- 2026-06-29 11:26 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:16 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](http://www.blog.minike.top/Article/details/08155.shtml)
+- 2026-06-29 11:20 - [报告称中国在建核电机组装机容量连续19年保持全球第一](http://www.blog.minike.top/Article/details/82575243166.shtml)

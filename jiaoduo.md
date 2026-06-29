@@ -1,51 +1,59 @@
-# 国家卫健委：调派专家会同当地组成联合救治工作组 “一人一策”加强伤员救治
+# 一季度郑州机场国际货运量同比增长21.8%
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-2026年5月22日，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。 国家卫生健康委全力支持山西省做好伤员医疗救治和心理疏导等工作，迅速派出委分管负责同志和有关司局同志赶至现场指导应急救治调度；第一时间组织北京大学人民医院(国家创伤医学中心)和中日友好医院(国家呼吸医学中心)重症、呼吸、创伤专业专家，对收治伤员进行多学科远程会诊；调派北京
+中新网郑州4月16日电 (阚力 张楠)15日，记者走进郑州机场北货运站看到，无人叉车在智能货站精准穿梭作业，跨境电商包裹整齐码放待运，刚抵港的进口榴莲在生鲜冷链查验区快速通关。 郑州海关统计显示，目前，郑州机场累计监管国际货运航线达34条，货物直达欧美亚31个城市、25个国家。一季度，监管进出境航班4850架次，同比增长11.8%；国际地区货邮量16.32万吨，同比增长21.8
 
 ## 正文
 
-2026年5月22日，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
+中新网郑州4月16日电 (阚力 张楠)15日，记者走进郑州机场北货运站看到，无人叉车在智能货站精准穿梭作业，跨境电商包裹整齐码放待运，刚抵港的进口榴莲在生鲜冷链查验区快速通关。
 
-国家卫生健康委全力支持山西省做好伤员医疗救治和心理疏导等工作，迅速派出委分管负责同志和有关司局同志赶至现场指导应急救治调度；第一时间组织北京大学人民医院(国家创伤医学中心)和中日友好医院(国家呼吸医学中心)重症、呼吸、创伤专业专家，对收治伤员进行多学科远程会诊；调派北京协和医院、北京积水潭医院(国家骨科医学中心)呼吸重症、创伤、烧伤专业专家赶至伤员收治医院，会同当地组成联合救治工作组，“一人一策”全力加强伤员救治；指导山西省选派省、市心理专家，对伤员及家属开展心理疏导支持。
+郑州海关统计显示，目前，郑州机场累计监管国际货运航线达34条，货物直达欧美亚31个城市、25个国家。
 
-国家卫生健康委将持续支持山西省做好伤员医疗救治等工作，根据需要随时调派国家级医疗力量，最大程度保障伤员生命安全。
+一季度，监管进出境航班4850架次，同比增长11.8%；国际地区货邮量16.32万吨，同比增长21.8%，排名连续9年稳居全国第五、中西部第一。
 
-同时，做好卫生健康领域安全生产风险隐患排查整治，加强值班值守，努力统筹发展和安全。
+“这说明‘空中丝绸之路’的通道优势正在持续释放，枢纽能级稳步提升。
 
-(总台央视记者 文永毅 史迎春)
+”郑州机场海关物流监控科二级主办杜蔷受访时表示， 郑卢“空中丝绸之路”金字招牌持续擦亮，双枢纽联动效应凸显。
+
+一季度，郑州海关监管卢森堡航线货邮量达3.35万吨，占口岸国际货邮量的20.5%。
+
+通过广泛使用第五航权，航线网络直达伦敦、芝加哥、新加坡等第三方站点，真正实现“一点连三洲、一线串欧美”。
+
+同时，中匈关际合作落地见效。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:21 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:43 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:27 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:41 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:29 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:30 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:31 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:24 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:32 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:17 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:19 - [云南印发实施意见全面推进共有精神家园建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:44 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:24 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:20 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:44 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:19 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:33 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:17 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:21 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:40 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:37 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:46 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:14 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:26 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:29 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:16 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:39 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:39 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:28 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:43 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:16 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:37 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:35 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:19 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:14 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:15 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:40 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:19 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](http://www.share.kurohicncr.top/Article/details/73991.shtml)
+- 2026-06-29 11:45 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](http://www.share.kurohicncr.top/Article/details/256827.shtml)
+- 2026-06-29 11:30 - [长光辰芯首挂上市 早盘高开81.80%](http://www.blog.minike.top/Article/details/06620.shtml)
+- 2026-06-29 11:35 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](http://www.blog.kurohicncr.top/Article/details/8223899980.shtml)
+- 2026-06-29 11:25 - [中国向伊朗提供紧急人道主义援助](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](http://www.share.minike.top/Article/details/083439354137.shtml)
+- 2026-06-29 11:38 - [浙江启用防汛防台机器狗“AI防汛勇士”](http://www.share.minike.top/Article/details/1782216.shtml)
+- 2026-06-29 11:42 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.share.kurohicncr.top/Article/details/815158.shtml)
+- 2026-06-29 11:42 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](http://www.share.kurohicncr.top/Article/details/45215105.shtml)
+- 2026-06-29 11:44 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](http://www.share.minike.top/Article/details/49661802.shtml)
+- 2026-06-29 11:29 - [受伊朗战争持续影响，欧洲股市料将低开](http://www.blog.minike.top/Article/details/352119612.shtml)
+- 2026-06-29 11:32 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](http://www.share.minike.top/Article/details/374839.shtml)
+- 2026-06-29 11:33 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.blog.kurohicncr.top/Article/details/678401.shtml)
+- 2026-06-29 11:34 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lisacumin64-arch)

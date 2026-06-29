@@ -1,50 +1,56 @@
-# 时习之丨保护住这一块“净土”
+# 中国驻日本大使馆提醒在日中国公民注意人身安全
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-2021年7月，习近平总书记到西藏考察调研，来到尼洋河大桥，实地察看雅鲁藏布江及尼洋河流域生态环境保护情况。他语重心长地说：“要坚持保护优先，坚持山水林田湖草沙冰一体化保护和系统治理”“守护好这里的生灵草木、万水千山”。 2016年至2025年6月，尼洋河流域新增人工造林27.8万亩、治理沙化土地19.3万亩、抚育森林41万亩。西藏全区50%以上的国土纳入生态保护红线，共设立生
+中新网4月17日电 据中国驻日本大使馆微信公众号消息，近年来，日本社会治安环境持续恶化。据日本警察厅统计，2021年至2025年，日本涉嫌违反刑法的犯罪案件逐年增加，自56.8万件增加至77.4万件。杀人、抢劫、放火、强奸、拐卖、猥亵等重罪由8821件增长至15086件，增长约71%。近日，日本自卫队现役人员持刀翻墙闯入中国驻日本大使馆，右翼分子公然滋扰观看马拉松比赛的中国公民
 
 ## 正文
 
-2021年7月，习近平总书记到西藏考察调研，来到尼洋河大桥，实地察看雅鲁藏布江及尼洋河流域生态环境保护情况。
+中新网4月17日电 据中国驻日本大使馆微信公众号消息，近年来，日本社会治安环境持续恶化。
 
-他语重心长地说：“要坚持保护优先，坚持山水林田湖草沙冰一体化保护和系统治理”“守护好这里的生灵草木、万水千山”。
+据日本警察厅统计，2021年至2025年，日本涉嫌违反刑法的犯罪案件逐年增加，自56.8万件增加至77.4万件。
 
-2016年至2025年6月，尼洋河流域新增人工造林27.8万亩、治理沙化土地19.3万亩、抚育森林41万亩。
+杀人、抢劫、放火、强奸、拐卖、猥亵等重罪由8821件增长至15086件，增长约71%。
 
-西藏全区50%以上的国土纳入生态保护红线，共设立生态岗位44万余个，人民群众在生态建设中吃上了生态饭、走上了致富路。
+近日，日本自卫队现役人员持刀翻墙闯入中国驻日本大使馆，右翼分子公然滋扰观看马拉松比赛的中国公民，中国留学生在东京街头遭“撞人族”冲撞，香港游客在北海道某餐厅遭殴打。
 
-策划：宋美琪 拍摄：唐宋
+有关案件反映出日本国内右翼势力活动日益猖獗，针对中国公民的歧视性案件显著增加，在日中国公民安全风险不断上升。
+
+中国驻日本大使馆郑重提醒在日中国公民切实提高安全防范意识，加强自我保护，尽量结伴外出，避免前往治安较差、人流集中的区域。
+
+如遇右翼分子、“撞人族”等滋扰挑衅，请优先保证自身安全，保持冷静、避免纠缠，注意保存证据，及时报警并联系驻日使领馆寻求协助。
+
+日本紧急求助电话：110(警察)、118(海上事故、海难)、119(消防、急救) 外交部全球领事保护与服务应急热线(24小时)：+86-10-12308，+86-10-65612308 驻日本大使馆领事保护与协助电话：+81-3-6450-2195 驻大阪总领馆领事保护与协助电话：+81-6-6445-9427 驻福冈总领馆领事保护与协助电话：+81-92-753-6483 驻札幌总领馆领事保护与协助电话：+81-11-513-5335 驻长崎总领馆领事保护与协助电话：+81-95-849-3311 驻名古屋总领馆领事保护与协助电话：+81-52-932-1036 驻新潟总领馆领事保护与协助电话：+81-25-228-8888
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:18 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:28 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:36 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:29 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:29 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:22 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:41 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:39 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:20 - [中越签署一系列合作文件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:35 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:39 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:30 - [时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:22 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:40 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:35 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:43 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:21 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:40 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:39 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:27 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:16 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:34 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:17 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:41 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:31 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:28 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:42 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:28 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:35 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:23 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:39 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:19 - [Glamox将为Sea1 Offshore的海上能源支持船提供照明](http://www.share.kurohicncr.top/Article/details/733905.shtml)
+- 2026-06-29 11:31 - [在“商量声”中生长：浙江杭州小古城村民主协商发“新枝”](http://www.share.kurohicncr.top/Article/details/3969950922.shtml)
+- 2026-06-29 11:37 - [伊朗最高领导人推动将黎巴嫩纳入美伊和谈](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [珠江委积极开展珠江流域水预算管理工作指引研究](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [京东养车赛道日全民见证国货轮胎硬核实力 玲珑大师2代京东独家预售](http://www.share.kurohicncr.top/Article/details/9567914.shtml)
+- 2026-06-29 11:30 - [港股硬科技再走强 同类规模最大港股通信息技术ETF(159131)冲高逾2% 机构看好港股二季度尤其是4-5月反弹机会](http://www.blog.minike.top/Article/details/59311853.shtml)
+- 2026-06-29 11:22 - [韩国、巴西两国部长商讨能源供应与中东风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [中信建投期货：4月16日工业品早报](http://www.blog.minike.top/Article/details/64342535489.shtml)
+- 2026-06-29 11:46 - [华凯易佰1.13亿收购深圳米品盛及香港纽瑞格：压力之下的精品化豪赌](http://www.blog.kurohicncr.top/Article/details/4419083.shtml)
+- 2026-06-29 11:27 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.blog.minike.top/Article/details/527606.shtml)
+- 2026-06-29 11:30 - [重要法案通过！流失在法国的中国国宝，何时能回家？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [胜宏科技公布发售价厘定为每股H股209.88港元](http://www.share.minike.top/Article/details/125087243.shtml)
+- 2026-06-29 11:39 - [IMF宣布恢复与委内瑞拉中断六年多的关系](http://www.share.kurohicncr.top/Article/details/51651.shtml)
+- 2026-06-29 11:31 - [145件作品摘获2025年河南省工业设计大赛奖项](http://www.blog.minike.top/Article/details/64302486.shtml)
+- 2026-06-29 11:26 - [以终身追责制推动政府投资决策回归初心](http://www.share.kurohicncr.top/Article/details/71874.shtml)

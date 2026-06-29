@@ -1,55 +1,60 @@
-# 学者共议公共政策与国家治理自主知识体系构建
+# 沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网北京5月22日电 (记者 李京泽)5月22日，“社科论坛(2026)——中国学派的‘公共政策与国家治理’学科建设与人才培养”学术研讨会在中国社会科学院举行。 本次研讨会汇聚全国政治学与公共管理领域专家学者，聚焦公共政策与国家治理自主知识体系构建、一流学科建设与卓越人才培养议题，共探中国学派建设路径，服务国家治理现代化战略需求。 中国社会科学院大学党委常委、副校长曾宇航说，
+014月16日A股三大指数全线收涨，创业板指突破3600点创11年新高，超4200只个股上涨。02宁德时代股价创新高，市值突破2万亿元，2026年一季度营收同比增长52.45%。03亚太股市主要股指全线上涨，日经225指数收涨2.38%，韩国综合指数涨2.21%。04算力产业链表现亮眼，宏景科技20CM涨停，国家统计局称人工智能商业化应用取得阶段性突破。05万联证券称锂电行业迈
 
 ## 正文
 
-中新网北京5月22日电 (记者 李京泽)5月22日，“社科论坛(2026)——中国学派的‘公共政策与国家治理’学科建设与人才培养”学术研讨会在中国社会科学院举行。
+014月16日A股三大指数全线收涨，创业板指突破3600点创11年新高，超4200只个股上涨。
 
-本次研讨会汇聚全国政治学与公共管理领域专家学者，聚焦公共政策与国家治理自主知识体系构建、一流学科建设与卓越人才培养议题，共探中国学派建设路径，服务国家治理现代化战略需求。
+02宁德时代股价创新高，市值突破2万亿元，2026年一季度营收同比增长52.45%。
 
-中国社会科学院大学党委常委、副校长曾宇航说，本次研讨会搭建学术交流平台，进一步深化中国社会科学院大学的科教融合改革，推动理论创新、实践成果与战略需求融入育人体系全过程，有效助力公共政策和国家治理自主知识体系构建与人才培养。
+03亚太股市主要股指全线上涨，日经225指数收涨2.38%，韩国综合指数涨2.21%。
 
-中国社会科学院政治学研究所所长兼中国社会科学院大学政府管理学院院长张树华提出，应厘清制度、体制、机制、体系及路线、方针、政策的关系，推动政治学向理论政治学与应用政治学分化发展，催生政策学、治理学等新兴学科。
+04算力产业链表现亮眼，宏景科技20CM涨停，国家统计局称人工智能商业化应用取得阶段性突破。
 
-在以“公共政策自主知识体系构建”为主旨报告环节，专家学者围绕建构路径、底层逻辑、学理重构等关键问题展开深度研讨；在以“中国特色的国家治理”为主题的另一场主旨报告中，与会嘉宾从基层治理、县域服务、政策扩散等维度，解读中国治理实践的理论内涵。
+05万联证券称锂电行业迈入增长新周期，建议关注产业链复苏与固态电池技术突破两大主线。
 
-本次研讨会作为“社科论坛(2026)”的重要学科分论坛，汇聚学界智慧，凝聚专家共识，明确了公共政策与国家治理学科中国学派的建设路径与人才培养方向。
+以上内容由传播大模型和DeepSeek生成，仅供参考4月16日，A股又是振奋人心的一天：三大指数全线收涨，创业板指表现尤为亮眼，盘中突破3600点整数关口，刷新自2015年6月以来的近11年新高，全市场超4200只个股上涨，赚钱效应显著。
 
-(完)
+其中，宁德时代大象起舞，股价续创新高，市值突破2万亿元。
+
+与此同时，今天亚太股市主要股指全线上涨，日经225指数收涨2.38%，再创新高，抹平美伊以战事以来的跌幅。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:28 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:40 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:15 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:28 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:21 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:16 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:37 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:40 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:15 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:26 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:43 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:17 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:33 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:32 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:27 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:30 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:43 - [4月16日人民币对美元中间价报6.8616 下调34个基点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:18 - [厦门钨业：子公司金龙稀土进入创新层](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:29 - [镜观·回响丨在交流中深化中越青年情谊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:35 - [中金：维持波司登跑赢行业评级 目标价5.65港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:23 - [酒价内参4月16日价格发布：青花郎领涨 总价再创近一月新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:21 - [邦达亚洲:美元下滑油价企稳 美元加元刷新3周低位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:46 - [伊朗称在与美国会谈期间讨论了解冻资产问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:20 - [商务部：截至4月12日，2026年消费品以旧换新销售额达5029.4亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:42 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:21 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:18 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:32 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:41 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:38 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:26 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:29 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:27 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:23 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:42 - [哈尔滨“全城追菠萝蜜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:41 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:34 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:19 - [云南印发实施意见全面推进共有精神家园建设](http://www.blog.minike.top/Article/details/4342940.shtml)
+- 2026-06-29 11:39 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.share.minike.top/Article/details/6103450.shtml)
+- 2026-06-29 11:45 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.blog.kurohicncr.top/Article/details/9262298757.shtml)
+- 2026-06-29 11:43 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](http://www.blog.kurohicncr.top/Article/details/369863.shtml)
+- 2026-06-29 11:35 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](http://www.blog.minike.top/Article/details/1504023215.shtml)
+- 2026-06-29 11:22 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](http://www.blog.kurohicncr.top/Article/details/14993698.shtml)
+- 2026-06-29 11:26 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](http://www.share.kurohicncr.top/Article/details/76642.shtml)
+- 2026-06-29 11:36 - [国家统计局：一季度全国居民人均可支配收入12782元](http://www.blog.kurohicncr.top/Article/details/403908.shtml)
+- 2026-06-29 11:26 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](http://www.blog.minike.top/Article/details/522443722.shtml)
+- 2026-06-29 11:39 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](http://www.blog.kurohicncr.top/Article/details/696655094350.shtml)
+- 2026-06-29 11:18 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](http://www.share.kurohicncr.top/Article/details/803876035403.shtml)
+- 2026-06-29 11:40 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](http://www.share.kurohicncr.top/Article/details/2373576924.shtml)
+- 2026-06-29 11:19 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lisacumin64-arch)

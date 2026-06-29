@@ -1,48 +1,58 @@
-# 杭州银行增资至72.5亿，增幅约22%
+# 商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-5月22日金融一线消息，天眼查App显示，近日，杭州银行股份有限公司发生工商变更，注册资本由约59.3亿人民币增至约72.5亿人民币，增幅约22%。该公司成立于1996年9月，法定代表人为宋剑斌，经营范围为银行业务，结汇、售汇业务，公募证券投资基金销售，证券投资基金托管，由杭州市财政局、红狮控股集团有限公司、杭州市城市建设投资集团有限公司等共同持股。责任编辑：王馨茹
+中新网4月16日电 商务部16日举行例行新闻发布会。会上，商务部新闻发言人何亚东介绍，2025年，我国科学研究和技术服务领域新设立的外资企业1.4万家，同比增长27.2%。 何亚东表示，外资研发中心是我国创新体系的重要组成部分。不少跨国公司在华“制造基地”正在升级为“创新策源地”，外资在华研发中心正在从本地化适配升级为全球创新支点。 2025年，我国科学研究和技术服务领域实际使
 
 ## 正文
 
-5月22日金融一线消息，天眼查App显示，近日，杭州银行股份有限公司发生工商变更，注册资本由约59.3亿人民币增至约72.5亿人民币，增幅约22%。
+中新网4月16日电 商务部16日举行例行新闻发布会。
 
-该公司成立于1996年9月，法定代表人为宋剑斌，经营范围为银行业务，结汇、售汇业务，公募证券投资基金销售，证券投资基金托管，由杭州市财政局、红狮控股集团有限公司、杭州市城市建设投资集团有限公司等共同持股。
+会上，商务部新闻发言人何亚东介绍，2025年，我国科学研究和技术服务领域新设立的外资企业1.4万家，同比增长27.2%。
 
-责任编辑：王馨茹
+何亚东表示，外资研发中心是我国创新体系的重要组成部分。
+
+不少跨国公司在华“制造基地”正在升级为“创新策源地”，外资在华研发中心正在从本地化适配升级为全球创新支点。
+
+2025年，我国科学研究和技术服务领域实际使用外资占我实际使用外资总额近五分之一，占比已连续7年稳步上升，是2018年3.8倍。
+
+2025年该领域新设立的外资企业1.4万家，同比增长27.2%。
+
+近年来，罗氏诊断、阿斯利康、飞利浦、保时捷、施耐德电气等一批跨国公司研发中心在华落地。
+
+何亚东指出，商务部持续加大外资研发中心的政策支持力度。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:28 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:34 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:43 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:27 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:32 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:16 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:38 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:30 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:38 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:21 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:39 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:41 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:44 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:31 - [国家统计局：一季度全国居民人均可支配收入12782元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:21 - [广西职校课堂变“非遗秀场” 外籍师生沉浸式体验“三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:32 - [创新硬件在广交会受青睐 AI硬件产品成采购“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:33 - [陆军某旅着力培养过硬兵棋骨干队伍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:20 - [致公党营口市委会召开2025年度参政议政总结会暨2026年度参政议政立题会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:31 - [莆台高校青年湄洲岛影像创作营在福建莆田启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:30 - [上美股份将于6月23日派发末期股息每股0.75元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:32 - [英国华侨华人恭拜轩辕黄帝大典在伦敦举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:19 - [中国驻日大使馆接连遭到恐怖威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:30 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:43 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:43 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:37 - [T1 3-0 TLAW数据雷达图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:35 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:34 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:18 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:30 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:41 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:19 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:37 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:17 - [浙江启用防汛防台机器狗“AI防汛勇士”](http://www.share.kurohicncr.top/Article/details/288375416131.shtml)
+- 2026-06-29 11:29 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](http://www.share.minike.top/Article/details/52973421.shtml)
+- 2026-06-29 11:43 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.share.minike.top/Article/details/04731689.shtml)
+- 2026-06-29 11:43 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](http://www.share.kurohicncr.top/Article/details/65228672578.shtml)
+- 2026-06-29 11:45 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [受伊朗战争持续影响，欧洲股市料将低开](http://www.blog.minike.top/Article/details/674475.shtml)
+- 2026-06-29 11:43 - [特朗普称对意大利总理梅洛尼感到震惊：她变了](http://www.blog.kurohicncr.top/Article/details/56510327.shtml)
+- 2026-06-29 11:43 - [连连数字于4月15日斥资99.71万港元回购16.25万股](http://www.share.minike.top/Article/details/242568236.shtml)
+- 2026-06-29 11:32 - [中东能源危机推动美国原油出口大增，接近历史最高水平](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [酒价内参4月17日价格发布，古井贡古20下跌6元](http://www.blog.kurohicncr.top/Article/details/8548067024.shtml)
+- 2026-06-29 11:28 - [新晋退休人士最后悔的事：没多存点钱](http://www.share.kurohicncr.top/Article/details/0675529.shtml)
+- 2026-06-29 11:29 - [IEA警示历史性石油冲击](http://www.blog.kurohicncr.top/Article/details/46964694896.shtml)
+- 2026-06-29 11:18 - [伊朗警告：美勿充当霍尔木兹海峡“警察”](http://www.share.kurohicncr.top/Article/details/581889124557.shtml)
+- 2026-06-29 11:41 - [A股盘前速递：黄金涨回4800美元](http://www.blog.kurohicncr.top/Article/details/89047617.shtml)
+- 2026-06-29 11:18 - [大美边疆看我家丨黑龙江大兴安岭：林海初醒 驯鹿漫步](http://www.blog.kurohicncr.top/Article/details/86304610.shtml)

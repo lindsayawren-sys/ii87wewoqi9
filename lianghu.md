@@ -1,48 +1,52 @@
-# 四川成渝高速公路将于7月13日派发末期股息每股0.340159港元
+# 东艳：一季度外贸数据反映多个“增强”
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-四川成渝高速公路（00107）发布公告，将于2026年7月13日派发截至2025年12月31日止年度的末期股息每股0.340159港元。责任编辑：卢昱君
+发布时间：2026年04月16日 18:22 来源：中国新闻网 国家统计局4月16日公布的中国一季度经济“成绩单”显示，货物进出口总额118380亿元，同比增长15.0%。中国社会科学院国家全球战略智库全球经济部主任东艳在中新社国是直通车“2026年一季度经济形势分析会”上表示，数据背后不仅是贸易自身的创新发展和外需的增强，也反映了一季度宏观经济动能的增强。既反映中国产业国际竞
 
 ## 正文
 
-四川成渝高速公路（00107）发布公告，将于2026年7月13日派发截至2025年12月31日止年度的末期股息每股0.340159港元。
+发布时间：2026年04月16日 18:22 来源：中国新闻网 国家统计局4月16日公布的中国一季度经济“成绩单”显示，货物进出口总额118380亿元，同比增长15.0%。
 
-责任编辑：卢昱君
+中国社会科学院国家全球战略智库全球经济部主任东艳在中新社国是直通车“2026年一季度经济形势分析会”上表示，数据背后不仅是贸易自身的创新发展和外需的增强，也反映了一季度宏观经济动能的增强。
+
+既反映中国产业国际竞争力的持续增强，也从消费等领域反映了国内市场吸引力的增强以及要素汇集能力的增强。
+
+(段修健 曹旭帆 制作 侯诗蕊） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:30 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:38 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:40 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:30 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:21 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:29 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:19 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:26 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:20 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:16 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:43 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:34 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:39 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:29 - [谁来广西都逃不过 机器人完美卡点跳“竹竿舞” 差点摔倒逗乐全场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:34 - [A股年内第二大“肉签”诞生，南京国资浮盈近50亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:35 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:44 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:26 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:39 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:30 - [Stellantis与微软合作部署逾百款AI工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:34 - [日本财务大臣：与美国财长密切讨论了外汇问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:19 - [多份联储报告显示美国物价飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:16 - [光大期货：4月16日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:43 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:28 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:32 - [近3万股东出走中际旭创](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:41 - [韩国称其运载原油船只安全驶离红海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:16 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:27 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:15 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:38 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:24 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:37 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:34 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:28 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:39 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:38 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:30 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:17 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:27 - [港股硬科技再走强 同类规模最大港股通信息技术ETF(159131)冲高逾2% 机构看好港股二季度尤其是4-5月反弹机会](http://www.share.minike.top/Article/details/16024.shtml)
+- 2026-06-29 11:22 - [韩国、巴西两国部长商讨能源供应与中东风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [中信建投期货：4月16日工业品早报](http://www.share.minike.top/Article/details/362456096820.shtml)
+- 2026-06-29 11:21 - [华凯易佰1.13亿收购深圳米品盛及香港纽瑞格：压力之下的精品化豪赌](http://www.share.minike.top/Article/details/35477558.shtml)
+- 2026-06-29 11:39 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.blog.minike.top/Article/details/13929.shtml)
+- 2026-06-29 11:27 - [重要法案通过！流失在法国的中国国宝，何时能回家？](http://www.blog.kurohicncr.top/Article/details/2503974495.shtml)
+- 2026-06-29 11:42 - [胜宏科技公布发售价厘定为每股H股209.88港元](http://www.blog.kurohicncr.top/Article/details/551016495.shtml)
+- 2026-06-29 11:36 - [IMF宣布恢复与委内瑞拉中断六年多的关系](http://www.share.minike.top/Article/details/5318899.shtml)
+- 2026-06-29 11:20 - [145件作品摘获2025年河南省工业设计大赛奖项](http://www.blog.kurohicncr.top/Article/details/84271450460.shtml)
+- 2026-06-29 11:44 - [以终身追责制推动政府投资决策回归初心](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [04月16日尿素1882.50元/吨 60天上涨4.87%](http://www.blog.minike.top/Article/details/6927260.shtml)
+- 2026-06-29 11:34 - [OpenAI推出药物研发AI模型 挑战谷歌](http://www.share.minike.top/Article/details/187061.shtml)
+- 2026-06-29 11:31 - [300076，业绩突发变脸，将被“*ST”](http://www.share.minike.top/Article/details/01704035.shtml)
+- 2026-06-29 11:21 - [美的集团获小摩增持约159.47万股 每股均价约85.90港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [英特尔推出低成本AI芯片，以扩大AI技术的普及](http://www.blog.kurohicncr.top/Article/details/595782.shtml)

@@ -1,59 +1,59 @@
-# 文博会“湾区T台”首秀：超级IP同框 科技与国风跨界碰撞
+# 东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-中新网深圳5月22日电 (记者 程景伟)大湾区本土文创IP梦幻联动，奶龙、大湾鸡等超级IP同框；人形机器人“星行侠P2”硬核首秀；非遗精品焕新登场……第二十二届文博会广东展团22日首次推出“湾区T台文博首秀”活动，近百件文化与科创产品登上T台。 “星行侠P2”以灵动的舞蹈拉开秀场大幕。这是一款“为场景而生”的人形机器人，不仅能翻跟斗、适应复杂地形，还能通过多语种对话、人脸识别主
+中新社上海4月16日电 题：塞万提斯学院助力西班牙与中国文化交流 ——专访上海塞万提斯学院院长伊莎贝尔·塞尔韦拉 中新社记者 樊中华 王笈 西班牙首相桑切斯于4月11日至15日对中国进行正式访问，这也是其四年内第四次访华。2024年，桑切斯在访华期间亲赴上海，参加上海西班牙文化中心—塞万提斯学院(下称“上海塞万提斯学院”)揭幕仪式。这所西班牙官方机构，以著名西班牙作家塞万提斯命
 
 ## 正文
 
-中新网深圳5月22日电 (记者 程景伟)大湾区本土文创IP梦幻联动，奶龙、大湾鸡等超级IP同框；人形机器人“星行侠P2”硬核首秀；非遗精品焕新登场……第二十二届文博会广东展团22日首次推出“湾区T台文博首秀”活动，近百件文化与科创产品登上T台。
+中新社上海4月16日电 题：塞万提斯学院助力西班牙与中国文化交流 ——专访上海塞万提斯学院院长伊莎贝尔·塞尔韦拉 中新社记者 樊中华 王笈 西班牙首相桑切斯于4月11日至15日对中国进行正式访问，这也是其四年内第四次访华。
 
-“星行侠P2”以灵动的舞蹈拉开秀场大幕。
+2024年，桑切斯在访华期间亲赴上海，参加上海西班牙文化中心—塞万提斯学院(下称“上海塞万提斯学院”)揭幕仪式。
 
-这是一款“为场景而生”的人形机器人，不仅能翻跟斗、适应复杂地形，还能通过多语种对话、人脸识别主动问候，实时切换40多种表情。
+这所西班牙官方机构，以著名西班牙作家塞万提斯命名，以西班牙语教学和文化传播为使命。
 
-随后，AI大湾鸡·文旅智能体萌趣登场，它懂纯正粤语，能聊广府美食、讲岭南故事。
+上海塞万提斯学院怎样助力中西两国文化交流互鉴？
 
-AI拍学机Cap轻巧版，用一颗苹果的重量把“百科世界”装进孩子掌心；陪伴型智能AI玩偶数字文旅IP橙龙把本土IP与智能科技丝滑结合；AI熊猫成为解压萌友，已从成都宽窄巷子火到海外……它们都把AI从云端拉入日常，让科技化作有温度的陪伴。
+中西民众对彼此语言学习的热情，会为两国多领域互信合作带来怎样的积极影响？
 
-T台之上，科技硬核，文化更是主角。
+中新社“东西问”专访上海塞万提斯学院院长伊莎贝尔·塞尔韦拉(Isabel Cervera)，对此进行解读。
 
-其中，“潮流x创意”T台主打“非遗+高级感”，尽显东方美学：科技珠宝内置自研智能芯片，让传统首饰让珠宝随动作、呼吸发光；景之蓝掐丝珐琅玉盘与珐琅首饰以非遗工艺演绎东方雅致；“坐享富贵”微纸凳、水晶石茶具与马年生肖摆件、三星堆青铜大面具摆件等工艺品纷纷亮相……每一件都是“会讲故事”的文化精品。
+现将访谈实录摘要如下： 中新社记者：您如何看待桑切斯首相四次访华为两国文化交流和互信合作带来的积极影响？
 
-从广州的海丝底蕴到东莞的文博新馆，再到深圳的科技文创，三地在T台上共同演绎城市群的文化交汇与创新活力。
+伊莎贝尔·塞尔韦拉：我们对桑切斯首相访华感到非常高兴。
 
 ## 相关推荐
 
-- 2026-06-29 11:17 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:15 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:21 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:27 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:19 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:23 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:18 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:40 - [张月一直记得陈瑶想当队长的遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:43 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:33 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:35 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:29 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:18 - [百余只白头鹤“经停”逊克湿地 休整补给后将继续北迁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:40 - [华裔Z视界｜黄金如何变金箔？印尼华裔青年体验非遗技艺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:43 - [浙江舟山嵊泗：“东海鲜”下船上岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:16 - [高盛：中金公司首季初步业绩远超预期 重申“买入”评级 目标价28.15港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:19 - [Stellantis与微软合作部署逾百款AI工具](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:41 - [日本财务大臣：与美国财长密切讨论了外汇问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:20 - [多份联储报告显示美国物价飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:27 - [光大期货：4月16日金融日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:44 - [浙江鼎力：2025年度净利润18.99亿元 同比增长16.6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:32 - [换帅风波半年后落定，险资系太平基金迎来新“话事人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:28 - [近3万股东出走中际旭创](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:27 - [韩国称其运载原油船只安全驶离红海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:37 - [【小新的vlog】台青“恺哥”勇闯泼水节：神曲《UP耿马》洗脑，被“特别照顾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:26 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:20 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:26 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:40 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:30 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:40 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:38 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:25 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:32 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:35 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:33 - [中信建投期货：4月16日工业品早报](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [华凯易佰1.13亿收购深圳米品盛及香港纽瑞格：压力之下的精品化豪赌](http://www.share.minike.top/Article/details/7547222.shtml)
+- 2026-06-29 11:36 - [光大期货0417黄金点评：谈判窗口延续，金价修复之路未变](http://www.blog.kurohicncr.top/Article/details/90834604.shtml)
+- 2026-06-29 11:17 - [重要法案通过！流失在法国的中国国宝，何时能回家？](http://www.blog.minike.top/Article/details/0277742.shtml)
+- 2026-06-29 11:30 - [胜宏科技公布发售价厘定为每股H股209.88港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [IMF宣布恢复与委内瑞拉中断六年多的关系](http://www.share.kurohicncr.top/Article/details/12528204.shtml)
+- 2026-06-29 11:39 - [145件作品摘获2025年河南省工业设计大赛奖项](http://www.share.kurohicncr.top/Article/details/0232231232.shtml)
+- 2026-06-29 11:41 - [以终身追责制推动政府投资决策回归初心](http://www.share.kurohicncr.top/Article/details/98382384.shtml)
+- 2026-06-29 11:24 - [04月16日尿素1882.50元/吨 60天上涨4.87%](http://www.blog.kurohicncr.top/Article/details/986463876.shtml)
+- 2026-06-29 11:36 - [OpenAI推出药物研发AI模型 挑战谷歌](http://www.blog.minike.top/Article/details/95247.shtml)
+- 2026-06-29 11:24 - [300076，业绩突发变脸，将被“*ST”](http://www.blog.minike.top/Article/details/30234174.shtml)
+- 2026-06-29 11:36 - [美的集团获小摩增持约159.47万股 每股均价约85.90港元](http://www.blog.minike.top/Article/details/740058.shtml)
+- 2026-06-29 11:31 - [英特尔推出低成本AI芯片，以扩大AI技术的普及](http://www.share.minike.top/Article/details/892901404.shtml)
+- 2026-06-29 11:42 - [返乡夫妻一年卖出近30万双麻鞋](http://www.blog.minike.top/Article/details/3436252.shtml)
+- 2026-06-29 11:19 - [首飞成功！中国自主研发“无人飞行卡车”来了](http://www.share.kurohicncr.top/Article/details/78409442.shtml)

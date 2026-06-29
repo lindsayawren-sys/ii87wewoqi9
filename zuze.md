@@ -1,58 +1,49 @@
-# 美国购房额外开销年均超2.3万美元，这类费用非固定不变，仍存在上涨空间
+# 铝业股午前集体走高 中国铝业涨超5%俄铝涨超3%
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-作者：迈克・温特斯 不少购房者认为办理固定利率房贷就能锁定住房开支，但敲定月供后，水电杂费、房产税、房屋保险、维保修缮等持续性额外花销仍会持续上涨。 房产资讯平台克莱弗地产 2026 年 3 月调研分析显示，美国房主每年房贷以外的住房相关开销平均达 23686 美元。若计入小区物业费，年均花费将近 2.8 万美元，已然超过约 2.5 万美元的年均房贷还款额。 服务平台乔伯 20
+铝业股午前集体走高，截至发稿，中国铝业（02600）上涨5.17%，报13.23港元；俄铝（00486）上涨3.08%，报4.35港元；中国宏桥（01378）上涨2.51%，报39.20港元；创新实业（02788）上涨0.58%，报31.08港元。责任编辑：卢昱君
 
 ## 正文
 
-作者：迈克・温特斯 不少购房者认为办理固定利率房贷就能锁定住房开支，但敲定月供后，水电杂费、房产税、房屋保险、维保修缮等持续性额外花销仍会持续上涨。
+铝业股午前集体走高，截至发稿，中国铝业（02600）上涨5.17%，报13.23港元；俄铝（00486）上涨3.08%，报4.35港元；中国宏桥（01378）上涨2.51%，报39.20港元；创新实业（02788）上涨0.58%，报31.08港元。
 
-房产资讯平台克莱弗地产 2026 年 3 月调研分析显示，美国房主每年房贷以外的住房相关开销平均达 23686 美元。
-
-若计入小区物业费，年均花费将近 2.8 万美元，已然超过约 2.5 万美元的年均房贷还款额。
-
-服务平台乔伯 2026 年 5 月针对千名房主开展的另一项调查显示，六成新晋购房者表示实际持房成本远超预期。
-
-独立广场顾问公司注册理财规划师兼首席投资官扎卡里・米诺尔表示：“购房者最容易犯的误区，就是片面理解固定房贷的含义。
-
-房产税与房屋保险费用并不固定，这类支出通常能占到住房总开销的两成以上。
-
-” 年均各项住房额外开支明细 水电燃气费：7679 美元 房屋日常维护：5162 美元 小区物业费：4196 美元 房屋翻新改造：3929 美元 房产税：3580 美元 房屋保险费：3336 美元 水电、税费及保险费用参考联邦政府与公用事业行业数据；物业费、维保和装修费用取自本次千名房主自主上报数据。
-
-并非所有房主每年都会产生全部项目花销，但多数持房相关费用，在房贷金额确定后依旧具备涨价可能性。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:24 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:16 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:22 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:17 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:20 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:25 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:27 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:38 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:30 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:26 - [国家统计局：一季度GDP同比增长5.0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:35 - [小摩：中金公司首季业绩料胜预期 重申行业首选股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:44 - [沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:28 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:20 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:21 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:24 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:22 - [珠江流域部分中小河流近期可能出现超警洪水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:21 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:35 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:41 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:43 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:19 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:46 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:17 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:37 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:36 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:16 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:27 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:17 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:43 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:25 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:31 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:20 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:26 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:27 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:22 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:36 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:17 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:43 - [余金生被执行死刑！系杀害网红“罗大美”主犯](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [一季度郑州机场国际货运量同比增长21.8%](http://www.blog.minike.top/Article/details/9295272274.shtml)
+- 2026-06-29 11:28 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.blog.minike.top/Article/details/6485639392.shtml)
+- 2026-06-29 11:46 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](http://www.share.kurohicncr.top/Article/details/207646060.shtml)
+- 2026-06-29 11:33 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](http://www.share.minike.top/Article/details/6424257.shtml)
+- 2026-06-29 11:35 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](http://www.blog.kurohicncr.top/Article/details/48869620075.shtml)
+- 2026-06-29 11:28 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [云南印发实施意见全面推进共有精神家园建设](http://www.share.minike.top/Article/details/0871423.shtml)
+- 2026-06-29 11:35 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.share.minike.top/Article/details/41341.shtml)
+- 2026-06-29 11:24 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](http://www.share.minike.top/Article/details/7700511.shtml)
+- 2026-06-29 11:42 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](http://www.share.minike.top/Article/details/62717829.shtml)
+- 2026-06-29 11:44 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](http://www.blog.kurohicncr.top/Article/details/43918742.shtml)

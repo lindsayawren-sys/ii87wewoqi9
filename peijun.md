@@ -1,46 +1,51 @@
-# 三年焕新 上海科技馆今日重启
+# 特朗普签发多项输油管道许可 以促进美加之间的石油运输
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月23日 12:19 来源：中国新闻网 2026年5月23日，经历了3年左右升级改造的上海科技馆正式对外开放，其展区内容覆盖人工智能、量子科技、航空航天等前沿热点领域。上海科技馆于2001年12月18日开放，2023年启动开放运行20多年后的最大规模系统化升级改造。(郑莹莹 娄瀚锟） 责任编辑：【罗攀】
+据白宫公布的文件显示，美国总统特朗普周三签发了多项输油管道许可，其中包括一项新建输油管道的许可，旨在促进美国与加拿大之间的原油及油品运输。该建设许可已颁发给Bakken Pipeline Company，用于北达科他州伯克县的管道设施建设。此外，他还签发了其他许可，以维护和运营位于北达科他州和密西根州、靠近边境地区的现有输油管道。责任编辑：王永生
 
 ## 正文
 
-发布时间：2026年05月23日 12:19 来源：中国新闻网 2026年5月23日，经历了3年左右升级改造的上海科技馆正式对外开放，其展区内容覆盖人工智能、量子科技、航空航天等前沿热点领域。
+据白宫公布的文件显示，美国总统特朗普周三签发了多项输油管道许可，其中包括一项新建输油管道的许可，旨在促进美国与加拿大之间的原油及油品运输。
 
-上海科技馆于2001年12月18日开放，2023年启动开放运行20多年后的最大规模系统化升级改造。
+该建设许可已颁发给Bakken Pipeline Company，用于北达科他州伯克县的管道设施建设。
 
-(郑莹莹 娄瀚锟） 责任编辑：【罗攀】
+此外，他还签发了其他许可，以维护和运营位于北达科他州和密西根州、靠近边境地区的现有输油管道。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:18 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:40 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:34 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:22 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:42 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:24 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:19 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:21 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:33 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:31 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:43 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:45 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:30 - [长光辰芯首挂上市 早盘高开81.80%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:41 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:17 - [中国向伊朗提供紧急人道主义援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:27 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:25 - [浙江启用防汛防台机器狗“AI防汛勇士”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:43 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:45 - [安徽淮北：云海罩城 宛如美丽画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:16 - [总台海峡时评丨民进党当局“膝跳式”抹黑十项涉台新政，必遭民意唾弃！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:42 - [IMF亚太部主管：亚洲受油气高涨冲击 但仍是全球增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:37 - [受伊朗战争持续影响，欧洲股市料将低开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:18 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:27 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:36 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:19 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:27 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:14 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:14 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:39 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:27 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:18 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:36 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:21 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:43 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:39 - [六年分红过百亿，三七互娱2025年归母净利润增长8.5%](http://www.share.minike.top/Article/details/17810745.shtml)
+- 2026-06-29 11:17 - [国际能源署署长：欧洲仅剩够用6周航空燃油](http://www.blog.minike.top/Article/details/134413.shtml)
+- 2026-06-29 11:36 - [欧盟扩大事务专员：乌克兰议会改革后，欧盟将拨付最高27亿欧元资金](http://www.blog.minike.top/Article/details/1060594753.shtml)
+- 2026-06-29 11:43 - [昆明长水国际机场东二跑道投用 缓解高峰运行压力](http://www.blog.minike.top/Article/details/241942.shtml)
+- 2026-06-29 11:45 - [酒价内参4月17日价格发布，青花郎下跌2元](http://www.share.kurohicncr.top/Article/details/156589544145.shtml)
+- 2026-06-29 11:31 - [外交部提醒赴美国中国公民注意入境安全风险](http://www.blog.minike.top/Article/details/946148004.shtml)
+- 2026-06-29 11:35 - [Stena DrillMAX将在希腊近海钻探首口深水井](http://www.blog.minike.top/Article/details/10802.shtml)
+- 2026-06-29 11:44 - [在沙地种下一片“云朵玫瑰”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [印度卢比领涨亚洲货币 受石油外汇窗口消息提振](http://www.blog.kurohicncr.top/Article/details/704970915.shtml)
+- 2026-06-29 11:26 - [事关L2级辅助驾驶 相关强制性国标进一步公开征求意见](http://www.share.kurohicncr.top/Article/details/247666914.shtml)
+- 2026-06-29 11:28 - [美又一核动力航母失火 8名船员受伤](http://www.blog.kurohicncr.top/Article/details/142266794.shtml)
+- 2026-06-29 11:19 - [凭祥海关综合技术服务中心2026年试剂耗材定点供应商废标结果公告](http://www.share.minike.top/Article/details/282413840.shtml)
+- 2026-06-29 11:31 - [红星冷链与红星建设订立建筑合约 对价约2200.38万元](http://www.blog.minike.top/Article/details/1483131.shtml)
+- 2026-06-29 11:43 - [Anthropic公布伦敦大规模扩张计划，此前OpenAI宣布设立首个永久伦敦办公室](http://www.share.minike.top/Article/details/779454688019.shtml)
+- 2026-06-29 11:23 - [全球智能鸿沟如何破解？这份报告给出答案！](http://www.blog.minike.top/Article/details/1420591.shtml)

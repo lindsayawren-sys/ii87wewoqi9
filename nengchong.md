@@ -1,58 +1,59 @@
-# 特朗普称白宫附近枪击案枪手“有暴力史”
+# 长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-新华社华盛顿5月23日电 美国总统特朗普23日说，当天在白宫附近向美国特勤局人员开枪的男子“有暴力史”，“可能对我们国家最珍视的建筑怀有执念”。 特朗普当天夜间在社交媒体上发文证实，枪手在白宫大门附近与特勤局特工交火后死亡。 特朗普将此次枪击事件与上个月白宫记者协会晚宴枪击事件相联系，称“这恰恰说明为所有未来的总统打造华盛顿特区有史以来最安全、最可靠的专属空间是多么重要”。 美
+上海期货价格走势：今日铸造铝合金主力月2606合约高开探底后窄幅走弱；截止当日15：00收盘，铸造铝主力合约报24040元，跌15元，跌幅0.06%，全天成交量7184手减少5407手；持仓量18494手增加420手。 据长江有色金属网数据统计，4月17日长江现货数据显示，铝合金ADC12报价24500-24700元/吨，均价报24600元/吨，持平；铸造铝合金锭（A356.2
 
 ## 正文
 
-新华社华盛顿5月23日电 美国总统特朗普23日说，当天在白宫附近向美国特勤局人员开枪的男子“有暴力史”，“可能对我们国家最珍视的建筑怀有执念”。
+上海期货价格走势：今日铸造铝合金主力月2606合约高开探底后窄幅走弱；截止当日15：00收盘，铸造铝主力合约报24040元，跌15元，跌幅0.06%，全天成交量7184手减少5407手；持仓量18494手增加420手。
 
-特朗普当天夜间在社交媒体上发文证实，枪手在白宫大门附近与特勤局特工交火后死亡。
+据长江有色金属网数据统计，4月17日长江现货数据显示，铝合金ADC12报价24500-24700元/吨，均价报24600元/吨，持平；铸造铝合金锭（A356.2）报价25500-25900元/吨，均价报25700元/吨，持平；铸造铝合金锭（A380）报价26500-26700元/吨，均价报26600元/吨，持平；铸造铝合金锭（ZL102）报价25400-25600元/吨，均价报25500元/吨，持平；铸造铝合金锭（ZLD104）报价25400-25600元/吨，均价报25500元/吨，持平； ccmn铸造铝合金市场分析： 宏观层面，市场情绪呈现复杂交织态势。
 
-特朗普将此次枪击事件与上个月白宫记者协会晚宴枪击事件相联系，称“这恰恰说明为所有未来的总统打造华盛顿特区有史以来最安全、最可靠的专属空间是多么重要”。
+美伊和谈及以黎短期停火10天协议提振市场风险偏好回升，但美元反弹及国内股指涨跌互现给市场带来不确定性。
 
-美国媒体稍早前表示，枪手为21岁男子纳西尔·贝斯特，来自马里兰州，有精神疾病史。
+在此背景下，铸造铝期货并未追随沪铝走强，而是维持高位窄幅整理。
 
-贝斯特此前多次与特勤局有过接触。
+基本面来看，成本端支撑与需求端疲软形成鲜明对比。
 
-2025年6月26日，他因拦停特工并发出威胁被特勤局拘留；同年7月10日，他又因闯入禁区再次被拘留。
+废铝供应紧张、价格坚挺，持续挤压铸造铝企业利润，抑制生产积极性，为价格提供底部支撑。
 
-美国东部时间23日18时许，位于白宫西北角的一处美国特勤局检查站发生枪击案。
+然，传统消费旺季表现不及预期，下游因价格高企而采购谨慎，多维持低库存按需采购，整体供需格局偏弱。
 
-据特勤局发表的声明，一人向特勤局人员开枪，特勤局人员予以还击，击中枪手。
+现货市场，今日交投呈现温和态势。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:33 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:18 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:19 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:28 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:23 - [少年吃隔夜见手青后满屋见动画场景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:38 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:24 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:27 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:20 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:33 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:46 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:24 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:44 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:24 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:17 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:30 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:17 - [云南印发实施意见全面推进共有精神家园建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:41 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:18 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:46 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:33 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:33 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:14 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:18 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:41 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:26 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:19 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:28 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:35 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:38 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:37 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:31 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:28 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:18 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:14 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:44 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](http://www.blog.minike.top/Article/details/98078819615.shtml)
+- 2026-06-29 11:40 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](http://www.share.minike.top/Article/details/81084004.shtml)
+- 2026-06-29 11:42 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](http://www.blog.minike.top/Article/details/3530547669.shtml)
+- 2026-06-29 11:38 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](http://www.blog.minike.top/Article/details/942831.shtml)
+- 2026-06-29 11:31 - [中东局势变化对我国外贸有何影响？国家统计局回应](http://www.share.kurohicncr.top/Article/details/3693471638.shtml)
+- 2026-06-29 11:17 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](http://www.blog.kurohicncr.top/Article/details/795685317776.shtml)
+- 2026-06-29 11:29 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](http://www.blog.kurohicncr.top/Article/details/41353785022.shtml)
+- 2026-06-29 11:30 - [美国称对伊封锁行动以来已有13艘船只掉头 而非尝试闯关](http://www.share.kurohicncr.top/Article/details/9169760.shtml)
+- 2026-06-29 11:30 - [长光辰芯首挂上市 早盘高开81.80%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [郭丽岩：超长期特别国债对投资由负转正予以重要支撑](http://www.blog.minike.top/Article/details/89163615857.shtml)
+- 2026-06-29 11:35 - [中国向伊朗提供紧急人道主义援助](http://www.share.kurohicncr.top/Article/details/124106892353.shtml)
+- 2026-06-29 11:38 - [“世越”号倾覆事故12周年 李在明表示将全力避免悲剧重演](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [浙江启用防汛防台机器狗“AI防汛勇士”](http://www.blog.minike.top/Article/details/28535366425.shtml)
+- 2026-06-29 11:34 - [丁薛祥会见土库曼斯坦总统别尔德穆哈梅多夫](http://www.share.minike.top/Article/details/5371766.shtml)
+- 2026-06-29 11:28 - [安徽淮北：云海罩城 宛如美丽画卷](http://www.blog.kurohicncr.top/Article/details/961551.shtml)

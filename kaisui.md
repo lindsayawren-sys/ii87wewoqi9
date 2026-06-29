@@ -1,56 +1,47 @@
-# 阴山脚下60载：看一棵大白菜的产业“链”变
+# 同济大学回应“一教师论文数据存疑”：已成立调查组
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网乌兰察布5月22日电 题：阴山脚下60载：看一棵大白菜的产业“链”变 中新网记者 张林虎 “以前种白菜，心里总不踏实，行情不好就只能烂在地里。现在种子有人管、收购有合同、加工有工厂，收入稳多了。”初夏的化德县朝阳镇民乐村，种了30多年白菜的马占军蹲在地头，抚摸着刚长出新叶的菜苗，脸上满是笑意。 深耕60载，育出好品质 化德县位于内蒙古中部，隶属于乌兰察布市，地处阴山北麓东
+中新网4月16日电 据同济大学网站消息，4月16日，同济大学发布情况说明称，针对近日网络上对该校教师王某发表的相关论文数据存疑的反映，学校高度重视，已成立调查组，启动调查程序。 同济大学表示，学校一贯对学术不端行为秉持“零容忍”态度，将根据调查情况严肃认真处理。
 
 ## 正文
 
-中新网乌兰察布5月22日电 题：阴山脚下60载：看一棵大白菜的产业“链”变 中新网记者 张林虎 “以前种白菜，心里总不踏实，行情不好就只能烂在地里。
+中新网4月16日电 据同济大学网站消息，4月16日，同济大学发布情况说明称，针对近日网络上对该校教师王某发表的相关论文数据存疑的反映，学校高度重视，已成立调查组，启动调查程序。
 
-现在种子有人管、收购有合同、加工有工厂，收入稳多了。
-
-”初夏的化德县朝阳镇民乐村，种了30多年白菜的马占军蹲在地头，抚摸着刚长出新叶的菜苗，脸上满是笑意。
-
-深耕60载，育出好品质 化德县位于内蒙古中部，隶属于乌兰察布市，地处阴山北麓东端、内蒙古高原中部南缘，是内蒙古高原向华北平原过渡的重要地带。
-
-化德县种植白菜的历史可追溯到20世纪60年代。
-
-经过多年品种更新和技术改进，当地大白菜从早期的长白菜发展为抱头白菜，菜芯由白芯向黄芯转变，品相更好、口感更佳。
-
-根据名特优新农产品年度检验报告，化德大白菜可溶性糖含量、维生素C含量、β-胡萝卜素均高于参考值，粗纤维仅0.60g/100g，叶球叠抱紧实、脆嫩微甜，极受市场好评。
-
-好品质带来了好名声。
+同济大学表示，学校一贯对学术不端行为秉持“零容忍”态度，将根据调查情况严肃认真处理。
 
 ## 相关推荐
 
-- 2026-06-29 11:14 - [少年吃隔夜见手青后满屋见动画场景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:43 - [四川宜宾地震现场视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:37 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:18 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:39 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:29 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:40 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:22 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:19 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:36 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:41 - [沪指站稳4000点，创业板创近11年新高，算力租赁、电池产业链爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:40 - [共处罚没款35.97亿元 7家电商平台涉“幽灵外卖”系列案被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:36 - [台湾劳动党副主席王娟萍：民进党一昧媚日愧对祖先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:21 - [最高实时均价逼近1元/度，广东电力现货价格飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:43 - [天时地利人和 造就浙江常山亿年地质传奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:34 - [珠江流域部分中小河流近期可能出现超警洪水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:21 - [助力打通产销对接“最后一公里” 全国农产品采购商联盟优质农产品选品会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:27 - [台青消博会“初体验”：“亲自来感受，才能发现这里的无限机遇”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:23 - [2026北京牡丹文化节开幕 科技让游园更具新意更智慧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:25 - [GQY视讯大幅修正业绩，锁定*ST维权已开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:28 - [南方精工索赔时效只剩两个月 此前部分股民调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:40 - [第十五届中国饭店文化节将在横琴和澳门两地举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:37 - [第二届西藏微短剧大赛正式启动征稿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:38 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:26 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:26 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:43 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:20 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:19 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:22 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:20 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:39 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:21 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:32 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:40 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:25 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:39 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](http://www.share.kurohicncr.top/Article/details/889740.shtml)
+- 2026-06-29 11:39 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](http://www.blog.minike.top/Article/details/05379840549.shtml)
+- 2026-06-29 11:34 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](http://www.share.minike.top/Article/details/276329362.shtml)
+- 2026-06-29 11:21 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](http://www.blog.minike.top/Article/details/658194725712.shtml)
+- 2026-06-29 11:27 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [云南印发实施意见全面推进共有精神家园建设](http://www.blog.kurohicncr.top/Article/details/942624461419.shtml)
+- 2026-06-29 11:39 - [特朗普称将对购买伊朗石油的国家实施制裁，外交部回应](http://www.share.minike.top/Article/details/70028064761.shtml)
+- 2026-06-29 11:23 - [近镜头｜习近平总书记寄望中越青年做好“接棒人”](http://www.share.minike.top/Article/details/818795.shtml)
+- 2026-06-29 11:41 - [国家体育总局武术中心：未来三年将系统性支持海南武术发展](http://www.share.minike.top/Article/details/87336.shtml)
+- 2026-06-29 11:16 - [周锡玮谈郑丽文访陆：中国人携手同心的方向再次确定](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [探访亚沙会主媒体中心：一站式服务保障中外媒体报道](http://www.share.minike.top/Article/details/880670235.shtml)
+- 2026-06-29 11:21 - [一新西兰军机多次抵近中国周边空域，外交部：损害中方安全利益，已坚决有力应对](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [“大炮与黄油”之争：各国加大防务开支，IMF警示艰难权衡](http://www.share.minike.top/Article/details/009526341.shtml)

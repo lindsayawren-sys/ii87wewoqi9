@@ -1,60 +1,59 @@
-# 2026超级马术俱乐部联赛北京举行
+# 建滔积层板早盘涨逾5%再创新高 覆铜板龙头密集发布涨价函
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网北京5月25日电 (记者 邢翀)23日至24日，由北京市马术运动协会、天星调良马术主办的2026超级马术俱乐部联赛北京站赛事暨北京市青少年马术巡回赛在北京温榆河公园马术赛事中心举行。 今年的超级马术俱乐部联赛与北京市青少年马术巡回赛深度联动、贯穿全年，以京津冀赛区为核心，共设8场分站赛及1场总决赛，旨在依托全年积分奖励机制，持续激发骑手的参赛热情与动力，助力初级骑手逐步成
+建滔积层板（01888）早盘涨超5%，截至发稿，股价上涨4.98%，现报28.24港元，成交额5.87亿港元。 据报道，台光电、台耀、联茂等三大高阶铜箔基板（CCL）供应商，近期均已陆续与客户沟通涨价事宜。其中，台耀已向客户发出正式通知，自4月25日起调涨CCL报价，部分系列产品涨幅达20%至40%。台光电与联茂则宣布，将于第二季度起对高阶材料启动新一波调价，幅度皆为10%，且
 
 ## 正文
 
-中新网北京5月25日电 (记者 邢翀)23日至24日，由北京市马术运动协会、天星调良马术主办的2026超级马术俱乐部联赛北京站赛事暨北京市青少年马术巡回赛在北京温榆河公园马术赛事中心举行。
+建滔积层板（01888）早盘涨超5%，截至发稿，股价上涨4.98%，现报28.24港元，成交额5.87亿港元。
 
-今年的超级马术俱乐部联赛与北京市青少年马术巡回赛深度联动、贯穿全年，以京津冀赛区为核心，共设8场分站赛及1场总决赛，旨在依托全年积分奖励机制，持续激发骑手的参赛热情与动力，助力初级骑手逐步成长为职业骑手。
+据报道，台光电、台耀、联茂等三大高阶铜箔基板（CCL）供应商，近期均已陆续与客户沟通涨价事宜。
 
-本站赛事设置交叉杆及0.30米级别个人赛、0.60米级别个人赛等多个组别赛事。
+其中，台耀已向客户发出正式通知，自4月25日起调涨CCL报价，部分系列产品涨幅达20%至40%。
 
-经过两天激烈角逐，产生各个组别冠军。
+台光电与联茂则宣布，将于第二季度起对高阶材料启动新一波调价，幅度皆为10%，且均锁定AI服务器、交换机等高阶应用。
 
-在最高级别的1.30米级别个人赛上，骑手巴根与策骑马匹卡布奇诺以零罚分、71.81秒完赛，勇夺冠军。
+中信证券发布研报称，4月以来，众多龙头覆铜板公司密集发布涨价函，覆铜板盈利能力稳步向上的能见度持续提升。
 
-同期进行的2026北京市青少年马术巡回赛(第2站)也决出了交叉杆及0.30米级别个人赛等冠军，为马术行业储备人才、选拔优秀后备力量提供支撑。
+该行判断覆铜板盈利能力26Q1有望保持平稳，26Q2有望开始向上提升，同时从产业逻辑的视角，顺周期下传统覆铜板超额涨价逻辑明确，利润率提升有望在26H1逐步体现，覆铜板是兼具涨价和AI放量逻辑的板块，26Q2到下半年涨价幅度和持续时间均具备超预期潜力。
 
-作为北京市马术运动新地标，北京温榆河公园马术赛事中心将马术运动融入湿地和森林景观，实践生态优先理念，拥有北京市马术运动协会授权的“北京马术赛事中心”资质，2026年计划举办多场高级别马术比赛。
-
-据介绍，在超级马术俱乐部联赛之后，温榆河公园还将在5月最后一个周末迎来“温榆河超级周末”。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:36 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:29 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:35 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:27 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:21 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:22 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:39 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:34 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:31 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:34 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:30 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:37 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:38 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:45 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:29 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:32 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:40 - [北京“两区”建设加速推进 高水平开放释放发展新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:44 - [济宁太白湖新区：花海伴赛事 产业促民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:38 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:22 - [余金生被执行死刑！系杀害网红“罗大美”主犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:31 - [一季度郑州机场国际货运量同比增长21.8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:16 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:32 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:40 - [摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:17 - [国际能源署署长：欧洲可能仅剩六周航空燃油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:21 - [中国中铁于4月16日斥资4999.96万元回购944.41万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:23 - [商务部：2025年科研和技术服务领域新设外资企业同比增长27.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:31 - [河南南阳：警车亮灯守护三轮平安归途](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:43 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:35 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:17 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:41 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:36 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:27 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:36 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:32 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:14 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:42 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:19 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:21 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:42 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:35 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](http://www.blog.kurohicncr.top/Article/details/245141280161.shtml)
+- 2026-06-29 11:39 - [中国国家中医药管理局原局长于文明被公诉](http://www.blog.minike.top/Article/details/432767.shtml)
+- 2026-06-29 11:34 - [德意志银行预计美联储2026年将维持利率不变](http://www.blog.kurohicncr.top/Article/details/53417741.shtml)
+- 2026-06-29 11:25 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](http://www.blog.kurohicncr.top/Article/details/65504.shtml)
+- 2026-06-29 11:21 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](http://www.share.minike.top/Article/details/3015705.shtml)
+- 2026-06-29 11:36 - [惠伦晶体立案审查通过，符合要求还可加入](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](http://www.blog.minike.top/Article/details/3962445370.shtml)
+- 2026-06-29 11:22 - [市场监管总局：将深入开展CCC认证守底线专项行动](http://www.blog.minike.top/Article/details/190840.shtml)
+- 2026-06-29 11:39 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](http://www.blog.kurohicncr.top/Article/details/99037196.shtml)
+- 2026-06-29 11:29 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](http://www.share.minike.top/Article/details/015073179469.shtml)
+- 2026-06-29 11:35 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](http://www.share.minike.top/Article/details/4443716.shtml)
+- 2026-06-29 11:22 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](http://www.blog.minike.top/Article/details/501433659191.shtml)
+- 2026-06-29 11:22 - [中东局势变化对我国外贸有何影响？国家统计局回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [以咖为桥 沪澳咖啡主理人话青年融合新可能](http://www.blog.kurohicncr.top/Article/details/100359910287.shtml)
+- 2026-06-29 11:42 - [“初代”机器人登场 香港科学馆展览回顾成立35周年](http://www.blog.minike.top/Article/details/969507084801.shtml)

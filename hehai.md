@@ -1,57 +1,48 @@
-# 守护自然万千姿态 全球生物多样性保护行动彰显“中国力量”
+# 拎包免费入住！贵州贵安新区人才保障房宠才力度拉满
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:24 UTC+8
 
 ## 摘要
 
-中新网上海5月22日电 (记者 阮煜琳)5月22日是国际生物多样性日。今年国际生物多样性日的主题是“护一方生灵 泽万物共荣”。中国各地坚持生态优先、绿色发展，生动实践着保护与发展协同共进之路，也为全球生物多样性保护贡献了“中国方案”。中国生态环境部部长黄润秋指出，中国是世界上生物多样性最丰富的国家之一，在全球生物多样性格局中占据关键地位，发挥重要支撑作用。 生物多样性是人类赖以
+发布时间：2026年04月16日 13:19 来源：中国新闻网 近段时间以来，贵州省贵安新区已启动2026年首批“免费住”人才保障房申请，分批次投放“免费住”人才保障房2200间，涵盖一居室、两居室等多种户型，均延续“拎包入住”标准，解决毕业生踏入社会的“后顾之忧”。 自2025年推出“免费住、补贴租”人才住房政策以来，贵安新区已投入使用两处“免费住”人才保障房，持续深化人才住
 
 ## 正文
 
-中新网上海5月22日电 (记者 阮煜琳)5月22日是国际生物多样性日。
+发布时间：2026年04月16日 13:19 来源：中国新闻网 近段时间以来，贵州省贵安新区已启动2026年首批“免费住”人才保障房申请，分批次投放“免费住”人才保障房2200间，涵盖一居室、两居室等多种户型，均延续“拎包入住”标准，解决毕业生踏入社会的“后顾之忧”。
 
-今年国际生物多样性日的主题是“护一方生灵 泽万物共荣”。
+自2025年推出“免费住、补贴租”人才住房政策以来，贵安新区已投入使用两处“免费住”人才保障房，持续深化人才住房保障体系建设，切实解决了青年人才住房难题，吸引4000余名省内外青年人才到此求职创业，超5万人参与申请。
 
-中国各地坚持生态优先、绿色发展，生动实践着保护与发展协同共进之路，也为全球生物多样性保护贡献了“中国方案”。
-
-中国生态环境部部长黄润秋指出，中国是世界上生物多样性最丰富的国家之一，在全球生物多样性格局中占据关键地位，发挥重要支撑作用。
-
-生物多样性是人类赖以生存的条件，是经济社会可持续发展的基础，是生态安全和粮食安全的保障。
-
-在经济社会发展过程中，中国各地方坚持“生态优先、绿色发展”理念，协同推进高水平生物多样性保护和高质量发展。
-
-在福建，生长在武夷山九龙窠岩壁上的三棵六株大红袍母树，树龄超360年，是武夷岩茶最珍贵的活体种质基因库。
-
-武夷山市将大红袍母树保护纳入相关法律法规，为种质资源安全提供制度保障。
+(袁超 曾琪男 贵安新区报道） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:35 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:20 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:38 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:40 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:17 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:42 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:40 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:37 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:26 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:36 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:21 - [糟心！深圳一女子山姆购买扫地机器人，干了6天就“躺平”，退货退款还遭“乌龙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:27 - [美国股市开盘微涨 中东局势缓和且AI及企业财报传出利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:41 - [伊朗议会议长：在黎巴嫩停火与在伊朗停火同样重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:35 - [长江有色：17日铸造铝期价微跌0.06% 今日交投呈现温和态势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:44 - [广东江门：警企联动 为柑园低空作业系上“安全缰绳”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:31 - [北京“两区”建设加速推进 高水平开放释放发展新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:43 - [济宁太白湖新区：花海伴赛事 产业促民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:32 - [3月一线城市二手房价格环比普涨：上海涨0.4%，已连续两个月上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:18 - [余金生被执行死刑！系杀害网红“罗大美”主犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:35 - [一季度郑州机场国际货运量同比增长21.8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:39 - [“文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:23 - [中东局势反复叠加油价飙升推高利率预期，黄金高位震荡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:35 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:32 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:41 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:25 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:42 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:30 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:14 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:42 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:38 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:25 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:37 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:38 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:17 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:35 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:33 - [多重利好叠加提振预期 消费板块能否苦尽甘来](http://www.blog.minike.top/Article/details/139959266324.shtml)
+- 2026-06-29 11:35 - [“任继愈：学术人生与人生境界”在国图开讲 纪念先生110周年诞辰](http://www.share.minike.top/Article/details/02120714804.shtml)
+- 2026-06-29 11:29 - [中天期货:碳酸锂震荡偏强 螺纹区间反弹](http://www.share.minike.top/Article/details/335975552003.shtml)
+- 2026-06-29 11:33 - [中国国家中医药管理局原局长于文明被公诉](http://www.blog.kurohicncr.top/Article/details/6060563846.shtml)
+- 2026-06-29 11:34 - [德意志银行预计美联储2026年将维持利率不变](http://www.blog.minike.top/Article/details/9530079290.shtml)
+- 2026-06-29 11:25 - [机器人跑半马也有救护车？随车“医生”：带个扳手上班很合理吧](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [谷歌与五角大楼商讨机密AI合作协议，将重塑与美军关系](http://www.share.kurohicncr.top/Article/details/438659.shtml)
+- 2026-06-29 11:35 - [惠伦晶体立案审查通过，符合要求还可加入](http://www.blog.minike.top/Article/details/69257790.shtml)
+- 2026-06-29 11:18 - [特朗普签发多项输油管道许可 以促进美加之间的石油运输](http://www.share.kurohicncr.top/Article/details/5692378.shtml)
+- 2026-06-29 11:41 - [市场监管总局：将深入开展CCC认证守底线专项行动](http://www.share.kurohicncr.top/Article/details/01529434899.shtml)
+- 2026-06-29 11:43 - [超150亿主力资金抢筹！厦门钨业涨停，华宝基金有色ETF（159876）劲涨2.84%，机构：赛道动能足，有色尚可期](http://www.blog.kurohicncr.top/Article/details/3507146747.shtml)
+- 2026-06-29 11:39 - [美国陆军命名MV-75"切延恩二代"倾转旋翼机](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:17 - [美国财长贝森特：不会续签允许临时销售伊朗和俄罗斯石油的通用许可](http://www.blog.kurohicncr.top/Article/details/191260076.shtml)
+- 2026-06-29 11:16 - [易事特（300376）投资者索赔再提交法院立案，苏大维格（300331）索赔案已有两审胜诉](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [中东局势变化对我国外贸有何影响？国家统计局回应](https://github.com/lisacumin64-arch)

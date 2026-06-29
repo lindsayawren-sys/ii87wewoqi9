@@ -1,60 +1,60 @@
-# 百秋尚美净利润与毛利率承压：两年分红2.62亿后，递表同时再分4亿
+# 红相股份（300427）投资者索赔再提交立案，时效倒计时不足半月
 
-> 更新时间：2026-06-29 11:44:03 UTC+8
+> 更新时间：2026-06-29 11:46:25 UTC+8
 
 ## 摘要
 
-《港湾商业观察》徐慧静 当消费者在天猫、抖音刷到那些耳熟能详的奢侈品牌直播间时，背后操盘的很可能不是品牌方自己，而是一家名为百秋尚美的“隐形冠军”。 2026年4月，上海百秋尚美科技服务集团股份有限公司（以下简称，百秋尚美）向港交所递交了上市申请，独家保荐人为中信证券。深耕线上零售综合运营服务市场逾15年，百秋尚美已跻身中国品牌线上零售综合运营服务商第二位，在专注服务海外品牌的
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月14日，上海久诚律师事务所股票索赔律师许峰代理的红相股份（维权）（300427）投资者索赔案再次向厦门市中级人民法院提交一次立案，此前已多次提交立案，正在等待法院的下一步安排。（许峰律师专栏） 律师提示，红相股份投资者索赔案目前已有投资者胜诉判决，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔
 
 ## 正文
 
-《港湾商业观察》徐慧静 当消费者在天猫、抖音刷到那些耳熟能详的奢侈品牌直播间时，背后操盘的很可能不是品牌方自己，而是一家名为百秋尚美的“隐形冠军”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月14日，上海久诚律师事务所股票索赔律师许峰代理的红相股份（维权）（300427）投资者索赔案再次向厦门市中级人民法院提交一次立案，此前已多次提交立案，正在等待法院的下一步安排。
 
-2026年4月，上海百秋尚美科技服务集团股份有限公司（以下简称，百秋尚美）向港交所递交了上市申请，独家保荐人为中信证券。
+（许峰律师专栏） 律师提示，红相股份投资者索赔案目前已有投资者胜诉判决，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-深耕线上零售综合运营服务市场逾15年，百秋尚美已跻身中国品牌线上零售综合运营服务商第二位，在专注服务海外品牌的细分赛道更是稳居第一。
+2024年4月3日晚，红相股份公告收到证监会厦门监管局《行政处罚决定书》，经查明，红相股份及相关人员存在以下违法事实： 一、信息披露违法违规 红相股份2017年-2022年年度报告存在虚假记载。
 
-然而，光鲜的GMV数据背后，毛利率持续下滑、净利润大幅波动、客户与供应商双集中、应收账款与存货同步攀升等问题，为其港股IPO之路增添了诸多不确定性。
+红相股份及其子公司厦门红相信息科技有限公司等通过虚构销售业务、虚构原材料采购、虚增固定资产等方式，2017年虚增营业收入10，489.44万元，虚增利润总额5，972.44万元，分别占当期披露金额的14.10%、38.03%；2018年虚增营业收入25，559.32万元，虚增利润总额14，422.06万元，分别占当期披露金额的19.49%、47.72%；2019年虚增营业收入22，706.67万元，虚增利润总额14，118.25万元，分别占当期披露的金额16.94%、48.19%；2020年虚增营业收入30，497.18万元，虚增利润总额7，538.42万元，分别占当期披露金额的20.12%、29.79%；2021年虚增营业收入10，879.80万元，虚减利润总额325.44万元，分别占当期披露金额的7.80%、0.51%；2022年虚增营业成本2，
 
-1 净利润大幅波动，毛利率持续承压 据招股书及天眼查显示，百秋尚美成立于2010年，是中国中高端品牌数字零售运营服务商，通过结合消费洞察、审美能力、数字化技术及系统化运营并利用AI赋能的工具，为品牌商提供带来可衡量成效的贯穿全链路、覆盖多渠道的智能零售解决方案。
+二、欺诈发行 （一）2019年非公开发行股票构成欺诈发行。
 
-公司核心优势在于自主研发数字化零售系统Futail，并在天猫、抖音、京东等所有主流电商平台均为头部品牌商提供服务。
+（二）2020年公开发行可转换公司债券构成欺诈发行。
 
-财务数据显示，2023年、2024年及2025年（以下简称，报告期内），公司营业收入分别为13.18亿元、14.19亿元和15.87亿元，年内利润分别为2.50亿元、1.43亿元和2.14亿元。
+（三）2020年申请发行股份及支付现金购买资产并募集配套资金公告发行文件存在重大虚假记载。
 
-整体营收呈现稳健增长态势，但净利润波动明显：2024年年内利润较2023年减少42.7%，2025年又较2024年增加49.5%，即便如此，2025年还是不及2023年。
+专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2018年3月30日到2023年4月29日之间买入红相股份股票，并且在2023年4月29日后卖出或持有股票的投资者，还可发起索赔，但诉讼时效已经进入最后倒计时，如果没有其他特殊情况，该案诉讼时效将于2026年4月28日届满。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:27 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:33 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:24 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:14 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:34 - [男子吃半根变苦黄瓜致肝衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:29 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:38 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:38 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:36 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:42 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:23 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:37 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:35 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:21 - [海军航空大学某大队：更新知识体系 厚植打赢底气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:40 - [消费变革下，聚丙烯硬质包装的增长逻辑与机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:25 - [Uber将收购Delivery Hero额外4.5%的股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:43 - [中国驻日本大使馆提醒在日中国公民注意人身安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:30 - [欧洲央行管委Nagel称在4月会议前应保持政策选项开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:21 - [世界气象组织秘书长调研全民早期预警重庆实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:34 - [新闻1+1丨规模首次超过11万亿元 专家解读一季度外贸成绩单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:33 - [报告称中国在建核电机组装机容量连续19年保持全球第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:43 - [东艳：一季度外贸数据反映多个“增强”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:22 - [又见大“肉签”！301666，中一签最高赚近10万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:16 - [东西问丨伊莎贝尔·塞尔韦拉：塞万提斯学院助力西班牙与中国文化交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:37 - [中越签署一系列合作文件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:42 - [鹰瞳科技-B于4月15日斥资41.61万港元回购3.5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:23 - [NCE平台:金矿业绩爆发驱动价值重估逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:14 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:36 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:33 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:23 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:31 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:36 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:25 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:26 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:14 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:33 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:20 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:34 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:19 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:30 - [老外体验无人驾驶：“万万没想到，比司机开还稳”](http://www.blog.minike.top/Article/details/9476710.shtml)
+- 2026-06-29 11:23 - [挖机销量增近三成，工程机械“金三”来了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [开局之年看中国·开放自贸港：“艇”进三亚](http://www.share.kurohicncr.top/Article/details/86418239915.shtml)
+- 2026-06-29 11:46 - [首次原子尺度证实 中国科学家发现金属/载体三维体相参与催化新机制](http://www.share.kurohicncr.top/Article/details/84624256.shtml)
+- 2026-06-29 11:39 - [财信宏观丨供给韧性较强，需求修复待提速—2026年1-3月经济数据点评](http://www.blog.kurohicncr.top/Article/details/72818.shtml)
+- 2026-06-29 11:35 - [酒价内参4月16日价格发布：水晶剑南春小幅上涨1元/瓶](http://www.share.kurohicncr.top/Article/details/947353.shtml)
+- 2026-06-29 11:41 - [ATFX:特朗普威胁解除鲍威尔职务 美指跌破98点](http://www.share.kurohicncr.top/Article/details/0849381672.shtml)
+- 2026-06-29 11:40 - [中东突发！刚刚，直线拉升！](http://www.blog.minike.top/Article/details/800512181052.shtml)
+- 2026-06-29 11:21 - [湖北：以正确政绩观引领“支点建设”新征程](http://www.share.kurohicncr.top/Article/details/229210876.shtml)
+- 2026-06-29 11:32 - [全球经济的严峻考验](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [Glamox将为Sea1 Offshore的海上能源支持船提供照明](http://www.blog.kurohicncr.top/Article/details/922506424176.shtml)
+- 2026-06-29 11:42 - [在“商量声”中生长：浙江杭州小古城村民主协商发“新枝”](http://www.blog.minike.top/Article/details/3085862207.shtml)
+- 2026-06-29 11:16 - [伊朗最高领导人推动将黎巴嫩纳入美伊和谈](http://www.share.minike.top/Article/details/07480389.shtml)
+- 2026-06-29 11:30 - [珠江委积极开展珠江流域水预算管理工作指引研究](http://www.share.minike.top/Article/details/8445264.shtml)
+- 2026-06-29 11:26 - [京东养车赛道日全民见证国货轮胎硬核实力 玲珑大师2代京东独家预售](https://github.com/lisacumin64-arch)
