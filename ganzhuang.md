@@ -1,60 +1,56 @@
-# 长江有色：22日铅价小跌 新能源替代及供需失衡交投维持刚需
+# 花旗：给予工商银行目标价7.95港元与“买入”评级 Q4业绩略逊于预期
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-今日沪期铅走势：今日沪期铅下跌，沪铅主力合约2605开盘报16855元，高点报16860元，低点16635元，结算价16730元，收盘16690元/吨，跌110元，跌幅为0.65%。 今日ccmn铅价统计，今日ccmn长江综合1#铅价报16650-16750元/吨，均价16700元，较前一日价格下跌100元；广东现货市场1#铅报16485-16585元/吨，均价16535元，较
+花旗发布研报称，给予工商银行（01398）目标价7.95港元，评级为“买入”。预期工行将获汇金注资约1，000亿元人民币，预计对每股盈利摊薄约3%至4%，低于农行。 考虑到潜在摊薄后，工行H股现价对应2026年预测市账率0.52倍，2026年预测股息率5.2%，估值仍具吸引力。 公司去年全年纯利同比增长0.7%至3，686亿元人民币，拨备前利润同比增长1.9%至5，545亿元人
 
 ## 正文
 
-今日沪期铅走势：今日沪期铅下跌，沪铅主力合约2605开盘报16855元，高点报16860元，低点16635元，结算价16730元，收盘16690元/吨，跌110元，跌幅为0.65%。
+花旗发布研报称，给予工商银行（01398）目标价7.95港元，评级为“买入”。
 
-今日ccmn铅价统计，今日ccmn长江综合1#铅价报16650-16750元/吨，均价16700元，较前一日价格下跌100元；广东现货市场1#铅报16485-16585元/吨，均价16535元，较前一日价格下跌100元。
+预期工行将获汇金注资约1，000亿元人民币，预计对每股盈利摊薄约3%至4%，低于农行。
 
-今日现货铅市场报价在16450-16750元/吨之间，对比沪期铅2605合约贴水240-升水60元/吨，沪期铅2606合约贴水285-升水15元/吨。
+考虑到潜在摊薄后，工行H股现价对应2026年预测市账率0.52倍，2026年预测股息率5.2%，估值仍具吸引力。
 
-内外宏观双重压制，市场情绪持续低迷 国际层面，美伊谈判僵局升级，霍尔木兹海峡航运风险加剧，推高能源成本，但铅价未获支撑反而承压。
+公司去年全年纯利同比增长0.7%至3，686亿元人民币，拨备前利润同比增长1.9%至5，545亿元人民币，略低于该行预期。
 
-美股三连跌、标普 500 两连跌，科技股普遍走弱，市场风险偏好降温，资金从铅等弱周期品种撤离。
+第四季拨备前利润同比增长3%，受惠于成本收入比率改善。
 
-美元指数震荡偏强，压制金属估值，美联储降息预期延后进一步削弱铅价上涨动力。
+第四季纯利同比增长1.9%，较第三季的3.3%放缓，主要受信贷成本上升拖累，部分被税率下降抵销。
 
-国内方面，经济复苏节奏稳健但铅下游需求季节性走弱，行业去库存压力显现。
-
-供需失衡加剧，产业链承压明显 供应端，原生铅排产稳健，进口补充持续，再生铅产能释放，市场供应宽松。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 14:49 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 15:04 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 15:01 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 14:53 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 14:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 14:43 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 15:04 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 15:01 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 14:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 14:59 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 14:48 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 14:40 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 14:48 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 14:49 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 14:53 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 15:03 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 15:08 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 15:06 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 15:03 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 15:01 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 14:55 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 15:10 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 14:57 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 15:03 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 14:43 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.minike.top/Article/details/615488.shtml)
-- 2026-06-29 14:57 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/278193.shtml)
-- 2026-06-29 14:53 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/351677.shtml)
-- 2026-06-29 15:00 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/6477118507.shtml)
-- 2026-06-29 14:37 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/83443846594.shtml)
-- 2026-06-29 14:47 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/410782046663.shtml)
-- 2026-06-29 14:48 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/3594778236.shtml)
-- 2026-06-29 14:44 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/7275550883.shtml)
-- 2026-06-29 14:57 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/444311.shtml)
-- 2026-06-29 15:01 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/15767451853.shtml)
-- 2026-06-29 14:36 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/1471906984.shtml)
-- 2026-06-29 14:47 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.minike.top/Article/details/74766353292.shtml)
-- 2026-06-29 14:42 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/9932300857.shtml)
-- 2026-06-29 15:00 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/916953.shtml)
-- 2026-06-29 14:38 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/10686683731.shtml)
+- 2026-06-29 14:44 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/6694851.shtml)
+- 2026-06-29 14:49 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/430596.shtml)
+- 2026-06-29 14:42 - [5万块的威力](http://www.blog.minike.top/Article/details/81180517032.shtml)
+- 2026-06-29 15:04 - [苹果ultra2阔折叠已开模测试](http://www.blog.minike.top/Article/details/337661.shtml)
+- 2026-06-29 15:07 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/55325862125.shtml)
+- 2026-06-29 15:10 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/15405.shtml)
+- 2026-06-29 14:48 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/75835598814.shtml)
+- 2026-06-29 15:10 - [直击宜宾地震：监控剧烈摇晃](https://www.share.minike.top/Article/details/71871610144.shtml)
+- 2026-06-29 14:48 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/105132142.shtml)
+- 2026-06-29 14:53 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/367072533.shtml)
+- 2026-06-29 14:53 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/97787124907.shtml)
+- 2026-06-29 15:05 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/563565174.shtml)
+- 2026-06-29 15:05 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/35723198.shtml)
+- 2026-06-29 15:08 - [小娘惹](https://www.share.minike.top/Article/details/911219133.shtml)
+- 2026-06-29 15:11 - [记者率先试乘西十高铁](http://www.share.minike.top/Article/details/98990161.shtml)

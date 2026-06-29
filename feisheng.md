@@ -1,50 +1,57 @@
-# 香港首批无人驾驶重卡上岗 配备AI演算法
+# 美国股市：美股创5月来最大单日涨幅 华府与德黑兰均释放停战意愿
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 22:42 来源：中国新闻网 4月21日，香港首批无人驾驶重卡上岗，这是专为码头高效货柜运输而设的零排放车辆。该车采用无驾驶舱的设计，配备AI演算法、双目镜头、先进感测器及精准定位系统，并内置障碍物检测技术及紧急应变系统。目前共有6辆无人驾驶重卡投入使用，可实现24小时全天候运作，提升码头运输效能。(记者 孙悦) 责任编辑：【于晓】
+华尔街在3月最后一天经历了戏剧性的反弹。随着市场看好伊朗战争可能即将结束，油价下跌，美股走高。 鉴于市场猜测美伊双方可能都在寻求摆脱冲突的办法，美股迎来5月以来最大单日涨幅。标普500指数上涨2.9%，纳斯达克综合指数走高3.8%。 航空股上涨，能源生产商下滑。 美国原油收于101美元附近，其从多年高位回落推动美债延续涨势。 英伟达收涨5.6%，该公司据报将向美满电子投资20亿
 
 ## 正文
 
-发布时间：2026年04月21日 22:42 来源：中国新闻网 4月21日，香港首批无人驾驶重卡上岗，这是专为码头高效货柜运输而设的零排放车辆。
+华尔街在3月最后一天经历了戏剧性的反弹。
 
-该车采用无驾驶舱的设计，配备AI演算法、双目镜头、先进感测器及精准定位系统，并内置障碍物检测技术及紧急应变系统。
+随着市场看好伊朗战争可能即将结束，油价下跌，美股走高。
 
-目前共有6辆无人驾驶重卡投入使用，可实现24小时全天候运作，提升码头运输效能。
+鉴于市场猜测美伊双方可能都在寻求摆脱冲突的办法，美股迎来5月以来最大单日涨幅。
 
-(记者 孙悦) 责任编辑：【于晓】
+标普500指数上涨2.9%，纳斯达克综合指数走高3.8%。
+
+航空股上涨，能源生产商下滑。
+
+美国原油收于101美元附近，其从多年高位回落推动美债延续涨势。
+
+英伟达收涨5.6%，该公司据报将向美满电子投资20亿美元以合作开发硅光子技术。
+
+味好美收跌6.1%，联合利华同意将其食品业务与味好美合并。
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 14:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 15:02 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 14:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 14:41 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 14:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 15:01 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 14:48 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 14:53 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 15:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 15:05 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 14:55 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 14:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 15:02 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 15:03 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 14:56 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 15:07 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 14:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 14:54 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 15:09 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 15:02 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 14:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 15:00 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:54 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/117726812226.shtml)
-- 2026-06-29 15:01 - [送你一朵小红花](https://www.share.minike.top/Article/details/80898760.shtml)
-- 2026-06-29 14:50 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/116071.shtml)
-- 2026-06-29 14:52 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/01244355.shtml)
-- 2026-06-29 14:59 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/71918908755.shtml)
-- 2026-06-29 14:57 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/135410396.shtml)
-- 2026-06-29 14:44 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/26183189827.shtml)
-- 2026-06-29 14:36 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/89293.shtml)
-- 2026-06-29 15:04 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/53256668911.shtml)
-- 2026-06-29 14:40 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/103006389.shtml)
-- 2026-06-29 15:05 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.minike.top/Article/details/0767243.shtml)
-- 2026-06-29 14:48 - [AG冠军五人组轮换](http://www.blog.minike.top/Article/details/656002141.shtml)
-- 2026-06-29 14:47 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/8968855807.shtml)
-- 2026-06-29 15:05 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/87710059504.shtml)
-- 2026-06-29 14:55 - [恋与深空失控领地](http://www.share.minike.top/Article/details/14756603.shtml)
+- 2026-06-29 14:47 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/3402251.shtml)
+- 2026-06-29 14:51 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/71956595.shtml)
+- 2026-06-29 14:52 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/44167.shtml)
+- 2026-06-29 14:57 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/856723.shtml)
+- 2026-06-29 15:03 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/821350.shtml)
+- 2026-06-29 15:03 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/12301699.shtml)
+- 2026-06-29 14:45 - [逆天祖国人](http://www.blog.minike.top/Article/details/9733073.shtml)
+- 2026-06-29 14:56 - [《贺子珍》](http://www.blog.minike.top/Article/details/312167420.shtml)
+- 2026-06-29 14:50 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/412154597595.shtml)
+- 2026-06-29 15:09 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/74302280906.shtml)
+- 2026-06-29 14:50 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/1412011295.shtml)
+- 2026-06-29 14:44 - [沙丘](http://www.blog.minike.top/Article/details/12129.shtml)
+- 2026-06-29 15:11 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/49388546620.shtml)
+- 2026-06-29 14:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/60160.shtml)
+- 2026-06-29 15:03 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/245193.shtml)

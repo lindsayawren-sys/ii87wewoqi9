@@ -1,60 +1,61 @@
-# RTL获欧盟无条件批准收购Sky Deutschland
+# 痛风药企新元素药业递表港交所：公司估值达36亿元，多年研发“长跑”后核心产品仍未上市
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-2026年4月22日，欧盟反垄断监管机构宣布，无条件批准RTL集团（RTL Group）收购德国天空传媒（Sky Deutschland）的交易。这一决定为该笔备受关注的媒体并购案扫清了关键的监管障碍。 根据RTL集团此前公布的计划，该公司同意以最高5.27亿欧元的价格收购电视运营商Sky Deutschland。此次收购旨在通过整合Sky Deutschland的体育版权资源
+记者|孔泽思 编辑|张益铭 近日，由海归博士史东方创立的创新药企——杭州新元素药业股份有限公司（以下简称新元素药业）二次向港交所递交上市申请。这家专注于痛风药领域的公司，凭借核心在研药物ABP-671，在IPO（首次公开募股）前已获得多轮融资，投后估值高达36亿元。 不过光环之下，新元素药业仍无任何产品上市销售、持续巨额亏损，其核心产品研发进度晚于部分国内同行，且面临资金与商业
 
 ## 正文
 
-2026年4月22日，欧盟反垄断监管机构宣布，无条件批准RTL集团（RTL Group）收购德国天空传媒（Sky Deutschland）的交易。
+记者|孔泽思 编辑|张益铭 近日，由海归博士史东方创立的创新药企——杭州新元素药业股份有限公司（以下简称新元素药业）二次向港交所递交上市申请。
 
-这一决定为该笔备受关注的媒体并购案扫清了关键的监管障碍。
+这家专注于痛风药领域的公司，凭借核心在研药物ABP-671，在IPO（首次公开募股）前已获得多轮融资，投后估值高达36亿元。
 
-根据RTL集团此前公布的计划，该公司同意以最高5.27亿欧元的价格收购电视运营商Sky Deutschland。
+不过光环之下，新元素药业仍无任何产品上市销售、持续巨额亏损，其核心产品研发进度晚于部分国内同行，且面临资金与商业化挑战。
 
-此次收购旨在通过整合Sky Deutschland的体育版权资源，加强RTL在德国娱乐和新闻业务领域的市场地位，以应对全球流媒体平台日益激烈的竞争。
+如此看来，本次IPO将是新元素药业维持研发、补充现金流的关键一仗。
 
-该交易于2026年2月27日正式触发欧盟的审查程序。
+新元素药业由一位归国博士创立，据媒体报道，公司创始人史东方1995年在英国诺丁汉大学获得药物化学和有机化学博士学位，师从英国皇家科学院院士、抗脑瘤药发明人Malcolm F.G． Stevens教授。
 
-在审查初期，RTL和Sky Deutschland曾向欧盟委员会提交了一系列承诺，以解决潜在的竞争担忧。
+1996年，他远赴美国，开启了药物化学博士后历程，并先后在美国加州Genelabs生物制药公司、Metabolex制药公司任高级研究员，从事包括抗肿瘤、抗丙型肝炎（HCV）、抗真菌感染以及2型糖尿病等领域First-in-Class（全球首创）创新药物的研发工作。
 
-欧盟委员会在评估后认为，该交易不会在欧盟范围内引发反垄断问题，因此作出了无条件批准的决定。
+积累了十余年的创新药物研发经验后，史东方意识到了国内创新药与海外的差距。
 
-RTL集团在声明中表示，对交易能在2026年上半年顺利完成充满信心。
+2012年，他回国创办了新元素药业，并将研发焦点放在了慢性痛风治疗领域。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 14:38 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 14:49 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 14:41 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 14:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 14:42 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 14:45 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 15:00 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 14:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 14:38 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 14:46 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 14:47 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 14:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 14:49 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 15:07 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 15:04 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 14:51 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 14:59 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 14:45 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 15:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 14:51 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 14:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 14:59 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 15:06 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 15:11 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 14:53 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 14:42 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 14:44 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 14:54 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:36 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/01869275943.shtml)
-- 2026-06-29 14:36 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/6015830.shtml)
-- 2026-06-29 14:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/79822792.shtml)
-- 2026-06-29 14:37 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/2542721.shtml)
-- 2026-06-29 14:39 - [王楚钦周启豪爆分](https://www.share.minike.top/Article/details/00200301103.shtml)
-- 2026-06-29 14:44 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/114076450.shtml)
-- 2026-06-29 14:53 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/03056780.shtml)
-- 2026-06-29 14:47 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/627286001.shtml)
-- 2026-06-29 14:40 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/0002510.shtml)
-- 2026-06-29 14:52 - [20年前的周杰伦](http://www.share.kurohicncr.top/Article/details/781155809.shtml)
-- 2026-06-29 14:36 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/47913.shtml)
-- 2026-06-29 14:40 - [啊啊啊](https://www.share.minike.top/Article/details/661725005.shtml)
-- 2026-06-29 14:37 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/936923935177.shtml)
-- 2026-06-29 14:55 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/29974241.shtml)
-- 2026-06-29 14:50 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/614952380549.shtml)
+- 2026-06-29 15:07 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/67986900.shtml)
+- 2026-06-29 15:06 - [手游300亿数据或被军事化运用](http://www.share.kurohicncr.top/Article/details/1020424098.shtml)
+- 2026-06-29 14:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/61802421.shtml)
+- 2026-06-29 15:00 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/965305757727.shtml)
+- 2026-06-29 14:50 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/903502965.shtml)
+- 2026-06-29 15:00 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/38565.shtml)
+- 2026-06-29 14:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/25686.shtml)
+- 2026-06-29 14:44 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/10278845210.shtml)
+- 2026-06-29 14:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/04042862094.shtml)
+- 2026-06-29 15:09 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/325370.shtml)
+- 2026-06-29 15:01 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/0077445.shtml)
+- 2026-06-29 15:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/01630872977.shtml)
+- 2026-06-29 15:03 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/86898777453.shtml)
+- 2026-06-29 15:01 - [每代父母都困在自己的时代里](http://www.share.kurohicncr.top/Article/details/2231654483.shtml)
+- 2026-06-29 14:48 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/796047052732.shtml)

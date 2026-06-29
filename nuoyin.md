@@ -1,48 +1,57 @@
-# 特朗普政府即将达成救助精神航空的协议
+# 中东战争：十字路口的特朗普
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，特朗普政府正接近达成一项针对精神航空的救助协议。 知情人士称，根据正在磋商的协议，美国政府将向这家陷入困境的廉价航空公司提供至多5亿美元贷款，作为交换，政府将获得认股权证，有望持有精神航空相当规模的股份。 美国交通部和商务部均参与了相关谈判，目前协议尚未最终敲定，具体条款仍有可能调整。责任编辑：何云
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！雪涛宏观笔记 时间不在特朗普这边，需要在接下来1-2周做出选择。进，未必能解决问题，反而可能造成升级；退，固然丢了政治声誉和国家利益，但中选还有半年，仍有时间修复支持率。TACO的选项还在桌子上，局势将逐步明朗。 文：国金宏观宋雪涛/赵宏鹤 时间不在特朗普这边。油价上涨已经严重冲击了特朗普的选情，路透/益普
 
 ## 正文
 
-据知情人士透露，特朗普政府正接近达成一项针对精神航空的救助协议。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-知情人士称，根据正在磋商的协议，美国政府将向这家陷入困境的廉价航空公司提供至多5亿美元贷款，作为交换，政府将获得认股权证，有望持有精神航空相当规模的股份。
+雪涛宏观笔记 时间不在特朗普这边，需要在接下来1-2周做出选择。
 
-美国交通部和商务部均参与了相关谈判，目前协议尚未最终敲定，具体条款仍有可能调整。
+进，未必能解决问题，反而可能造成升级；退，固然丢了政治声誉和国家利益，但中选还有半年，仍有时间修复支持率。
 
-责任编辑：何云
+TACO的选项还在桌子上，局势将逐步明朗。
+
+文：国金宏观宋雪涛/赵宏鹤 时间不在特朗普这边。
+
+油价上涨已经严重冲击了特朗普的选情，路透/益普索的最新民调显示，特朗普的支持率大幅下降至36%，创下第二任期以来的新低，持平于2020年大选共和党被横扫、2024年大选民主党被横扫之前的水平。
+
+Polymarket显示共和党在今年中选被横扫的概率上升至50%左右，至少丢失众议院几乎是板上钉钉。
+
+战争每持续一天，海峡每封锁一天，原油供需缺口就增加上千万桶，油价随时间升高，特朗普的境遇愈发不利。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 14:55 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 14:48 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 14:49 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 14:53 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 14:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 14:52 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 14:51 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 14:43 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 14:41 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 15:02 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 14:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 14:58 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 15:07 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 14:49 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 14:47 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 15:07 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 15:00 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 15:08 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 15:11 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 15:03 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/75849.shtml)
-- 2026-06-29 14:55 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/733038771.shtml)
-- 2026-06-29 14:41 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/44315907.shtml)
-- 2026-06-29 14:39 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/422990.shtml)
-- 2026-06-29 14:47 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/21850266.shtml)
-- 2026-06-29 14:55 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/64147.shtml)
-- 2026-06-29 14:41 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/582911.shtml)
-- 2026-06-29 14:54 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/6853721625.shtml)
-- 2026-06-29 15:00 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/77952056493.shtml)
-- 2026-06-29 14:57 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/316450.shtml)
-- 2026-06-29 14:44 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/514268004153.shtml)
-- 2026-06-29 15:04 - [美人鱼](https://www.blog.minike.top/Article/details/1237334201.shtml)
-- 2026-06-29 14:36 - [异世界一点都不好玩！](https://www.blog.kurohicncr.top/Article/details/25086972806.shtml)
-- 2026-06-29 14:47 - [20年前的周杰伦](http://www.share.kurohicncr.top/Article/details/66862.shtml)
-- 2026-06-29 15:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/38399262292.shtml)
+- 2026-06-29 14:48 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/63967.shtml)
+- 2026-06-29 15:04 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/571788390831.shtml)
+- 2026-06-29 15:09 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/612099149397.shtml)
+- 2026-06-29 14:43 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/0249493720.shtml)
+- 2026-06-29 15:02 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/39637.shtml)
+- 2026-06-29 15:07 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/4624906895.shtml)
+- 2026-06-29 14:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/2041754.shtml)
+- 2026-06-29 14:44 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/048179.shtml)
+- 2026-06-29 14:59 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/038853013.shtml)
+- 2026-06-29 14:54 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/096317.shtml)
+- 2026-06-29 15:11 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/2887442941.shtml)
+- 2026-06-29 14:42 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/7262609.shtml)
+- 2026-06-29 14:43 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/6786473.shtml)
+- 2026-06-29 14:56 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/6341565.shtml)
+- 2026-06-29 14:57 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/998955114.shtml)

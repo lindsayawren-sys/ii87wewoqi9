@@ -1,57 +1,46 @@
-# AI热潮下SK海力士季度业绩创纪录
+# 潘兴广场阿克曼瞄准环球音乐
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-英伟达的供应商SK海力士公布了创纪录的业绩，受AI存储芯片需求激增的推动，该公司第一财季净利润增加近四倍。 这家全球第二大存储芯片制造商继续加大投资以提高产能，旨在利用AI推动的行业繁荣。 这家韩国公司周四表示，在截至3月份的三个月里，其净利润达到创纪录的40.346万亿韩元（相当于272.8亿美元）。该数字较上年同期增长398%。 这一业绩远高于市场预期。FactSet汇编的
+潘兴广场的比尔·阿克曼（Bill Ackman）提出了一项现金加股票的收购交易，对环球音乐集团的估值约为560亿欧元，其中包括94亿欧元现金，并计划通过SPARC在纽交所上市，此举推动环球音乐股价上涨。责任编辑：张俊 SF065
 
 ## 正文
 
-英伟达的供应商SK海力士公布了创纪录的业绩，受AI存储芯片需求激增的推动，该公司第一财季净利润增加近四倍。
+潘兴广场的比尔·阿克曼（Bill Ackman）提出了一项现金加股票的收购交易，对环球音乐集团的估值约为560亿欧元，其中包括94亿欧元现金，并计划通过SPARC在纽交所上市，此举推动环球音乐股价上涨。
 
-这家全球第二大存储芯片制造商继续加大投资以提高产能，旨在利用AI推动的行业繁荣。
-
-这家韩国公司周四表示，在截至3月份的三个月里，其净利润达到创纪录的40.346万亿韩元（相当于272.8亿美元）。
-
-该数字较上年同期增长398%。
-
-这一业绩远高于市场预期。
-
-FactSet汇编的分析师平均预期为28.109万亿韩元。
-
-营收也创下纪录，较上年同期增至三倍，达到52.576万亿韩元，营业利润也因此创下37.610万亿韩元的纪录。
-
-该公司表示，其当季营业利润率达到了创纪录的72%。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 14:52 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 14:56 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 14:36 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 14:37 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 14:46 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 14:46 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 14:45 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 15:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 14:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 14:37 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 14:58 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 15:09 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 14:45 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 15:07 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 14:55 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 15:10 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 15:01 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 14:50 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 14:52 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 14:43 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 14:54 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 14:57 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/699543981.shtml)
-- 2026-06-29 15:02 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/690375803.shtml)
-- 2026-06-29 14:55 - [当我回母校教书](http://www.blog.minike.top/Article/details/0689950.shtml)
-- 2026-06-29 14:55 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/04170.shtml)
-- 2026-06-29 14:43 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/41570222574.shtml)
-- 2026-06-29 14:58 - [青春环游记第三季](https://www.blog.minike.top/Article/details/1277683536.shtml)
-- 2026-06-29 14:44 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/556185.shtml)
-- 2026-06-29 14:40 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/507004836.shtml)
-- 2026-06-29 14:38 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/05049.shtml)
-- 2026-06-29 15:01 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/369714.shtml)
-- 2026-06-29 14:41 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/31122260129.shtml)
-- 2026-06-29 14:59 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/421688930.shtml)
-- 2026-06-29 14:54 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/78942856122.shtml)
-- 2026-06-29 14:48 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/30815329.shtml)
-- 2026-06-29 15:05 - [第一炉香](https://www.blog.minike.top/Article/details/665402717.shtml)
+- 2026-06-29 14:57 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/067002.shtml)
+- 2026-06-29 15:10 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/508539.shtml)
+- 2026-06-29 14:59 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/777601645683.shtml)
+- 2026-06-29 14:47 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/989622439652.shtml)
+- 2026-06-29 15:11 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.minike.top/Article/details/7449224619.shtml)
+- 2026-06-29 14:49 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/577851.shtml)
+- 2026-06-29 15:07 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/22740525.shtml)
+- 2026-06-29 15:08 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/64245237.shtml)
+- 2026-06-29 14:45 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/09962849.shtml)
+- 2026-06-29 15:06 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/44124142.shtml)
+- 2026-06-29 14:42 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/08900626824.shtml)
+- 2026-06-29 14:42 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/485948.shtml)
+- 2026-06-29 14:56 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/86730372800.shtml)
+- 2026-06-29 15:07 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/2630105.shtml)
+- 2026-06-29 15:06 - [沉睡花园](http://www.blog.minike.top/Article/details/2302701045.shtml)

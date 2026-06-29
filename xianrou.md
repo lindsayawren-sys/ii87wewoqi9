@@ -1,56 +1,58 @@
-# 谷歌押注AI智能体，企业市场成变现核心战场
+# 中东铝生产商遭伊朗袭击 加剧供应危机风险
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-谷歌正在将人工智能代理置于其企业战略的核心位置。在周二开幕的Google Cloud Next ‘26大会上，谷歌首席执行官桑达尔·皮查伊明确向投资者释放信号：AI智能体将成为谷歌从人工智能中变现的关键支柱。 战略重心全面转向企业级AI 本次为期三天的拉斯维加斯大会聚焦“代理式AI”，即推动AI从对话式向可自主规划、跨系统执行复杂任务升级。谷歌云首席执行官在接受采访时表示：“随
+两家中东铝生产商周六遭伊朗袭击，凸显出战争扰乱关键产业给全球经济带来挑战。 中东最大铝生产商阿联酋环球铝业（Emirates Global Aluminium）表示，位于阿布扎比的工厂遭受“严重损害”。巴林铝业（Aluminium Bahrain）则表示，正在评估工厂受损程度。 袭击对该地区大宗商品产业造成了又一次打击，由于霍尔木兹海峡已几乎完全封锁，生产商大多无法出口。除扰乱
 
 ## 正文
 
-谷歌正在将人工智能代理置于其企业战略的核心位置。
+两家中东铝生产商周六遭伊朗袭击，凸显出战争扰乱关键产业给全球经济带来挑战。
 
-在周二开幕的Google Cloud Next ‘26大会上，谷歌首席执行官桑达尔·皮查伊明确向投资者释放信号：AI智能体将成为谷歌从人工智能中变现的关键支柱。
+中东最大铝生产商阿联酋环球铝业（Emirates Global Aluminium）表示，位于阿布扎比的工厂遭受“严重损害”。
 
-战略重心全面转向企业级AI 本次为期三天的拉斯维加斯大会聚焦“代理式AI”，即推动AI从对话式向可自主规划、跨系统执行复杂任务升级。
+巴林铝业（Aluminium Bahrain）则表示，正在评估工厂受损程度。
 
-谷歌云首席执行官在接受采访时表示：“随着模型变得日益复杂，我们的战略确实发生了转变。
+袭击对该地区大宗商品产业造成了又一次打击，由于霍尔木兹海峡已几乎完全封锁，生产商大多无法出口。
 
-”他指出，Vertex AI的主要用例已从“传统机器学习”转向用户构建自定义AI代理的爆发式增长。
+除扰乱航运外，伊朗袭击还破坏了关键设施，可能会延长战争结束后企业恢复正常经营所需的时间。
 
-为整合产品线，谷歌宣布将一系列AI产品统一纳入“Gemini Enterprise”品牌，这包括对Vertex AI进行重塑和强化。
+随着交易商和买家关注市场供应趋紧和全球库存减少的可能性，冲突爆发前就已上涨的铝价进一步走高。
 
-Vertex AI允许云客户从多种AI模型中选择用于商业目的的工具。
+中东地区约占全球铝供应量的9%，其中相当一部分目前被受在霍尔木兹海峡。
 
-同时，谷歌还发布了针对AI代理的新治理和安全功能，以应对企业对于自主决策AI在安全性、可靠性和监督方面的担忧。
+高盛集团称，大宗商品价格上涨将对全球经济造成压力。
 
 ## 相关推荐
 
-- 2026-06-29 14:51 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 14:45 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 14:41 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 14:50 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 14:51 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 14:50 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 14:36 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 14:59 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 14:51 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 14:56 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 15:11 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 15:11 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 15:07 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 15:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 15:06 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 15:02 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 15:07 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 14:52 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 15:11 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 15:02 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 15:02 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 15:11 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/5502790.shtml)
-- 2026-06-29 14:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/37102542223.shtml)
-- 2026-06-29 14:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/155480.shtml)
-- 2026-06-29 14:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/233470.shtml)
-- 2026-06-29 14:41 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/440462594593.shtml)
-- 2026-06-29 14:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/9937473873.shtml)
-- 2026-06-29 14:53 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/23079017061.shtml)
-- 2026-06-29 14:48 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/81235.shtml)
-- 2026-06-29 14:44 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/470454330060.shtml)
-- 2026-06-29 14:39 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/58615346916.shtml)
-- 2026-06-29 14:44 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/01220029417.shtml)
-- 2026-06-29 15:03 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/21261404.shtml)
-- 2026-06-29 14:51 - [时光音乐会](http://www.blog.minike.top/Article/details/287880.shtml)
-- 2026-06-29 14:43 - [乔家的儿女](https://www.blog.minike.top/Article/details/201394.shtml)
-- 2026-06-29 15:01 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.minike.top/Article/details/9490416914.shtml)
+- 2026-06-29 15:00 - [小娘惹](https://www.share.minike.top/Article/details/48739598401.shtml)
+- 2026-06-29 15:06 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/8635537.shtml)
+- 2026-06-29 14:55 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/2426263846.shtml)
+- 2026-06-29 15:03 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/9254182992.shtml)
+- 2026-06-29 14:45 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.minike.top/Article/details/72994577.shtml)
+- 2026-06-29 15:10 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/3521071196.shtml)
+- 2026-06-29 14:53 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/809695101301.shtml)
+- 2026-06-29 15:07 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/149748.shtml)
+- 2026-06-29 15:03 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/3995355.shtml)
+- 2026-06-29 14:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/43489758.shtml)
+- 2026-06-29 15:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/514808593.shtml)
+- 2026-06-29 14:50 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/3991285.shtml)
+- 2026-06-29 14:50 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/131790.shtml)
+- 2026-06-29 14:49 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/808100.shtml)
+- 2026-06-29 15:00 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/366839.shtml)

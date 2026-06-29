@@ -1,60 +1,61 @@
-# 算电协同政策加速落地，电力ETF华泰柏瑞（561560）连续8个交易日获资金净流入
+# 世界数据组织成立！顶层强调数据资源价值！华宝基金大数据ETF（516700）盘中上探1.3%，中科星图领涨超4%
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-在全球电力需求增长、AI数据中心加速扩张的背景下，国内“算电协同”政策加速落地，电力板块持续获得资金青睐。今日（26/4/22）早盘，电力板块延续升温态势，相关ETF交投活跃。 受AI数据中心用电需求爆发影响，北美电力短缺问题日益严峻。能源消费者组织PowerLines报告显示，美国大型公用事业公司计划未来五年累计增加约1.4万亿美元资本支出，主要用于大规模升级老旧电网，为科技
+周二（3月31日）早盘，大数据产业表现活跃，OpenClaw龙虾概念相关ETF——大数据ETF华宝（516700）场内涨幅一度上探1.31%，现涨0.91%，盘中收复5日均线和年线，冲击日线3连阳！ 成份股方面，中科星图、易点天下领涨超4%，奇安信、城地香江、曙光数创涨逾2%，紫光股份、用友网络、天源迪科、奥飞数据等个股跟涨。 消息面上，世界数据组织3月30日在北京成立，是由全
 
 ## 正文
 
-在全球电力需求增长、AI数据中心加速扩张的背景下，国内“算电协同”政策加速落地，电力板块持续获得资金青睐。
+周二（3月31日）早盘，大数据产业表现活跃，OpenClaw龙虾概念相关ETF——大数据ETF华宝（516700）场内涨幅一度上探1.31%，现涨0.91%，盘中收复5日均线和年线，冲击日线3连阳！
 
-今日（26/4/22）早盘，电力板块延续升温态势，相关ETF交投活跃。
+成份股方面，中科星图、易点天下领涨超4%，奇安信、城地香江、曙光数创涨逾2%，紫光股份、用友网络、天源迪科、奥飞数据等个股跟涨。
 
-受AI数据中心用电需求爆发影响，北美电力短缺问题日益严峻。
+消息面上，世界数据组织3月30日在北京成立，是由全球数据领域相关单位及个人自愿结成的专业性、非政府、非营利性国际团体，旨在“弥合数据鸿沟、释放数据价值、繁荣数字经济”。
 
-能源消费者组织PowerLines报告显示，美国大型公用事业公司计划未来五年累计增加约1.4万亿美元资本支出，主要用于大规模升级老旧电网，为科技巨头主导的AI数据中心建设周期提供电力扩容支撑。
+据了解，组织将致力于推动全球数据合作与治理实践，积极探索数据在合规、安全、可信基础上的高效交流与合理利用路径，为全球数字经济发展提供坚实支撑。
 
-此外，国际能源署最新数据显示，2025 年全球电动汽车和数据中心的电力需求分别增长了 38% 和 17%。
+中国顶层领导向世界数据组织成立致贺信，并指出，当今世界正在加速迈入智能时代，数据的基础资源作用和创新引擎作用日渐显现。
 
-国内方面，2026年4月21日国新办新闻发布会上，有关部门表示近年来算力基础设施已成为驱动人工智能发展的关键底座，正在开展算电协同政策研究和标准制定。
+中国将秉持共商共建共享理念，支持世界数据组织发挥作用，同各方一道凝聚数据治理规则共识，推动数智技术创新，促进数据安全有序流动和高效开发利用，服务全球数字经济健康发展，让数据红利更好造福各国人民。
 
-国盛证券认为，算电协同作为国家基础设施顶层设计，各地区持续高频落地算电协同相关政策，持续投资与项目落地确定性强，关注调节价值凸显火电企业；电算协同有望打开绿电企业新增长空间，看好优质风光资产；把握水核防御，水电电价具备市场化优势、水核容量电价有待补充。
+从商业落地看，AI算力正从“成本中心”迈向“价值锚点”。
 
-电力板块交投显著升温，相关ETF持续“吸金”。
+国家数据局将Token中文名定为“词元”，明确其为智能时代价值锚点与供需结算单位，为AI商业化提供量化支撑。
 
 ## 相关推荐
 
-- 2026-06-29 15:05 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 14:56 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 14:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 14:59 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 14:51 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 14:43 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 14:51 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 14:49 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 15:05 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 14:43 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 14:57 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 14:49 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 14:36 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 15:04 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 14:52 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 15:09 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 14:52 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 15:03 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 15:05 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 15:12 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 14:43 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 14:51 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 15:01 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 15:08 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 14:51 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 15:08 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 14:42 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 14:56 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 15:01 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/603220.shtml)
-- 2026-06-29 15:03 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/280042633.shtml)
-- 2026-06-29 14:37 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/06590392.shtml)
-- 2026-06-29 14:39 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/9954390665.shtml)
-- 2026-06-29 14:57 - [世界杯看到肖战了](http://www.share.kurohicncr.top/Article/details/665494137.shtml)
-- 2026-06-29 14:54 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/87045771.shtml)
-- 2026-06-29 14:42 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/336112299.shtml)
-- 2026-06-29 14:51 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/12331.shtml)
-- 2026-06-29 15:02 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/273169742629.shtml)
-- 2026-06-29 14:57 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/61018.shtml)
-- 2026-06-29 14:58 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/448046.shtml)
-- 2026-06-29 14:45 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/8002714.shtml)
-- 2026-06-29 14:52 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/865444328945.shtml)
-- 2026-06-29 14:49 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/68449674852.shtml)
-- 2026-06-29 14:39 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/945838.shtml)
+- 2026-06-29 15:04 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/6104317.shtml)
+- 2026-06-29 14:49 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/37040.shtml)
+- 2026-06-29 14:52 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/94713.shtml)
+- 2026-06-29 14:59 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/73848926333.shtml)
+- 2026-06-29 14:42 - [市民骑哈啰单车79分钟付30元](https://www.blog.kurohicncr.top/Article/details/21511862.shtml)
+- 2026-06-29 15:03 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/1556817.shtml)
+- 2026-06-29 14:54 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/007145120.shtml)
+- 2026-06-29 15:02 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/90166526.shtml)
+- 2026-06-29 15:01 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/373113.shtml)
+- 2026-06-29 15:01 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/267148922.shtml)
+- 2026-06-29 14:54 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/802766.shtml)
+- 2026-06-29 15:07 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/10098321316.shtml)
+- 2026-06-29 14:49 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/30447117.shtml)
+- 2026-06-29 14:53 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/3686011.shtml)
+- 2026-06-29 15:09 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/759613928629.shtml)

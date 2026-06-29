@@ -1,59 +1,60 @@
-# 华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里
+# 得润电子因信披违法违规被处罚，适格股民可索赔损失！
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-快科技4月22日消息，今日晚间，在鸿蒙智行春季新品发布会上，余承东宣布：华为智能电驱系统叫华为智擎，今天华为正式发布智擎品牌。余承东表示，我们的华为智擎，电机系统连续三年动力总成质量排名第一，而且是连续两年30万元以上国内动力总成发货量第一名，累计安全行驶里程超过400亿公里。华为智擎采用双94%的碳化硅动力平台，同样50升油，我们能够比别人多发六度电；同样100度电，我们能比
+2026年3月28日，深圳市得润电子股份有限公司发布《关于公司及相关当事人收到的公告》，因得润电子相关年报存在虚假记载，深圳证监局正式对得润电子给予行政处罚。 违法事实 深圳证监局经调查认定得润电子存在如下违法行为： 一、2020年至2021年，因得润电子主要客户等经营困难，无法偿还欠款，致使公司现金流紧张，得润电子实际控制人、时任董事长、总裁邱建民通过自有资金、对外借款等方式
 
 ## 正文
 
-快科技4月22日消息，今日晚间，在鸿蒙智行春季新品发布会上，余承东宣布：华为智能电驱系统叫华为智擎，今天华为正式发布智擎品牌。
+2026年3月28日，深圳市得润电子股份有限公司发布《关于公司及相关当事人收到的公告》，因得润电子相关年报存在虚假记载，深圳证监局正式对得润电子给予行政处罚。
 
-余承东表示，我们的华为智擎，电机系统连续三年动力总成质量排名第一，而且是连续两年30万元以上国内动力总成发货量第一名，累计安全行驶里程超过400亿公里。
+违法事实 深圳证监局经调查认定得润电子存在如下违法行为： 一、2020年至2021年，因得润电子主要客户等经营困难，无法偿还欠款，致使公司现金流紧张，得润电子实际控制人、时任董事长、总裁邱建民通过自有资金、对外借款等方式，向得润电子客户、原子公司、设备供应商等提供资金支持，用于前述主体向得润电子归还历史欠款。
 
-华为智擎采用双94%的碳化硅动力平台，同样50升油，我们能够比别人多发六度电；同样100度电，我们能比别人多跑50公里。
+邱建民未向得润电子报告上述资金实际来源，导致得润电子2020年、2021年分别虚构回款394，584，426.91元、112，960，100元，少计信用减值损失371，151，433.40元、66，393，093.51元；少计资本公积 321，316，487.76元、434，276，587.76 元。
 
-性能升级方面，我们推出了自适应牙嵌式差速锁，锁止力更强，因为传统的越野车挂锁需要手动，华为智擎能够毫秒级识别自动挂锁。
+二、2022年6月，邱建民指使得润电子子公司以预付货款的形式，间接向得润电子联营公司提供资金，用于到期归还得润电子的财务资助款，导致得润电子2022年上半年虚构回款26，836，923.99元，少计信用减值损失5，060，996.46元。
 
-当业界低速蠕行普遍只能做到6公里每小时的时候，华为智擎已经实现了最低0.5公里每小时时速的超低速蠕行，能够更轻松地驾驭全地形路况，而且将颠簸路况下的速度波动大幅度下降。
+上述行为导致得润电子披露的2020年年度报告、2021年年度报告及2022年半年度报告存在虚假记载。
 
-安全性上，华为智擎采用我们自己的芯片，高压碳化硅功率芯片模组，超过车规级的标准。
+2022年1月11日，得润电子在完成有关非公开发行后披露了《非公开发行A股股票发行情况报告书暨上市公告书》，引用公司2020年年度报告及2021年1月至 9 月财务数据，存在虚假记载。
 
-同时还有AI监控的质量监控体系，架构更加安全。
+得润电子2020年年度报告、2021年年度报告、2022 年半年度报告及非公开发行文件存在虚假记载，涉嫌违反《证券法》（2019）第七十八条第二款的规定，构成《证券法》第一百九十七条第二款所述违法行为。
 
-我们面向下一代L3/L4的电驱系统架构体系，包括双冗余备份。
+索赔相关 按照相关法律法规的规定，上市公司证券虚假陈述，给投资人造成的投资损失，应当负赔偿责任。
 
 ## 相关推荐
 
-- 2026-06-29 14:41 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 15:02 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 14:40 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 15:02 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 15:00 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 14:40 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 14:55 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 14:49 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 14:53 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 14:44 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 14:48 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 14:39 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 14:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 15:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 14:52 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 14:48 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 14:44 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 14:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 14:50 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 14:58 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 14:56 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 14:52 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 14:57 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 14:46 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 14:56 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 14:46 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 15:08 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/51693.shtml)
-- 2026-06-29 14:40 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/960337034.shtml)
-- 2026-06-29 14:57 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/050863868.shtml)
-- 2026-06-29 14:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/889639044230.shtml)
-- 2026-06-29 14:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/4557337.shtml)
-- 2026-06-29 15:03 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/282163452101.shtml)
-- 2026-06-29 15:04 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/075669434.shtml)
-- 2026-06-29 14:54 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.kurohicncr.top/Article/details/318084.shtml)
-- 2026-06-29 14:41 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/738700693.shtml)
-- 2026-06-29 14:50 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/7114385.shtml)
-- 2026-06-29 14:41 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.kurohicncr.top/Article/details/87732511.shtml)
-- 2026-06-29 14:47 - [锐评浪姐7总决赛](http://www.share.minike.top/Article/details/629058289.shtml)
-- 2026-06-29 15:02 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/2921515593.shtml)
-- 2026-06-29 14:57 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/2337975416.shtml)
-- 2026-06-29 14:36 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/9161554.shtml)
+- 2026-06-29 15:11 - [航空运输旅客服务质量国标将实施](http://www.blog.minike.top/Article/details/27672887.shtml)
+- 2026-06-29 14:52 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/86574100.shtml)
+- 2026-06-29 14:49 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/97348.shtml)
+- 2026-06-29 14:54 - [吴建豪老婆](http://www.share.kurohicncr.top/Article/details/540941.shtml)
+- 2026-06-29 14:54 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/867816055.shtml)
+- 2026-06-29 15:00 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/192117123129.shtml)
+- 2026-06-29 15:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/093624715993.shtml)
+- 2026-06-29 14:44 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/4872805.shtml)
+- 2026-06-29 14:42 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/8624273.shtml)
+- 2026-06-29 14:55 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/87430198.shtml)
+- 2026-06-29 15:04 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/6974362.shtml)
+- 2026-06-29 14:48 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/547800.shtml)
+- 2026-06-29 14:52 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/97529.shtml)
+- 2026-06-29 14:59 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/7001254248.shtml)
+- 2026-06-29 14:55 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/32646094641.shtml)

@@ -1,59 +1,61 @@
-# 电力突发猛攻！粤电力A等4股涨停，电力ETF华宝（159146）放量上扬2%，资金连续加仓！
+# 泽连斯基称部分盟友要求乌克兰停止打击俄罗斯石油设施
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-4月23日午后，电力板块火速上攻，中证全指电力公用事业指数上涨超1%，成份股方面，粤电力A、节能风电、绿发电力、晶科科技等4股涨停，广西能源、浙江新能、江苏新能等多股冲击涨停。 热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内价格火速猛攻2%，实时成交超4000万元，资金连续七日加仓，今日实时净申购700万份，此前六日已累计增持超3亿元！ 电力ETF
+乌克兰总统弗拉基米尔・泽连斯基表示，随着全球油价持续上涨，乌克兰的部分盟友已要求乌方缩减对俄罗斯能源设施的打击行动。 泽连斯基在发给记者的一段语音消息中称：“近期，受全球能源危机影响，我们确实收到了部分伙伴国的信号，希望我们减少针对俄罗斯联邦石油及能源领域的反击行动。” 这位乌克兰领导人并未透露提出该要求的具体国家，但明确表示基辅方面不太可能照此执行。 他强调：“我再次重申：如
 
 ## 正文
 
-4月23日午后，电力板块火速上攻，中证全指电力公用事业指数上涨超1%，成份股方面，粤电力A、节能风电、绿发电力、晶科科技等4股涨停，广西能源、浙江新能、江苏新能等多股冲击涨停。
+乌克兰总统弗拉基米尔・泽连斯基表示，随着全球油价持续上涨，乌克兰的部分盟友已要求乌方缩减对俄罗斯能源设施的打击行动。
 
-热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内价格火速猛攻2%，实时成交超4000万元，资金连续七日加仓，今日实时净申购700万份，此前六日已累计增持超3亿元！
+泽连斯基在发给记者的一段语音消息中称：“近期，受全球能源危机影响，我们确实收到了部分伙伴国的信号，希望我们减少针对俄罗斯联邦石油及能源领域的反击行动。
 
-电力ETF华宝（159146）基金经理曹旭辰指出，电力板块近期表现较强主要受“算电协同”政策预期驱动，当前行情仍以短线资金博弈为主，但未来算电协同方向的政策催化有望持续增多。
+” 这位乌克兰领导人并未透露提出该要求的具体国家，但明确表示基辅方面不太可能照此执行。
 
-此外，电力板块后市真正的机会或在于基本面逻辑的切换。
+他强调：“我再次重申：如果俄罗斯愿意停止打击乌克兰的能源设施，我们也不会对其能源设施实施报复。
 
-他指出，一季度是电力板块业绩最差的时期，后续利空出清后或将有效确立基本面底部。
+” 他还补充称，乌克兰 “愿意接受任何形式的停火”。
 
-核心机会在于：若煤价因夏季用电需求进入上行通道，将推动电价上涨预期，从而可能催生电力板块的大行情。
+中东冲突爆发后，乌克兰加大了对俄罗斯能源基础设施的打击力度，试图阻止俄罗斯借高油价牟利。
 
-因此，时间或站在电力板块一方，建议考虑定投布局。
+仅上周，乌克兰无人机就袭击了俄罗斯多处炼油厂与出口终端。
 
-全方位把握能源机遇，建议关注电力ETF华宝（159146）及其外联接基金（代码：026949），标的指数聚焦电力公用事业领域，全面布局火电、水电、风电、核电及光伏，既能捕捉新能源装机爆发的成长弹性，又能依托传统电力龙头的高股息与稳定现金流平滑市场波动，实现“防守底仓+成长弹性”的双重适配。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 15:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 14:57 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 14:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 15:05 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 14:38 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 14:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 14:53 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 15:02 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 15:00 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 14:58 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 14:49 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 14:48 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 14:54 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 14:52 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 15:09 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 14:44 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 15:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 15:03 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 15:09 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 15:08 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 14:59 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 14:53 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 14:53 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 14:44 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 15:00 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 15:11 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 15:04 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/79867830023.shtml)
-- 2026-06-29 14:57 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/51828570.shtml)
-- 2026-06-29 14:51 - [比亚迪为什么卖得越多市值越低](https://www.share.minike.top/Article/details/32182197.shtml)
-- 2026-06-29 14:48 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/35410841871.shtml)
-- 2026-06-29 14:53 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/453927671.shtml)
-- 2026-06-29 14:53 - [德国队前往比赛场地遭遇囧途](http://www.blog.kurohicncr.top/Article/details/029669402.shtml)
-- 2026-06-29 14:52 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.minike.top/Article/details/9518627868.shtml)
-- 2026-06-29 14:51 - [上班主打一个薪尽自然凉](http://www.blog.kurohicncr.top/Article/details/20381135.shtml)
-- 2026-06-29 14:54 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/27872172.shtml)
-- 2026-06-29 14:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/77556934.shtml)
-- 2026-06-29 14:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/148567506.shtml)
-- 2026-06-29 15:04 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/8847254584.shtml)
-- 2026-06-29 14:44 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/221954528640.shtml)
-- 2026-06-29 14:55 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/9772077.shtml)
-- 2026-06-29 14:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/624251839377.shtml)
+- 2026-06-29 15:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/503869537725.shtml)
+- 2026-06-29 15:00 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/5765964.shtml)
+- 2026-06-29 14:53 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/471096533.shtml)
+- 2026-06-29 14:42 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/41416236836.shtml)
+- 2026-06-29 14:53 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/837363407414.shtml)
+- 2026-06-29 15:06 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/174730.shtml)
+- 2026-06-29 14:59 - [世界杯十大帅哥必吃榜](https://www.share.minike.top/Article/details/49924308936.shtml)
+- 2026-06-29 15:07 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/419320.shtml)
+- 2026-06-29 15:05 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/367149303207.shtml)
+- 2026-06-29 14:42 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/76043558.shtml)
+- 2026-06-29 14:52 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/50803287339.shtml)
+- 2026-06-29 14:54 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/30079.shtml)
+- 2026-06-29 14:45 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/45897935.shtml)
+- 2026-06-29 14:43 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.minike.top/Article/details/252920455.shtml)
+- 2026-06-29 14:57 - [急先锋](http://www.share.minike.top/Article/details/884640785636.shtml)

@@ -1,61 +1,60 @@
-# 从业绩“变脸”到蹭热点 今年以来证券监管密集出手
+# 张雪机车热门款“代买”加价至千元，概念股紧急提示风险
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 今年以来，上市公司收到监管函及警示函的节奏明显加快。据不完全统计，仅开年首月，就有20余家公司因信息披露违规被监管点名或立案；截至目前，已有95家公司收到监管函或警示函。密集的监管动作背后，暴露出业绩预告“变脸”、信息披露违规、内控治理缺失等多重问题。业绩预告大幅修正问题突出今年以来，多家公司因业绩预告与修正值之间存在巨大差异，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！3月31日，记者关注到，闲鱼平台有大量用户上架“代买张雪机车”相关链接，张雪机车热门款820RR的代购加价从500元到1000元不等。 张雪机车网站显示，张雪机车ZX820RR版此前已开启预定，全国统一售价为4.38万元。 据新华社报道，在3月29日结束的世界超级摩托车锦标赛（WSBK）葡萄牙站World
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 今年以来，上市公司收到监管函及警示函的节奏明显加快。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据不完全统计，仅开年首月，就有20余家公司因信息披露违规被监管点名或立案；截至目前，已有95家公司收到监管函或警示函。
+3月31日，记者关注到，闲鱼平台有大量用户上架“代买张雪机车”相关链接，张雪机车热门款820RR的代购加价从500元到1000元不等。
 
-密集的监管动作背后，暴露出业绩预告“变脸”、信息披露违规、内控治理缺失等多重问题。
+张雪机车网站显示，张雪机车ZX820RR版此前已开启预定，全国统一售价为4.38万元。
 
-业绩预告大幅修正问题突出今年以来，多家公司因业绩预告与修正值之间存在巨大差异，收到交易所监管函。
+据新华社报道，在3月29日结束的世界超级摩托车锦标赛（WSBK）葡萄牙站World SSP组别中，法国车手瓦伦丁·德比斯驾驶着来自中国摩托车制造商张雪机车的820RR—RS赛车，在该站赛事双回合正赛中相继夺冠。
 
-具体来看，皇氏集团（维权）(002329.SZ)于今年1月披露2025年度业绩预告，预计归母净利润亏损1.9亿元至2.8亿元。
+这不仅是中国摩托车制造商在这一顶级赛事中量级比赛的首个分站冠军，更一举打破了杜卡迪、雅马哈等在该组别长期占据优势的格局。
 
-4月1日，公司发布业绩预告修正公告，将亏损区间大幅下修至4.2亿元至4.9亿元。
+受此消息提振，3月31日，A股市场多只张雪机车概念股大涨，宏昌科技走出“20CM”二连板。
 
-4月17日，深交所向皇氏集团下发监管函，认定公司两次业绩预告披露的净利润存在较大差异，未能在规定期限内披露真实、准确、完整的业绩预告。
+公司盘后发布异动公告称，公司参设基金持有张雪机车5.5046%股权，该次投资为财务性投资，对公司影响较小。
 
-类似情形也出现在大叶股份（维权）(300879.SZ)。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 14:48 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 14:56 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 15:03 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 15:05 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 14:36 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 14:57 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 14:44 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 14:59 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 14:51 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 14:41 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 14:49 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 14:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 14:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 14:43 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 14:46 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 15:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 14:55 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 15:11 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 14:45 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 14:50 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 14:57 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 15:06 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 15:05 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 14:43 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 15:04 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 14:47 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 14:42 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 15:09 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 14:50 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/7679271.shtml)
-- 2026-06-29 14:45 - [锐评浪姐7总决赛](http://www.share.kurohicncr.top/Article/details/990608707707.shtml)
-- 2026-06-29 14:38 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/489572648.shtml)
-- 2026-06-29 15:01 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/05094852.shtml)
-- 2026-06-29 14:38 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.minike.top/Article/details/32537870.shtml)
-- 2026-06-29 14:40 - [李在明称韩国足协任命了无能之人](https://www.blog.minike.top/Article/details/95672158714.shtml)
-- 2026-06-29 14:53 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/2845103415.shtml)
-- 2026-06-29 14:46 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/16300014014.shtml)
-- 2026-06-29 14:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/08862313476.shtml)
-- 2026-06-29 14:50 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/22887157.shtml)
-- 2026-06-29 14:57 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/636541.shtml)
-- 2026-06-29 14:49 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/380879.shtml)
-- 2026-06-29 14:53 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/8519650.shtml)
-- 2026-06-29 14:44 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/96610738.shtml)
-- 2026-06-29 14:42 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/166508702.shtml)
+- 2026-06-29 15:06 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/376928765.shtml)
+- 2026-06-29 15:01 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/499149252.shtml)
+- 2026-06-29 15:10 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/30483097.shtml)
+- 2026-06-29 15:04 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/841566790.shtml)
+- 2026-06-29 15:02 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/807244901991.shtml)
+- 2026-06-29 14:43 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/60694454306.shtml)
+- 2026-06-29 14:49 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/136860471.shtml)
+- 2026-06-29 14:43 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/98660037.shtml)
+- 2026-06-29 14:48 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/76568963.shtml)
+- 2026-06-29 15:06 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/9659834.shtml)
+- 2026-06-29 14:52 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/77111.shtml)
+- 2026-06-29 14:49 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/91449.shtml)
+- 2026-06-29 15:09 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.minike.top/Article/details/17096.shtml)
+- 2026-06-29 15:06 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/227851.shtml)
+- 2026-06-29 14:57 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/19239512087.shtml)

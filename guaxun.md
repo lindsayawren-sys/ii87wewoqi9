@@ -1,44 +1,60 @@
-# ECI TECH发布中期业绩 股东应占溢利657万港元同比增加44.65%
+# 巴菲特称仍在伯克希尔主导投资决策 透露进行了一笔“小额”新买入
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-ECI TECH（08013）发布截至2026年2月28日止6个月的中期业绩，该集团取得收益1.21亿港元，同比增加21.64%；期内溢利657万港元，同比增加44.65%；每股基本盈利0.411港仙。责任编辑：卢昱君
+沃伦・巴菲特表示，即便已卸任首席执行官，他仍深度参与伯克希尔・哈撒韦的投资决策，并补充称近期完成了一笔“小额”新买入。 这位95岁的投资大师称，他仍每天到办公室上班，持续关注市场，并与同事共同开展交易操作。巴菲特介绍了自己的日常工作流程：开盘前会致电伯克希尔金融资产主管马克・米勒德，讨论市场走势。 他表示，米勒德的办公室距离他仅约20英尺，交易指令会根据两人沟通结果执行。这凸显
 
 ## 正文
 
-ECI TECH（08013）发布截至2026年2月28日止6个月的中期业绩，该集团取得收益1.21亿港元，同比增加21.64%；期内溢利657万港元，同比增加44.65%；每股基本盈利0.411港仙。
+沃伦・巴菲特表示，即便已卸任首席执行官，他仍深度参与伯克希尔・哈撒韦的投资决策，并补充称近期完成了一笔“小额”新买入。
 
-责任编辑：卢昱君
+这位95岁的投资大师称，他仍每天到办公室上班，持续关注市场，并与同事共同开展交易操作。
+
+巴菲特介绍了自己的日常工作流程：开盘前会致电伯克希尔金融资产主管马克・米勒德，讨论市场走势。
+
+他表示，米勒德的办公室距离他仅约20英尺，交易指令会根据两人沟通结果执行。
+
+这凸显出尽管2026年初已将CEO职位移交格雷格・阿贝尔，巴菲特仍亲自掌控投资事务。
+
+“我不会做任何格雷格认为错误的投资……格雷格每天都会收到投资持仓报表。
+
+”巴菲特表示。
+
+被问及是否有新投资时，他回应称近期进行了“一笔小额买入”，但未透露具体细节。
 
 ## 相关推荐
 
-- 2026-06-29 15:03 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 14:48 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 14:58 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 15:04 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 14:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 14:58 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 15:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 14:41 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 14:37 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 15:04 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 14:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 14:44 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 15:02 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 14:47 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 14:47 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 14:58 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 14:59 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 14:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 14:56 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 15:08 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 15:08 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 14:47 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 14:52 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 14:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:04 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/7462516117.shtml)
-- 2026-06-29 14:37 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.minike.top/Article/details/96069437.shtml)
-- 2026-06-29 14:47 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/703583163.shtml)
-- 2026-06-29 14:59 - [扫黑风暴](https://www.blog.minike.top/Article/details/71899942.shtml)
-- 2026-06-29 14:56 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/77766235.shtml)
-- 2026-06-29 14:40 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/69585.shtml)
-- 2026-06-29 14:36 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/103500651.shtml)
-- 2026-06-29 15:02 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/934524346335.shtml)
-- 2026-06-29 14:39 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/60453792953.shtml)
-- 2026-06-29 15:06 - [新一代影后杨紫](https://www.share.kurohicncr.top/Article/details/9993627853.shtml)
-- 2026-06-29 14:52 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/483777648535.shtml)
-- 2026-06-29 15:00 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/78840.shtml)
-- 2026-06-29 14:47 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/745560.shtml)
-- 2026-06-29 14:48 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/435032442018.shtml)
-- 2026-06-29 14:46 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/5583386.shtml)
+- 2026-06-29 15:09 - [流金岁月](https://www.share.minike.top/Article/details/6060874301.shtml)
+- 2026-06-29 14:49 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/198546.shtml)
+- 2026-06-29 14:43 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/313109237.shtml)
+- 2026-06-29 15:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/399018.shtml)
+- 2026-06-29 15:09 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/2883397.shtml)
+- 2026-06-29 14:54 - [东部机场集团新增釜山航线](https://www.share.kurohicncr.top/Article/details/811821.shtml)
+- 2026-06-29 14:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/423228.shtml)
+- 2026-06-29 14:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/9203512.shtml)
+- 2026-06-29 14:58 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/3644729629.shtml)
+- 2026-06-29 14:57 - [教育部发布高考志愿填报预警](https://www.share.kurohicncr.top/Article/details/4238811.shtml)
+- 2026-06-29 14:43 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/19299095813.shtml)
+- 2026-06-29 15:09 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/740561.shtml)
+- 2026-06-29 14:48 - [警方回应东鹏饮料董事长不喝东鹏](https://www.blog.minike.top/Article/details/9544096643.shtml)
+- 2026-06-29 14:46 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/42624994.shtml)
+- 2026-06-29 14:55 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/377748029.shtml)

@@ -1,56 +1,56 @@
-# 综合消息丨伊朗拒绝出席伊美第二轮谈判 特朗普延长与伊朗停火期限
+# 澳大利亚国民银行：霍尔木兹海峡仍然不通 美元下跌或是昙花一现
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-新华社德黑兰/华盛顿4月21日电 伊斯兰堡第二轮美伊谈判能否在停火协议到期前举行，悬念在21日揭晓：伊朗方面当晚正式拒绝出席预期于22日在巴基斯坦伊斯兰堡举行的第二轮谈判；稍晚，美国总统特朗普宣布，应巴基斯坦方面请求，他同意延长美伊停火期限，直至伊朗方面提交其方案并完成相关磋商。 据伊朗塔斯尼姆通讯社报道，伊方认为，美国正在阻挠达成任何实质性协议，参与谈判纯属浪费时间。伊朗也通
+澳大利亚国民银行称，有关美国总统唐纳德·特朗普跟助手谈论伊朗战争的报道，只会对汇率产生短暂的影响。 该行高级外汇策略师Rodrigo Catril称，由于风险偏好略有改善，美元的避险需求有所下降，但“鉴于伊朗冲突仍在持续，霍尔木兹海峡仍然关闭，要小心这一走势可能不会持久。”“重要的是霍尔木兹海峡重新开放”，中东地区的船只往来恢复到冲突前的水平。 澳大利亚国民银行表示，很难看出来
 
 ## 正文
 
-新华社德黑兰/华盛顿4月21日电 伊斯兰堡第二轮美伊谈判能否在停火协议到期前举行，悬念在21日揭晓：伊朗方面当晚正式拒绝出席预期于22日在巴基斯坦伊斯兰堡举行的第二轮谈判；稍晚，美国总统特朗普宣布，应巴基斯坦方面请求，他同意延长美伊停火期限，直至伊朗方面提交其方案并完成相关磋商。
+澳大利亚国民银行称，有关美国总统唐纳德·特朗普跟助手谈论伊朗战争的报道，只会对汇率产生短暂的影响。
 
-据伊朗塔斯尼姆通讯社报道，伊方认为，美国正在阻挠达成任何实质性协议，参与谈判纯属浪费时间。
+该行高级外汇策略师Rodrigo Catril称，由于风险偏好略有改善，美元的避险需求有所下降，但“鉴于伊朗冲突仍在持续，霍尔木兹海峡仍然关闭，要小心这一走势可能不会持久。
 
-伊朗也通过巴基斯坦宣布其决定，表示为了充分维护伊朗人民权利，伊方代表团22日将不会前往巴基斯坦。
+”“重要的是霍尔木兹海峡重新开放”，中东地区的船只往来恢复到冲突前的水平。
 
-特朗普政府重演“极限施压、临阵收手”的套路。
+澳大利亚国民银行表示，很难看出来美国撤退能怎么解决这个问题。
 
-特朗普21日在社交媒体发表声明称，伊朗政府“内部已严重分裂”，并称在巴基斯坦领导人请求下，“我们被要求暂缓对伊朗发动进攻，直至其领导人及代表能够拿出一份意见一致的方案”。
+没有船只通过霍尔木兹海峡，意味着美国和世界其他地区将面临油价在更长时间内居高不下的局面。
 
-他同时指示美军继续对伊朗实施海上封锁并保持战备状态。
-
-当天早些时候，特朗普在接受美国媒体采访时还称，他不希望延长同伊朗的停火协议，美军已做好作战准备。
-
-此前，特朗普20日称，美国和伊朗两周停火将于“华盛顿时间22日晚”到期。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 14:46 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 14:45 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 14:41 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 14:58 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 15:03 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 14:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 14:40 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 14:53 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 15:03 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 15:06 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 14:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 15:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 15:09 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 14:56 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 14:52 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 14:56 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 15:04 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 15:01 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 15:00 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 15:10 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 15:09 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 14:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 15:07 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/70149160.shtml)
-- 2026-06-29 14:44 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/325139630837.shtml)
-- 2026-06-29 14:41 - [乔家的儿女](http://www.share.minike.top/Article/details/213873.shtml)
-- 2026-06-29 14:44 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/451561680537.shtml)
-- 2026-06-29 14:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/45361079.shtml)
-- 2026-06-29 14:40 - [斗破苍穹](https://www.blog.minike.top/Article/details/239637.shtml)
-- 2026-06-29 14:52 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/1656931.shtml)
-- 2026-06-29 14:54 - [速度与激情9](http://www.blog.minike.top/Article/details/93349494221.shtml)
-- 2026-06-29 15:04 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.minike.top/Article/details/02460750900.shtml)
-- 2026-06-29 14:40 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/1451774.shtml)
-- 2026-06-29 14:59 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/322539049.shtml)
-- 2026-06-29 14:37 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/372505826.shtml)
-- 2026-06-29 14:43 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/50127133681.shtml)
-- 2026-06-29 14:55 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/430516.shtml)
-- 2026-06-29 14:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/571216198.shtml)
+- 2026-06-29 14:46 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/3506757318.shtml)
+- 2026-06-29 15:01 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/9306650012.shtml)
+- 2026-06-29 15:04 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/58424889571.shtml)
+- 2026-06-29 15:06 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/68314471.shtml)
+- 2026-06-29 14:50 - [TOP 无畏契约](https://www.share.minike.top/Article/details/8445268914.shtml)
+- 2026-06-29 15:11 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/529763038.shtml)
+- 2026-06-29 14:59 - [吴磊爱上回收了](https://www.blog.minike.top/Article/details/28797266.shtml)
+- 2026-06-29 15:08 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.minike.top/Article/details/4352364667.shtml)
+- 2026-06-29 15:08 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/4342546.shtml)
+- 2026-06-29 14:44 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/80929.shtml)
+- 2026-06-29 14:45 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/94522502.shtml)
+- 2026-06-29 14:45 - [媒体：网络测评不能只剩“生意”](https://www.blog.minike.top/Article/details/89241.shtml)
+- 2026-06-29 14:51 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/1792493660.shtml)
+- 2026-06-29 15:02 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/1782526.shtml)
+- 2026-06-29 15:09 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/958098.shtml)

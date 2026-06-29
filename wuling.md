@@ -1,49 +1,57 @@
-# 中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元
+# 丰田因补贴政策改变市场格局而领先 补贴赋予该公司明显的定价优势
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-4月21日，中国卫星(600118.SH)发布公告显示，公司2026年第一季度实现营业收入6.09亿元，较上年同期增长37.89%；归属于上市公司股东的净利润则为亏损4269.02万元。对于业绩变动，公告解释原因系“本报告期营业收入虽有所增加，但营业成本、期间费用、计提的资产减值损失较上年同期均有所增加，且其他收益中本期确认的增值税加计抵减额较上年同期减少。”（央广财经）（文章
+丰田在日本电动车市场开始超越比亚迪，而目前两者的差异非常简单：定价。 这一差距是由政府补贴推动的。丰田的电动车最高可获得130万日元（约合8188美元）的补贴，而比亚迪的车型仅能获得约35万至45万日元（约合2200至2800美元）。两者相差近6000美元，这对于任何实际购车的消费者来说都是一个巨大的差异。这使得丰田的产品看起来更具吸引力，甚至在考虑配置或品牌之前就已经如此。
 
 ## 正文
 
-4月21日，中国卫星(600118.SH)发布公告显示，公司2026年第一季度实现营业收入6.09亿元，较上年同期增长37.89%；归属于上市公司股东的净利润则为亏损4269.02万元。
+丰田在日本电动车市场开始超越比亚迪，而目前两者的差异非常简单：定价。
 
-对于业绩变动，公告解释原因系“本报告期营业收入虽有所增加，但营业成本、期间费用、计提的资产减值损失较上年同期均有所增加，且其他收益中本期确认的增值税加计抵减额较上年同期减少。
+这一差距是由政府补贴推动的。
 
-”（央广财经）（文章来源：央广财经）
+丰田的电动车最高可获得130万日元（约合8188美元）的补贴，而比亚迪的车型仅能获得约35万至45万日元（约合2200至2800美元）。
+
+两者相差近6000美元，这对于任何实际购车的消费者来说都是一个巨大的差异。
+
+这使得丰田的产品看起来更具吸引力，甚至在考虑配置或品牌之前就已经如此。
+
+你已经可以看到这种转变正在发生。
+
+2026年2月，丰田售出了超过2000辆bZ4X，连续第四个月位居日本国内电动车市场榜首。
+
+而不久前情况正好相反。
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 14:45 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 14:40 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 15:05 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 14:52 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 15:04 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 14:39 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 14:36 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 15:03 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 14:43 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 14:48 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 14:47 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 14:57 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 15:02 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 15:09 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 14:51 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 14:50 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 14:53 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 14:46 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 15:03 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 15:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 14:50 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 14:55 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 15:08 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/12507625767.shtml)
-- 2026-06-29 14:58 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/17964.shtml)
-- 2026-06-29 14:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/20665534.shtml)
-- 2026-06-29 15:05 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/158053366.shtml)
-- 2026-06-29 14:39 - [Agent带来token消耗爆炸](https://www.blog.minike.top/Article/details/7204251.shtml)
-- 2026-06-29 14:55 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/235717529.shtml)
-- 2026-06-29 14:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/109755126.shtml)
-- 2026-06-29 14:57 - [沉睡花园](http://www.share.minike.top/Article/details/0494055.shtml)
-- 2026-06-29 14:55 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/6215673.shtml)
-- 2026-06-29 14:43 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/01928.shtml)
-- 2026-06-29 14:42 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/34612081.shtml)
-- 2026-06-29 14:57 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/808470.shtml)
-- 2026-06-29 15:01 - [上班主打一个薪尽自然凉](http://www.share.kurohicncr.top/Article/details/10050872.shtml)
-- 2026-06-29 14:39 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/136616.shtml)
-- 2026-06-29 14:51 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/68709.shtml)
+- 2026-06-29 14:42 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/1484616.shtml)
+- 2026-06-29 14:42 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/878966726.shtml)
+- 2026-06-29 14:57 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.minike.top/Article/details/51984896.shtml)
+- 2026-06-29 15:10 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/695278982.shtml)
+- 2026-06-29 14:54 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/03326851799.shtml)
+- 2026-06-29 14:45 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/9523942.shtml)
+- 2026-06-29 15:05 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/36528792.shtml)
+- 2026-06-29 14:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/16053665.shtml)
+- 2026-06-29 14:42 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/1860303.shtml)
+- 2026-06-29 15:10 - [周生如故](http://www.share.minike.top/Article/details/067866.shtml)
+- 2026-06-29 14:56 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/9968225827.shtml)
+- 2026-06-29 14:47 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/1658109194.shtml)
+- 2026-06-29 15:07 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/774560584.shtml)
+- 2026-06-29 14:58 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/543908.shtml)
+- 2026-06-29 15:03 - [以前不让妆女二可以艳压女主](http://www.share.kurohicncr.top/Article/details/349383063636.shtml)

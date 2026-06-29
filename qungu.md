@@ -1,58 +1,46 @@
-# 日本众议院表决通过设立“国家情报局”法案
+# 盛龙锦秀国际发布年度业绩 股东应占溢利7584.8万元同比增长59.6%
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-当地时间23日下午，日本众议院全体会上表决通过了有关设置“国家情报局”的法案。该法案将移交参议院进行表决。 自日本首相高市早苗去年10月上台以来，日本政府以现有机构在情报整合方面协作不足为由，多次表示要建立新的情报机构“国家情报局”。今年3月，日本政府通过决议，向国会提交相关法案，拟新设以“国家情报会议”为核心、“国家情报局”为具体事务机构的情报机制。 相关动向自酝酿阶段就一直
+盛龙锦秀国际（08481）发布截至2025年12月31日止财政年度全年业绩，集团收益人民币5.86亿元；股东应占溢利7584.8万元，同比增长59.6%；每股盈利17.8分。责任编辑：卢昱君
 
 ## 正文
 
-当地时间23日下午，日本众议院全体会上表决通过了有关设置“国家情报局”的法案。
+盛龙锦秀国际（08481）发布截至2025年12月31日止财政年度全年业绩，集团收益人民币5.86亿元；股东应占溢利7584.8万元，同比增长59.6%；每股盈利17.8分。
 
-该法案将移交参议院进行表决。
-
-自日本首相高市早苗去年10月上台以来，日本政府以现有机构在情报整合方面协作不足为由，多次表示要建立新的情报机构“国家情报局”。
-
-今年3月，日本政府通过决议，向国会提交相关法案，拟新设以“国家情报会议”为核心、“国家情报局”为具体事务机构的情报机制。
-
-相关动向自酝酿阶段就一直受到质疑。
-
-在野党“中道改革联合”代表小川淳也曾在众议院会议上指出，“国家情报局”搜集的情报存在被政治利用的风险。
-
-日本方面有评论说：“如果情报机构权力持续扩大，对社会监控加强，可能导致个人隐私被侵犯，破坏宪法所保障的‘表达自由’。
-
-”责任编辑：郭建
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:50 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 14:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 14:55 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 14:57 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 15:05 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 15:03 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 15:03 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 14:38 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 14:39 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 14:41 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 14:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 14:38 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 15:07 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 15:03 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 14:52 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 14:52 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 14:45 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 14:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 15:05 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 15:11 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 15:05 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 14:46 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 15:08 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 14:53 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:48 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/041520595690.shtml)
-- 2026-06-29 14:52 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/014094343925.shtml)
-- 2026-06-29 15:00 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/5156158.shtml)
-- 2026-06-29 14:37 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/5536061.shtml)
-- 2026-06-29 15:02 - [韩国记者：解码“合肥模式”](https://www.blog.kurohicncr.top/Article/details/084100.shtml)
-- 2026-06-29 14:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/46485.shtml)
-- 2026-06-29 14:43 - [巴基斯坦军方打死29名武装分子](http://www.blog.kurohicncr.top/Article/details/151373741677.shtml)
-- 2026-06-29 14:40 - [T1 vs KC MSI](https://www.share.minike.top/Article/details/1660190946.shtml)
-- 2026-06-29 15:04 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/4194089618.shtml)
-- 2026-06-29 14:53 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.kurohicncr.top/Article/details/80756038.shtml)
-- 2026-06-29 14:47 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/9102945.shtml)
-- 2026-06-29 14:46 - [3D打印不是工业革命，它是……](https://www.share.kurohicncr.top/Article/details/0384887.shtml)
-- 2026-06-29 14:46 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/74832725473.shtml)
-- 2026-06-29 14:44 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/230437.shtml)
-- 2026-06-29 14:58 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/085882034916.shtml)
+- 2026-06-29 14:55 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/9141593440.shtml)
+- 2026-06-29 14:52 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/20113564399.shtml)
+- 2026-06-29 15:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/8471996.shtml)
+- 2026-06-29 15:00 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/1305841.shtml)
+- 2026-06-29 15:08 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/790373789.shtml)
+- 2026-06-29 15:09 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.blog.minike.top/Article/details/630163087.shtml)
+- 2026-06-29 14:59 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/687596848.shtml)
+- 2026-06-29 15:10 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/57826898853.shtml)
+- 2026-06-29 15:00 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/8711637193.shtml)
+- 2026-06-29 14:54 - [《贺子珍》](https://www.share.minike.top/Article/details/9229303918.shtml)
+- 2026-06-29 15:05 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/84311.shtml)
+- 2026-06-29 15:10 - [爸爸当家](http://www.blog.minike.top/Article/details/240951024.shtml)
+- 2026-06-29 14:57 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/24947256.shtml)
+- 2026-06-29 15:09 - [勇敢的心第二部](https://www.share.minike.top/Article/details/970956220.shtml)
+- 2026-06-29 14:55 - [给阿嬷的情书海外口碑](https://www.share.minike.top/Article/details/845611.shtml)

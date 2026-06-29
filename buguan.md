@@ -1,59 +1,61 @@
-# 飙涨11倍！紫金矿业悄然炼成“锂”想版图
+# 特朗普称可能“两到三周内”结束对伊朗军事行动
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 田鹤琪 在金价与铜价双双飙升的背景下，紫金矿业（601899.SH）交出了一份亮眼的一季度成绩单。这并非只是属于传统贵金属的狂欢。财报显示，该公司碳酸锂业务正呈现爆发式增长，标志着这家矿业巨头正加速构建新能源时代的“白色石油”版图。 今年一季度，紫金矿业实现营业收入985亿元，同比增长25%；归母净利润201亿元，同比增长98%。这是该公司季度利润首次突破20
+美国总统唐纳德·特朗普周二表示，美国可能在“两到三周内”结束对伊朗的军事行动。这一言论正值人们越来越担心这场冲突会对油价和通胀造成影响之际。 特朗普是在白宫举行的新闻发布会上发表上述言论的。此前，一名记者询问他是否有计划降低油价。 “我只需要离开伊朗，我们很快就会离开，”他说。 特朗普预计美军撤离可能在几周内完成。 “我认为两到三周内就会撤离。我们没有理由继续待在这里，”他说。
 
 ## 正文
 
-界面新闻记者 | 田鹤琪 在金价与铜价双双飙升的背景下，紫金矿业（601899.SH）交出了一份亮眼的一季度成绩单。
+美国总统唐纳德·特朗普周二表示，美国可能在“两到三周内”结束对伊朗的军事行动。
 
-这并非只是属于传统贵金属的狂欢。
+这一言论正值人们越来越担心这场冲突会对油价和通胀造成影响之际。
 
-财报显示，该公司碳酸锂业务正呈现爆发式增长，标志着这家矿业巨头正加速构建新能源时代的“白色石油”版图。
+特朗普是在白宫举行的新闻发布会上发表上述言论的。
 
-今年一季度，紫金矿业实现营业收入985亿元，同比增长25%；归母净利润201亿元，同比增长98%。
+此前，一名记者询问他是否有计划降低油价。
 
-这是该公司季度利润首次突破200亿。
+“我只需要离开伊朗，我们很快就会离开，”他说。
 
-2025年年末，紫金矿业完成了重要的人事交接，副董事长兼总裁邹来昌升任董事长，这也是其履新后交出的首份业绩答卷。
+特朗普预计美军撤离可能在几周内完成。
 
-今年一季度，该公司实现矿产金23.5吨，同比增加23%；实现矿产铜26万吨，同比下降9.9%，主要因卡莫阿-卡库拉铜矿减产影响。
+“我认为两到三周内就会撤离。
 
-综合毛利率36.33%，同比提升13.44个百分点，矿山毛利率更是高达71.01%。
+我们没有理由继续待在这里，”他说。
 
 ## 相关推荐
 
-- 2026-06-29 14:44 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 15:01 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 14:46 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 15:01 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 14:58 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 15:05 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 14:52 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 14:47 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 14:54 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 15:03 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 14:53 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 14:37 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 15:04 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 14:59 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 15:04 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 14:52 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 14:44 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 15:09 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 15:03 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 14:56 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 14:49 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 15:11 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 14:50 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 15:01 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 14:48 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 15:05 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 15:07 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 14:43 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/25714064695.shtml)
-- 2026-06-29 15:04 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/87728528843.shtml)
-- 2026-06-29 14:55 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/7584741.shtml)
-- 2026-06-29 14:39 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/24227649.shtml)
-- 2026-06-29 15:01 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/4123784.shtml)
-- 2026-06-29 14:40 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/82043.shtml)
-- 2026-06-29 14:40 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/83572331.shtml)
-- 2026-06-29 14:56 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/027257.shtml)
-- 2026-06-29 14:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/81712064648.shtml)
-- 2026-06-29 14:48 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/0044650303.shtml)
-- 2026-06-29 14:43 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/450002749981.shtml)
-- 2026-06-29 15:05 - [中国战机大片上新](http://www.blog.minike.top/Article/details/271400487246.shtml)
-- 2026-06-29 14:45 - [《贺子珍》](http://www.blog.minike.top/Article/details/75437.shtml)
-- 2026-06-29 14:41 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/8008390.shtml)
-- 2026-06-29 14:43 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/317119884.shtml)
+- 2026-06-29 14:47 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/301877454932.shtml)
+- 2026-06-29 14:59 - [天道](http://www.share.kurohicncr.top/Article/details/01134.shtml)
+- 2026-06-29 15:01 - [赵露思爸爸拍vlog翻车了](http://www.share.minike.top/Article/details/120591.shtml)
+- 2026-06-29 14:47 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/05014.shtml)
+- 2026-06-29 14:43 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/381937.shtml)
+- 2026-06-29 14:48 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/458843738308.shtml)
+- 2026-06-29 14:52 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/1022129.shtml)
+- 2026-06-29 15:09 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/578773328.shtml)
+- 2026-06-29 14:45 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/6419546133.shtml)
+- 2026-06-29 14:54 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/01230022348.shtml)
+- 2026-06-29 14:50 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/75942.shtml)
+- 2026-06-29 15:09 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/4733081.shtml)
+- 2026-06-29 14:46 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/25156.shtml)
+- 2026-06-29 14:45 - [周生如故](https://www.share.kurohicncr.top/Article/details/34639442.shtml)
+- 2026-06-29 15:03 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/635564241763.shtml)

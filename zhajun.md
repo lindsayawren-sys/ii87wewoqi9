@@ -1,51 +1,56 @@
-# 美媒：特朗普称未来36至72小时内“可能”与伊朗谈判
+# 五大上市险企银保成绩单“量价”齐涨，规则重塑后竞争转入“深水区”
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月22日电 据《纽约邮报》22日报道，美国总统特朗普称未来36至72小时内“可能”与伊朗举行和平谈判。（完）责任编辑：宋雅芳
+来源：北京商报 银保渠道按下加速键。4月7日，北京商报记者梳理五大A股上市险企2025年报发现，几家头部寿险公司银保渠道保费收入合计约3128.72亿元，同比增幅高达41.5%。更令市场侧目的是，该渠道新业务价值的井喷式爆发。多家公司银保新业务价值同比增长超100%。 就在这份亮眼成绩单密集披露之际，监管部门下发了关于细化银保渠道“报行合一”的新通知。在业内人士看来，费用口径收
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：北京商报 银保渠道按下加速键。
 
-新华社华盛顿4月22日电 据《纽约邮报》22日报道，美国总统特朗普称未来36至72小时内“可能”与伊朗举行和平谈判。
+4月7日，北京商报记者梳理五大A股上市险企2025年报发现，几家头部寿险公司银保渠道保费收入合计约3128.72亿元，同比增幅高达41.5%。
 
-（完）责任编辑：宋雅芳
+更令市场侧目的是，该渠道新业务价值的井喷式爆发。
+
+多家公司银保新业务价值同比增长超100%。
+
+就在这份亮眼成绩单密集披露之际，监管部门下发了关于细化银保渠道“报行合一”的新通知。
+
+在业内人士看来，费用口径收紧、问责机制强化、监管手段补漏……这场从“费用驱动”向“价值驱动”的转型，才刚刚进入深水区。
+
+千亿赛道崛起：银保按下“加速键” 2025年成为银保渠道的“爆发之年”。
+
+中国人寿银保业务总保费跨越千亿元大关，达到1108.74亿元，同比增幅为45.5%。
 
 ## 相关推荐
 
-- 2026-06-29 14:56 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 14:49 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 14:43 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 14:56 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 14:50 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 14:58 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 14:39 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 14:50 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 15:04 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 14:55 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 14:50 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 14:43 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 14:53 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 14:44 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 15:01 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 14:59 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 14:42 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 14:57 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 14:54 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 15:11 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 14:59 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 14:54 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 14:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 15:02 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 14:55 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/557257015140.shtml)
-- 2026-06-29 14:59 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/00335.shtml)
-- 2026-06-29 15:02 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/33417363501.shtml)
-- 2026-06-29 14:44 - [AG 钟意](http://www.share.minike.top/Article/details/3564986.shtml)
-- 2026-06-29 15:05 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/391652618.shtml)
-- 2026-06-29 14:53 - [乔家的儿女](http://www.blog.minike.top/Article/details/86015884344.shtml)
-- 2026-06-29 15:05 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/594360396947.shtml)
-- 2026-06-29 14:38 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/36999.shtml)
-- 2026-06-29 15:03 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/1814808669.shtml)
-- 2026-06-29 14:47 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/370940612.shtml)
-- 2026-06-29 15:00 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/56371562.shtml)
-- 2026-06-29 14:38 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/42732954.shtml)
-- 2026-06-29 14:53 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/64903888.shtml)
-- 2026-06-29 14:56 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/7888295.shtml)
-- 2026-06-29 14:36 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/0118332718.shtml)
+- 2026-06-29 15:00 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/372892616.shtml)
+- 2026-06-29 14:57 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/87714.shtml)
+- 2026-06-29 15:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/6066102209.shtml)
+- 2026-06-29 14:47 - [爱很美味](http://www.blog.minike.top/Article/details/07197162833.shtml)
+- 2026-06-29 14:55 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/719616.shtml)
+- 2026-06-29 14:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/728681.shtml)
+- 2026-06-29 15:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/71014828.shtml)
+- 2026-06-29 14:52 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/745944901.shtml)
+- 2026-06-29 15:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/03109647.shtml)
+- 2026-06-29 14:54 - [德国VS巴拉圭前瞻](http://www.blog.kurohicncr.top/Article/details/448631882.shtml)
+- 2026-06-29 15:09 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/5697469.shtml)
+- 2026-06-29 15:01 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/83428272049.shtml)
+- 2026-06-29 14:54 - [上班主打一个薪尽自然凉](http://www.blog.minike.top/Article/details/87697050170.shtml)
+- 2026-06-29 14:47 - [韩媒破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/82180379082.shtml)
+- 2026-06-29 14:54 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/07141.shtml)

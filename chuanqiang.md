@@ -1,59 +1,56 @@
-# 万亿中原银行董事长、行长同一天换人！三类行业贷款不良率超5%
+# 无惧特朗普“灭亡”威胁 德黑兰强硬派释放长期多线作战意愿
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者 | 郑理、谢美浴 来源 | 独角金融 站在资产超1.4万亿元的“金融豫军”排头兵高位，4月21日，中原银行（1216.HK）一则公告，揭开了这家万亿级城商行又一轮高层变局的序幕。 公告显示，中原银行董事长、执行董事郭浩由于工作调动，向董事会提交辞呈；接任董事长职务的是中原银行行长周锋，这距离周锋获批行
+随着特朗普要求伊朗同意停火协议的最后期限临近，德黑兰当前掌权的强硬派正对局势升级乃至地区性冲突表现出强烈意愿。 在持续近六周的战争中，美国和以色列已消灭伊斯兰革命卫队多名高级指挥官，但剩余力量正准备打一场持久战，对特朗普威胁摧毁民用基础设施的言论几无畏惧。这可能引发战事升级，进一步波及中东国家，并加剧当前的全球能源危机。 一个与伊斯兰革命卫队有关联的伊拉克民兵组织周二警告称，若
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+随着特朗普要求伊朗同意停火协议的最后期限临近，德黑兰当前掌权的强硬派正对局势升级乃至地区性冲突表现出强烈意愿。
 
-作者 | 郑理、谢美浴 来源 | 独角金融 站在资产超1.4万亿元的“金融豫军”排头兵高位，4月21日，中原银行（1216.HK）一则公告，揭开了这家万亿级城商行又一轮高层变局的序幕。
+在持续近六周的战争中，美国和以色列已消灭伊斯兰革命卫队多名高级指挥官，但剩余力量正准备打一场持久战，对特朗普威胁摧毁民用基础设施的言论几无畏惧。
 
-公告显示，中原银行董事长、执行董事郭浩由于工作调动，向董事会提交辞呈；接任董事长职务的是中原银行行长周锋，这距离周锋获批行长任职资格仅过去仅4个月。
+这可能引发战事升级，进一步波及中东国家，并加剧当前的全球能源危机。
 
-与此同时，董事会决定由河南农商银行原副行长张涛接任行长职位。
+一个与伊斯兰革命卫队有关联的伊拉克民兵组织周二警告称，若特朗普落实对伊朗全面打击的威胁，该组织将攻击红海的延布港，“将世界拖入一场能源战争”。
 
-表面看，这家河南最大的省属城商行正处在“光鲜”时刻。
+沙特目前通过延布港每天出口近500万桶石油，以绕开伊朗对霍尔木兹海峡的封锁。
 
-2025年年报显示，总资产达14142.93亿元，全年实现营业收入265.07亿元、净利润35.76亿元，同比分别增长2.1%和3.1%，不良贷款率连续三年下降至1.96%，刚公布一份体面的成绩单，为何紧接着对核心管理层“动刀”？
+伦敦查塔姆研究所中东和北非项目主任Sanam Vakil表示：“那些在制度上和个人层面都与政权的韧性和生存息息相关的人如今掌握着指挥权和控制权，他们很难信服现在是达成协议的时机，也正因此，伊朗不断提出如此苛刻的条款及条件。
 
-实际上，该行整体不良率依然高于城商行平均水平。
+” 伊朗的要求包括保证不再遭受美以的攻击、拥有霍尔木兹海峡的控制权及解除长期经济制裁。
 
-其中，房地产不良贷款率飙升至5.89%，个人消费贷不良率攀升至3.39%，信用卡不良率达5.31%，关注类贷款增至240.43亿元，一场“将帅齐换”背后，是为了下一阶段存量风险化解的提前排兵布阵，还是为更深层次的战略转向铺路？
+特朗普则希望德黑兰重新开放霍尔木兹海峡、放弃其核计划、停止支持代理武装组织，并接受对其导弹计划的限制。
 
 ## 相关推荐
 
-- 2026-06-29 15:02 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 14:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 14:48 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 14:43 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 14:59 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 14:41 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 14:54 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 14:57 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 14:53 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 14:56 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 15:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 14:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 14:50 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 15:07 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 14:57 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 15:01 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 15:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 14:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 15:07 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 14:44 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 14:47 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 14:49 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 14:58 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/48846661.shtml)
-- 2026-06-29 14:47 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/8647714.shtml)
-- 2026-06-29 14:57 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/671765212.shtml)
-- 2026-06-29 14:51 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/7552916293.shtml)
-- 2026-06-29 14:38 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/7379546.shtml)
-- 2026-06-29 14:53 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/058741.shtml)
-- 2026-06-29 14:40 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/51350.shtml)
-- 2026-06-29 14:47 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/302253374212.shtml)
-- 2026-06-29 14:59 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/5320640992.shtml)
-- 2026-06-29 14:38 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/1246231.shtml)
-- 2026-06-29 14:41 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/792310.shtml)
-- 2026-06-29 15:00 - [第一炉香](http://www.share.kurohicncr.top/Article/details/7802128.shtml)
-- 2026-06-29 14:46 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/01782.shtml)
-- 2026-06-29 15:05 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/769274679502.shtml)
-- 2026-06-29 14:54 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/325788.shtml)
+- 2026-06-29 14:43 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/20266414235.shtml)
+- 2026-06-29 15:00 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/77728540020.shtml)
+- 2026-06-29 15:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/40622982.shtml)
+- 2026-06-29 14:59 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/85765188.shtml)
+- 2026-06-29 15:05 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/77991.shtml)
+- 2026-06-29 15:08 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/5501693.shtml)
+- 2026-06-29 15:10 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/23154666568.shtml)
+- 2026-06-29 14:48 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/656312052559.shtml)
+- 2026-06-29 14:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/73220797522.shtml)
+- 2026-06-29 14:49 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/6876488.shtml)
+- 2026-06-29 14:57 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/03877056.shtml)
+- 2026-06-29 15:01 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/355431725070.shtml)
+- 2026-06-29 14:42 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/25333774.shtml)
+- 2026-06-29 15:01 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/3546355.shtml)
+- 2026-06-29 15:06 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/6998214762.shtml)

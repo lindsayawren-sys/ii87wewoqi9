@@ -1,51 +1,60 @@
-# 商务部：美方退税举措是在纠正错误道路上的有利一步
+# OpenAI完成1220亿美元融资 估值达8520亿美元
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-商务部今天（4月23日）下午举行例行新闻发布会，针对美国海关与边境保护局在20日开始相关关税的退款工作，商务部表示，中方一贯反对任何形式的单边加征关税措施，美方对等关税、芬太尼关税等单边措施，既违反国际经贸规则，也违反美国国内法，危害全球经贸秩序，不符合各方利益。 何咏前表示，美方退税举措是在纠正错误道路上的有利一步，需要说明的是，这些关税由美海关向美进口商直接收取，并最终由美
+OpenAI已完成一轮融资交易，以8520亿美元估值向投资者募资1220亿美元。这是该公司迄今规模最大的一轮融资，将支持其在芯片、数据中心和人才方面的高昂投入。 这笔融资历时数月，主要来自三家大型科技公司。其中，亚马逊同意投资500亿美元，英伟达和软银集团分别投资300亿美元。亚马逊投资中有很大一部分 —— 350亿美元 —— 以OpenAI 上市或达到通用人工智能（AGI）技
 
 ## 正文
 
-商务部今天（4月23日）下午举行例行新闻发布会，针对美国海关与边境保护局在20日开始相关关税的退款工作，商务部表示，中方一贯反对任何形式的单边加征关税措施，美方对等关税、芬太尼关税等单边措施，既违反国际经贸规则，也违反美国国内法，危害全球经贸秩序，不符合各方利益。
+OpenAI已完成一轮融资交易，以8520亿美元估值向投资者募资1220亿美元。
 
-何咏前表示，美方退税举措是在纠正错误道路上的有利一步，需要说明的是，这些关税由美海关向美进口商直接收取，并最终由美消费者承担。
+这是该公司迄今规模最大的一轮融资，将支持其在芯片、数据中心和人才方面的高昂投入。
 
-建议中国出口企业结合自身实际，积极与有关利益相关方沟通，维护自身合法正当权益。
+这笔融资历时数月，主要来自三家大型科技公司。
 
-责任编辑：刘万里 SF014
+其中，亚马逊同意投资500亿美元，英伟达和软银集团分别投资300亿美元。
+
+亚马逊投资中有很大一部分 —— 350亿美元 —— 以OpenAI 上市或达到通用人工智能（AGI）技术里程碑为先决条件。
+
+这家ChatGPT开发商还获得了众多其他知名支持者的资金，包括Andreessen Horowitz、阿布扎比的MGX、D.E． Shaw Ventures、TPG和普徕仕。
+
+公司估值已包含此次融资金额。
+
+OpenAI首次通过银行渠道向个人投资者募资逾30亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 14:45 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 14:46 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 14:53 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 14:51 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 14:38 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 15:00 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 14:52 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 14:47 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 14:44 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 14:57 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 14:57 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 15:06 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 15:07 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 15:06 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 15:07 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 14:59 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 15:09 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 14:45 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 15:10 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 14:43 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 14:43 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 15:04 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 14:43 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 14:42 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 14:49 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 15:06 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [A股](https://www.share.minike.top/Article/details/43462.shtml)
-- 2026-06-29 14:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/33186315.shtml)
-- 2026-06-29 14:54 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/931773905061.shtml)
-- 2026-06-29 14:42 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/5960928.shtml)
-- 2026-06-29 14:36 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/61072.shtml)
-- 2026-06-29 14:44 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/4512618.shtml)
-- 2026-06-29 14:40 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/163126388.shtml)
-- 2026-06-29 14:50 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/36340769700.shtml)
-- 2026-06-29 14:55 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/635197.shtml)
-- 2026-06-29 15:03 - [网警提醒4类高考查分陷阱考生速看](https://www.share.kurohicncr.top/Article/details/288174673.shtml)
-- 2026-06-29 14:51 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/20122765.shtml)
-- 2026-06-29 14:38 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/86276.shtml)
-- 2026-06-29 14:52 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/832940335727.shtml)
-- 2026-06-29 14:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/25365038.shtml)
-- 2026-06-29 14:51 - [我国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/584811192236.shtml)
+- 2026-06-29 14:42 - [首尔商铺禁止洪明甫入内](http://www.share.kurohicncr.top/Article/details/568051366.shtml)
+- 2026-06-29 14:45 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/44202707.shtml)
+- 2026-06-29 14:44 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/22798002.shtml)
+- 2026-06-29 14:57 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/65420.shtml)
+- 2026-06-29 14:51 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/502435117232.shtml)
+- 2026-06-29 14:59 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/88964228852.shtml)
+- 2026-06-29 14:43 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/09076.shtml)
+- 2026-06-29 14:46 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/50529281526.shtml)
+- 2026-06-29 15:07 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/876612.shtml)
+- 2026-06-29 15:10 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/49109.shtml)
+- 2026-06-29 14:54 - [ENC瓦中国香港负印度数据图](https://www.share.kurohicncr.top/Article/details/84696.shtml)
+- 2026-06-29 15:01 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/031826.shtml)
+- 2026-06-29 15:08 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/0964043292.shtml)
+- 2026-06-29 14:48 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/21069572.shtml)
+- 2026-06-29 14:42 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/707482520505.shtml)

@@ -1,57 +1,56 @@
-# 软银据悉寻求以OpenAI股份作抵押 获得100亿美元保证金贷款
+# 招商银行首席信息官周天虹：AI大模型对行业的影响还在过程当中
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-知情人士称，软银集团正寻求一笔100亿美元的贷款，以所持美国人工智能（AI）巨头OpenAI的股份作抵押。因大力进军AI领域，这家日本企业集团正背上更多债务。 知情人士透露，这笔期限两年的保证金贷款将附带一项选择权，允许软银将借款期限再延长一年。 软银的一位代表不予置评。 随着软银创始人孙正义通过大规模投资ChatGPT开发者OpenAI，寻求将自己定位为全球AI热潮中的核心角
+3月30日金融一线消息，招商银行今日召开2025年度业绩发布会。从财务指标来看，如何去看数字化的投入产出比？招商银行首席信息官周天虹指出，AI大模型技术本身毫无疑问是个颠覆性的技术，但是对于行业的影响还在过程当中，当前被大模型技术影响非常深刻的行业还不多，尤其是银行业监管对于大模型应用还是保持着审慎的态度。但大模型的应用对银行而言在宏观层面影响已经显现，技术进步还有非常大的潜力
 
 ## 正文
 
-知情人士称，软银集团正寻求一笔100亿美元的贷款，以所持美国人工智能（AI）巨头OpenAI的股份作抵押。
+3月30日金融一线消息，招商银行今日召开2025年度业绩发布会。
 
-因大力进军AI领域，这家日本企业集团正背上更多债务。
+从财务指标来看，如何去看数字化的投入产出比？
 
-知情人士透露，这笔期限两年的保证金贷款将附带一项选择权，允许软银将借款期限再延长一年。
+招商银行首席信息官周天虹指出，AI大模型技术本身毫无疑问是个颠覆性的技术，但是对于行业的影响还在过程当中，当前被大模型技术影响非常深刻的行业还不多，尤其是银行业监管对于大模型应用还是保持着审慎的态度。
 
-软银的一位代表不予置评。
+但大模型的应用对银行而言在宏观层面影响已经显现，技术进步还有非常大的潜力，所以招商银行在打造智能银行的方向上是非常坚决和坚定的。
 
-随着软银创始人孙正义通过大规模投资ChatGPT开发者OpenAI，寻求将自己定位为全球AI热潮中的核心角色，该公司的债务负担也日益加重。
+如何度量智能银行工作？
 
-3月时，标普将软银评级展望从稳定下调至负面，理由是该公司近期对OpenAI追加300亿美元投资的计划可能会损害其流动性及资产的信用质量。
+周天虹表示，打造中国境内第一家智能银行，在大模型研发和应用的所有领域，招商银行的指标都是一马当先的。
 
-关于软银目前正在寻求的保证金贷款，目前尚未做出任何决定，具体细节可能仍会有变化。
+此外，在他看来，招商银行科技和业务的融合度非常好。
 
-知情人士称，讨论内容包括初始利差可能在基准隔夜担保融资利率（SOFR）基础上加425个基点左右。
+要把技术用好来解决好业务问题，需要科技和业务相向而行。
 
 ## 相关推荐
 
-- 2026-06-29 14:42 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 14:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 14:44 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 15:03 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 14:39 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 15:00 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 14:38 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 14:59 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 14:38 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 14:49 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 14:58 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 14:52 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 15:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 15:10 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 14:51 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 14:45 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 14:48 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 14:59 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 14:50 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 14:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 15:04 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/47114920782.shtml)
-- 2026-06-29 14:59 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/051101243.shtml)
-- 2026-06-29 14:38 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/13161971.shtml)
-- 2026-06-29 14:50 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/669320512.shtml)
-- 2026-06-29 14:43 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/327594127390.shtml)
-- 2026-06-29 14:43 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/1367843.shtml)
-- 2026-06-29 14:47 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/9235524978.shtml)
-- 2026-06-29 14:38 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/98561208.shtml)
-- 2026-06-29 14:52 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/5640974957.shtml)
-- 2026-06-29 14:52 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/785852504276.shtml)
-- 2026-06-29 15:02 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/431903316.shtml)
-- 2026-06-29 15:02 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/883788.shtml)
-- 2026-06-29 14:52 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/11441804.shtml)
-- 2026-06-29 14:58 - [天道](https://www.blog.kurohicncr.top/Article/details/46100747204.shtml)
-- 2026-06-29 15:02 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/01972.shtml)
+- 2026-06-29 14:57 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/33607233693.shtml)
+- 2026-06-29 14:57 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/882274673160.shtml)
+- 2026-06-29 14:56 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/00514491.shtml)
+- 2026-06-29 14:47 - [赵露思爸爸拍vlog翻车了](https://www.share.kurohicncr.top/Article/details/346676891.shtml)
+- 2026-06-29 14:54 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/91156950.shtml)
+- 2026-06-29 14:54 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/35805919381.shtml)
+- 2026-06-29 15:03 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/03113.shtml)
+- 2026-06-29 15:08 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/80214846479.shtml)
+- 2026-06-29 14:55 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/9023887.shtml)
+- 2026-06-29 14:51 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/8815780.shtml)
+- 2026-06-29 14:46 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/2029151.shtml)
+- 2026-06-29 14:59 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/1661770.shtml)
+- 2026-06-29 15:03 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/865510473631.shtml)
+- 2026-06-29 14:44 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/660090062.shtml)
+- 2026-06-29 15:11 - [南非老帅布罗斯的梦没能做完](https://www.share.kurohicncr.top/Article/details/455622844.shtml)

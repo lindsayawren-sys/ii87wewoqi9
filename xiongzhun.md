@@ -1,61 +1,60 @@
-# 原创图像小说《雪鹿》入选2025年度“中国好书”
+# 美银证券：降招商银行目标价至49.8港元 重申“跑输大市”评级
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月21日电 (记者 应妮)2025年度“中国好书”评选结果20日在第五届全民阅读大会正式揭晓。由作家彭懿撰文、画家田宇绘图、接力出版社推出的原创图像小说《雪鹿》入选。 “中国好书”是由中国图书评论学会组织的评选活动，旨在通过好书推介传递正能量，推动和引导全民阅读。《雪鹿》凭借独特的叙事结构、东方写意的艺术风格与深刻的人文内涵，从众多作品中脱颖而出。 “中国好书”的颁
+美银证券发布研报称，该行大致维持招商银行（03968，600036.SH）2026及2027年盈利预测不变，目标价由50.52港元及45.49元人民币，分别下调至49.8港元及43.28元人民币。重申“跑输大市”评级，并偏好股息收益率较高的国有银行。 该行称，招商银行去年扣除优先股股息前净利润为1，502亿元人民币，同比增长1.2%，符合先前指引。拨备前利润同比下跌1.6%。股
 
 ## 正文
 
-中新网北京4月21日电 (记者 应妮)2025年度“中国好书”评选结果20日在第五届全民阅读大会正式揭晓。
+美银证券发布研报称，该行大致维持招商银行（03968，600036.SH）2026及2027年盈利预测不变，目标价由50.52港元及45.49元人民币，分别下调至49.8港元及43.28元人民币。
 
-由作家彭懿撰文、画家田宇绘图、接力出版社推出的原创图像小说《雪鹿》入选。
+重申“跑输大市”评级，并偏好股息收益率较高的国有银行。
 
-“中国好书”是由中国图书评论学会组织的评选活动，旨在通过好书推介传递正能量，推动和引导全民阅读。
+该行称，招商银行去年扣除优先股股息前净利润为1，502亿元人民币，同比增长1.2%，符合先前指引。
 
-《雪鹿》凭借独特的叙事结构、东方写意的艺术风格与深刻的人文内涵，从众多作品中脱颖而出。
+拨备前利润同比下跌1.6%。
 
-“中国好书”的颁奖词这样评价《雪鹿》：该书围绕男孩“冻梨”与雪鹿“雪”的成长展开，勾勒出一场与时光对抗的深情羁绊。
+股本回报率（ROE）同比下跌1.0个百分点至13.4%。
 
-两个主角在童年因一场意外相遇，成年后再次重逢。
+普通股权一级资本比率（CET1）同比下跌97个基点至14.16%。
 
-然而，雪鹿只能在冬日出现，且需要一座山一座山地去降雪，因此每年只能与冻梨重逢一天。
+另外，派息比率维持35.3%，每股股息同比上升0.8%至2.016元人民币，估算招行H股及招行A股的股息收益率分别为4.7%及5.1%。
 
-更特别的是，时间的流逝速度对于人类和雪鹿是不同的，两个主角走在了错位的时空里，但他们依然坚守着与彼此的约定，在风雪中书写克制而绵长的深情。
+责任编辑：史丽君
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 14:51 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 14:40 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 14:41 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 14:56 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 14:52 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 14:53 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 14:46 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 15:00 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 14:49 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 14:36 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 14:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 14:45 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 15:04 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 15:05 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 14:56 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 14:53 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 14:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 14:55 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 15:02 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 15:03 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 15:08 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 14:55 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 15:04 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 14:50 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 14:53 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 15:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 15:05 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 14:49 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:40 - [美人鱼](https://www.share.kurohicncr.top/Article/details/09511511873.shtml)
-- 2026-06-29 14:42 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/362551907087.shtml)
-- 2026-06-29 14:55 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/9487048459.shtml)
-- 2026-06-29 14:49 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/51245443.shtml)
-- 2026-06-29 14:52 - [叶一茜森碟一起回北京了](https://www.blog.kurohicncr.top/Article/details/0404896907.shtml)
-- 2026-06-29 14:37 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/815013.shtml)
-- 2026-06-29 15:04 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/7597178.shtml)
-- 2026-06-29 14:45 - [扬名立万](http://www.blog.minike.top/Article/details/945977775.shtml)
-- 2026-06-29 15:05 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.minike.top/Article/details/4709307.shtml)
-- 2026-06-29 14:57 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/9768846.shtml)
-- 2026-06-29 15:00 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/262481401360.shtml)
-- 2026-06-29 14:38 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/0377283584.shtml)
-- 2026-06-29 14:45 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/644413692.shtml)
-- 2026-06-29 14:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/3604062.shtml)
-- 2026-06-29 14:57 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/1889792233.shtml)
+- 2026-06-29 15:11 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/69604571.shtml)
+- 2026-06-29 14:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/69540130705.shtml)
+- 2026-06-29 15:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/241727.shtml)
+- 2026-06-29 14:59 - [网警提醒4类高考查分陷阱考生速看](http://www.blog.kurohicncr.top/Article/details/5029938.shtml)
+- 2026-06-29 15:09 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/0815934.shtml)
+- 2026-06-29 14:55 - [F1奥地利正赛战报](https://www.share.kurohicncr.top/Article/details/9493855232.shtml)
+- 2026-06-29 14:54 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/81445104533.shtml)
+- 2026-06-29 14:54 - [时光音乐会](https://www.share.minike.top/Article/details/589366.shtml)
+- 2026-06-29 15:11 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/0185667.shtml)
+- 2026-06-29 14:44 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/015771040.shtml)
+- 2026-06-29 15:03 - [苹果ultra2阔折叠已开模测试](http://www.share.kurohicncr.top/Article/details/47572.shtml)
+- 2026-06-29 14:58 - [这一刀 会很帅](http://www.share.minike.top/Article/details/599575894203.shtml)
+- 2026-06-29 15:02 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/026634120.shtml)
+- 2026-06-29 14:50 - [时光音乐会](http://www.share.minike.top/Article/details/310443298115.shtml)
+- 2026-06-29 15:05 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/73720857.shtml)

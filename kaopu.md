@@ -1,58 +1,59 @@
-# 港股AI短线回调，百亿港股互联网ETF华宝（513770）跌近2%，阿里、腾讯洽谈投资DeepSeek，小米深夜放大招
+# 西班牙对外银行以6.8亿美元将罗马尼亚业务卖了
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-4月23日，港股早盘低开，互联网龙头集体回调，小米集团-W跌近3%，腾讯控股、美团-W跌超1%，阿里巴巴-W跌0.6%。港股AI核心工具——港股互联网ETF华宝（513770）场内价格现跌1.86%，回落至所有均线下方。 据The Information报道，腾讯与阿里巴巴正洽谈以超过200亿美元的估值投资DeepSeek。此前有消息称，DeepSeek新一代旗舰大模型V4将于
+该交易预计于第四季度完成，尚需监管机构批准 西班牙对外银行（BBVA）表示，已同意将旗下 Garanti BBVA 的罗马尼亚子公司，以 5.91 亿欧元（合 6.802 亿美元）的价格出售给奥地利莱夫艾森国际银行（Raiffeisen Bank International）。 这家奥地利银行周六称，交易完成后，其罗马尼亚子公司将按总资产规模跃居该国第三大银行。 西班牙毕尔巴鄂
 
 ## 正文
 
-4月23日，港股早盘低开，互联网龙头集体回调，小米集团-W跌近3%，腾讯控股、美团-W跌超1%，阿里巴巴-W跌0.6%。
+该交易预计于第四季度完成，尚需监管机构批准 西班牙对外银行（BBVA）表示，已同意将旗下 Garanti BBVA 的罗马尼亚子公司，以 5.91 亿欧元（合 6.802 亿美元）的价格出售给奥地利莱夫艾森国际银行（Raiffeisen Bank International）。
 
-港股AI核心工具——港股互联网ETF华宝（513770）场内价格现跌1.86%，回落至所有均线下方。
+这家奥地利银行周六称，交易完成后，其罗马尼亚子公司将按总资产规模跃居该国第三大银行。
 
-据The Information报道，腾讯与阿里巴巴正洽谈以超过200亿美元的估值投资DeepSeek。
+西班牙毕尔巴鄂比斯开银行表示，旗下 Garanti BBVA 罗马尼亚子公司为该国第十大金融机构，总资产达 40 亿欧元，截至去年年底市场份额为 2%。
 
-此前有消息称，DeepSeek新一代旗舰大模型V4将于4月下旬正式亮相。
+莱夫艾森国际银行表示，计划将此次收购的业务与自身在罗马尼亚的现有运营业务合并，并认为罗马尼亚市场对零售银行、企业银行及投资银行业务均具备吸引力。
 
-华鑫证券指出，DeepSeek是国产大模型能力跻身全球TOP5的代表，AI正加速迈进应用落地的关键窗口期，人工智能有望迎来真正意义上的政策+产业共振。
+莱夫艾森银行首席执行官约翰・施特罗布尔表示：“这笔交易是中东欧最具吸引力的银行市场之一的重大战略举措，我们对这个国家十分熟悉。
 
-此外，今天凌晨，小米MiMo-V2.5系列大模型正式发布并开启公测，MiMo-V2.5-Pro专为长难Agent任务打造，支持100万上下文长度，是小米迄今最强大的模型。
+” BBVA 称，预计此次出售将使其核心一级资本充足率（衡量财务实力的指标）提升约 10 个基点，并为集团利润表带来 1.12 亿欧元的收益。
 
-在通用智能体能力、复杂软件工程以及长程任务等维度上，MiMo-V2.5-Pro已可与Claude Opus 4.6、GPT-5.4等全球顶尖Agent模型正面较量，相较上一代MiMo-V2-Pro实现全方位跃升。
+莱夫艾森银行则表示，剔除俄罗斯业务后，该交易将使其集团核心一级资本充足率下降 60 个基点。
 
-国泰海通证券指出，前期压制港股的特有不利因素正在逐步改善，一方面，在国内环境稳定、香港资本市场优势日益受到认可的背景下，2026年外资持续回流港股市场的趋势有望延续；另一方面，年初以来，国产AI大模型凭借出色的效能在全球脱颖而出，“Token出海”成为港股基本面反转的重要引线。
+双方预计交易将于第四季度完成，尚需获得监管批准。
 
 ## 相关推荐
 
-- 2026-06-29 14:38 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 14:40 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 15:05 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 15:03 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 14:45 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 14:54 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 14:36 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 14:43 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 14:43 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 14:38 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 14:46 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 14:49 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 15:10 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 14:43 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 15:09 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 14:57 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 14:44 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 15:11 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 14:49 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 14:53 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 15:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 15:06 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 14:57 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 14:45 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 14:55 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:00 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/73982217073.shtml)
-- 2026-06-29 14:41 - [扬名立万](https://www.blog.minike.top/Article/details/99283040.shtml)
-- 2026-06-29 14:54 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/82882817029.shtml)
-- 2026-06-29 14:59 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/1311838.shtml)
-- 2026-06-29 14:52 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/98665171.shtml)
-- 2026-06-29 14:59 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/0354840680.shtml)
-- 2026-06-29 14:51 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/562240979.shtml)
-- 2026-06-29 14:44 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/531409527358.shtml)
-- 2026-06-29 14:42 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/49947175324.shtml)
-- 2026-06-29 14:39 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/440401485193.shtml)
-- 2026-06-29 14:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/719607.shtml)
-- 2026-06-29 14:37 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/6791009.shtml)
-- 2026-06-29 14:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/663986.shtml)
-- 2026-06-29 14:39 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/13407949.shtml)
-- 2026-06-29 14:52 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/09114.shtml)
+- 2026-06-29 14:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/27283.shtml)
+- 2026-06-29 14:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/1437296.shtml)
+- 2026-06-29 14:57 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/161610396.shtml)
+- 2026-06-29 15:07 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/662979.shtml)
+- 2026-06-29 14:53 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/248100.shtml)
+- 2026-06-29 14:49 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/587490340220.shtml)
+- 2026-06-29 15:00 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/732716.shtml)
+- 2026-06-29 14:55 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/53722258727.shtml)
+- 2026-06-29 15:06 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/332149864297.shtml)
+- 2026-06-29 15:00 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/445540.shtml)
+- 2026-06-29 14:50 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/914319479675.shtml)
+- 2026-06-29 15:08 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/5032435.shtml)
+- 2026-06-29 14:59 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/853358.shtml)
+- 2026-06-29 15:02 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/25463.shtml)
+- 2026-06-29 14:46 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/866887468905.shtml)

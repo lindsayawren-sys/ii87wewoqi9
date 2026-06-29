@@ -1,60 +1,52 @@
-# 甘肃和政：百年古树结“慢梨” 百变风味富人家
+# 白宫：特朗普希望4月6日前与伊朗达成协议
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-中新网兰州4月22日电 (马临舟)“摘下来不能立刻入口，要等15天左右自然‘慢熟’才显真味。”甘肃临夏州和政县林草事业发展中心正高级工程师杨永林说，被当地人称作“慢梨”的啤特果，正跳出单一鲜果售卖的局限，以果汁、果醋、果酒乃至乡村旅游的百变形态，串联起一条生态美、产业兴、百姓富的特色发展之路。 在和政县海拔2400米的高寒山区，种植啤特果的历史可追溯至上千年前，如今在该县多个乡
+【相关阅读】特朗普威胁摧毁伊朗石油设施 国际油价应声大涨 美参议员批特朗普擅自对伊开战将致全球动荡 人民财讯3月31日电，记者获悉，美国白宫新闻秘书莱维特30日表示，总统特朗普希望在4月6日截止日期前与伊朗达成协议。 特朗普此前曾表示，应伊朗政府请求，将暂停对伊朗能源设施的打击行动10天，至美东时间4月6日晚8时恢复。 延伸阅读 特朗普再就停火威胁伊朗 据央视新闻，美国总统特朗
 
 ## 正文
 
-中新网兰州4月22日电 (马临舟)“摘下来不能立刻入口，要等15天左右自然‘慢熟’才显真味。
+【相关阅读】特朗普威胁摧毁伊朗石油设施 国际油价应声大涨 美参议员批特朗普擅自对伊开战将致全球动荡 人民财讯3月31日电，记者获悉，美国白宫新闻秘书莱维特30日表示，总统特朗普希望在4月6日截止日期前与伊朗达成协议。
 
-”甘肃临夏州和政县林草事业发展中心正高级工程师杨永林说，被当地人称作“慢梨”的啤特果，正跳出单一鲜果售卖的局限，以果汁、果醋、果酒乃至乡村旅游的百变形态，串联起一条生态美、产业兴、百姓富的特色发展之路。
+特朗普此前曾表示，应伊朗政府请求，将暂停对伊朗能源设施的打击行动10天，至美东时间4月6日晚8时恢复。
 
-在和政县海拔2400米的高寒山区，种植啤特果的历史可追溯至上千年前，如今在该县多个乡镇，仍保留着成片古树群，这种鲜食时酸涩刺喉的啤特果，曾让当地人一度皱起眉头。
+延伸阅读 特朗普再就停火威胁伊朗 据央视新闻，美国总统特朗普当地时间30日表示，美伊谈判已取得进展。
 
-目前，全县已登记古树有159株，其中啤特果就占了80余株，最老树龄超过300年，至今仍在挂果。
+但同时，他发出强硬威胁称，如果不能很快达成协议，并且霍尔木兹海峡不能立即“开放”，美国将“彻底摧毁伊朗所有发电厂、油井及哈尔克岛”。
 
-从事啤特果研究已有30多年的杨永林介绍说，该果的食用方式颇为特别，不能像普通梨即摘即食，需经过自然后熟，果皮由青绿转为深褐甚至乌黑，果肉变得软糯，原本尖锐的酸涩才会沉淀为醇厚的复合果香，带着淡淡的焦糖回甘。
+截至目前，伊朗方面尚未就特朗普最新威胁作出回应。
 
-正因为上述特性，啤特果耐存，没有磕碰的果子放在阴凉通风处，能一直吃到次年四月。
-
-杨永林说，20世纪90年代以前，啤特果只是农户房前屋后零星种植的果树，随着退耕还林工程实施，凭借极强生态适应性和稳定经济效益，啤特果作为主栽树种在和政推广，种植面积一度达16.8万亩，但后受多方影响，种植面积缩减到目前8万亩。
-
-要充分发挥啤特果的经济效益，离不开龙头企业带动。
+责任编辑：张恒星
 
 ## 相关推荐
 
-- 2026-06-29 15:02 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 14:44 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 14:42 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 14:40 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 14:59 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 15:01 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 14:52 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 14:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 14:37 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 14:47 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 14:55 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 14:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 14:36 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 14:58 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 14:43 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 15:06 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 15:10 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 14:55 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 14:55 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 14:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 15:06 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 14:53 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 14:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 14:54 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/51113.shtml)
-- 2026-06-29 14:41 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/921510857936.shtml)
-- 2026-06-29 14:56 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/17859312691.shtml)
-- 2026-06-29 14:52 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/1808587205.shtml)
-- 2026-06-29 14:48 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/13424103.shtml)
-- 2026-06-29 14:43 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/04892381575.shtml)
-- 2026-06-29 15:05 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/5215063435.shtml)
-- 2026-06-29 14:52 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/94972493.shtml)
-- 2026-06-29 14:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/466760988059.shtml)
-- 2026-06-29 15:02 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.kurohicncr.top/Article/details/683314623.shtml)
-- 2026-06-29 14:36 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/576455637992.shtml)
-- 2026-06-29 15:00 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/4585559.shtml)
-- 2026-06-29 14:55 - [扫黑风暴](https://www.blog.minike.top/Article/details/4940106.shtml)
-- 2026-06-29 14:50 - [《贺子珍》](http://www.share.minike.top/Article/details/72188879049.shtml)
-- 2026-06-29 15:00 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/3688762574.shtml)
+- 2026-06-29 14:42 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/9036003371.shtml)
+- 2026-06-29 14:48 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/1179596610.shtml)
+- 2026-06-29 14:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/095737990.shtml)
+- 2026-06-29 14:58 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/30515.shtml)
+- 2026-06-29 14:46 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/563848.shtml)
+- 2026-06-29 15:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/69705981586.shtml)
+- 2026-06-29 15:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/068053.shtml)
+- 2026-06-29 14:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/44485.shtml)
+- 2026-06-29 14:44 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/038093275.shtml)
+- 2026-06-29 15:07 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/919647486299.shtml)
+- 2026-06-29 14:45 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/811500.shtml)
+- 2026-06-29 14:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/69630.shtml)
+- 2026-06-29 15:06 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/2193790027.shtml)
+- 2026-06-29 14:42 - [血糖高的人能吃西瓜吗](https://www.blog.minike.top/Article/details/94513301.shtml)
+- 2026-06-29 14:55 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/609009.shtml)

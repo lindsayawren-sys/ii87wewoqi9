@@ -1,59 +1,56 @@
-# 欧洲股市承压下跌，中东局势与财报季成市场焦点
+# 韩国35年来首次“放大招”？能源危机下欲全民限行，120美元油价为红线！
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-2026年4月22日，欧洲主要股市普遍收低，持续发酵的中东地缘政治紧张局势与新一轮企业财报共同主导了市场情绪。 截至收盘，德国DAX30指数下跌0.60%，法国CAC40指数下跌1.14%，英国富时100指数下跌1.05%。市场担忧，中东冲突的升级可能进一步推高全球能源价格，从而加剧欧洲的通胀压力并拖累经济复苏。布伦特原油价格已逼近每桶100美元的关键关口，霍尔木兹海峡的通行安
+来源：财联社 财联社3月30日讯（编辑 黄君芝）随着美伊战争愈演愈烈，能源危机正在持续扩散和蔓延。韩国财政部长具润哲周日表示，如果油价突破每桶120美元，韩国可能会扩大驾车限制范围，将普通民众出行也纳入其中，以缓解伊朗战争对其能源供应的影响。 具润哲在接受最新采访时说道，“我们正在考虑是否将限制措施推广到私人领域，以鼓励普通民众配合，但我们希望战争尽快结束，这样的话就不需要采取
 
 ## 正文
 
-2026年4月22日，欧洲主要股市普遍收低，持续发酵的中东地缘政治紧张局势与新一轮企业财报共同主导了市场情绪。
+来源：财联社 财联社3月30日讯（编辑 黄君芝）随着美伊战争愈演愈烈，能源危机正在持续扩散和蔓延。
 
-截至收盘，德国DAX30指数下跌0.60%，法国CAC40指数下跌1.14%，英国富时100指数下跌1.05%。
+韩国财政部长具润哲周日表示，如果油价突破每桶120美元，韩国可能会扩大驾车限制范围，将普通民众出行也纳入其中，以缓解伊朗战争对其能源供应的影响。
 
-市场担忧，中东冲突的升级可能进一步推高全球能源价格，从而加剧欧洲的通胀压力并拖累经济复苏。
+具润哲在接受最新采访时说道，“我们正在考虑是否将限制措施推广到私人领域，以鼓励普通民众配合，但我们希望战争尽快结束，这样的话就不需要采取此类措施了。
 
-布伦特原油价格已逼近每桶100美元的关键关口，霍尔木兹海峡的通行安全成为市场关注焦点。
+” 上周早些时候，韩国政府对公共机构公务车辆实施了类似的“尾号限行制”。
 
-与此同时，投资者正密切关注企业财报季的表现。
+根据韩国政府的要求，车牌尾号“1”和“6”的车辆周一禁行，尾号“2”和“7”的车辆周二禁行，以此类推，即“5日轮换制”。
 
-尽管部分公司业绩强劲，但地缘政治风险带来的不确定性已开始影响企业信心。
+而如果将限制范围扩大到私人领域，这将是自1991年海湾战争以来韩国首次采取此类措施。
 
-德国工商总会警告，中东战事正给德国企业带来“巨大成本上涨”，超过八成的受访企业表示运营受到负面影响。
+此举也表明，作为全球科技供应链关键参与者的韩国，对即将到来的能源冲击日益担忧。
 
-分析人士指出，在能源成本高企和外部需求不确定的双重压力下，欧洲经济的复苏前景正面临严峻挑战。
+目前，虽然关于美伊和谈的消息频频传出，但没有明确证据表明这场战争很快结束。
 
 ## 相关推荐
 
-- 2026-06-29 14:46 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 14:44 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 14:58 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 14:39 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 14:54 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 15:02 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 14:37 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 14:50 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 15:01 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 15:02 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 14:39 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 14:58 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 14:50 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 14:56 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 14:50 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 15:08 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 14:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 14:55 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 14:44 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 14:43 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 14:42 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 15:05 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 14:44 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/8099978.shtml)
-- 2026-06-29 14:47 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/515892130.shtml)
-- 2026-06-29 14:44 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/8638971765.shtml)
-- 2026-06-29 14:54 - [南非老帅布罗斯的梦没能做完](https://www.share.minike.top/Article/details/75297059787.shtml)
-- 2026-06-29 15:00 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/11892.shtml)
-- 2026-06-29 14:51 - [北极荒岛生存挑战](https://www.share.kurohicncr.top/Article/details/815090541752.shtml)
-- 2026-06-29 14:37 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/73362.shtml)
-- 2026-06-29 15:02 - [新一代影后杨紫](https://www.share.minike.top/Article/details/2622321.shtml)
-- 2026-06-29 14:41 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/30402084.shtml)
-- 2026-06-29 14:49 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/5836720.shtml)
-- 2026-06-29 14:54 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/8941259.shtml)
-- 2026-06-29 14:53 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/1284994890.shtml)
-- 2026-06-29 14:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/3302077497.shtml)
-- 2026-06-29 14:47 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/9184300551.shtml)
-- 2026-06-29 15:01 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/78716707641.shtml)
+- 2026-06-29 14:44 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/46278.shtml)
+- 2026-06-29 14:43 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/7349662640.shtml)
+- 2026-06-29 14:56 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/980940.shtml)
+- 2026-06-29 14:48 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/30766913.shtml)
+- 2026-06-29 14:44 - [叶一茜森碟一起回北京了](https://www.blog.minike.top/Article/details/690493212226.shtml)
+- 2026-06-29 15:00 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/4946417527.shtml)
+- 2026-06-29 14:58 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/2993232.shtml)
+- 2026-06-29 14:52 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/09614.shtml)
+- 2026-06-29 15:11 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/843283.shtml)
+- 2026-06-29 14:45 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/68669231.shtml)
+- 2026-06-29 14:56 - [时光音乐会](http://www.blog.minike.top/Article/details/627151.shtml)
+- 2026-06-29 14:43 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/19479.shtml)
+- 2026-06-29 14:54 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/5348065.shtml)
+- 2026-06-29 15:03 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/32446833.shtml)
+- 2026-06-29 14:50 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/4200787659.shtml)

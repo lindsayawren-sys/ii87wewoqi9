@@ -1,56 +1,51 @@
-# 难以关停的“水龙头”，伊朗原油面临库存危机
+# 中新健康 | 你以为会长胖，实则对减脂友好的10种食物
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-中新经纬4月22日电 (张芷菡)美国财政部长贝森特21日在社交媒体上发文称，美国海军将继续封锁伊朗港口，美财政部将继续对伊朗“极限施压”。美以伊战事持续延宕反复，中东能源供给体系遭到严重破坏。 随着出口受阻，伊朗将面临一个技术挑战——如何储存原油，以维持生产。 根据沙特阿拉伯电视台数据显示，4月13日美军封锁行动刚开始时，伊朗哈尔克岛的储油罐使用率已达51%。即使把产量降到最低
+发布时间：2026年04月07日 17:36 来源：中国新闻网 春天到了，不少人又开始减脂了。其实减脂不必只吃水煮菜，很多看似高脂高热量的食物，富含优质蛋白与膳食纤维，饱腹感极强。戳视频，看看这10种对减脂超友好的食物。(张静） 责任编辑：【岳川】
 
 ## 正文
 
-中新经纬4月22日电 (张芷菡)美国财政部长贝森特21日在社交媒体上发文称，美国海军将继续封锁伊朗港口，美财政部将继续对伊朗“极限施压”。
+发布时间：2026年04月07日 17:36 来源：中国新闻网 春天到了，不少人又开始减脂了。
 
-美以伊战事持续延宕反复，中东能源供给体系遭到严重破坏。
+其实减脂不必只吃水煮菜，很多看似高脂高热量的食物，富含优质蛋白与膳食纤维，饱腹感极强。
 
-随着出口受阻，伊朗将面临一个技术挑战——如何储存原油，以维持生产。
+戳视频，看看这10种对减脂超友好的食物。
 
-根据沙特阿拉伯电视台数据显示，4月13日美军封锁行动刚开始时，伊朗哈尔克岛的储油罐使用率已达51%。
-
-即使把产量降到最低水平，伊朗也会在2-3周内就可能达到业内所说的“储罐见顶”时刻。
-
-不过，伊朗方面尚未就相关数据作出回应。
-
-“快满了”是否是耸人听闻？
-
-对外经济贸易大学中国国际碳中和经济研究院执行院长董秀成指出，美国封锁行动导致石油外运停滞，按当前产量，海上浮动储油也近饱和，伊朗储油确实面临一定风险。
+(张静） 责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 15:04 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 14:53 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 14:54 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 14:49 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 15:05 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 14:49 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 15:04 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 15:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 15:04 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 14:43 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 15:08 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 14:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 14:48 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 14:59 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 14:55 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 14:42 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 15:09 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 15:00 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 15:00 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 15:09 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 15:00 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 14:51 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:04 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/52271548.shtml)
-- 2026-06-29 14:39 - [医药股集体爆发](http://www.share.minike.top/Article/details/729944.shtml)
-- 2026-06-29 14:55 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/60929484.shtml)
-- 2026-06-29 14:46 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/96146258645.shtml)
-- 2026-06-29 14:45 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/220542.shtml)
-- 2026-06-29 15:00 - [恋与深空底线不该被娱乐化](http://www.share.kurohicncr.top/Article/details/874327590035.shtml)
-- 2026-06-29 14:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/98879813687.shtml)
-- 2026-06-29 14:53 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/635697.shtml)
-- 2026-06-29 15:01 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/452997801436.shtml)
-- 2026-06-29 14:38 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/876925907.shtml)
-- 2026-06-29 15:02 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/02609.shtml)
-- 2026-06-29 14:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/714709.shtml)
-- 2026-06-29 14:54 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/7905718.shtml)
-- 2026-06-29 14:47 - [斛珠夫人](http://www.share.minike.top/Article/details/086043.shtml)
-- 2026-06-29 14:39 - [起风了](https://www.share.kurohicncr.top/Article/details/9925464747.shtml)
+- 2026-06-29 15:11 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/83800.shtml)
+- 2026-06-29 14:52 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/02090717.shtml)
+- 2026-06-29 14:48 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/832881991.shtml)
+- 2026-06-29 15:08 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/796269414799.shtml)
+- 2026-06-29 14:46 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/9580164.shtml)
+- 2026-06-29 14:46 - [教育部发布高考志愿填报预警](http://www.share.minike.top/Article/details/46804535648.shtml)
+- 2026-06-29 15:04 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/9373464876.shtml)
+- 2026-06-29 14:53 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.kurohicncr.top/Article/details/85252.shtml)
+- 2026-06-29 15:07 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/56555.shtml)
+- 2026-06-29 14:43 - [AG 钟意](https://www.share.minike.top/Article/details/4258153.shtml)
+- 2026-06-29 15:04 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/870863088.shtml)
+- 2026-06-29 14:44 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/5929457.shtml)
+- 2026-06-29 15:00 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/917718133.shtml)
+- 2026-06-29 14:58 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/08984667568.shtml)
+- 2026-06-29 14:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/82280242.shtml)

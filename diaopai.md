@@ -1,56 +1,61 @@
-# “假装上班公司”走红：为青年创业搭建“缓冲带”
+# 伊朗战事升级加剧油价风险，日本股市下挫
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-从“假装上班”到“真实创业” 在北京亦庄开发区的一个十字路口旁，失业的朱冠霖开了家“假装上班公司”——280平方米的办公室，每月租金1万多元，来的都是“无业者”，朱冠霖想让他们成为“有业者”。他给公司起名“假装上班公司”，觉得这个名字能用戏谑的方式帮助人们“面对焦虑”。 公司迎接了不少走到人生“十字路口”的人。来咨询的人中，有想给孩子赚奶粉钱的宝妈，有因为“卷不动”从大厂离职的
+伊朗战事已进入第五周，冲突升级引发市场对油价大幅攀升冲击经济的担忧，日本股市随之走低。 日经 225 平均股指（^N225）早盘跌幅有所收窄，最终收跌 2.8%，报 51，885.85 点；东证指数下跌 2.9%，报 3，542.34 点，电子与银行板块拖累指数走弱。软银集团、三菱汽车跻身日经指数跌幅前列。 周一股市下跌前，胡塞武装已加入伊朗相关战事，另有美军增援部队抵达中东。
 
 ## 正文
 
-从“假装上班”到“真实创业” 在北京亦庄开发区的一个十字路口旁，失业的朱冠霖开了家“假装上班公司”——280平方米的办公室，每月租金1万多元，来的都是“无业者”，朱冠霖想让他们成为“有业者”。
+伊朗战事已进入第五周，冲突升级引发市场对油价大幅攀升冲击经济的担忧，日本股市随之走低。
 
-他给公司起名“假装上班公司”，觉得这个名字能用戏谑的方式帮助人们“面对焦虑”。
+日经 225 平均股指（^N225）早盘跌幅有所收窄，最终收跌 2.8%，报 51，885.85 点；东证指数下跌 2.9%，报 3，542.34 点，电子与银行板块拖累指数走弱。
 
-公司迎接了不少走到人生“十字路口”的人。
+软银集团、三菱汽车跻身日经指数跌幅前列。
 
-来咨询的人中，有想给孩子赚奶粉钱的宝妈，有因为“卷不动”从大厂离职的人，有喜欢二次元文化、想要找到相关创业方向的大学生。
+周一股市下跌前，胡塞武装已加入伊朗相关战事，另有美军增援部队抵达中东。
 
-他们希望在这里喘口气，想想下一步怎么走。
+上述局势推动布伦特原油价格突破每桶 116 美元，不过在东京午后交易时段，油价从盘中高点小幅回落。
 
-之前朱冠霖曾经在国企负责过投资地产业务、做过企业出海项目。
+多资产交易平台 Tradu 高级策略师尼科斯・察布拉斯表示：“中东冲突及其经济冲击，是笼罩在日本股市上空的最大阴霾。
 
-恰逢许多企业选择降本增效、减少办公支出缩减办公场地面积，朱冠霖从空置的写字楼上嗅到了商机——市里好地段和物业顶尖的写字楼租金价格跌了一半。
+” 他指出，日本原油进口高度依赖中东地区，使其在此次危机中 “格外脆弱”。
 
-“不如把这些空置的写字楼拿出来给真正有需求的个人使用”，朱冠霖想。
+“高油价带来的风险切实存在，可能冲击日本的制造业根基 —— 而制造业仍是该国经济的支柱。
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 15:00 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 15:01 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 15:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 14:52 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 15:03 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 14:59 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 14:50 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 14:40 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 14:59 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 15:02 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 14:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 15:06 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 14:53 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 15:06 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 14:42 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 14:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 14:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 15:09 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 14:43 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 15:00 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 14:52 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 14:56 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 15:03 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 14:51 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:36 - [恋与深空失控领地](http://www.share.minike.top/Article/details/364641.shtml)
-- 2026-06-29 14:36 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/9911174.shtml)
-- 2026-06-29 14:58 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/1487988860.shtml)
-- 2026-06-29 14:38 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/22966467.shtml)
-- 2026-06-29 14:48 - [异世界一点都不好玩！](https://www.blog.kurohicncr.top/Article/details/23995.shtml)
-- 2026-06-29 14:46 - [沉睡花园](https://www.blog.minike.top/Article/details/337171005375.shtml)
-- 2026-06-29 15:03 - [我和我的家乡](https://www.blog.minike.top/Article/details/71973365906.shtml)
-- 2026-06-29 15:00 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/351974677279.shtml)
-- 2026-06-29 14:42 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/9481810191.shtml)
-- 2026-06-29 14:46 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/57893.shtml)
-- 2026-06-29 14:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/6075680.shtml)
-- 2026-06-29 14:38 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/5873736.shtml)
-- 2026-06-29 14:43 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/491022511.shtml)
-- 2026-06-29 14:48 - [美人鱼](https://www.blog.minike.top/Article/details/022229.shtml)
-- 2026-06-29 14:50 - [Agent带来token消耗爆炸](https://www.share.kurohicncr.top/Article/details/268204133407.shtml)
+- 2026-06-29 14:44 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/018297275.shtml)
+- 2026-06-29 14:55 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/6459556.shtml)
+- 2026-06-29 15:06 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/492157324984.shtml)
+- 2026-06-29 15:07 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/71309749827.shtml)
+- 2026-06-29 14:47 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/948668.shtml)
+- 2026-06-29 15:06 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/44678220.shtml)
+- 2026-06-29 14:59 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/507361813.shtml)
+- 2026-06-29 14:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/592536.shtml)
+- 2026-06-29 14:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/9442826924.shtml)
+- 2026-06-29 15:00 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/67011.shtml)
+- 2026-06-29 14:49 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/68213739.shtml)
+- 2026-06-29 15:07 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/01910.shtml)
+- 2026-06-29 15:10 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/9740186.shtml)
+- 2026-06-29 15:00 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/61524899909.shtml)
+- 2026-06-29 14:52 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/07682.shtml)

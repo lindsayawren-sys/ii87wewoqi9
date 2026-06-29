@@ -1,61 +1,60 @@
-# 山东省高校图书馆“十大镇馆之宝”评选结果揭晓
+# 杨德龙：近期A股韧性十足 “牛回头”带来布局良机
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-中新网济南4月22日电(任群 赵晓)齐鲁典藏·千载文脉——山东省高校图书馆“十大镇馆之宝”评选结果22日正式揭晓。经过为期一个多月的评选，来自山东大学、中国海洋大学、山东中医药大学、山东师范大学等11所高校图书馆，共计110种珍贵古籍与特色文献被评选为各馆“十大镇馆之宝”。 此次评选由山东省高等学校图书情报工作委员会主办，山东大学图书馆承办，严格遵循历史文物性、学术资料性、艺术
+近期，受中东冲突影响，全球资本市场出现较大幅度调整，美股三大股指连续下跌，日韩股市更是一度大跌，而A股表现相对抗跌。随着中长期资金入市的成效逐步显现，长期投资的市场生态逐步完善，A股正在逐步构筑底部特征，市场调整反而是入场时机。本次调整主要是受到中东冲突的外部冲击，导致投资者情绪出现波动，并未改变A股市场慢牛长牛的格局。 A股市场近期能走出独立行情，也体现出本轮慢牛长牛行情背后
 
 ## 正文
 
-中新网济南4月22日电(任群 赵晓)齐鲁典藏·千载文脉——山东省高校图书馆“十大镇馆之宝”评选结果22日正式揭晓。
+近期，受中东冲突影响，全球资本市场出现较大幅度调整，美股三大股指连续下跌，日韩股市更是一度大跌，而A股表现相对抗跌。
 
-经过为期一个多月的评选，来自山东大学、中国海洋大学、山东中医药大学、山东师范大学等11所高校图书馆，共计110种珍贵古籍与特色文献被评选为各馆“十大镇馆之宝”。
+随着中长期资金入市的成效逐步显现，长期投资的市场生态逐步完善，A股正在逐步构筑底部特征，市场调整反而是入场时机。
 
-此次评选由山东省高等学校图书情报工作委员会主办，山东大学图书馆承办，严格遵循历史文物性、学术资料性、艺术代表性等核心标准。
+本次调整主要是受到中东冲突的外部冲击，导致投资者情绪出现波动，并未改变A股市场慢牛长牛的格局。
 
-历经本馆遴选、公众投票、专家评审、综合审议及结果公示五个阶段，各馆先从馆藏中精选20部候选珍品。
+A股市场近期能走出独立行情，也体现出本轮慢牛长牛行情背后的逻辑非常强劲。
 
-4月初起，活动启动线上平台展示并开放公众投票，吸引数万人次参与，极大提升古籍的社会认知度。
+地缘冲突对A股的影响逐步弱化，影响A股的核心因素是国内经济基本面、风险偏好和利率水平，目前来看，这些因素没有发生根本性变化。
 
-在专家评审环节，国内多位古籍整理专家对候选典籍进行了专业评分。
+A股中长期仍处于结构性缓慢上行的趋势。
 
-山东大学文学院教授、著名文献学家杜泽逊在评审中表示，高校图书馆评选“镇馆之宝”，不仅要看文物价值，书本身也要“响当当”，有学术权威性、学校专业代表性和较高的文献价值。
+中东冲突导致霍尔木兹海峡被封锁，国际油价一度大幅上涨，相较战前涨幅接近50%。
 
-此次评选出的各馆“十大镇馆之宝”形态丰富，包含古籍、舆图、绘图本、碑帖、拓片、书法绣品等，反映了山东省高校图书馆体系的多元构成与深厚积累。
+原油价格的上涨推高了全球通胀预期，对全球风险资产造成压制。
 
 ## 相关推荐
 
-- 2026-06-29 14:37 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 15:05 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 14:43 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 14:36 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 15:05 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 14:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 14:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-29 15:02 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 14:55 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 14:45 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 14:54 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 14:49 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 14:59 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 14:58 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 14:45 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 14:56 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 14:59 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 15:12 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 15:02 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 14:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 15:10 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 14:44 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 15:02 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 15:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 14:45 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 14:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 15:07 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 15:05 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 14:59 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [韩国记者：解码“合肥模式”](http://www.blog.minike.top/Article/details/463248869.shtml)
-- 2026-06-29 14:44 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/01824929197.shtml)
-- 2026-06-29 14:58 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/949304097848.shtml)
-- 2026-06-29 14:48 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/11244.shtml)
-- 2026-06-29 15:04 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/71620930871.shtml)
-- 2026-06-29 14:38 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/568158038355.shtml)
-- 2026-06-29 14:37 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/86132.shtml)
-- 2026-06-29 14:59 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/04594.shtml)
-- 2026-06-29 14:48 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/7633073032.shtml)
-- 2026-06-29 14:41 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/730105249468.shtml)
-- 2026-06-29 14:43 - [普京介绍前线战事](https://www.share.minike.top/Article/details/1501107294.shtml)
-- 2026-06-29 14:59 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/8636219968.shtml)
-- 2026-06-29 14:44 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/407560.shtml)
-- 2026-06-29 15:01 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/260193.shtml)
-- 2026-06-29 15:05 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/96543448.shtml)
+- 2026-06-29 15:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/8906785882.shtml)
+- 2026-06-29 15:09 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/146239229.shtml)
+- 2026-06-29 14:57 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/75998.shtml)
+- 2026-06-29 14:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/06610479.shtml)
+- 2026-06-29 14:56 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/180856.shtml)
+- 2026-06-29 14:58 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/634275368.shtml)
+- 2026-06-29 15:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/18136.shtml)
+- 2026-06-29 14:53 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/537198129446.shtml)
+- 2026-06-29 14:55 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/567585210105.shtml)
+- 2026-06-29 15:07 - [A股](http://www.share.minike.top/Article/details/99869934.shtml)
+- 2026-06-29 14:47 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/62188.shtml)
+- 2026-06-29 15:11 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/371265.shtml)
+- 2026-06-29 15:02 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/49419966.shtml)
+- 2026-06-29 14:51 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/90555753407.shtml)
+- 2026-06-29 14:56 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/6098756805.shtml)

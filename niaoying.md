@@ -1,58 +1,58 @@
-# 锂电负极龙头杉杉股份将正式步入国资控股时代，重整风波下扭亏为盈
+# 净利增速领跑六大行，601288何以“大象起舞”
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-曾陷入债务危机和家族内斗的锂电负极材料龙头杉杉股份（维权）（600884.SH）即将正式步入国资控股时代。 4月22日晚间，杉杉股份公告披露，宁波市鄞州区人民法院已裁定批准控股股东杉杉集团有限公司及其全资子公司宁波朋泽贸易有限公司的重整计划，公司控股股东将变更为安徽皖维集团有限责任公司，实际控制人将变更为安徽省国资委。 这场历时一年多的重整大戏，始于杉杉集团严重的债务危机。作为
+近年来，农业银行（601288）“逆袭”的故事，常为市场津津乐道：总资产规模超越建设银行跃居第二；A股流通市值一度超越工商银行，加冕新科“市值王”；2025年A股股价以超50%的年度涨幅领跑上市银行……这一连串的“逆袭”，不仅改写了市场格局，也颠覆了刻板印象——国有大行虽常以“稳健”著称，但农业银行的接连突破，充分展现了其发展潜力。“大象”何以起舞？3月30日，农业银行举行20
 
 ## 正文
 
-曾陷入债务危机和家族内斗的锂电负极材料龙头杉杉股份（维权）（600884.SH）即将正式步入国资控股时代。
+近年来，农业银行（601288）“逆袭”的故事，常为市场津津乐道：总资产规模超越建设银行跃居第二；A股流通市值一度超越工商银行，加冕新科“市值王”；2025年A股股价以超50%的年度涨幅领跑上市银行……这一连串的“逆袭”，不仅改写了市场格局，也颠覆了刻板印象——国有大行虽常以“稳健”著称，但农业银行的接连突破，充分展现了其发展潜力。
 
-4月22日晚间，杉杉股份公告披露，宁波市鄞州区人民法院已裁定批准控股股东杉杉集团有限公司及其全资子公司宁波朋泽贸易有限公司的重整计划，公司控股股东将变更为安徽皖维集团有限责任公司，实际控制人将变更为安徽省国资委。
+“大象”何以起舞？
 
-这场历时一年多的重整大戏，始于杉杉集团严重的债务危机。
+3月30日，农业银行举行2025年度业绩发布会，行长王志恒、副行长林立等管理层出席，详细解读了过去一年的经营成果与未来蓝图，并多次提及一个关键词——“难而正确的事”。
 
-作为浙商资本版图中的知名企业，杉杉股份由郑永刚创立于1989年，1996年在上交所上市，是中国服装行业第一家上市公司，后转型进入锂电池材料和偏光片领域，形成两大核心主业。
+对于农行来说，什么是“难而正确的事”？
 
-2023年2月，郑永刚因突发心脏病离世，此后公司经历了其子郑驹与遗孀周婷之间的董事长更迭，企业控制权一度处于不稳定状态。
+农行是如何一步步改写市场预期的，未来还有哪些战略布局？
 
-2024年，杉杉股份出现自1996年上市以来首次年度亏损，归母净利润亏损3.67亿元。
+上海证券报记者带你细品农业银行的“逆袭”密码。
 
-控股股东杉杉集团的债务违约问题持续发酵，2025年1月，建设银行宁波市分行、宁波鄞州农商银行等多家银行向法院申请对杉杉集团进行破产重整；2025年2月25日，鄞州法院裁定受理重整申请；2025年3月20日，杉杉集团及其全资子公司朋泽贸易被裁定进行实质合并重整，杉杉股份的重整序幕由此正式拉开。
+净利润增速领跑六大行展现“红利加成长”市场特征2025年，农业银行净利润和营业收入延续“双增”，分别达到2920亿元和7253亿元，增速分别为3.3%和2.1%。
 
-然而，重整之路并非坦途。
+值得一提的是，在六大行中，农行净利润增速高居榜首。
 
 ## 相关推荐
 
-- 2026-06-29 14:57 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 14:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 14:38 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 14:48 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 14:37 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 14:52 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 14:40 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 15:04 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 15:00 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 14:53 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 14:51 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 14:42 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 14:47 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 14:54 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 14:53 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 15:05 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 15:04 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 14:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 15:07 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 14:51 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 15:04 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 14:56 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 15:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 15:11 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [双高胎](https://www.blog.kurohicncr.top/Article/details/8979638.shtml)
-- 2026-06-29 15:03 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/103073335.shtml)
-- 2026-06-29 14:39 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/5416639.shtml)
-- 2026-06-29 14:37 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/0393697476.shtml)
-- 2026-06-29 14:38 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/697086310906.shtml)
-- 2026-06-29 15:03 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/750392302906.shtml)
-- 2026-06-29 14:49 - [南非老帅布罗斯的梦没能做完](https://www.blog.minike.top/Article/details/32356682957.shtml)
-- 2026-06-29 15:03 - [行程万里不忘初心](https://www.share.minike.top/Article/details/653554.shtml)
-- 2026-06-29 14:50 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/00697236750.shtml)
-- 2026-06-29 14:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/68190964435.shtml)
-- 2026-06-29 14:43 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/71283.shtml)
-- 2026-06-29 14:59 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/0605705.shtml)
-- 2026-06-29 14:38 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.minike.top/Article/details/23631959.shtml)
-- 2026-06-29 14:44 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/5644177094.shtml)
-- 2026-06-29 14:58 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/56565.shtml)
+- 2026-06-29 15:02 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/83387427.shtml)
+- 2026-06-29 15:07 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/3307932.shtml)
+- 2026-06-29 15:00 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/718130113781.shtml)
+- 2026-06-29 15:01 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/231048677677.shtml)
+- 2026-06-29 15:07 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/638856389434.shtml)
+- 2026-06-29 14:48 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/382884077171.shtml)
+- 2026-06-29 14:47 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/57599831.shtml)
+- 2026-06-29 14:51 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/78786710.shtml)
+- 2026-06-29 15:06 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/583706.shtml)
+- 2026-06-29 14:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/45714119664.shtml)
+- 2026-06-29 15:07 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/006351.shtml)
+- 2026-06-29 14:54 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/2522860278.shtml)
+- 2026-06-29 14:56 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/79859794.shtml)
+- 2026-06-29 15:06 - [爱很美味](https://www.share.kurohicncr.top/Article/details/924813577.shtml)
+- 2026-06-29 14:42 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/361335762165.shtml)

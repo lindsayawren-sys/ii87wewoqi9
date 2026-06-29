@@ -1,59 +1,47 @@
-# 受权发布丨中共中央办公厅 国务院办公厅关于更高水平更高质量做好节能降碳工作的意见
+# 迅捷兴：未来公司将加快高端产品技术研发，助力市场开拓
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-新华社北京4月22日电 中共中央办公厅 国务院办公厅关于更高水平更高质量做好节能降碳工作的意见 (2026年4月11日) 节能降碳是推进碳达峰碳中和、加快发展方式绿色转型的重要抓手，是维护国家能源安全、促进产业提质升级的重要支撑。为更高水平、更高质量做好节能降碳工作，经党中央、国务院同意，现提出如下意见。一、总体要求 坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二
+证券日报网讯 4月7日，迅捷兴在互动平台回答投资者提问时表示，未来公司将加快高端产品技术研发，助力市场开拓。（文章来源：证券日报）
 
 ## 正文
 
-新华社北京4月22日电 中共中央办公厅 国务院办公厅关于更高水平更高质量做好节能降碳工作的意见 (2026年4月11日) 节能降碳是推进碳达峰碳中和、加快发展方式绿色转型的重要抓手，是维护国家能源安全、促进产业提质升级的重要支撑。
+证券日报网讯 4月7日，迅捷兴在互动平台回答投资者提问时表示，未来公司将加快高端产品技术研发，助力市场开拓。
 
-为更高水平、更高质量做好节能降碳工作，经党中央、国务院同意，现提出如下意见。
-
-一、总体要求 坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二十大和二十届历次全会精神，认真落实四中全会部署，完整准确全面贯彻新发展理念，坚持稳中求进工作总基调，坚持有效市场和有为政府相结合，统筹发展和安全，一以贯之坚持节约优先方针，把节能降碳贯穿经济社会发展全过程各方面，更高水平、更高质量做好节能降碳工作，坚决遏制能源消费总量不合理增长，持续提升能源资源产出效率，从源头有效减少碳排放，为实现碳达峰碳中和、加快经济社会发展全面绿色转型提供有力保障。
-
-二、协同推进节能降碳与绿色转型 (一)统筹节能降碳与产业优化升级。
-
-加强节能降碳与产业规划、产能调控等政策衔接协同，强化节能降碳激励约束和标准提升引领，持续降低产业对能源的依赖。
-
-大力推广节能低碳、清洁生产技术装备和产品，积极推行市场化节能降碳服务，支持运用数智技术、绿色技术改造提升传统产业。
-
-有力有效管控高耗能高排放项目，依法有序推进落后低效产能和工艺设备出清，协同化解重点产业结构性矛盾。
-
-加快发展先进制造业、高新技术产业和现代服务业，大力发展绿色低碳产业，积极培育有利于节能降碳的新产业、新业态。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 14:52 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 15:01 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 14:44 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 14:55 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 14:48 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 15:01 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 15:02 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 14:37 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 14:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 14:57 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 14:49 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 15:05 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 15:00 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 14:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 14:42 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 15:04 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 14:45 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 15:07 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 14:42 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 14:56 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 14:53 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 14:46 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 14:52 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 14:58 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 15:08 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 15:03 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [扫黑风暴](https://www.share.minike.top/Article/details/16371719932.shtml)
-- 2026-06-29 14:41 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/73049588.shtml)
-- 2026-06-29 14:57 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/162501.shtml)
-- 2026-06-29 14:52 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/39808208.shtml)
-- 2026-06-29 14:46 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/33629890826.shtml)
-- 2026-06-29 14:40 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/035724833309.shtml)
-- 2026-06-29 14:42 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/38567617.shtml)
-- 2026-06-29 15:01 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/1796596.shtml)
-- 2026-06-29 14:58 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/80715.shtml)
-- 2026-06-29 14:45 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/890771861.shtml)
-- 2026-06-29 14:36 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/060178.shtml)
-- 2026-06-29 14:38 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/72576.shtml)
-- 2026-06-29 14:44 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/42144118060.shtml)
-- 2026-06-29 14:50 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/542826237618.shtml)
-- 2026-06-29 15:02 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/9910150.shtml)
+- 2026-06-29 14:49 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/03681.shtml)
+- 2026-06-29 14:58 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/9651817.shtml)
+- 2026-06-29 15:08 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/83445.shtml)
+- 2026-06-29 15:07 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/2860967.shtml)
+- 2026-06-29 15:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/6060011246.shtml)
+- 2026-06-29 14:52 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/97972.shtml)
+- 2026-06-29 14:54 - [美媒：空警-3000服役即成全球最强](http://www.blog.minike.top/Article/details/572553.shtml)
+- 2026-06-29 15:02 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/00186828350.shtml)
+- 2026-06-29 15:10 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/41385720.shtml)
+- 2026-06-29 14:58 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/62092145.shtml)
+- 2026-06-29 14:46 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/95311025.shtml)
+- 2026-06-29 15:08 - [欧洲人驾车200公里抢购中国空调](http://www.blog.kurohicncr.top/Article/details/372328744480.shtml)
+- 2026-06-29 15:04 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/527639182.shtml)
+- 2026-06-29 15:08 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/792693.shtml)
+- 2026-06-29 15:09 - [双高胎](https://www.share.minike.top/Article/details/469387515662.shtml)

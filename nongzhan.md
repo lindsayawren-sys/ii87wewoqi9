@@ -1,59 +1,53 @@
-# 一碗臊子面“煮”活县域经济：蓝田以美食赛事赋能乡村振兴
+# 康圣环球发布2025年度业绩 取得收入9.34亿元同比增加0.65%
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-中新网陕西蓝田4月22日电 (杨英琦)22日，由中共蓝田县委、蓝田县人民政府主办的“中国厨乡·舌尖蓝田——蓝田县村厨面点技能争霸暨餐饮名店美食品鉴活动”举行。来自全县各镇(街)选拔推荐的19支队伍同台比拼，13家县域知名餐饮店现场展示乡土美味，共同擦亮蓝田美食品牌。 本次活动旨在深挖乡土厨艺人才资源，壮大特色餐饮产业，将特色赛事流量，转化为县域乡村发展增量、文旅市场消费活力，持
+康圣环球（09960）发布截至2025年12月31日止年度业绩，该集团取得收入9.34亿元，同比增加0.65%；净亏损5514.9万元，同比减少9.12%；每股亏损5.92分。 公告称，在第三方医疗检测行业整体处于深度调整期的宏观背景下，医保控费政策持续深化、检验结果互认加速推进，对传统检验业务的量价两端均带来阶段性压力。面对行业变局，本集团坚持“专科特检+精准医疗”的战略定力
 
 ## 正文
 
-中新网陕西蓝田4月22日电 (杨英琦)22日，由中共蓝田县委、蓝田县人民政府主办的“中国厨乡·舌尖蓝田——蓝田县村厨面点技能争霸暨餐饮名店美食品鉴活动”举行。
+康圣环球（09960）发布截至2025年12月31日止年度业绩，该集团取得收入9.34亿元，同比增加0.65%；净亏损5514.9万元，同比减少9.12%；每股亏损5.92分。
 
-来自全县各镇(街)选拔推荐的19支队伍同台比拼，13家县域知名餐饮店现场展示乡土美味，共同擦亮蓝田美食品牌。
+公告称，在第三方医疗检测行业整体处于深度调整期的宏观背景下，医保控费政策持续深化、检验结果互认加速推进，对传统检验业务的量价两端均带来阶段性压力。
 
-本次活动旨在深挖乡土厨艺人才资源，壮大特色餐饮产业，将特色赛事流量，转化为县域乡村发展增量、文旅市场消费活力，持续擦亮蓝田“中国厨师之乡”“陕菜之乡”“蓝田厨师”劳务品牌三大金字招牌，推动美食经济、乡村旅游、民宿康养协同发展。
+面对行业变局，本集团坚持“专科特检+精准医疗”的战略定力：一方面，依托技术壁垒，血液等核心专科业务保持了稳健的基本盘；另一方面，通过战略性并购快速切入实体瘤早筛蓝海市场，推动肿瘤板块收入实现106.2%的显著增长；同时，公司积极拓展科研服务及合约研究组织（CRO）板块，报告期内该板块收入同比增长33.4%。
 
-活动现场文艺展演精彩纷呈。
-
-开场舞《勺勺客》展现了蓝田厨师的生动形象。
-
-《美丽蓝田》等12首歌曲唱出城乡崭新风貌。
-
-美食品鉴区集中了13家知名餐饮企业的蓝田本土特色小吃，蓝田熬老豆腐、饸饹、红豆米饭、搅团、洋芋糍粑等免费供民众品鉴，大家沉浸式感受蓝田美食的独特烟火气。
-
-本次技能争霸聚焦在蓝田有着深厚民众基础的传统臊子面，严格考核乡厨基本功、实操能力与创新创意水平。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:36 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 14:56 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 14:57 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 15:01 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 14:45 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 14:47 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 14:39 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 14:53 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 14:45 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 15:05 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 14:38 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 14:47 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 14:43 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 15:05 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 14:50 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 14:42 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 14:42 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 15:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 15:03 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 14:59 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 15:12 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 14:48 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 14:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 15:06 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 14:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 15:03 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 15:06 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 14:48 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/5618145.shtml)
-- 2026-06-29 14:37 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/060593365.shtml)
-- 2026-06-29 14:47 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/8980415.shtml)
-- 2026-06-29 15:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/5677123252.shtml)
-- 2026-06-29 15:05 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/797904.shtml)
-- 2026-06-29 14:53 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/3526533352.shtml)
-- 2026-06-29 14:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/48476.shtml)
-- 2026-06-29 15:03 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/1467661.shtml)
-- 2026-06-29 14:55 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/9223297926.shtml)
-- 2026-06-29 14:39 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/918382007327.shtml)
-- 2026-06-29 15:01 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/947252712120.shtml)
-- 2026-06-29 15:02 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/69657984354.shtml)
-- 2026-06-29 14:53 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/3677733172.shtml)
-- 2026-06-29 14:51 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/326174723.shtml)
-- 2026-06-29 15:01 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/2905622252.shtml)
+- 2026-06-29 15:04 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/120787959.shtml)
+- 2026-06-29 15:11 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/7272974.shtml)
+- 2026-06-29 15:03 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/53028.shtml)
+- 2026-06-29 14:45 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/7463266943.shtml)
+- 2026-06-29 15:10 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.minike.top/Article/details/44505.shtml)
+- 2026-06-29 14:55 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/548325.shtml)
+- 2026-06-29 14:43 - [AG 钟意](https://www.blog.kurohicncr.top/Article/details/77133.shtml)
+- 2026-06-29 14:53 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/20981.shtml)
+- 2026-06-29 14:48 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/8707048374.shtml)
+- 2026-06-29 15:11 - [国家体育总局政策法规司原副司长获刑](http://www.share.kurohicncr.top/Article/details/623818662.shtml)
+- 2026-06-29 14:57 - [媒体：高考后消费应量力而行适度有度](https://www.blog.kurohicncr.top/Article/details/37036211.shtml)
+- 2026-06-29 15:09 - [明星大侦探第四季](http://www.share.minike.top/Article/details/209855.shtml)
+- 2026-06-29 14:44 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/977242.shtml)
+- 2026-06-29 14:46 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/50540532859.shtml)
+- 2026-06-29 14:57 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/8640693168.shtml)

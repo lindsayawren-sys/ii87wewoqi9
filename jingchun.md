@@ -1,60 +1,46 @@
-# 光大期货：4月22日金融日报
+# 福晶科技：公司产品未涉及卫星航天领域
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-金融类 股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指多数窄幅震荡，Wind全A下跌0.04%，成交额2.43万亿元。中证1000指数下跌0.08%，中证500指数下跌0.24%，沪深300指数上涨0.22%，上证50指数下跌0.05%。中国一季度经济数据公布，GDP同比增长5.0%，处于增速目标上沿，固定资产投资由负转正，
+每经AI快讯，福晶科技（002222.SZ）4月7日在投资者互动平台表示，公司产品未涉及卫星航天领域。（文章来源：每日经济新闻）
 
 ## 正文
 
-金融类 股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指多数窄幅震荡，Wind全A下跌0.04%，成交额2.43万亿元。
+每经AI快讯，福晶科技（002222.SZ）4月7日在投资者互动平台表示，公司产品未涉及卫星航天领域。
 
-中证1000指数下跌0.08%，中证500指数下跌0.24%，沪深300指数上涨0.22%，上证50指数下跌0.05%。
-
-中国一季度经济数据公布，GDP同比增长5.0%，处于增速目标上沿，固定资产投资由负转正，进出口增速创近五年最高。
-
-一季度经济数据表现良好，全球经济复苏的大背景下海外需求回暖，带动国内出口增长，同时国内新质生产力投资端发力，基建增速加快。
-
-海外方面，美伊谈判陷入停滞后市场不确定性重新升高，但主流观点倾向认为美伊后续谈判会相向而行。
-
-短期来看，资产价格高波动仍是常态，不宜过分押注地缘冲突的影响完全消散。
-
-能源价格中枢上涨到来的通胀压力被广泛关注，市场预期年内美联储可能不降息，日本、欧洲等地可能进入加息周期，资本市场流动性仍需关注。
-
-在宏观不确定性的背景下，科技行业的确定性越发明显。
+（文章来源：每日经济新闻）
 
 ## 相关推荐
 
-- 2026-06-29 14:44 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 14:41 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 14:39 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 14:53 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 14:38 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 14:49 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 15:01 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 14:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 14:55 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 14:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 14:58 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 14:40 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 14:39 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 14:53 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 15:00 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 15:10 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 15:08 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 14:45 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 15:11 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 14:44 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 15:02 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 14:52 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 14:43 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 14:57 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 14:42 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 14:55 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:52 - [王祖蓝现场观看美加墨世界杯](https://www.share.minike.top/Article/details/526360.shtml)
-- 2026-06-29 14:38 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/14466672.shtml)
-- 2026-06-29 14:56 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/5986077590.shtml)
-- 2026-06-29 15:04 - [媒体：网络测评不能只剩“生意”](https://www.blog.kurohicncr.top/Article/details/88379302.shtml)
-- 2026-06-29 15:03 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/934300.shtml)
-- 2026-06-29 14:38 - [给阿嬷的情书海外口碑](http://www.share.minike.top/Article/details/15278362692.shtml)
-- 2026-06-29 14:55 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/977320338107.shtml)
-- 2026-06-29 14:38 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/7626156551.shtml)
-- 2026-06-29 14:54 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/4577728216.shtml)
-- 2026-06-29 14:41 - [美伊同意停止互袭](http://www.share.kurohicncr.top/Article/details/67025.shtml)
-- 2026-06-29 14:58 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/6574861.shtml)
-- 2026-06-29 14:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/444008234.shtml)
-- 2026-06-29 14:45 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/61025742.shtml)
-- 2026-06-29 14:57 - [NBA交易](https://www.share.kurohicncr.top/Article/details/7668149.shtml)
-- 2026-06-29 15:04 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/280691197671.shtml)
+- 2026-06-29 14:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/1429478.shtml)
+- 2026-06-29 14:46 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/670909117643.shtml)
+- 2026-06-29 14:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/523011.shtml)
+- 2026-06-29 14:59 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/015229156.shtml)
+- 2026-06-29 15:06 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/56773297.shtml)
+- 2026-06-29 14:57 - [德云色预测世界杯16强](https://www.share.kurohicncr.top/Article/details/37522555336.shtml)
+- 2026-06-29 15:01 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/00760564.shtml)
+- 2026-06-29 15:02 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/22757.shtml)
+- 2026-06-29 14:57 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/91686.shtml)
+- 2026-06-29 14:54 - [吴建豪老婆](http://www.blog.minike.top/Article/details/13308922057.shtml)
+- 2026-06-29 14:59 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/481569.shtml)
+- 2026-06-29 14:48 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/62772870.shtml)
+- 2026-06-29 14:45 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/85427.shtml)
+- 2026-06-29 14:56 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/421012437.shtml)
+- 2026-06-29 14:48 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/291786.shtml)

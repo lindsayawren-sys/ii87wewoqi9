@@ -1,56 +1,60 @@
-# 东北地区首单“地方牌照”企业为国际航行船舶加注保税燃料油业务在大连落地
+# 欧洲官员称伊朗向胡塞武装施压 准备重启针对红海航运的袭击
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-中新网大连4月21日电 (记者 杨毅)大连海关21日发布消息称，东北地区首单“地方牌照”企业开展保税船用燃料油加注业务近日在大连落地。 此次业务采用保税(低硫)燃料油“管道输送+码头加注”一体化运作模式，这是大连地区国际航行船舶保税燃油经营牌照发放后的首单加注。本次装船的1800吨燃料油，已于4月19日在大连港集装箱码头完成首船加注，并将于近期完成剩余1300吨低硫保税船燃的二
+欧洲官员称，伊朗正推动胡塞武装为重启针对红海航运的行动做准备，这取决于美国是否进一步升级对伊朗的军事行动。 因谈及敏感事宜而不愿具名的知情人士透露，在向以色列发射弹道导弹后，胡塞武装的领导层正在权衡采取更激进行动的选项。该组织总部位于也门、受到伊朗支持。 知情人士表示，胡塞武装领导层内部在行动激进程度上存在分歧，这也是该组织在冲突爆发一个月后才介入的部分原因。该组织在周六的声明
 
 ## 正文
 
-中新网大连4月21日电 (记者 杨毅)大连海关21日发布消息称，东北地区首单“地方牌照”企业开展保税船用燃料油加注业务近日在大连落地。
+欧洲官员称，伊朗正推动胡塞武装为重启针对红海航运的行动做准备，这取决于美国是否进一步升级对伊朗的军事行动。
 
-此次业务采用保税(低硫)燃料油“管道输送+码头加注”一体化运作模式，这是大连地区国际航行船舶保税燃油经营牌照发放后的首单加注。
+因谈及敏感事宜而不愿具名的知情人士透露，在向以色列发射弹道导弹后，胡塞武装的领导层正在权衡采取更激进行动的选项。
 
-本次装船的1800吨燃料油，已于4月19日在大连港集装箱码头完成首船加注，并将于近期完成剩余1300吨低硫保税船燃的二次加注。
+该组织总部位于也门、受到伊朗支持。
 
-在以往，国际航行船舶保税燃油加注许可权由商务部审批，自今年1月6日商务部下发《大连等9城市服务业扩大开放综合试点任务》后，赋予大连市国际航行船舶保税燃油加注许可权，允许保税油供应企业在辽宁省内开展保税油直供业务。
+知情人士表示，胡塞武装领导层内部在行动激进程度上存在分歧，这也是该组织在冲突爆发一个月后才介入的部分原因。
 
-本次作业的低硫燃料油，全部产自大连腹地炼厂，通过大港石化管道输送至公司建罐客户的保税罐区进行储存，并经该公司码头完成出库装船作业，以“一船多供”的模式于大连海域实现同航次多船连续加注服务。
+该组织在周六的声明中称，将继续开展军事行动，直到美国和以色列停止对伊朗及其代理人组织的打击，包括黎巴嫩真主党。
 
-作为首家获大连市批准开展该项业务的企业，中石油(大连)燃料油有限责任公司负责人田兴宇坦言，“政策下放后，地方有关部门直接受理审核、核发牌照，审批周期大幅缩短。
+他们未明确表示会以通过红海的油轮或其他船只为目标。
 
-同时，企业可在辽宁省全域开展保税油直供业务，经营版图全面拓宽。
+知情人士称，美国和沙特官员已告知欧洲盟友，他们认为该组织目前希望避免进一步升级局势，也希望避免攻击美国和沙特目标。
 
-”田兴宇说，依托大连港的区位优势与自身储运实力，能够更快速响应国际航行船舶的供油需求，也让东北港口在东北亚航运补给市场中更具优势。
+不过，知情人士补充称，美以对伊朗的战争持续时间越长，胡塞武装针对红海目标的可能性就越大。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 15:04 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 14:42 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 14:46 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 15:03 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 14:44 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 14:52 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 14:50 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 14:46 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 14:42 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 14:51 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 14:44 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 15:00 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 14:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 15:11 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 15:10 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 15:11 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 14:56 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 14:43 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 14:50 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 15:05 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 15:08 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 15:06 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 14:46 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:54 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/668625.shtml)
-- 2026-06-29 14:37 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/86806475861.shtml)
-- 2026-06-29 14:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/8939584625.shtml)
-- 2026-06-29 14:49 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/896419751459.shtml)
-- 2026-06-29 14:43 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/988049604150.shtml)
-- 2026-06-29 14:42 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/131873463.shtml)
-- 2026-06-29 15:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/448069.shtml)
-- 2026-06-29 14:37 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/4355164.shtml)
-- 2026-06-29 15:04 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/21887527.shtml)
-- 2026-06-29 14:51 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/4153304238.shtml)
-- 2026-06-29 14:52 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/432744642327.shtml)
-- 2026-06-29 14:53 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/5957993529.shtml)
-- 2026-06-29 14:51 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/2364810241.shtml)
-- 2026-06-29 14:42 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/90158.shtml)
-- 2026-06-29 14:53 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/7921686581.shtml)
+- 2026-06-29 14:56 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/56268.shtml)
+- 2026-06-29 15:10 - [记者暗访贵州和云南多个养老机构](http://www.share.kurohicncr.top/Article/details/6527234289.shtml)
+- 2026-06-29 15:03 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/37878932339.shtml)
+- 2026-06-29 14:50 - [森保一：日本队要亲手改写历史](http://www.blog.kurohicncr.top/Article/details/61393502.shtml)
+- 2026-06-29 14:55 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/994693.shtml)
+- 2026-06-29 14:46 - [苹果回应恋与深空低分](https://www.share.kurohicncr.top/Article/details/897083.shtml)
+- 2026-06-29 14:44 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/16714254308.shtml)
+- 2026-06-29 14:53 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/83458005911.shtml)
+- 2026-06-29 15:06 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/1734417.shtml)
+- 2026-06-29 14:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/49818.shtml)
+- 2026-06-29 15:01 - [和阿根廷球员家属一起看球](http://www.blog.minike.top/Article/details/2542098.shtml)
+- 2026-06-29 14:56 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/244551997559.shtml)
+- 2026-06-29 15:11 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/84287.shtml)
+- 2026-06-29 15:04 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/38837422.shtml)
+- 2026-06-29 14:44 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/46928551.shtml)

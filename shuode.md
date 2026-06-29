@@ -1,58 +1,50 @@
-# 百亿光伏龙头业绩闪崩，股价单日大跌13%，近一年涨超77%
+# 以军：伊朗军方石油部门负责人遭空袭身亡
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨曹恩惠 编辑丨郑世凤 骆一帆 深圳市捷佳伟创新能源装备股份有限公司（下称捷佳伟创，300724.SZ）今年一季度业绩下滑得“有些厉害”。 业绩“重挫”之下，捷佳伟创4月22日股价大幅低开，收盘大跌13.24%。时间拉长看，该股近一年股价涨超77%，光伏板块今年内也涨近25%。 4月21日晚间，捷佳伟创
+中新网4月3日电 据《以色列时报》报道，以色列国防军2日证实，伊朗军方石油部门负责人贾姆希德·埃沙基在以军对伊朗发动的空袭中死亡。 报道称，以色列军方称埃沙基是伊朗“石油总部”的负责人，他曾担任伊朗武装部队总参谋部预算和财务主管，该机构负责协调正规军和伊斯兰革命卫队之间的行动。 以色列军方称，埃沙基管理的部门是“伊朗武装力量不可或缺的一部分，通过石油销售利润，使其能够继续开展活
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网4月3日电 据《以色列时报》报道，以色列国防军2日证实，伊朗军方石油部门负责人贾姆希德·埃沙基在以军对伊朗发动的空袭中死亡。
 
-记者丨曹恩惠 编辑丨郑世凤 骆一帆 深圳市捷佳伟创新能源装备股份有限公司（下称捷佳伟创，300724.SZ）今年一季度业绩下滑得“有些厉害”。
+报道称，以色列军方称埃沙基是伊朗“石油总部”的负责人，他曾担任伊朗武装部队总参谋部预算和财务主管，该机构负责协调正规军和伊斯兰革命卫队之间的行动。
 
-业绩“重挫”之下，捷佳伟创4月22日股价大幅低开，收盘大跌13.24%。
+以色列军方称，埃沙基管理的部门是“伊朗武装力量不可或缺的一部分，通过石油销售利润，使其能够继续开展活动和进行军事建设”。
 
-时间拉长看，该股近一年股价涨超77%，光伏板块今年内也涨近25%。
-
-4月21日晚间，捷佳伟创发布2026年第一季度业绩预告。
-
-公告显示，报告期内，该公司实现归属于上市公司股东的净利润为2.45亿元至3.20亿元，较2025年同期下滑54.81%至65.40%。
-
-去年同期，捷佳伟创实现归属于上市公司股东的净利润为7.08亿元。
-
-为何一季度净利润较2025年同期“腰斩”？
+伊朗伊斯兰革命卫队1日证实，埃沙基在以色列的空袭中丧生。
 
 ## 相关推荐
 
-- 2026-06-29 14:39 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 14:40 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 14:53 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 14:53 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 14:38 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 15:01 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 14:45 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 14:58 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 14:52 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 14:53 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 14:51 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 14:58 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 15:10 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 14:42 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 15:01 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 14:56 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 15:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 14:52 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 14:53 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 14:54 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 14:48 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 15:07 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 15:04 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 14:56 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:51 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/0620709.shtml)
-- 2026-06-29 14:52 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/199385492.shtml)
-- 2026-06-29 14:46 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/921934468.shtml)
-- 2026-06-29 15:05 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/435256065.shtml)
-- 2026-06-29 15:02 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/1340953781.shtml)
-- 2026-06-29 14:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/79009.shtml)
-- 2026-06-29 14:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/750615.shtml)
-- 2026-06-29 15:00 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/1024987483.shtml)
-- 2026-06-29 14:45 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/154986.shtml)
-- 2026-06-29 14:52 - [逃狱兄弟](http://www.blog.minike.top/Article/details/708711967544.shtml)
-- 2026-06-29 14:53 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/2293028034.shtml)
-- 2026-06-29 14:55 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/60604562621.shtml)
-- 2026-06-29 14:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/01763870.shtml)
-- 2026-06-29 14:53 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/95631822.shtml)
-- 2026-06-29 14:46 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/96529.shtml)
+- 2026-06-29 15:09 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/0436032104.shtml)
+- 2026-06-29 14:55 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/38927112.shtml)
+- 2026-06-29 14:43 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/69875223827.shtml)
+- 2026-06-29 14:42 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/77951676008.shtml)
+- 2026-06-29 14:43 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/401608.shtml)
+- 2026-06-29 14:43 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/42280345916.shtml)
+- 2026-06-29 14:45 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/014295.shtml)
+- 2026-06-29 14:59 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/8889954130.shtml)
+- 2026-06-29 15:08 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/78268.shtml)
+- 2026-06-29 14:47 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/44263628310.shtml)
+- 2026-06-29 14:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/902077.shtml)
+- 2026-06-29 15:06 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/388880899216.shtml)
+- 2026-06-29 15:00 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/88812917.shtml)
+- 2026-06-29 14:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/985161317268.shtml)
+- 2026-06-29 15:01 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/654233.shtml)

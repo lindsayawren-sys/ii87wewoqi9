@@ -1,57 +1,56 @@
-# 黄燕铭：“哑铃型”行情已经结束，未来A股机会在中盘蓝筹
+# 新华保险龚兴峰：分红险价值率较传统险略低 一系列落地举措将推动新业务价值稳定增长
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-“2026年，A股需‘灵魂等待脚步’，告别‘哑铃’拥抱‘中盘蓝筹’。”4月21日，东方证券研究所所长黄燕铭在做客澎湃新闻《超级对话》节目中如是说。 黄燕铭表示，总的来说，A股今年整体是“横盘震荡、略有走强”，但这个“强”不会像去年那样是大牛市。此前经济增速和质量的提高，抬升了市场的预期，因此预期需要在前面等一等。 市场风格方面，黄燕铭明确指出，两端走的“哑铃型”行情已经结束。随
+3月30日金融一线消息，新华保险今日召开2025年度业绩发布会。总裁、财务负责人龚兴峰表示，公司持续推进分红险风险转型，是落实监管关于加强变额型产品销售、防范利差损风险的核心举措。分红险作为让客户共享公司发展成果的重要产品类型，其价值率虽较传统险略低，对新业务价值及价值率增长形成一定挑战，但公司对此已有清晰认知、充分准备及具体行动，并已落地一系列工作举措，切实推动新业务价值持续
 
 ## 正文
 
-“2026年，A股需‘灵魂等待脚步’，告别‘哑铃’拥抱‘中盘蓝筹’。
+3月30日金融一线消息，新华保险今日召开2025年度业绩发布会。
 
-”4月21日，东方证券研究所所长黄燕铭在做客澎湃新闻《超级对话》节目中如是说。
+总裁、财务负责人龚兴峰表示，公司持续推进分红险风险转型，是落实监管关于加强变额型产品销售、防范利差损风险的核心举措。
 
-黄燕铭表示，总的来说，A股今年整体是“横盘震荡、略有走强”，但这个“强”不会像去年那样是大牛市。
+分红险作为让客户共享公司发展成果的重要产品类型，其价值率虽较传统险略低，对新业务价值及价值率增长形成一定挑战，但公司对此已有清晰认知、充分准备及具体行动，并已落地一系列工作举措，切实推动新业务价值持续稳定增长。
 
-此前经济增速和质量的提高，抬升了市场的预期，因此预期需要在前面等一等。
+具体来看，龚兴峰从四方面阐述了公司的推进策略。
 
-市场风格方面，黄燕铭明确指出，两端走的“哑铃型”行情已经结束。
+其一，激发队伍活力，在高基数、高平台基础上，充分调动广大干部员工干事创业的积极性，提升队伍销售能力与热情，通过业绩突破实现业务规模增长。
 
-随着低风险偏好和高风险偏好的投资者，都会开始往中等风险偏好方向走。
+其二，优化产品结构，坚守保险本源，推动多元化产品销售以拓宽利润来源，重点补齐养老、健康及长期期缴业务短板，以业务质量的提升为价值增长筑牢杠杆支撑。
 
-未来A股的投资机会在“中盘蓝筹”。
+其三，重构渠道竞争力，顺应市场快速变化与监管高要求，加强营销队伍质与量的双提升，强化银代渠道人网匹配、网点拓展的核心竞争力，提升团险渠道对战略客户的获取能力与价值贡献，同时加快互联网渠道发展，为价值增长培育新增长点。
 
-“到目前为止，周期股的行情大半部分已经走掉，当前正好处在周期向制造转型的过程当中。
+其四，降本提质增效，通过优化资源配置提升投产效益，以精细化管理推动业务效率与质量双提升。
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 14:59 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 15:00 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 14:54 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 14:51 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 14:42 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 14:45 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 14:41 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 15:00 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 14:55 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 14:37 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 14:55 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 15:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 14:50 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 15:07 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 15:02 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 14:52 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 14:53 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 15:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 14:54 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 14:53 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:37 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/734132.shtml)
-- 2026-06-29 14:49 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/5164686284.shtml)
-- 2026-06-29 15:05 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/0813893.shtml)
-- 2026-06-29 14:46 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/9492127.shtml)
-- 2026-06-29 15:02 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/8179263.shtml)
-- 2026-06-29 14:44 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/155485.shtml)
-- 2026-06-29 14:49 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.minike.top/Article/details/818265.shtml)
-- 2026-06-29 14:58 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/931838660061.shtml)
-- 2026-06-29 14:38 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/61249.shtml)
-- 2026-06-29 14:59 - [我和我的家乡](https://www.blog.minike.top/Article/details/398980972571.shtml)
-- 2026-06-29 14:58 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/56284617684.shtml)
-- 2026-06-29 14:54 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/829098.shtml)
-- 2026-06-29 14:41 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/216392177.shtml)
-- 2026-06-29 15:02 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/429323492703.shtml)
-- 2026-06-29 14:57 - [当我回母校教书](https://www.blog.minike.top/Article/details/679610319.shtml)
+- 2026-06-29 14:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/80071827.shtml)
+- 2026-06-29 15:00 - [周生如故](http://www.share.kurohicncr.top/Article/details/1520295.shtml)
+- 2026-06-29 15:10 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/29518113170.shtml)
+- 2026-06-29 14:51 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/115189.shtml)
+- 2026-06-29 14:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/527495084.shtml)
+- 2026-06-29 14:42 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/8104393771.shtml)
+- 2026-06-29 15:04 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/74654445179.shtml)
+- 2026-06-29 14:53 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/535911.shtml)
+- 2026-06-29 14:57 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/608627344.shtml)
+- 2026-06-29 14:54 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/466077.shtml)
+- 2026-06-29 14:53 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/78891874962.shtml)
+- 2026-06-29 14:59 - [德国VS巴拉圭前瞻](https://www.share.minike.top/Article/details/025098.shtml)
+- 2026-06-29 14:43 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/27320598129.shtml)
+- 2026-06-29 14:50 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/605266.shtml)
+- 2026-06-29 14:59 - [速度与激情9](http://www.blog.minike.top/Article/details/600820.shtml)

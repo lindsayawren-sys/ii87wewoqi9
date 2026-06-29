@@ -1,58 +1,59 @@
-# 主播说联播丨日本须彻底清算军国主义遗毒！
+# 从5419高点跌15%后，黄金迎来转机？
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-4月21日，日本首相高市早苗以“内阁总理大臣”名义，向供奉二战甲级战犯的靖国神社供奉祭品。视频：主播说联播丨日本须彻底清算军国主义遗毒！来源：央视新闻客户端 靖国神社是日本军国主义对外发动侵略战争的精神工具和象征，是事实上的“战犯神社”。日方在靖国神社问题上的消极动向，实质是对自身罪责的逃避、对历史公正的亵渎、对被侵略国家的挑衅，更是对二战胜利成果的挑战。 除了“拜”鬼，日方还
+来源：汇通网 汇通财经APP讯——3月30日周一，现货黄金价格在亚洲时段一度触及4419美元低点，随后快速反弹至4570美元附近。这一走势发生在美债收益率从多月高位小幅回落、美元指数维持强势的背景下，同时中东地区冲突风险显著升级，为避险资产注入支撑。交易员正密切关注能源价格高企对经济增长的潜在拖累，以及美联储货币政策预期的微妙转变。 黄金价格当前动态与近期表现 现货黄金逆转早盘
 
 ## 正文
 
-4月21日，日本首相高市早苗以“内阁总理大臣”名义，向供奉二战甲级战犯的靖国神社供奉祭品。
+来源：汇通网 汇通财经APP讯——3月30日周一，现货黄金价格在亚洲时段一度触及4419美元低点，随后快速反弹至4570美元附近。
 
-视频：主播说联播丨日本须彻底清算军国主义遗毒！
+这一走势发生在美债收益率从多月高位小幅回落、美元指数维持强势的背景下，同时中东地区冲突风险显著升级，为避险资产注入支撑。
 
-来源：央视新闻客户端 靖国神社是日本军国主义对外发动侵略战争的精神工具和象征，是事实上的“战犯神社”。
+交易员正密切关注能源价格高企对经济增长的潜在拖累，以及美联储货币政策预期的微妙转变。
 
-日方在靖国神社问题上的消极动向，实质是对自身罪责的逃避、对历史公正的亵渎、对被侵略国家的挑衅，更是对二战胜利成果的挑战。
+黄金价格当前动态与近期表现 现货黄金逆转早盘跌势，盘中从200日均线附近获得明显支撑，显示短期买盘力度有所恢复。
 
-除了“拜”鬼，日方还在松绑“杀器”。
+尽管美元仍保持坚挺，但收益率的温和回落为金价提供了喘息空间。
 
-今天上午，日本政府在内阁会议上正式修改了“防卫装备转移三原则”及其运用指南，原则上将允许出口杀伤性武器。
+数据显示，3月黄金一度触及5419美元的阶段高位，之后累计回落近15%，本月正面临结束连续七个月上涨的局面。
 
-这说明，日本加速“再军事化”是事实和现实，有实际的路线和行动。
+这一跌幅反映出高利率环境对非收益资产的持续挤压，但地缘因素的突然发酵正在改变短期供需平衡。
 
-对此，不仅国际社会保持高度警惕，坚决抵制日本“新型军国主义”的妄动，日本社会也不乏反对声音，比如日本网友就直言，“通过杀人来赚钱的日本还有什么夸耀可言，绝不能容忍”。
+黄金作为传统避险工具，其价格敏感度正从单纯利率路径转向复合风险定价。
 
 ## 相关推荐
 
-- 2026-06-29 14:42 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 14:57 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 14:40 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 14:58 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 14:54 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 15:02 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 14:42 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 14:42 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 14:51 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 14:40 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 14:54 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 14:55 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 14:47 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 14:55 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 14:49 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 14:59 - [医药股集体爆发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 15:01 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 14:44 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 14:46 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 15:01 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 14:48 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 14:43 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 15:01 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 14:59 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 15:07 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:52 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/80677617.shtml)
-- 2026-06-29 14:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/278033644.shtml)
-- 2026-06-29 14:47 - [爱很美味](http://www.share.kurohicncr.top/Article/details/8019259567.shtml)
-- 2026-06-29 15:02 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/0422090195.shtml)
-- 2026-06-29 14:47 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/17216454.shtml)
-- 2026-06-29 14:54 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/4824545.shtml)
-- 2026-06-29 14:42 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/632444884.shtml)
-- 2026-06-29 14:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/3467891.shtml)
-- 2026-06-29 14:38 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/16944.shtml)
-- 2026-06-29 14:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/2356227958.shtml)
-- 2026-06-29 15:01 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/73063.shtml)
-- 2026-06-29 14:53 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/925163655006.shtml)
-- 2026-06-29 14:53 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/85319.shtml)
-- 2026-06-29 14:50 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/30715.shtml)
-- 2026-06-29 15:00 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/2472061891.shtml)
+- 2026-06-29 14:44 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/5826653.shtml)
+- 2026-06-29 14:43 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/4703816.shtml)
+- 2026-06-29 15:10 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/063035.shtml)
+- 2026-06-29 14:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/575180186792.shtml)
+- 2026-06-29 15:05 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/69863143.shtml)
+- 2026-06-29 14:57 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/687787409.shtml)
+- 2026-06-29 14:43 - [斗破苍穹](http://www.share.minike.top/Article/details/7495106.shtml)
+- 2026-06-29 15:01 - [20年前的周杰伦](http://www.share.minike.top/Article/details/608378054496.shtml)
+- 2026-06-29 15:01 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/2582746714.shtml)
+- 2026-06-29 14:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/931881144.shtml)
+- 2026-06-29 14:48 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/656347.shtml)
+- 2026-06-29 14:56 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/61330697106.shtml)
+- 2026-06-29 15:01 - [媒体：网络测评不能只剩“生意”](https://www.blog.minike.top/Article/details/588245.shtml)
+- 2026-06-29 15:07 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/57882515.shtml)
+- 2026-06-29 14:57 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/499205735033.shtml)

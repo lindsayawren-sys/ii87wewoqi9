@@ -1,60 +1,46 @@
-# 中东局势现缓和迹象，美股周三高开
+# 输电线路遭袭 伊朗卡拉季部分地区电力供应中断
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-受中东紧张局势有望缓解的消息提振，华尔街股市周三（4月22日）开盘走高。美国总统特朗普宣布延长与伊朗的停火协议，为市场注入了乐观情绪。 截至美东时间上午，道琼斯工业平均指数上涨0.93%，报49606点；标普500指数上涨0.82%，报7122点；纳斯达克综合指数上涨0.98%，报24497点。 特朗普在社交媒体上表示，应巴基斯坦方面的请求，美方决定延长停火，以便伊朗方面能提出
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月7日电据伊朗媒体7日报道，伊朗卡拉季部分地区电力供应中断，原因是输电线路遭炮击。（完）责任编辑：宋雅芳
 
 ## 正文
 
-受中东紧张局势有望缓解的消息提振，华尔街股市周三（4月22日）开盘走高。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-美国总统特朗普宣布延长与伊朗的停火协议，为市场注入了乐观情绪。
+新华社德黑兰4月7日电据伊朗媒体7日报道，伊朗卡拉季部分地区电力供应中断，原因是输电线路遭炮击。
 
-截至美东时间上午，道琼斯工业平均指数上涨0.93%，报49606点；标普500指数上涨0.82%，报7122点；纳斯达克综合指数上涨0.98%，报24497点。
-
-特朗普在社交媒体上表示，应巴基斯坦方面的请求，美方决定延长停火，以便伊朗方面能提出统一的谈判方案。
-
-此举被视为冲突降级路径上的积极信号。
-
-除了地缘政治因素，强劲的企业财报也为市场提供了支撑。
-
-波音公司（BA）公布的第一季度亏损小于预期，推动其股价上涨超过3%。
-
-数据显示，截至目前已公布财报的标普500成分股中，超过80%的公司业绩超出市场预期。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 14:47 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 15:00 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 14:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 14:50 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 14:49 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 15:02 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 14:46 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 14:48 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 14:56 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 14:41 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 15:03 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 14:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 14:58 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 14:58 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 15:05 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 14:48 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 15:09 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 14:56 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 14:56 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 14:52 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 14:55 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 14:58 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 14:51 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [赵露思爸爸拍vlog翻车了](https://www.share.kurohicncr.top/Article/details/960807093.shtml)
-- 2026-06-29 14:44 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/76330.shtml)
-- 2026-06-29 14:51 - [速度与激情9](http://www.share.minike.top/Article/details/00037729198.shtml)
-- 2026-06-29 14:44 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/7437727.shtml)
-- 2026-06-29 14:50 - [南非老帅布罗斯的梦没能做完](http://www.share.minike.top/Article/details/881294601.shtml)
-- 2026-06-29 14:56 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/959326.shtml)
-- 2026-06-29 14:51 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/192083692.shtml)
-- 2026-06-29 14:40 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/36107121.shtml)
-- 2026-06-29 14:50 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/833615481.shtml)
-- 2026-06-29 14:46 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/542858544158.shtml)
-- 2026-06-29 14:45 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/876188905.shtml)
-- 2026-06-29 14:51 - [斛珠夫人](http://www.share.minike.top/Article/details/568381.shtml)
-- 2026-06-29 14:48 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/5489576.shtml)
-- 2026-06-29 14:36 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/375054630063.shtml)
-- 2026-06-29 14:40 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/11445.shtml)
+- 2026-06-29 15:05 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/94484663579.shtml)
+- 2026-06-29 15:03 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/322567717158.shtml)
+- 2026-06-29 14:47 - [84岁英国教授成中国网红](http://www.blog.minike.top/Article/details/035382995.shtml)
+- 2026-06-29 14:49 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/262755206.shtml)
+- 2026-06-29 14:55 - [北极荒岛生存挑战](https://www.share.kurohicncr.top/Article/details/382627.shtml)
+- 2026-06-29 14:45 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/08412511.shtml)
+- 2026-06-29 15:04 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/905867.shtml)
+- 2026-06-29 15:11 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/0590816804.shtml)
+- 2026-06-29 15:00 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/39779.shtml)
+- 2026-06-29 15:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/686182715.shtml)
+- 2026-06-29 14:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/1621537.shtml)
+- 2026-06-29 15:10 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/032388.shtml)
+- 2026-06-29 15:02 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/389110639688.shtml)
+- 2026-06-29 14:48 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/6098780.shtml)
+- 2026-06-29 14:54 - [医药股集体爆发](http://www.blog.kurohicncr.top/Article/details/887058247.shtml)

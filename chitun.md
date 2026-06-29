@@ -1,58 +1,59 @@
-# 两湖论坛在日月潭举行 台学者：传递岛内社会希望两岸交流心声
+# 博时基金2025年报盘点：营收49.92亿，净利15.31亿，净利增速不足1%
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-中新社台北4月22日电 (记者 陈建新)第18届“西湖·日月潭”两湖论坛22日在台湾南投市日月潭举行。台湾政治大学兼任研究员汤绍成在会外接受中新社记者采访表示，该论坛体现台湾社会期盼两岸交流的心声，乐见未来有更多县市参与城际交流活动。本届论坛以“湖光延无限，携手拓新程”为主题，强调南投、杭州情谊永续。活动设置主论坛、分论坛等环节。围绕文化艺术、健康城市、观光旅游及青年发展等议题
+专题：2025基金年报季启幕：头部公募“万亿战”升级，工银瑞信净利领跑，“赚钱榜”大洗牌 随着上市公司2025年年报陆续披露，公募基金行业的经营数据逐渐浮出水面。作为招商银行持股的两家重要基金公司，博时基金与招商基金的最新成绩单也得以同台亮相。 根据招商证券年报披露的主要参股公司数据，博时基金2025年实现营业收入49.92亿元，同比增长8.78%；净利润15.31亿元，同比增
 
 ## 正文
 
-中新社台北4月22日电 (记者 陈建新)第18届“西湖·日月潭”两湖论坛22日在台湾南投市日月潭举行。
+专题：2025基金年报季启幕：头部公募“万亿战”升级，工银瑞信净利领跑，“赚钱榜”大洗牌 随着上市公司2025年年报陆续披露，公募基金行业的经营数据逐渐浮出水面。
 
-台湾政治大学兼任研究员汤绍成在会外接受中新社记者采访表示，该论坛体现台湾社会期盼两岸交流的心声，乐见未来有更多县市参与城际交流活动。
+作为招商银行持股的两家重要基金公司，博时基金与招商基金的最新成绩单也得以同台亮相。
 
-本届论坛以“湖光延无限，携手拓新程”为主题，强调南投、杭州情谊永续。
+根据招商证券年报披露的主要参股公司数据，博时基金2025年实现营业收入49.92亿元，同比增长8.78%；净利润15.31亿元，同比增长0.21%。
 
-活动设置主论坛、分论坛等环节。
+对比来看，招商基金2025年实现营业收入54.70亿元，同比增长3.05%，勉强守住了增长线。
 
-围绕文化艺术、健康城市、观光旅游及青年发展等议题，两岸产业界、研究人员等分享经验，探讨未来合作模式。
+但净利润就没那么乐观了——全年仅录得14.38亿元，相比2024年的16.50亿元，直接下滑了12.85%。
 
-据报道，南投县县长许淑华在论坛上表示，期盼透过两湖论坛打造交流平台，开启两岸更多合作空间，积极探讨两岸直航航点恢复。
+从营收规模来看，招商基金以54.70亿元反超博时基金的49.92亿元；但从净利润来看，博时基金15.31亿元明显高于招商基金的14.38亿元，盈利能力更胜一筹。
 
-她还提到未来将持续带领青年学子参与两岸交流。
+截至2025年12月末，博时基金资产管理规模（含子公司）达到17742亿元，较2024年末增长2.93%。
 
-汤绍成对记者说，当前两岸关系仍处低迷状态，两湖论坛在南投顺利举行具有独特意义，传递了台湾社会希望两岸交流、两岸关系和平发展的心声。
+其中，公募基金管理规模为10966亿元，非货币公募基金管理规模为6321亿元，排名行业前列。
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 15:01 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 14:56 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 14:47 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 14:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 14:51 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 15:02 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 14:42 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 15:05 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 14:37 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 14:36 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 15:02 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 14:52 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 14:45 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 15:06 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 14:50 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 15:02 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 15:00 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 14:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 14:54 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 14:44 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 14:59 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 15:00 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 15:08 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 14:53 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:53 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/14706195.shtml)
-- 2026-06-29 14:59 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/9907131870.shtml)
-- 2026-06-29 15:00 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/363949969.shtml)
-- 2026-06-29 14:56 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/17251987.shtml)
-- 2026-06-29 15:04 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/9241525844.shtml)
-- 2026-06-29 14:53 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/076519406040.shtml)
-- 2026-06-29 14:42 - [请回答王牌2019](http://www.blog.minike.top/Article/details/303021584.shtml)
-- 2026-06-29 14:36 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/989822551.shtml)
-- 2026-06-29 14:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/556161241.shtml)
-- 2026-06-29 14:42 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/08225735976.shtml)
-- 2026-06-29 14:51 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/58989117935.shtml)
-- 2026-06-29 14:43 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/8343942049.shtml)
-- 2026-06-29 14:44 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/7413793826.shtml)
-- 2026-06-29 14:54 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/24796.shtml)
-- 2026-06-29 14:55 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/93200562.shtml)
+- 2026-06-29 14:52 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/079310.shtml)
+- 2026-06-29 14:44 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/059136.shtml)
+- 2026-06-29 15:06 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/349456907125.shtml)
+- 2026-06-29 15:11 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/01309.shtml)
+- 2026-06-29 14:44 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/92635.shtml)
+- 2026-06-29 14:46 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/940912.shtml)
+- 2026-06-29 15:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/7786912994.shtml)
+- 2026-06-29 15:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/212496151788.shtml)
+- 2026-06-29 14:52 - [世界杯十大帅哥必吃榜](https://www.blog.kurohicncr.top/Article/details/7282440.shtml)
+- 2026-06-29 15:11 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/14230288.shtml)
+- 2026-06-29 14:43 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/42541033.shtml)
+- 2026-06-29 14:53 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/0242411.shtml)
+- 2026-06-29 14:58 - [普京称考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/802008752.shtml)
+- 2026-06-29 15:07 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/036981933772.shtml)
+- 2026-06-29 15:01 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/977985.shtml)

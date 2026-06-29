@@ -1,61 +1,60 @@
-# 达能一季度业绩超预期，婴儿奶粉召回及伊朗战争影响有限
+# 软银获得400亿美元贷款，用于支持300亿美元的OpenAI投资
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-法国食品巨头达能集团公布的第一季度财报显示，尽管面临婴儿配方奶粉召回事件及中东冲突带来的供应链挑战，公司销售额仍略超市场预期，并确认了全年业绩指引。 财报数据显示，达能一季度实现销售额67.08亿欧元，同比增长2.7%，高于市场预期的2.6%增幅。销量/组合贡献1.5%的增长，价格贡献1.2%的增长。不过，这一增速较2025年第四季度的4.7%明显放缓。 从业务板块看，基础乳制
+正通过一项融资举措加大对人工智能领域的投入，此举可能重新定义其资产负债表及其在AI生态系统中的角色。该公司已获得一笔为期12个月、价值400亿美元的无抵押过桥贷款，这是其有史以来规模最大的美元计价借款，用于支持对OpenAI的300亿美元后续投资并支付相关成本。这笔交易的规模表明，孙正义正致力于让软银深度参与到一个可能持久的全球人工智能投资周期之中。 这笔贷款由摩根大通、高盛、
 
 ## 正文
 
-法国食品巨头达能集团公布的第一季度财报显示，尽管面临婴儿配方奶粉召回事件及中东冲突带来的供应链挑战，公司销售额仍略超市场预期，并确认了全年业绩指引。
+正通过一项融资举措加大对人工智能领域的投入，此举可能重新定义其资产负债表及其在AI生态系统中的角色。
 
-财报数据显示，达能一季度实现销售额67.08亿欧元，同比增长2.7%，高于市场预期的2.6%增幅。
+该公司已获得一笔为期12个月、价值400亿美元的无抵押过桥贷款，这是其有史以来规模最大的美元计价借款，用于支持对OpenAI的300亿美元后续投资并支付相关成本。
 
-销量/组合贡献1.5%的增长，价格贡献1.2%的增长。
+这笔交易的规模表明，孙正义正致力于让软银深度参与到一个可能持久的全球人工智能投资周期之中。
 
-不过，这一增速较2025年第四季度的4.7%明显放缓。
+这笔贷款由摩根大通、高盛、瑞穗银行、三井住友银行和三菱日联银行承销，预计部分还款资金将通过资产出售来筹集。
 
-从业务板块看，基础乳制品及植物基产品表现最为强劲，实现3.4%的同类增长；专业营养业务增长1.9%，饮用水业务增长2.3%。
+虽然这笔额外借款增加了软银的债务负担，但该融资结构表明，软银愿意承受短期财务压力，以换取在人工智能领域的长期投资。
 
-各地区中，亚太地区以6.0%的增速领跑，美洲地区增长3.4%，欧洲、中东及非洲地区增长0.6%。
+这一最新承诺建立在已向OpenAI投资超过300亿美元的基础之上，进一步巩固了这家初创公司作为软银最重要资产之一的地位。
 
-公司首席执行官在声明中表示：“第一季度表现再次证实了我们以健康为核心的业务组合的韧性、实力和相关性。
+与此同时，软银的人工智能战略与Arm Holdings（股价下跌6.89%至56美元）的联系日益紧密，软银持有Arm约90%的股份。
 
-”他指出，所有品类的销量/组合均为正增长，高蛋白、冰岛酸奶和开菲尔等品类表现尤为突出。
+Arm的股价今年已上涨超过40%，其计划从芯片设计拓展至销售自有芯片，管理层目标是五年内实现150亿美元的年收入，而2025年的收入为50亿美元，尽管利润率会有所下降。
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 14:42 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 14:57 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 14:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 14:48 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 14:54 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 14:44 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 14:45 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 14:50 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 14:37 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 14:57 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 14:41 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 14:49 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 14:43 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 14:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 14:49 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 15:09 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 14:54 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 14:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 14:57 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 14:47 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 15:10 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 14:53 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 15:02 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 14:57 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 15:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 14:52 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 14:47 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 14:55 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/31632722.shtml)
-- 2026-06-29 14:55 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/495257741368.shtml)
-- 2026-06-29 14:51 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/585539821.shtml)
-- 2026-06-29 14:56 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/5004135.shtml)
-- 2026-06-29 14:44 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/89740412.shtml)
-- 2026-06-29 14:56 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/3245643171.shtml)
-- 2026-06-29 14:43 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/6252180.shtml)
-- 2026-06-29 14:39 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/698380837908.shtml)
-- 2026-06-29 14:58 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/6275407551.shtml)
-- 2026-06-29 15:02 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/33020455.shtml)
-- 2026-06-29 14:53 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/81028789.shtml)
-- 2026-06-29 15:01 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/97237169.shtml)
-- 2026-06-29 14:41 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/057067510.shtml)
-- 2026-06-29 14:45 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/01233132.shtml)
-- 2026-06-29 14:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/987219297097.shtml)
+- 2026-06-29 15:04 - [网警提醒4类高考查分陷阱考生速看](http://www.share.minike.top/Article/details/71586.shtml)
+- 2026-06-29 14:57 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/738959161.shtml)
+- 2026-06-29 14:59 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/528480.shtml)
+- 2026-06-29 15:07 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/725166083641.shtml)
+- 2026-06-29 15:10 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/91142210.shtml)
+- 2026-06-29 15:08 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/765127327486.shtml)
+- 2026-06-29 15:11 - [7月1日起一批新规即将落地](http://www.blog.minike.top/Article/details/33831.shtml)
+- 2026-06-29 15:10 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/57821584.shtml)
+- 2026-06-29 14:52 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/21945850735.shtml)
+- 2026-06-29 14:49 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/45172735.shtml)
+- 2026-06-29 14:53 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/247337.shtml)
+- 2026-06-29 14:54 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/97281658357.shtml)
+- 2026-06-29 15:00 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/492171113423.shtml)
+- 2026-06-29 14:45 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/0791298448.shtml)
+- 2026-06-29 15:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/070589472.shtml)

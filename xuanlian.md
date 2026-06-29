@@ -1,44 +1,46 @@
-# 绿的谐波拟每10股派息2.1元 分红率30.96%
+# B站宣布：明天零点起，将下线猜你喜欢算法，不再根据你的喜好来推荐主页内容
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-4月22日，绿的谐波（688017）发布公告，公司拟向全体股东每10股派发现金红利2.1元（含税），预计总派发金额为3850万元，占归母净利润的30.96%。
+3月31日消息，哔哩哔哩宣布，从明天零点起，B站将下线猜你喜欢算法，不再根据你的喜好来推荐主页内容，并上线推荐新算法。 责任编辑：李思阳
 
 ## 正文
 
-4月22日，绿的谐波（688017）发布公告，公司拟向全体股东每10股派发现金红利2.1元（含税），预计总派发金额为3850万元，占归母净利润的30.96%。
+3月31日消息，哔哩哔哩宣布，从明天零点起，B站将下线猜你喜欢算法，不再根据你的喜好来推荐主页内容，并上线推荐新算法。
+
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-29 14:49 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 14:42 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 14:38 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 14:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 14:45 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 15:04 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 14:50 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 15:00 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 15:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 14:47 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 15:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 15:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 14:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 15:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 15:03 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 14:53 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 15:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 15:10 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 15:02 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 14:58 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 14:51 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 15:00 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 14:50 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 15:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/16738100.shtml)
-- 2026-06-29 15:02 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/16697.shtml)
-- 2026-06-29 15:00 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/49083078273.shtml)
-- 2026-06-29 14:47 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/301539.shtml)
-- 2026-06-29 15:04 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/27648193577.shtml)
-- 2026-06-29 14:37 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/921782525628.shtml)
-- 2026-06-29 14:38 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/244626101.shtml)
-- 2026-06-29 15:03 - [扫黑风暴](http://www.share.minike.top/Article/details/691568.shtml)
-- 2026-06-29 15:04 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/077203.shtml)
-- 2026-06-29 14:47 - [啊啊啊](http://www.share.minike.top/Article/details/50318268364.shtml)
-- 2026-06-29 14:47 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/580144.shtml)
-- 2026-06-29 14:47 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/073050934.shtml)
-- 2026-06-29 15:02 - [金刚川](http://www.blog.minike.top/Article/details/7468872660.shtml)
-- 2026-06-29 14:40 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/5544294.shtml)
-- 2026-06-29 15:02 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/12222949769.shtml)
+- 2026-06-29 15:04 - [第一炉香](https://www.blog.minike.top/Article/details/592241258.shtml)
+- 2026-06-29 14:42 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/094657513.shtml)
+- 2026-06-29 15:06 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/130326663.shtml)
+- 2026-06-29 14:46 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/98047049.shtml)
+- 2026-06-29 15:07 - [首尔商铺禁止洪明甫入内](http://www.share.minike.top/Article/details/15654219196.shtml)
+- 2026-06-29 15:07 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/38070093.shtml)
+- 2026-06-29 14:46 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/56553791.shtml)
+- 2026-06-29 14:44 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/209504976.shtml)
+- 2026-06-29 14:43 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/66100.shtml)
+- 2026-06-29 14:54 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/5476189075.shtml)
+- 2026-06-29 14:49 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/7828561661.shtml)
+- 2026-06-29 15:06 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/74105714.shtml)
+- 2026-06-29 14:45 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/064367023630.shtml)
+- 2026-06-29 15:05 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/62781960.shtml)
+- 2026-06-29 15:00 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/01139451.shtml)

@@ -1,50 +1,47 @@
-# 厄瓜多尔石油公司启动石油套期保值计划
+# 美国股指期货上涨 伊朗战争停火预期升温
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-厄瓜多尔石油公司在一份声明中表示，已启动一项计划，以对冲原油出口收入可能因价格下跌而受到的威胁。 厄瓜多尔石油公司代理总经理塞巴斯蒂安·马格表示：“套期保值计划涵盖超过3000万桶原油，约占2026年12月前待售原油总量的40%至50%。” 此次对冲旨在帮助稳定财政收入，促进进出口，并“利用更复杂的工具与金融市场互动”。责任编辑：于健 SF069
+美国股指期货走高，而油价下跌，有迹象显示，美国与伊朗正就可能达成停火协议展开磋商。 截至发稿，标普500指数期货涨逾1.1%，纳斯达克100指数期货涨1.2%，随后均回吐部分涨幅；WTI跌破每桶109美元。责任编辑：李桐
 
 ## 正文
 
-厄瓜多尔石油公司在一份声明中表示，已启动一项计划，以对冲原油出口收入可能因价格下跌而受到的威胁。
+美国股指期货走高，而油价下跌，有迹象显示，美国与伊朗正就可能达成停火协议展开磋商。
 
-厄瓜多尔石油公司代理总经理塞巴斯蒂安·马格表示：“套期保值计划涵盖超过3000万桶原油，约占2026年12月前待售原油总量的40%至50%。
+截至发稿，标普500指数期货涨逾1.1%，纳斯达克100指数期货涨1.2%，随后均回吐部分涨幅；WTI跌破每桶109美元。
 
-” 此次对冲旨在帮助稳定财政收入，促进进出口，并“利用更复杂的工具与金融市场互动”。
-
-责任编辑：于健 SF069
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 14:53 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 14:44 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 14:41 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 14:59 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 14:45 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 14:49 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 14:37 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 14:49 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 15:02 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 14:58 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 14:57 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 14:43 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 14:43 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 14:45 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 14:43 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 15:11 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 14:48 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 14:43 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 14:53 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 14:53 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 15:07 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 14:44 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 15:11 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/22262027523.shtml)
-- 2026-06-29 15:02 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/28796935889.shtml)
-- 2026-06-29 14:48 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/909486746.shtml)
-- 2026-06-29 14:52 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/1042437526.shtml)
-- 2026-06-29 14:50 - [航空运输旅客服务质量国标将实施](http://www.blog.kurohicncr.top/Article/details/94824.shtml)
-- 2026-06-29 14:47 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/8745245.shtml)
-- 2026-06-29 14:59 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/3357428.shtml)
-- 2026-06-29 15:02 - [王楚钦3比0周启豪](http://www.blog.minike.top/Article/details/9031290913.shtml)
-- 2026-06-29 14:39 - [市民骑哈啰单车79分钟被收费30元](https://www.share.kurohicncr.top/Article/details/791409582.shtml)
-- 2026-06-29 15:02 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.minike.top/Article/details/8013423913.shtml)
-- 2026-06-29 14:49 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/6542038.shtml)
-- 2026-06-29 14:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/5005883.shtml)
-- 2026-06-29 14:42 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/251471350.shtml)
-- 2026-06-29 14:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/005018.shtml)
-- 2026-06-29 14:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/362824.shtml)
+- 2026-06-29 15:03 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/950757783.shtml)
+- 2026-06-29 15:00 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/7940102.shtml)
+- 2026-06-29 14:53 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/308644392600.shtml)
+- 2026-06-29 14:44 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/33184492.shtml)
+- 2026-06-29 15:08 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/70521.shtml)
+- 2026-06-29 14:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/7055420.shtml)
+- 2026-06-29 14:50 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/61047749439.shtml)
+- 2026-06-29 14:56 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/813249825106.shtml)
+- 2026-06-29 14:47 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/89285.shtml)
+- 2026-06-29 15:06 - [东部机场集团新增釜山航线](https://www.blog.minike.top/Article/details/33492883560.shtml)
+- 2026-06-29 15:01 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/33412321346.shtml)
+- 2026-06-29 14:44 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/6842053632.shtml)
+- 2026-06-29 15:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/392866461583.shtml)
+- 2026-06-29 14:51 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/55842701587.shtml)
+- 2026-06-29 14:56 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/9078009.shtml)

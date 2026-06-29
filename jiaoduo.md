@@ -1,56 +1,56 @@
-# A股低开高走，沪指站上4100点：CPO概念股再度爆发，两市成交25598亿元
+# 韩国推出173亿美元刺激计划，油价飙升施压经济
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股三大股指4月22日集体低开。盘初快速走高后，早盘维持高位震荡模式。午后两市继续上攻，沪指站上4100点。 从盘面上看，CPO概念股再度爆发，多股创新高；算力硬件产业链多点开花，存储器、服务器、PCB、高速铜连接、算电协同方向纷纷走强。光伏、短剧游戏题材走弱。 至收盘，上证综指涨0.52%，报4106.2
+韩国正提前采取行动，但压力正在迅速积聚。政策制定者已提出一项26.2万亿韩元（合173亿美元）的补充预算，以缓冲伊朗冲突对经济的影响，原因是油价上涨和供应中断开始波及家庭和企业。官员们表示，随着外部冲击开始加剧，可能需要采取先发制人的财政支持，以防止当前复苏失去动力。 拟议的方案重点在于能源纾困和定向支持。约10.1万亿韩元用于抵消飙升的燃料成本，包括全国性的价格上限和稳定石脑
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+韩国正提前采取行动，但压力正在迅速积聚。
 
-A股三大股指4月22日集体低开。
+政策制定者已提出一项26.2万亿韩元（合173亿美元）的补充预算，以缓冲伊朗冲突对经济的影响，原因是油价上涨和供应中断开始波及家庭和企业。
 
-盘初快速走高后，早盘维持高位震荡模式。
+官员们表示，随着外部冲击开始加剧，可能需要采取先发制人的财政支持，以防止当前复苏失去动力。
 
-午后两市继续上攻，沪指站上4100点。
+拟议的方案重点在于能源纾困和定向支持。
 
-从盘面上看，CPO概念股再度爆发，多股创新高；算力硬件产业链多点开花，存储器、服务器、PCB、高速铜连接、算电协同方向纷纷走强。
+约10.1万亿韩元用于抵消飙升的燃料成本，包括全国性的价格上限和稳定石脑油供应的措施；2.8万亿韩元用于支持低收入家庭、小企业和面临更具挑战性就业市场的年轻劳动者；另有2.6万亿韩元用于受物流和能源成本上升影响的行业，包括出口企业和石化公司，同时加强供应链并支持能源转型计划。
 
-光伏、短剧游戏题材走弱。
+其他资金包括用于地方政府的9.7万亿韩元和用于偿还债务的1万亿韩元。
 
-至收盘，上证综指涨0.52%，报4106.26点；深证成指涨1.3%，报15177.29点；创业板指涨1.73%，报3752.76点。
+该计划的大部分资金来源于与半导体出口和股市上涨相关的、强于预期的税收收入。
 
-Wind统计显示，两市及北交所共2912家上涨，2430家下跌，平盘有155家。
+宏观背景正变得愈加动荡。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 14:52 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 14:46 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 15:05 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 14:44 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 14:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 14:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 14:56 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 14:38 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 15:03 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 14:43 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 15:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 15:06 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 15:01 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 14:53 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 15:04 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 14:59 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 15:06 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 15:03 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 14:44 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:47 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/378593749.shtml)
-- 2026-06-29 14:41 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.kurohicncr.top/Article/details/405904609593.shtml)
-- 2026-06-29 14:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/4167530.shtml)
-- 2026-06-29 14:53 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/0891710.shtml)
-- 2026-06-29 14:42 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/64293470.shtml)
-- 2026-06-29 14:45 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/164246895.shtml)
-- 2026-06-29 14:42 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/791407195.shtml)
-- 2026-06-29 15:02 - [毒液2](http://www.share.kurohicncr.top/Article/details/25568.shtml)
-- 2026-06-29 14:56 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/4989508.shtml)
-- 2026-06-29 14:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/3124055635.shtml)
-- 2026-06-29 14:41 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/9569427206.shtml)
-- 2026-06-29 14:44 - [民进党为什么拼命抹黑统战](https://www.blog.minike.top/Article/details/313764081944.shtml)
-- 2026-06-29 14:59 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/4947491.shtml)
-- 2026-06-29 14:55 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/713262160.shtml)
-- 2026-06-29 15:05 - [航空运输旅客服务质量国标将实施](http://www.blog.minike.top/Article/details/4913142894.shtml)
+- 2026-06-29 15:03 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/8080887010.shtml)
+- 2026-06-29 14:45 - [Agent带来token消耗爆炸](https://www.share.minike.top/Article/details/797253696.shtml)
+- 2026-06-29 14:48 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/98871754.shtml)
+- 2026-06-29 15:11 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/53836361587.shtml)
+- 2026-06-29 15:00 - [国家体育总局政策法规司原副司长获刑](https://www.share.minike.top/Article/details/802588446.shtml)
+- 2026-06-29 15:07 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/8698287289.shtml)
+- 2026-06-29 15:06 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/15410938.shtml)
+- 2026-06-29 15:03 - [新一代影后杨紫](https://www.share.kurohicncr.top/Article/details/009728042.shtml)
+- 2026-06-29 14:49 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/44700558.shtml)
+- 2026-06-29 15:02 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/168625664162.shtml)
+- 2026-06-29 14:52 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/781177.shtml)
+- 2026-06-29 14:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/739346.shtml)
+- 2026-06-29 14:53 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/135194838.shtml)
+- 2026-06-29 14:58 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/546048036.shtml)
+- 2026-06-29 14:52 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/8653030782.shtml)

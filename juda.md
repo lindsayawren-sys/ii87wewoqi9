@@ -1,58 +1,49 @@
-# 酒价内参4月22日价格发布：五粮液1618下跌3元
+# 伊朗称将打击中东地区与美高科技公司有关的企业
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月22日延续回升态势。如果主要单品各取一瓶整体打包售卖，今日总售价为9926元，较昨日上涨21元，升至近13日最高位。市场连续三日修复，终端交投情绪继续改善，但核心单品涨跌分化依然显著。 今日白酒市场11大单品七涨四跌，赢家优势明显。上
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰3月31日电伊朗伊斯兰革命卫队3月31日发布公告称，将中东地区与18家美国信息通信技术和人工智能企业有关的公司机构作为打击目标，包括惠普、苹果、谷歌、特斯拉、微软等公司。（完）责任编辑：宋雅芳
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月22日延续回升态势。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9926元，较昨日上涨21元，升至近13日最高位。
+新华社德黑兰3月31日电伊朗伊斯兰革命卫队3月31日发布公告称，将中东地区与18家美国信息通信技术和人工智能企业有关的公司机构作为打击目标，包括惠普、苹果、谷歌、特斯拉、微软等公司。
 
-市场连续三日修复，终端交投情绪继续改善，但核心单品涨跌分化依然显著。
-
-今日白酒市场11大单品七涨四跌，赢家优势明显。
-
-上涨方面，青花汾20涨幅居前，上涨8元/瓶，创下近一个月最大单日涨幅，价格升至近一个月最高，一举突破近期交易区间；古井贡古20上涨6元/瓶，连续两日上行，价格再度刷新本月最高；国窖1573与青花郎均上涨5元/瓶，其中国窖1573价格收获五连阳，亦创近一个月最高；精品茅台上涨4元/瓶，三连涨走势稳健；习酒君品、水晶剑南春均上涨2元/瓶。
-
-下跌方面，洋河梦之蓝M6+下跌4元/瓶；飞天茅台与五粮液1618均下跌3元/瓶；五粮液普五八代小幅回落1元/瓶。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
-
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 14:46 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 15:01 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 14:37 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 15:00 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 14:50 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 15:01 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 14:45 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 14:37 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 14:46 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 15:01 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 14:45 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 15:05 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 15:09 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 15:11 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 14:52 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 15:01 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 15:00 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 15:01 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 15:11 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 14:59 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 15:00 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 14:57 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 14:54 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 14:56 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 14:48 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/09704.shtml)
-- 2026-06-29 14:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/159304.shtml)
-- 2026-06-29 14:42 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/839676086.shtml)
-- 2026-06-29 15:02 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/65121.shtml)
-- 2026-06-29 14:55 - [AG 钟意](http://www.blog.minike.top/Article/details/4815494263.shtml)
-- 2026-06-29 15:02 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/60119.shtml)
-- 2026-06-29 14:46 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/925749588627.shtml)
-- 2026-06-29 14:57 - [恋与深空底线不该被娱乐化](https://www.blog.minike.top/Article/details/214900140145.shtml)
-- 2026-06-29 14:58 - [韩国队如何把94%出线概率打到0%](http://www.blog.kurohicncr.top/Article/details/349458.shtml)
-- 2026-06-29 14:41 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/35817852017.shtml)
-- 2026-06-29 14:46 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/52343.shtml)
-- 2026-06-29 14:53 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/4226909446.shtml)
-- 2026-06-29 14:38 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/64709393504.shtml)
-- 2026-06-29 14:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/051210654.shtml)
-- 2026-06-29 14:37 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/152249409881.shtml)
+- 2026-06-29 14:46 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/49398236.shtml)
+- 2026-06-29 14:54 - [唐艺昕女儿接唐艺昕回家](http://www.blog.kurohicncr.top/Article/details/35653730617.shtml)
+- 2026-06-29 14:53 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/822416.shtml)
+- 2026-06-29 14:50 - [久坐小心“死臀综合征”](http://www.share.kurohicncr.top/Article/details/66193.shtml)
+- 2026-06-29 15:08 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/186521257413.shtml)
+- 2026-06-29 14:48 - [男子月薪五千卖房借贷给女友转账百万](http://www.blog.minike.top/Article/details/270543272.shtml)
+- 2026-06-29 15:00 - [中国邮政上海分公司总经理李柏平被查](https://www.share.minike.top/Article/details/939193381.shtml)
+- 2026-06-29 14:53 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/202078421.shtml)
+- 2026-06-29 14:47 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/966290499365.shtml)
+- 2026-06-29 14:55 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/022041831790.shtml)
+- 2026-06-29 14:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/41556445.shtml)
+- 2026-06-29 14:44 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/2361358.shtml)
+- 2026-06-29 14:59 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/400672.shtml)
+- 2026-06-29 14:56 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/161815579.shtml)
+- 2026-06-29 15:09 - [高考公平需要延伸到志愿填报这一环](http://www.share.minike.top/Article/details/94854889.shtml)

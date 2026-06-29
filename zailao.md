@@ -1,60 +1,50 @@
-# Meta扩大AI投入：新建超10亿美元数据中心
+# 马来西亚：马油轮不会被伊朗征收霍尔木兹海峡通行费
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-Meta Platforms表示，已开始在俄克拉荷马州塔尔萨市建设一座新的数据中心，预计投资将超过10亿美元。这是该公司加速其人工智能基础设施战略的一部分。 此举是Meta更大规模计划的一部分，旨在随着大型科技公司之间为AI开发提供资金的竞争加剧而增加处理能力。塔尔萨数据中心将是Meta在美国的第28个数据中心，也是全球第32个数据中心。 Meta还投入超过2500万美元用于改
+马来西亚交通部长Anthony Loke表示，获准通过霍尔木兹海峡的马来西亚油轮将无需缴纳伊朗征收的通行费。 “伊朗大使提到，不会对马来西亚船舶征收通行费，”Loke周二在活动上表示。“我们是友好国家，与伊朗政府有着良好的外交关系。” 周六时马来西亚外交部长表示，伊朗已放行七艘马来西亚油轮穿越霍尔木兹海峡。责任编辑：刘明亮
 
 ## 正文
 
-Meta Platforms表示，已开始在俄克拉荷马州塔尔萨市建设一座新的数据中心，预计投资将超过10亿美元。
+马来西亚交通部长Anthony Loke表示，获准通过霍尔木兹海峡的马来西亚油轮将无需缴纳伊朗征收的通行费。
 
-这是该公司加速其人工智能基础设施战略的一部分。
+“伊朗大使提到，不会对马来西亚船舶征收通行费，”Loke周二在活动上表示。
 
-此举是Meta更大规模计划的一部分，旨在随着大型科技公司之间为AI开发提供资金的竞争加剧而增加处理能力。
+“我们是友好国家，与伊朗政府有着良好的外交关系。
 
-塔尔萨数据中心将是Meta在美国的第28个数据中心，也是全球第32个数据中心。
+” 周六时马来西亚外交部长表示，伊朗已放行七艘马来西亚油轮穿越霍尔木兹海峡。
 
-Meta还投入超过2500万美元用于改善当地的道路和供水系统等基础设施。
-
-在建设高峰期，预计将有超过1000人在现场施工。
-
-一旦投入运营，其中约100个岗位将转为永久性职位。
-
-这项投资表明，Meta仍在持续致力于建设基础设施，以支持其先进的AI系统和与其超级智能目标相关的长期增长计划。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 15:01 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 14:43 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 14:52 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 14:54 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 14:51 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 14:44 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 15:01 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 14:47 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 14:51 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 14:55 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 14:49 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 15:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 14:51 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 14:47 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 14:46 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 15:10 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 15:01 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 15:02 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 15:08 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 14:55 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 14:53 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 14:49 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 15:05 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 14:46 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:42 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/46244.shtml)
-- 2026-06-29 14:47 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/4309145.shtml)
-- 2026-06-29 14:41 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/4003621448.shtml)
-- 2026-06-29 14:52 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/17240.shtml)
-- 2026-06-29 14:41 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/873809.shtml)
-- 2026-06-29 14:49 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/473486304.shtml)
-- 2026-06-29 15:04 - [宜宾5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/455929.shtml)
-- 2026-06-29 14:52 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/76930846.shtml)
-- 2026-06-29 14:43 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/667202100.shtml)
-- 2026-06-29 14:54 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/82417.shtml)
-- 2026-06-29 14:36 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/25331357869.shtml)
-- 2026-06-29 14:44 - [AG 宫斗](https://www.blog.minike.top/Article/details/8192957.shtml)
-- 2026-06-29 14:47 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/07237.shtml)
-- 2026-06-29 14:36 - [拄拐少年高考663分：用行动回报社会](http://www.share.minike.top/Article/details/852879719.shtml)
-- 2026-06-29 14:59 - [中国战机大片上新](https://www.share.minike.top/Article/details/0013800.shtml)
+- 2026-06-29 14:42 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/59633191.shtml)
+- 2026-06-29 14:51 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/046960.shtml)
+- 2026-06-29 15:10 - [Agent带来token消耗爆炸](https://www.blog.kurohicncr.top/Article/details/283771.shtml)
+- 2026-06-29 14:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/81661.shtml)
+- 2026-06-29 14:46 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/78007307509.shtml)
+- 2026-06-29 14:53 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/666025.shtml)
+- 2026-06-29 14:51 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/97967777.shtml)
+- 2026-06-29 15:09 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/37669.shtml)
+- 2026-06-29 15:01 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/01239750428.shtml)
+- 2026-06-29 15:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/0761457.shtml)
+- 2026-06-29 14:57 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/03571511501.shtml)
+- 2026-06-29 14:49 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/6018431.shtml)
+- 2026-06-29 15:06 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/6436314.shtml)
+- 2026-06-29 14:54 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/3482255218.shtml)
+- 2026-06-29 14:48 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/061146.shtml)

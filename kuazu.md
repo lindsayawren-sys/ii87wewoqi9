@@ -1,58 +1,60 @@
-# 英联股份2025年归母净利润3529.25万元 同比扭亏为盈
+# “中华体育精神大讲堂”走进“冠军摇篮” 徐梦桃、王心迪与学子面对面
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-4月21日，英联股份(002846.SZ)发布年度报告。2025年，公司营收达到22.61亿元，较上年增长12.04%；归属于上市公司股东的净利润为3529.25万元，而上年同期则亏损3967.26万元，实现同比扭亏为盈；基本每股收益0.08元。公司计划以每10股为单位，向股东派发现金红利0.25元（含税）。年报指出，业绩增长主要得益于快消品金属包装板块的贡献。此外，公司全球化
+中新网秦皇岛4月7日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动之“荣耀冰雪”系列第一站7日在国家体育总局秦皇岛训练基地举办。在米兰冬奥会获得自由式滑雪空中技巧冠军的徐梦桃、王心迪，与秦皇岛市北戴河区实验小学的师生们走进基地，面对面交流。 五战冬奥、两度登上最高领奖台的徐梦桃分享了自己跨越20余年的冰雪逐梦路：12岁转型从事自由式滑雪空中技巧项目，历经
 
 ## 正文
 
-4月21日，英联股份(002846.SZ)发布年度报告。
+中新网秦皇岛4月7日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动之“荣耀冰雪”系列第一站7日在国家体育总局秦皇岛训练基地举办。
 
-2025年，公司营收达到22.61亿元，较上年增长12.04%；归属于上市公司股东的净利润为3529.25万元，而上年同期则亏损3967.26万元，实现同比扭亏为盈；基本每股收益0.08元。
+在米兰冬奥会获得自由式滑雪空中技巧冠军的徐梦桃、王心迪，与秦皇岛市北戴河区实验小学的师生们走进基地，面对面交流。
 
-公司计划以每10股为单位，向股东派发现金红利0.25元（含税）。
+五战冬奥、两度登上最高领奖台的徐梦桃分享了自己跨越20余年的冰雪逐梦路：12岁转型从事自由式滑雪空中技巧项目，历经4次膝盖大手术、三届冬奥的遗憾与磨砺，最终在北京冬奥会圆梦金牌，又在米兰成功卫冕，成为该项目首位蝉联奥运金牌的运动员。
 
-年报指出，业绩增长主要得益于快消品金属包装板块的贡献。
+徐梦桃特别提及，秦皇岛训练基地是她的“第二个家”，无数个三伏天，她在这里的水池跳台完成成千上万次动作打磨。
 
-此外，公司全球化战略持续推进并取得成效，海外市场实现稳健增长，报告期内出口收入达7.44亿元，同比增幅10.87%。
+“相信‘相信’的力量，一步一步坚持走下去，每个人都能成为自己人生的冠军。
 
-饮料易开盖产能的释放也带动了相关业务营收规模同比增长18.97%。
+” 作为土生土长的秦皇岛人，王心迪从家乡起步，12岁结缘冰雪，经历连续两届冬奥会止步14名的低谷，最终在米兰冬奥会的赛场圆梦金牌。
 
-（央广财经）（文章来源：央广财经）
+他坦言，从北京到米兰的四年间，他在秦皇岛训练基地把高难度动作的成功率从45%提升至82%。
+
+“只要你肯日复一日地坚守，时间一定会给你最好的答案。
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-29 14:58 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 15:05 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 14:37 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 14:48 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 14:44 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 14:53 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 14:52 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 14:58 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 15:02 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 15:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 14:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 15:02 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 15:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 15:03 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 14:46 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 14:51 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 14:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 14:57 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 14:46 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 15:05 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 15:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 15:10 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 15:00 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 14:59 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 14:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 15:04 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 15:09 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:05 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/853718312450.shtml)
-- 2026-06-29 14:54 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/94641229.shtml)
-- 2026-06-29 14:49 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/4973949581.shtml)
-- 2026-06-29 14:58 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/22475768795.shtml)
-- 2026-06-29 14:49 - [这一刀 会很帅](https://www.share.minike.top/Article/details/986237710.shtml)
-- 2026-06-29 14:55 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.kurohicncr.top/Article/details/4654221.shtml)
-- 2026-06-29 15:02 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.minike.top/Article/details/6213584.shtml)
-- 2026-06-29 14:37 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/516281.shtml)
-- 2026-06-29 14:42 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/82575.shtml)
-- 2026-06-29 15:02 - [灿如繁星定档](http://www.share.minike.top/Article/details/4947379.shtml)
-- 2026-06-29 14:48 - [一生一世](https://www.share.minike.top/Article/details/3197186718.shtml)
-- 2026-06-29 14:42 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/679120569.shtml)
-- 2026-06-29 14:41 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/6300221353.shtml)
-- 2026-06-29 15:00 - [沙丘](https://www.blog.minike.top/Article/details/18581658164.shtml)
-- 2026-06-29 14:46 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/1957016216.shtml)
+- 2026-06-29 14:56 - [《贺子珍》](http://www.share.minike.top/Article/details/38263.shtml)
+- 2026-06-29 15:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/157271795.shtml)
+- 2026-06-29 15:03 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/753582.shtml)
+- 2026-06-29 14:55 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/8525252689.shtml)
+- 2026-06-29 14:49 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/6312117.shtml)
+- 2026-06-29 14:43 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/95746160.shtml)
+- 2026-06-29 14:58 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/033229730161.shtml)
+- 2026-06-29 14:47 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/198042763236.shtml)
+- 2026-06-29 14:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/80950030.shtml)
+- 2026-06-29 14:42 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/9691772.shtml)
+- 2026-06-29 15:04 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/81371.shtml)
+- 2026-06-29 15:05 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/571930212.shtml)
+- 2026-06-29 15:09 - [大六座SUV进入黄金时代](http://www.share.minike.top/Article/details/46714109922.shtml)
+- 2026-06-29 15:03 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/85597734882.shtml)
+- 2026-06-29 14:45 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/386609694.shtml)

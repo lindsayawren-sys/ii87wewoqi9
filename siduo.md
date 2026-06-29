@@ -1,57 +1,57 @@
-# 感冒流感药品销售疲软 利洁时股价下跌5.9%
+# 马斯克要求将诉讼赔偿金归还OpenAI旗下慈善机构
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 欧美感冒流感季症状较轻导致欧洲净收入下滑 受欧美感冒流感季症状较轻影响，利洁时集团在欧洲与北美地区销售表现不佳，公司股价随之走低。 这家英国快消品巨头旗下拥有 Mucinex 感冒药、杜蕾斯避孕套及来苏尔消毒液等品牌，其公布的一季度净收入为 32.5 亿英镑（43.9 亿美元），去年同期为 36.8 亿英镑。 公司汇总的分析师预期为：一季度
+马斯克修改了对OpenAI的诉讼，要求将他可能赢得的任何损害赔偿金判给该公司旗下的慈善机构，而非他本人。 这项修正案还要求将OpenAI首席执行奥特曼从该公司的非营利董事会中除名，是这两位科技巨头之间持续不和的最新动态。该诉讼预计将于本月晚些时候在加州奥克兰开庭审理。 马斯克向OpenAI及其合作伙伴兼投资者微软索赔超过1500亿美元。他主张，OpenAI在寻求转型为营利性公司
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 欧美感冒流感季症状较轻导致欧洲净收入下滑 受欧美感冒流感季症状较轻影响，利洁时集团在欧洲与北美地区销售表现不佳，公司股价随之走低。
+马斯克修改了对OpenAI的诉讼，要求将他可能赢得的任何损害赔偿金判给该公司旗下的慈善机构，而非他本人。
 
-这家英国快消品巨头旗下拥有 Mucinex 感冒药、杜蕾斯避孕套及来苏尔消毒液等品牌，其公布的一季度净收入为 32.5 亿英镑（43.9 亿美元），去年同期为 36.8 亿英镑。
+这项修正案还要求将OpenAI首席执行奥特曼从该公司的非营利董事会中除名，是这两位科技巨头之间持续不和的最新动态。
 
-公司汇总的分析师预期为：一季度净收入 31.9 亿英镑，可比口径增长 1.6%。
+该诉讼预计将于本月晚些时候在加州奥克兰开庭审理。
 
-伦敦早盘交易中，该公司股价下跌 5.9%。
+马斯克向OpenAI及其合作伙伴兼投资者微软索赔超过1500亿美元。
 
-利洁时表示，因感冒流感季表现疲软，欧洲地区净收入出现下滑；公司此前已预警该地区业绩将持续面临挑战。
+他主张，OpenAI在寻求转型为营利性公司的过程中，偏离了其非营利使命，并欺骗了作为捐赠人的他本人。
 
-本季度欧洲可比净收入下降 4.2%，集团非处方药业务可比销售额录得双位数跌幅。
+2015年，奥特曼和马斯克曾是OpenAI创始团队的联席主席，当时该组织作为一家非营利机构成立，致力于确保AI能够造福人类。
 
-伯恩斯坦分析师在致客户报告中写道：“过去数月管理层已多次提示感冒流感品类表现疲软，但市场似乎仍低估了此次压力的程度。
+2019年，在马斯克离开公司、奥特曼出任CEO后，OpenAI成立了一家营利性子公司，以此为工具从微软及其他投资者处筹集资金。
 
-” 不过，集团整体可比净收入仍增长 0.6%，其中新兴市场大幅增长 7.6%。
+此后，奥特曼将这家营利性子公司转型为一家公益公司（public-benefit corporation）。
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 14:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 14:46 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 14:58 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 14:49 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 14:46 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 14:49 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 14:41 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 14:44 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 15:05 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 15:02 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 14:44 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 14:47 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 14:53 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 15:09 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 14:56 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 15:05 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 15:06 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 14:54 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 14:57 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 15:09 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 14:50 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:39 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/2424711742.shtml)
-- 2026-06-29 14:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/326042.shtml)
-- 2026-06-29 14:59 - [美人鱼](http://www.share.kurohicncr.top/Article/details/0062067.shtml)
-- 2026-06-29 14:41 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/638984.shtml)
-- 2026-06-29 14:47 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/040575.shtml)
-- 2026-06-29 14:45 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/081425169736.shtml)
-- 2026-06-29 14:55 - [崔韩率还以为韩娱来新人了](http://www.blog.minike.top/Article/details/563977328.shtml)
-- 2026-06-29 14:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/259994167.shtml)
-- 2026-06-29 14:48 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/6628444650.shtml)
-- 2026-06-29 15:01 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/0554257.shtml)
-- 2026-06-29 15:02 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/25635477634.shtml)
-- 2026-06-29 14:59 - [王楚钦周启豪爆分](https://www.blog.kurohicncr.top/Article/details/913364.shtml)
-- 2026-06-29 15:04 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/72364.shtml)
-- 2026-06-29 14:45 - [天道](http://www.blog.kurohicncr.top/Article/details/65689979384.shtml)
-- 2026-06-29 15:01 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/3055663428.shtml)
+- 2026-06-29 14:46 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/57795125156.shtml)
+- 2026-06-29 15:01 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/336700561071.shtml)
+- 2026-06-29 14:42 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/47554.shtml)
+- 2026-06-29 15:07 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/7001204.shtml)
+- 2026-06-29 14:54 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/21338.shtml)
+- 2026-06-29 14:52 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/56611.shtml)
+- 2026-06-29 14:46 - [叶一茜森碟一起回北京了](https://www.blog.minike.top/Article/details/714035334730.shtml)
+- 2026-06-29 14:51 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/196156731556.shtml)
+- 2026-06-29 14:59 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/1611699.shtml)
+- 2026-06-29 14:54 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/920558916369.shtml)
+- 2026-06-29 15:02 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/022846967.shtml)
+- 2026-06-29 15:08 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.kurohicncr.top/Article/details/44514.shtml)
+- 2026-06-29 15:01 - [5万块的威力](https://www.share.minike.top/Article/details/8970228920.shtml)
+- 2026-06-29 14:47 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/77996285.shtml)
+- 2026-06-29 14:48 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.kurohicncr.top/Article/details/437183741486.shtml)

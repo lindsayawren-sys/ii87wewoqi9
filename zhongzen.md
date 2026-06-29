@@ -1,57 +1,49 @@
-# 美棉干旱持续发酵，郑棉七连阳突破16000关口
+# 伊朗西北部一座圣地遭空袭 造成三人死亡
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-4月22日郑棉快评 一、行情表述 4月22日，郑棉主力2609合约收于16230元/吨，上涨1.56%，日线收获七连阳，创两年来新高。，盘中最高触及16405元/吨，成交量76.88万手，持仓量82.45万手，日增仓超5万手，成交额623.1亿元，量仓同步放量。 二、原因分析 本轮上涨由三重因素共振驱动： 美棉产区干旱持续恶化，减产预期强化。 据USDA干旱监测，截至4月14日
+据伊朗伊斯兰共和国通讯社报道，周二清晨美国和以色列对伊朗西北部城市赞詹（Zanjan）的一处宗教建筑群和朝圣地发动空袭，造成三人死亡，多人受伤。 报道称，袭击造成多栋建筑受损。责任编辑：何云
 
 ## 正文
 
-4月22日郑棉快评 一、行情表述 4月22日，郑棉主力2609合约收于16230元/吨，上涨1.56%，日线收获七连阳，创两年来新高。
+据伊朗伊斯兰共和国通讯社报道，周二清晨美国和以色列对伊朗西北部城市赞詹（Zanjan）的一处宗教建筑群和朝圣地发动空袭，造成三人死亡，多人受伤。
 
-，盘中最高触及16405元/吨，成交量76.88万手，持仓量82.45万手，日增仓超5万手，成交额623.1亿元，量仓同步放量。
+报道称，袭击造成多栋建筑受损。
 
-二、原因分析 本轮上涨由三重因素共振驱动： 美棉产区干旱持续恶化，减产预期强化。
-
-据USDA干旱监测，截至4月14日受旱美棉产区面积达97%，远高于去年同期的22%。
-
-ICE 7月期棉收于80.86美分/磅，盘中触及两年高点81.16美分。
-
-化肥价格飙升，种植成本抬升。
-
-中东冲突致全球化肥供应链断裂，尿素单月涨幅超50%，抬升全球棉农种植成本，为棉价构筑不断上移的估值底部。
-
-国内供应收缩预期提供支撑。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 15:03 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 15:02 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 14:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 14:45 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 15:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 15:00 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 14:48 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 14:54 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 14:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 15:02 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 14:57 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 14:48 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 14:59 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 15:04 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 14:55 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 14:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 15:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 14:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 14:44 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 14:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 15:09 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 14:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 15:00 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 14:58 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:55 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/00427496.shtml)
-- 2026-06-29 14:51 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/866032981452.shtml)
-- 2026-06-29 14:58 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/60439.shtml)
-- 2026-06-29 14:55 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/504963591.shtml)
-- 2026-06-29 15:05 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/1902695674.shtml)
-- 2026-06-29 15:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/602465700.shtml)
-- 2026-06-29 14:36 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/28156701.shtml)
-- 2026-06-29 14:57 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/600727123.shtml)
-- 2026-06-29 15:02 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/553861361611.shtml)
-- 2026-06-29 14:57 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.kurohicncr.top/Article/details/812203352.shtml)
-- 2026-06-29 14:41 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/3988660935.shtml)
-- 2026-06-29 14:46 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.kurohicncr.top/Article/details/590429924458.shtml)
-- 2026-06-29 14:43 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/363242.shtml)
-- 2026-06-29 15:02 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/516082127275.shtml)
-- 2026-06-29 14:55 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/0312099214.shtml)
+- 2026-06-29 15:08 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/98144223.shtml)
+- 2026-06-29 15:01 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/5677403.shtml)
+- 2026-06-29 14:47 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/271139661.shtml)
+- 2026-06-29 15:10 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/112266.shtml)
+- 2026-06-29 14:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/721403560.shtml)
+- 2026-06-29 15:07 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/14090678.shtml)
+- 2026-06-29 14:44 - [女心理师](https://www.blog.minike.top/Article/details/939098.shtml)
+- 2026-06-29 15:01 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/708768678187.shtml)
+- 2026-06-29 15:10 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/48863.shtml)
+- 2026-06-29 14:54 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/5722656253.shtml)
+- 2026-06-29 14:45 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/593839101.shtml)
+- 2026-06-29 15:03 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/35871885.shtml)
+- 2026-06-29 14:46 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/64367095.shtml)
+- 2026-06-29 15:02 - [沉睡花园](https://www.blog.minike.top/Article/details/33218.shtml)
+- 2026-06-29 14:44 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/641325.shtml)

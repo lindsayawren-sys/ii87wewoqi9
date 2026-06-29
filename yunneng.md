@@ -1,60 +1,58 @@
-# 竹篮打水一场空？单日百亿的“爆款基金”还剩下多少钱？
+# 送给长大了的孩子们 董浩新书《我等着你的好消息》发布
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-来源：资本深潜号 作者 |佳尔 编辑 | 袁畅 2026年1季度，德邦稳盈增长基金备受外界关注。 他们先是因单日在第三方代销平台上获超百亿申购而备受业界关注，接着又因营销中种种不当行为而引发监管关注，进而引起了波及全行业的大整顿。 那么，德邦稳盈增长基金现在如何了？ 4月21日，这只曾经的爆款基金披露了1季报。 01 单日申购200亿？ 数据显示，在巨量资金的单日涌入后，资金又
+中新网北京4月7日电 (记者 高凯)“大风车吱呀吱哟哟地转……”当这段旋律响起，无数“80后”、“90后”的记忆瞬间被拉回那个守在电视机前的童年黄昏。日前节目主持人董浩带着他的新书《我等着你的好消息》与读者见面。 在该书的新书发布会上，董浩介绍了此次新作的创作初衷，自己做少儿节目主持人几十年，当年电视机前千千万万的孩子早已成了他不变的牵挂。几十年来从全国各地寄来的信，他每一封都
 
 ## 正文
 
-来源：资本深潜号 作者 |佳尔 编辑 | 袁畅 2026年1季度，德邦稳盈增长基金备受外界关注。
+中新网北京4月7日电 (记者 高凯)“大风车吱呀吱哟哟地转……”当这段旋律响起，无数“80后”、“90后”的记忆瞬间被拉回那个守在电视机前的童年黄昏。
 
-他们先是因单日在第三方代销平台上获超百亿申购而备受业界关注，接着又因营销中种种不当行为而引发监管关注，进而引起了波及全行业的大整顿。
+日前节目主持人董浩带着他的新书《我等着你的好消息》与读者见面。
 
-那么，德邦稳盈增长基金现在如何了？
+在该书的新书发布会上，董浩介绍了此次新作的创作初衷，自己做少儿节目主持人几十年，当年电视机前千千万万的孩子早已成了他不变的牵挂。
 
-4月21日，这只曾经的爆款基金披露了1季报。
+几十年来从全国各地寄来的信，他每一封都看，能回的尽量回。
 
-01 单日申购200亿？
+那些稚嫩的笔迹、小心翼翼的倾诉，他都收在心里，一揣就是三十年。
 
-数据显示，在巨量资金的单日涌入后，资金又很快离去。
+搬过几次家，至今家里的书柜里还有满满当当的几袋信。
 
-就像“竹篮打水”，捞起来、却又落下。
+2025年，年近古稀的董浩翻出了三十年来收到的已经泛黄的上千封小朋友来信。
 
-1季报数据显示，德邦稳盈增长基金年初A类份额0.46亿份，C类份额9.81亿份，结合净值，合计年初基金规模约10.11亿元。
+他在视频号里对着那些早已模糊的地址，轻声问了一句：“给我写过信的小朋友，你们过得好吗？
 
 ## 相关推荐
 
-- 2026-06-29 14:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 14:53 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 14:58 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 14:53 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 14:50 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 14:38 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 14:47 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 14:55 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 14:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 14:44 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 14:38 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 15:03 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 14:46 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 15:04 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 14:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 14:48 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 14:43 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 15:07 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 15:00 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 14:52 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 14:49 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 14:52 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 14:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 14:48 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 15:03 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 14:59 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/923751164847.shtml)
-- 2026-06-29 15:03 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/3865276624.shtml)
-- 2026-06-29 14:50 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/17968267725.shtml)
-- 2026-06-29 14:43 - [首尔商铺禁止洪明甫入内](https://www.share.kurohicncr.top/Article/details/891558895.shtml)
-- 2026-06-29 15:02 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/372260780.shtml)
-- 2026-06-29 14:49 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/619342642.shtml)
-- 2026-06-29 14:58 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/273009266.shtml)
-- 2026-06-29 14:48 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/24196608.shtml)
-- 2026-06-29 14:52 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/2177156134.shtml)
-- 2026-06-29 15:01 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/20736084.shtml)
-- 2026-06-29 14:42 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/56859665776.shtml)
-- 2026-06-29 14:36 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/7111300480.shtml)
-- 2026-06-29 15:04 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/305636.shtml)
-- 2026-06-29 14:38 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/1663837.shtml)
-- 2026-06-29 14:41 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/781450709071.shtml)
+- 2026-06-29 15:06 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/39305.shtml)
+- 2026-06-29 14:47 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/6567305762.shtml)
+- 2026-06-29 14:42 - [周深双眼皮贴又掉了](https://www.blog.kurohicncr.top/Article/details/59600987649.shtml)
+- 2026-06-29 15:03 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/824047862565.shtml)
+- 2026-06-29 14:47 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/8203217.shtml)
+- 2026-06-29 14:54 - [赵露思爸爸拍vlog翻车了](https://www.blog.kurohicncr.top/Article/details/3773274.shtml)
+- 2026-06-29 15:01 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/470576.shtml)
+- 2026-06-29 15:08 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/19251210.shtml)
+- 2026-06-29 14:46 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/9783810122.shtml)
+- 2026-06-29 14:53 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/48441.shtml)
+- 2026-06-29 14:42 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/14729.shtml)
+- 2026-06-29 14:48 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/365011928313.shtml)
+- 2026-06-29 15:08 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/06981774209.shtml)
+- 2026-06-29 15:12 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/2186059096.shtml)
+- 2026-06-29 14:58 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/43595.shtml)

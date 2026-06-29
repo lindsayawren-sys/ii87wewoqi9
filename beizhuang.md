@@ -1,56 +1,53 @@
-# “6.0%”的浙江看点
+# 摩根士丹利：霍尔木兹冲击消耗石油缓冲库存 维持高油价预期
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月22日电(鲍梦妮)GDP23684亿元，同比增长6.0%。 日前，经济大省浙江官宣一季度经济“成绩单”。在国际环境跌宕起伏，外部风险显著上升，国内有效需求不足的背景下，该省经济运行呈现出开局有力、稳中有进、向新向好的局面。 “6%”的增速背后，浙江的诸多亮点值得关注。 首先是高新技术产业投资加码，增长动能持续释放。 今年1月，国内首个海上回收复用火箭基地在杭州市钱
+摩根士丹利分析师Martijn Rats的团队发表报告称，石油市场“在冲击来临前有过的充足缓冲库存，但如今正被持续消耗”。 “我们现在预计，经合组织商业库存今年将转为下降，而不是此前预测的大幅增加。” 该机构估计，目前约有1，020万桶/日的原油产量、120万桶/日的天然气凝液产量以及200万桶/日的中东炼油产能处于停摆状态 “压力如今正向西蔓延至与布伦特挂钩的市场，原油品质溢
 
 ## 正文
 
-中新网杭州4月22日电(鲍梦妮)GDP23684亿元，同比增长6.0%。
+摩根士丹利分析师Martijn Rats的团队发表报告称，石油市场“在冲击来临前有过的充足缓冲库存，但如今正被持续消耗”。
 
-日前，经济大省浙江官宣一季度经济“成绩单”。
+“我们现在预计，经合组织商业库存今年将转为下降，而不是此前预测的大幅增加。
 
-在国际环境跌宕起伏，外部风险显著上升，国内有效需求不足的背景下，该省经济运行呈现出开局有力、稳中有进、向新向好的局面。
+” 该机构估计，目前约有1，020万桶/日的原油产量、120万桶/日的天然气凝液产量以及200万桶/日的中东炼油产能处于停摆状态 “压力如今正向西蔓延至与布伦特挂钩的市场，原油品质溢价、运费以及近月期限结构同时趋紧。
 
-“6%”的增速背后，浙江的诸多亮点值得关注。
+” 该机构假设，霍尔木兹海峡将一直处于事实上的关闭状态，直至4月底。
 
-首先是高新技术产业投资加码，增长动能持续释放。
+摩根士丹利维持对布伦特原油价格的预测不变，预计第二季度均价为每桶110美元，第三季度为每桶100美元。
 
-今年1月，国内首个海上回收复用火箭基地在杭州市钱塘区开工。
-
-该项目总投资52亿元，项目包括回收复用中心、检测检验中心、生产制造中心，建成后将具备年产25发火箭的规模化制造能力。
-
-这是浙江加快推动产业转型升级、构建现代产业体系的缩影。
+责任编辑：李肇孚
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 14:54 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 15:00 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 14:49 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 14:36 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 15:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 14:48 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 14:55 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 15:04 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 14:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 14:45 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 15:10 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 14:45 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 14:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 14:48 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 15:11 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 14:56 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 14:48 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 14:55 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 15:05 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 15:03 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:45 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/52026.shtml)
-- 2026-06-29 14:36 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/96448544633.shtml)
-- 2026-06-29 14:36 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/588643.shtml)
-- 2026-06-29 14:59 - [北极荒岛生存挑战](http://www.share.kurohicncr.top/Article/details/4647650.shtml)
-- 2026-06-29 14:49 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/669397252.shtml)
-- 2026-06-29 14:52 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/822009.shtml)
-- 2026-06-29 14:55 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/679551445818.shtml)
-- 2026-06-29 14:42 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/89242939.shtml)
-- 2026-06-29 14:41 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/614673.shtml)
-- 2026-06-29 14:37 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/21699344900.shtml)
-- 2026-06-29 14:54 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/00253.shtml)
-- 2026-06-29 14:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/21982.shtml)
-- 2026-06-29 14:53 - [42岁郭碧婷纯素颜状态](https://www.share.minike.top/Article/details/415231.shtml)
-- 2026-06-29 14:38 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/92006.shtml)
-- 2026-06-29 15:04 - [人民日报评“AI脸看腻了”](https://www.share.kurohicncr.top/Article/details/65864168093.shtml)
+- 2026-06-29 14:53 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/0976963444.shtml)
+- 2026-06-29 14:47 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/669826265613.shtml)
+- 2026-06-29 14:42 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/12669751.shtml)
+- 2026-06-29 14:56 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/2544040762.shtml)
+- 2026-06-29 14:42 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/908519170723.shtml)
+- 2026-06-29 14:52 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/513146.shtml)
+- 2026-06-29 14:43 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/02888682.shtml)
+- 2026-06-29 15:09 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/293401066.shtml)
+- 2026-06-29 15:00 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/199566646534.shtml)
+- 2026-06-29 14:58 - [张真源解读相思锁](http://www.share.minike.top/Article/details/369297439316.shtml)
+- 2026-06-29 14:42 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/272285777435.shtml)
+- 2026-06-29 15:04 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/2310096438.shtml)
+- 2026-06-29 14:55 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/960586.shtml)
+- 2026-06-29 14:55 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/045447646.shtml)
+- 2026-06-29 15:05 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/028524676.shtml)

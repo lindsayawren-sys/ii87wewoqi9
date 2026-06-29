@@ -1,55 +1,60 @@
-# 下任美联储主席提名人选能否维护美联储“独立性”遭质疑
+# 上海出台新规“松绑”国资基金：强调领投能力，畅通退出渠道
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-人民财讯4月22日电，美国联邦储备委员会下任主席提名人选凯文·沃什21日出席美国国会参议院银行、住房和城市事务委员会听证会。针对美联储“独立性”以及如何缩减美联储资产负债表等市场关心的话题，沃什在听证会上表态模糊，遭多名与会参议员质疑。 能否维护美联储货币政策独立性是当天听证会关注焦点之一。尽管沃什在听证会上多次强调将维护美联储“独立性”，不会任由摆布，且美国总统特朗普“从未要
+上海出台16条举措为国资基金松绑。 4月7日，上海市国资委出台《关于进一步推动市国资委监管企业私募股权投资基金高质量发展的指导意见》（以下简称《指导意见》），从强导向、提能力、优机制3方面形成16条工作举措，推动国有资本成为服务产业发展的长期资本、耐心资本、战略资本。一是强化市场化、法治化、专业化导向，二是提升募投管退能力，三是完善基金管理机制。 澎湃新闻记者根据《指导意见》梳
 
 ## 正文
 
-人民财讯4月22日电，美国联邦储备委员会下任主席提名人选凯文·沃什21日出席美国国会参议院银行、住房和城市事务委员会听证会。
+上海出台16条举措为国资基金松绑。
 
-针对美联储“独立性”以及如何缩减美联储资产负债表等市场关心的话题，沃什在听证会上表态模糊，遭多名与会参议员质疑。
+4月7日，上海市国资委出台《关于进一步推动市国资委监管企业私募股权投资基金高质量发展的指导意见》（以下简称《指导意见》），从强导向、提能力、优机制3方面形成16条工作举措，推动国有资本成为服务产业发展的长期资本、耐心资本、战略资本。
 
-能否维护美联储货币政策独立性是当天听证会关注焦点之一。
+一是强化市场化、法治化、专业化导向，二是提升募投管退能力，三是完善基金管理机制。
 
-尽管沃什在听证会上多次强调将维护美联储“独立性”，不会任由摆布，且美国总统特朗普“从未要求他就任何具体利率决策作出承诺”，但多名参议员仍对其表态表示失望。
+澎湃新闻记者根据《指导意见》梳理了六大要点。
 
-责任编辑：刘万里 SF014
+要点一：锚定三大导向 《指导意见》与前期出台的《市国资委监管企业私募股权投资基金业务管理办法》（以下简称《基金管理办法》）、《市国资委监管企业私募股权投·资基金考核评价及尽职免责试行办法》（以下简称《考核评价和尽职免责办法》）形成相互支撑、有机衔接的“三位一体”服务基金高质量发展的监管制度体系。
+
+上海市国资委表示，私募股权投资基金本质上是通过专业管理权与资本所有权相分离的治理结构设计，形成的市场化金融产品。
+
+《指导意见》《指导意见》坚守产品初心，遵循内在逻辑，进一步强化市场化、法治化、专业化导向，是基金制度的应有之义，也是贯穿始终的政策主线。
+
+一是市场化。
 
 ## 相关推荐
 
-- 2026-06-29 14:45 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 14:46 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 14:56 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 14:39 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 14:49 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 15:00 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 14:47 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 14:41 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 14:44 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 14:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 14:55 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 15:00 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 14:43 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 15:02 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 15:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 14:53 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 14:49 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 14:50 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 14:53 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 15:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 14:59 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 15:08 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 15:05 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 14:43 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 15:08 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 14:44 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 15:06 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 15:11 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 15:01 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/135375137.shtml)
-- 2026-06-29 14:48 - [一生一世](http://www.blog.kurohicncr.top/Article/details/93508708371.shtml)
-- 2026-06-29 14:59 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/078808059.shtml)
-- 2026-06-29 14:58 - [媒体：网络测评不能只剩“生意”](https://www.share.minike.top/Article/details/19834.shtml)
-- 2026-06-29 14:36 - [A股](http://www.share.minike.top/Article/details/042230443235.shtml)
-- 2026-06-29 14:39 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/0942666773.shtml)
-- 2026-06-29 14:38 - [速度与激情9](https://www.share.minike.top/Article/details/64538.shtml)
-- 2026-06-29 15:00 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/487105.shtml)
-- 2026-06-29 14:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/39208013.shtml)
-- 2026-06-29 14:44 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/079331304.shtml)
-- 2026-06-29 14:54 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/85121758072.shtml)
-- 2026-06-29 14:58 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/4337804.shtml)
-- 2026-06-29 14:45 - [105年初心滚烫](https://www.share.minike.top/Article/details/54677940905.shtml)
-- 2026-06-29 14:54 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/9545594278.shtml)
-- 2026-06-29 14:46 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/863901836755.shtml)
+- 2026-06-29 14:54 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/70238401.shtml)
+- 2026-06-29 15:05 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/46940.shtml)
+- 2026-06-29 15:09 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/11077801.shtml)
+- 2026-06-29 14:55 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/0915921.shtml)
+- 2026-06-29 15:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/393700.shtml)
+- 2026-06-29 14:58 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/76553.shtml)
+- 2026-06-29 14:56 - [北极荒岛生存挑战](http://www.share.minike.top/Article/details/4687013390.shtml)
+- 2026-06-29 15:09 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/359246992698.shtml)
+- 2026-06-29 15:08 - [金刚川](https://www.blog.kurohicncr.top/Article/details/353972261523.shtml)
+- 2026-06-29 14:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/75178131338.shtml)
+- 2026-06-29 15:04 - [普京介绍前线战事](http://www.share.minike.top/Article/details/853375.shtml)
+- 2026-06-29 15:05 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/621518.shtml)
+- 2026-06-29 14:48 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.minike.top/Article/details/934436293.shtml)
+- 2026-06-29 14:43 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/19823822.shtml)
+- 2026-06-29 14:54 - [广东一地发现极危植物新物种](https://www.blog.kurohicncr.top/Article/details/6065746.shtml)

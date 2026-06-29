@@ -1,57 +1,58 @@
-# 光大期货：4月22日农产品日报
+# 中央气象台：“超级单体”强对流将影响长江中下游地区
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-农产品类 蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆上涨，受助于技术买盘和油价上涨。5月合约和11月合约上涨接近。天气预报显示，美国中西部地区将迎来降雨，或不利于播种推进。中东局势不稳定，原油价格上涨，美豆油急升，也推动美豆期货上涨。国内方面，两粕震荡走强。进口成本上涨给盘面提供支撑力量。生猪价格上涨，养殖利润改善，
+中新社北京4月7日电 (记者 陈溯)记者7日从中央气象台获悉，7日至9日，中国南方将持续多雨天气，预计湖南北部到湖北南部一带将出现“超级单体”强对流天气，局地或出现11级以上雷暴大风，伴有冰雹、短时强降水等强对流天气。超级单体是一种近稳态高度组织化的强风暴系统，其演变过程伴随具有深厚长时间旋转上升气流特征的中气旋。其尺度持续时间有时可达数小时，常伴有强风暴雨、局地冰雹、下击暴流
 
 ## 正文
 
-农产品类 蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆上涨，受助于技术买盘和油价上涨。
+中新社北京4月7日电 (记者 陈溯)记者7日从中央气象台获悉，7日至9日，中国南方将持续多雨天气，预计湖南北部到湖北南部一带将出现“超级单体”强对流天气，局地或出现11级以上雷暴大风，伴有冰雹、短时强降水等强对流天气。
 
-5月合约和11月合约上涨接近。
+超级单体是一种近稳态高度组织化的强风暴系统，其演变过程伴随具有深厚长时间旋转上升气流特征的中气旋。
 
-天气预报显示，美国中西部地区将迎来降雨，或不利于播种推进。
+其尺度持续时间有时可达数小时，常伴有强风暴雨、局地冰雹、下击暴流、龙卷风等灾害性天气。
 
-中东局势不稳定，原油价格上涨，美豆油急升，也推动美豆期货上涨。
+气象监测显示，4月6日，南方地区出现大范围降雨，江南南部多地雨势较强，7日雨势短暂减弱。
 
-国内方面，两粕震荡走强。
+自7日夜间起，随着副热带高压北上加强，较强降雨区域将逐步转移至江淮、江汉南部等地。
 
-进口成本上涨给盘面提供支撑力量。
+中央气象台首席预报员盛杰介绍，8日至9日，江淮、江汉南部、江南北部及重庆等地有中到大雨，局地暴雨或大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
 
-生猪价格上涨，养殖利润改善，养殖户投料积极性高。
+其中，湖北东部、河南南部、安徽西部等地或将出现暴雨或大暴雨。
 
-豆粕饲料消费高，库存同样也高。
+“尤其需要注意的是，在湖南北部到湖北南部一带，动力条件充沛，叠加高能高湿环境，大气呈现‘下湿上干’的不稳定结构，有利于催生超级单体，局地或出现11级以上雷暴大风，伴有冰雹、短时强降水等强对流天气。
 
 ## 相关推荐
 
-- 2026-06-29 14:47 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 15:05 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 14:40 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 14:57 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 14:53 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 14:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 14:41 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 14:57 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 14:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 15:01 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 14:52 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 15:11 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 14:53 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 14:57 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 14:51 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 15:00 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 14:51 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 15:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 14:58 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 15:05 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 15:02 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 14:50 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 14:48 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:39 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/45725521594.shtml)
-- 2026-06-29 14:50 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/035417.shtml)
-- 2026-06-29 14:48 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/814074.shtml)
-- 2026-06-29 15:03 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/4505240942.shtml)
-- 2026-06-29 14:48 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.kurohicncr.top/Article/details/17641962.shtml)
-- 2026-06-29 14:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/81123156.shtml)
-- 2026-06-29 15:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/58520323.shtml)
-- 2026-06-29 14:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/269928698.shtml)
-- 2026-06-29 14:57 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/3212916334.shtml)
-- 2026-06-29 14:37 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/70679.shtml)
-- 2026-06-29 15:02 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/4225056616.shtml)
-- 2026-06-29 15:03 - [血糖高的人能吃西瓜吗](https://www.blog.kurohicncr.top/Article/details/42591000.shtml)
-- 2026-06-29 15:01 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/749748357369.shtml)
-- 2026-06-29 14:46 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/580194973326.shtml)
-- 2026-06-29 14:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/0693404.shtml)
+- 2026-06-29 14:55 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/015921747.shtml)
+- 2026-06-29 15:02 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/71717.shtml)
+- 2026-06-29 15:09 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/71924279.shtml)
+- 2026-06-29 15:06 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/838478376802.shtml)
+- 2026-06-29 14:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/785365.shtml)
+- 2026-06-29 14:46 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/66817.shtml)
+- 2026-06-29 15:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/472886.shtml)
+- 2026-06-29 14:52 - [央视起底直播诈骗连环套](https://www.blog.minike.top/Article/details/16650003753.shtml)
+- 2026-06-29 15:02 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/75540060652.shtml)
+- 2026-06-29 14:42 - [爱很美味](https://www.share.minike.top/Article/details/22376.shtml)
+- 2026-06-29 15:00 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/16745960731.shtml)
+- 2026-06-29 14:45 - [世界杯十大帅哥必吃榜](http://www.share.minike.top/Article/details/590366609.shtml)
+- 2026-06-29 14:51 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/8878934.shtml)
+- 2026-06-29 14:47 - [中国邮政上海分公司总经理李柏平被查](https://www.share.minike.top/Article/details/9256723216.shtml)
+- 2026-06-29 15:05 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/668383838896.shtml)

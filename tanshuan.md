@@ -1,59 +1,53 @@
-# 尾盘：美股继续下滑 市场关注中东局势发展
+# 2025年我国新能源车险承保亏损56亿元 同比减亏1亿元
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-北京时间4月22日凌晨，美股周二尾盘继续下滑，标普500指数下跌约0.5%。美伊两周临时停火协议将在周三到期，投资者正在关注中东局势的进一步发展。 道指跌227.75点，跌幅为0.46%，报49214.81点；纳指跌102.82点，跌幅为0.42%，报24301.58点；标普500指数跌33.85点，跌幅为0.48%，报7075.29点。 美国总统特朗普周二告诉表示，他预计美国
+3月31日金融一线消息，中国精算师协会、中国银行保险信息技术管理有限公司发布我国新能源车险2025年有关赔付信息。2025年，我国保险行业承保新能源汽车4358万辆（其中客车4181万辆，货车177万辆），比上年增加1248万辆，增长40.1%；保费收入1900亿元，提供风险保障金额159万亿元；承保亏损56亿元，同比减亏1亿元；综合成本率同比下降1.3个百分点。新能源汽车规模
 
 ## 正文
 
-北京时间4月22日凌晨，美股周二尾盘继续下滑，标普500指数下跌约0.5%。
+3月31日金融一线消息，中国精算师协会、中国银行保险信息技术管理有限公司发布我国新能源车险2025年有关赔付信息。
 
-美伊两周临时停火协议将在周三到期，投资者正在关注中东局势的进一步发展。
+2025年，我国保险行业承保新能源汽车4358万辆（其中客车4181万辆，货车177万辆），比上年增加1248万辆，增长40.1%；保费收入1900亿元，提供风险保障金额159万亿元；承保亏损56亿元，同比减亏1亿元；综合成本率同比下降1.3个百分点。
 
-道指跌227.75点，跌幅为0.46%，报49214.81点；纳指跌102.82点，跌幅为0.42%，报24301.58点；标普500指数跌33.85点，跌幅为0.48%，报7075.29点。
+新能源汽车规模车系数量429个，其中客车370个、货车59个。
 
-美国总统特朗普周二告诉表示，他预计美国和伊朗将达成一项“伟大的协议”。
+2025年赔付率超过100%（尚未考虑财险公司日常经营管理费用成本）的高赔付车系有143个，较上年增加6个，其中客车106个、货车37个。
 
-不过特朗普又威胁称，如果停火截止日期前未能签署协议，美国军队“已准备好”轰炸伊朗，并且他不想延长停火期限。
-
-此前，特朗普周二早些时候在Truth Social上发帖称，伊朗“多次违反停火协议！
-
-” 由于市场预期可能达成协议，油价逆转了近日的大幅下跌走势。
-
-西德克萨斯中质原油期货上涨3%，至每桶93美元上方。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 15:06 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 14:41 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 15:04 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 14:52 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 14:51 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 15:03 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 14:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 14:43 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 14:57 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 14:53 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 14:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 14:43 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 14:40 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 14:56 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 15:01 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 14:56 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 15:07 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 14:53 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 14:43 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 14:48 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 14:56 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 14:43 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 15:09 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 15:06 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 14:55 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 14:50 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:41 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/294426234812.shtml)
-- 2026-06-29 14:46 - [时光音乐会](https://www.share.minike.top/Article/details/00349979.shtml)
-- 2026-06-29 14:54 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/240257821891.shtml)
-- 2026-06-29 14:37 - [我国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/310975.shtml)
-- 2026-06-29 15:02 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/0159292.shtml)
-- 2026-06-29 14:38 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/546464097805.shtml)
-- 2026-06-29 14:56 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/3640575088.shtml)
-- 2026-06-29 14:48 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/4276038058.shtml)
-- 2026-06-29 14:42 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/74596.shtml)
-- 2026-06-29 15:03 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/7965451614.shtml)
-- 2026-06-29 14:56 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/4105213.shtml)
-- 2026-06-29 14:47 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/896057.shtml)
-- 2026-06-29 14:43 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/643668105089.shtml)
-- 2026-06-29 14:46 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/65835901723.shtml)
-- 2026-06-29 15:00 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/1081926.shtml)
+- 2026-06-29 14:55 - [教育部发布高考志愿填报预警](http://www.blog.minike.top/Article/details/9258797.shtml)
+- 2026-06-29 15:02 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/9516690389.shtml)
+- 2026-06-29 14:58 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/9434319.shtml)
+- 2026-06-29 15:04 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/11287339.shtml)
+- 2026-06-29 15:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/97819285796.shtml)
+- 2026-06-29 15:08 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/260695060.shtml)
+- 2026-06-29 15:05 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/84497696815.shtml)
+- 2026-06-29 14:47 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/794540350252.shtml)
+- 2026-06-29 15:05 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/3777061158.shtml)
+- 2026-06-29 15:09 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/367373918.shtml)
+- 2026-06-29 15:07 - [A股](http://www.blog.kurohicncr.top/Article/details/386622.shtml)
+- 2026-06-29 14:45 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/354754.shtml)
+- 2026-06-29 14:54 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/02882.shtml)
+- 2026-06-29 14:42 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/2282004.shtml)
+- 2026-06-29 14:44 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/74274207.shtml)

@@ -1,61 +1,61 @@
-# UPS与联邦快递已开始申请部分关税退款
+# 神火股份首季业绩暴增 净利润预计增长217.68%
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-联合包裹和联邦快递已开始通过美国政府退税流程申请部分关税退款。此类退款仅适用于依据《国际紧急经济权力法》征收的关税，美国最高法院已于今年2月裁定该法案相关征收行为违宪。 退税流程正式启动 在美国最高法院裁定部分关税违宪后，美国海关与边境保护局于周一正式开放了退税门户，允许企业开始申请退款。该退税流程仅适用于《国际紧急经济权力法》项下征收的关税，而依据其他法律条款征收的关税则依然
+神火股份（000933）4月7日发布首季业绩预增公告，预计实现净利润为22.50亿元，净利润同比增长217.68%。证券时报·数据宝统计显示，神火股份今日收于31.98元，上涨3.97%，日换手率为1.88%，成交额为13.36亿元，近5日上涨0.57%。通过对首季业绩预增50%以上的个股走势进行统计发现，预告发布后当日股价上涨的占比78.57%，股价发布当日股价涨停的有4家。
 
 ## 正文
 
-联合包裹和联邦快递已开始通过美国政府退税流程申请部分关税退款。
+神火股份（000933）4月7日发布首季业绩预增公告，预计实现净利润为22.50亿元，净利润同比增长217.68%。
 
-此类退款仅适用于依据《国际紧急经济权力法》征收的关税，美国最高法院已于今年2月裁定该法案相关征收行为违宪。
+证券时报·数据宝统计显示，神火股份今日收于31.98元，上涨3.97%，日换手率为1.88%，成交额为13.36亿元，近5日上涨0.57%。
 
-退税流程正式启动 在美国最高法院裁定部分关税违宪后，美国海关与边境保护局于周一正式开放了退税门户，允许企业开始申请退款。
+通过对首季业绩预增50%以上的个股走势进行统计发现，预告发布后当日股价上涨的占比78.57%，股价发布当日股价涨停的有4家。
 
-该退税流程仅适用于《国际紧急经济权力法》项下征收的关税，而依据其他法律条款征收的关税则依然有效。
+预告发布后5日股价上涨的占比85.71%。
 
-海关将分阶段处理退税申请，第一阶段仅覆盖海关在过去80天内完成清关的货物。
+资金面上，该股今日主力资金净流入1920.81万元，近5日资金净流入4626.00万元。
 
-两大快递公司代客申请 联合包裹本周表示，对于公司作为登记进口商的所有货物，将代客户向海关申请并取回关税退款，客户无需主动联系联合包裹。
+最新（4月3日）两融余额15.52亿元，其中，融资余额15.41亿元，环比前一交易日增长1.00%，近5日融资余额累计增长16.34%。
 
-不过公司指出，退款可能需要长达三个月才能拨付至联合包裹，之后公司才能向客户发放退款。
+从机构评级来看，近一个月该股被11家机构评级买入。
 
-联合包裹在声明中表示：“我们始终致力于保障货物运输畅通，并在这一复杂流程中帮助客户充分行使其权利。
+预计目标价最高的是华创证券，3月25日华创证券发布的研报给予公司目标价位40.10元。
 
 ## 相关推荐
 
-- 2026-06-29 14:58 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 15:01 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 14:36 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 14:40 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 14:50 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 14:53 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 14:55 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 14:48 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 14:40 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 14:55 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 14:59 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 14:42 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 14:57 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 14:45 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 14:44 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 14:48 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 14:56 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 15:04 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 15:02 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 14:55 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 15:09 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 15:10 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 14:52 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 15:02 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 15:09 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 15:06 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 14:44 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 14:56 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 14:54 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 14:46 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:43 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/1613114794.shtml)
-- 2026-06-29 14:57 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/199273511247.shtml)
-- 2026-06-29 14:40 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/582633491.shtml)
-- 2026-06-29 14:58 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/3087961.shtml)
-- 2026-06-29 14:57 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/87412.shtml)
-- 2026-06-29 15:05 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/29389680367.shtml)
-- 2026-06-29 14:40 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/369360.shtml)
-- 2026-06-29 14:54 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/22199.shtml)
-- 2026-06-29 14:46 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/141111478363.shtml)
-- 2026-06-29 14:47 - [TOP 无畏契约](https://www.share.minike.top/Article/details/38934113740.shtml)
-- 2026-06-29 15:04 - [航空运输旅客服务质量国标将实施](https://www.blog.kurohicncr.top/Article/details/300208897276.shtml)
-- 2026-06-29 14:43 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/51219515.shtml)
-- 2026-06-29 14:46 - [爸爸当家](http://www.blog.minike.top/Article/details/1669477327.shtml)
-- 2026-06-29 14:41 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/31032685761.shtml)
-- 2026-06-29 15:00 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/594585030.shtml)
+- 2026-06-29 15:02 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/665381643.shtml)
+- 2026-06-29 14:42 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/22997.shtml)
+- 2026-06-29 14:51 - [教育部发布高考志愿填报预警](http://www.share.kurohicncr.top/Article/details/86384.shtml)
+- 2026-06-29 14:50 - [韩国记者：解码“合肥模式”](https://www.share.minike.top/Article/details/383763.shtml)
+- 2026-06-29 14:51 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/855753906.shtml)
+- 2026-06-29 15:09 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/321970450.shtml)
+- 2026-06-29 14:52 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/647320715508.shtml)
+- 2026-06-29 14:42 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/54630958.shtml)
+- 2026-06-29 15:09 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/259929428300.shtml)
+- 2026-06-29 15:04 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/848217266.shtml)
+- 2026-06-29 15:05 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/3978534136.shtml)
+- 2026-06-29 14:47 - [金刚川](http://www.share.minike.top/Article/details/8019739.shtml)
+- 2026-06-29 14:51 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/571822.shtml)
+- 2026-06-29 14:47 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/421114939.shtml)
+- 2026-06-29 14:58 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/2150174807.shtml)

@@ -1,61 +1,57 @@
-# 英国议会通过法案：现年17岁及以下青少年终身禁止买烟
+# 4月1日热门中概股多数上涨 小马智行涨10.54%，中国新城农村跌4.96%
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-中新社伦敦4月22日电 (记者 欧阳开宇)英国议会22日正式通过《烟草与电子烟法案》，推出极具严苛性的终身吸烟禁令，英国现年17岁及以下青少年、未来所有新生儿，将终身无法合法购买烟草制品。 该法案推行滚动式年龄禁烟规则，烟草合法购买年龄逐年上调，覆盖2009年1月1日及以后出生的所有人群，意味着这一群体将彻底失去合法购烟资格。英国政府旨在以此打造该国首个“无烟一代”。 除控烟核
+4月1日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高2.8%。 上涨股当中（按市值从高到低），台积电涨6.78%，阿里巴巴涨2.88%，拼多多涨3.82%，网易涨1.74%，日月光半导体涨3.83%，京东涨2.18%，百度涨4.52%，中华电信涨0.57%，携程涨1.26%，联电涨4.30%，中通涨3.41%，富途控股涨4.10%，理想汽车涨1.60%，小鹏汽车涨2.
 
 ## 正文
 
-中新社伦敦4月22日电 (记者 欧阳开宇)英国议会22日正式通过《烟草与电子烟法案》，推出极具严苛性的终身吸烟禁令，英国现年17岁及以下青少年、未来所有新生儿，将终身无法合法购买烟草制品。
+4月1日热门中概股多数上涨，纳斯达克中国金龙指数（HXC）收高2.8%。
 
-该法案推行滚动式年龄禁烟规则，烟草合法购买年龄逐年上调，覆盖2009年1月1日及以后出生的所有人群，意味着这一群体将彻底失去合法购烟资格。
+上涨股当中（按市值从高到低），台积电涨6.78%，阿里巴巴涨2.88%，拼多多涨3.82%，网易涨1.74%，日月光半导体涨3.83%，京东涨2.18%，百度涨4.52%，中华电信涨0.57%，携程涨1.26%，联电涨4.30%，中通涨3.41%，富途控股涨4.10%，理想汽车涨1.60%，小鹏汽车涨2.45%，华住酒店集团涨2.91%，蔚来涨9.26%，哔哩哔哩涨4.01%，新东方涨3.62%，满帮涨2.41%，万国数据涨2.60%，BOSS直聘涨0.37%，WSP控股涨1.48%，亚朵集团涨4.75%，名创优品涨5.70%，小马智行涨10.54%，慧荣科技涨6.49%，欢聚涨3.40%，禾赛科技涨7.84%，雾芯科技涨2.57%。
 
-英国政府旨在以此打造该国首个“无烟一代”。
+下跌股当中（按市值从高到低），贝壳跌0.27%，腾讯音乐跌0.32%，中国新城农村跌4.96%，唯品会跌1.69%，拓臻生物跌0.30%，金山云跌0.60%。
 
-除控烟核心条款外，法案同步收紧电子烟及尼古丁产品监管，同时严格限制电子烟广告投放、产品展示、免费派发与折扣促销行为。
+美股周二收高，道指上涨逾1100点。
 
-英国官方数据显示，该国每年因吸烟导致约6.4万人死亡、40万人住院，每年耗费英国国民医保体系约30亿英镑(约合277亿元人民币)，吸烟带来的公共卫生压力持续居高不下。
+但在一季度，美股三大股指均录得跌幅。
 
-同时，青少年电子烟吸食率攀升、尼古丁成瘾问题加剧，也成为英国政策制定者重点关注的社会议题。
+据称美伊两国总统均对结束战争持开放态度，令投资者看到美以对伊战争结束的可能性。
 
-英国卫生大臣斯特里廷表示，法案获批是英国国民健康领域的历史性时刻，通过这项立法，英国年轻一代将免受尼古丁终身成瘾危害，远离烟草带来的健康风险。
+道指涨1125.19点，涨幅为2.49%，报46341.33点；纳指涨795.99点，涨幅为3.83%，报21590.63点；标普500指数涨184.80点，涨幅为2.91%，报6528.52点。
 
-他指出，预防胜于治疗，该法案不仅能挽救生命、缓解医疗体系运行压力，更将助力构建更健康的英国社会。
+在刚刚过去的第一季度，美股三大股指均录得跌幅。
 
 ## 相关推荐
 
-- 2026-06-29 15:00 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 14:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 14:56 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 14:54 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 14:39 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 15:04 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 14:44 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 14:48 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 14:58 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 15:02 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 14:54 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 14:49 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 14:52 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 14:40 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 14:38 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 15:05 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 14:46 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 14:53 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 14:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 15:06 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 15:08 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 14:48 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 14:54 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 15:07 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 15:02 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 14:54 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/2887130463.shtml)
-- 2026-06-29 14:43 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/9346746937.shtml)
-- 2026-06-29 14:59 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/303578360946.shtml)
-- 2026-06-29 14:37 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/43865.shtml)
-- 2026-06-29 15:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/9230294.shtml)
-- 2026-06-29 14:54 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/110557.shtml)
-- 2026-06-29 14:37 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/660217427676.shtml)
-- 2026-06-29 15:00 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/296712314326.shtml)
-- 2026-06-29 15:04 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/486413493.shtml)
-- 2026-06-29 14:55 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/430485.shtml)
-- 2026-06-29 14:51 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/527697.shtml)
-- 2026-06-29 15:05 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/93433.shtml)
-- 2026-06-29 14:36 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/027786681593.shtml)
-- 2026-06-29 14:42 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/615009268.shtml)
-- 2026-06-29 14:59 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/61521.shtml)
+- 2026-06-29 15:02 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/577618763.shtml)
+- 2026-06-29 15:11 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/89846503503.shtml)
+- 2026-06-29 15:10 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/360408421361.shtml)
+- 2026-06-29 14:53 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/0334249064.shtml)
+- 2026-06-29 15:10 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/783241.shtml)
+- 2026-06-29 14:59 - [记者暗访贵州和云南多个养老机构](https://www.blog.kurohicncr.top/Article/details/6565921583.shtml)
+- 2026-06-29 14:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/309291479.shtml)
+- 2026-06-29 14:45 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/669736748.shtml)
+- 2026-06-29 15:07 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/144396047512.shtml)
+- 2026-06-29 15:10 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/202462993.shtml)
+- 2026-06-29 14:52 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/579416.shtml)
+- 2026-06-29 14:58 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/08681737387.shtml)
+- 2026-06-29 15:04 - [ENC瓦中国香港负印度数据图](https://www.share.minike.top/Article/details/845511401394.shtml)
+- 2026-06-29 15:06 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/0319432.shtml)
+- 2026-06-29 14:58 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/1090957.shtml)

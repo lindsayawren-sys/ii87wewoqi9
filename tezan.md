@@ -1,61 +1,57 @@
-# 光大期货：4月22日有色金属日报
+# 特朗普：美国撤离后霍尔木兹海峡将“自动”开放
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-有色金属类 铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏弱，国内精炼铜现货进口维持小幅盈利。宏观方面，昨晚沃什听证会上强调美联储独立性，称联储要恪守职能本分，需要新的通胀框架和沟通方式，并从未被要求作出降息承诺，此番言论被理解为偏鹰派。地缘政治方面，此前特朗普放话不延长停火、威胁恢复轰炸伊朗，引起市场负向反馈，但最后时刻反
+在被问关于其考虑在未重新开放霍尔木兹海峡的情况下结束对伊行动的报道时，美国总统特朗普表示：“一旦我们离开，海峡就会自动重新开放。” 他说：“我认为它会自动开放，我的看法是，我们已经把这个国家摧毁了。他们已经没有实力了，让那些使用这条海峡的国家自己去把它打开。因为我想，无论是谁在控制石油，都会非常乐意重新开放这条海峡”。 特朗普还表示：“我们不会在那里停留太久，不过在消灭他们的进
 
 ## 正文
 
-有色金属类 铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏弱，国内精炼铜现货进口维持小幅盈利。
+在被问关于其考虑在未重新开放霍尔木兹海峡的情况下结束对伊行动的报道时，美国总统特朗普表示：“一旦我们离开，海峡就会自动重新开放。
 
-宏观方面，昨晚沃什听证会上强调美联储独立性，称联储要恪守职能本分，需要新的通胀框架和沟通方式，并从未被要求作出降息承诺，此番言论被理解为偏鹰派。
+” 他说：“我认为它会自动开放，我的看法是，我们已经把这个国家摧毁了。
 
-地缘政治方面，此前特朗普放话不延长停火、威胁恢复轰炸伊朗，引起市场负向反馈，但最后时刻反转，宣布延长停火，等待伊朗提交方案。
+他们已经没有实力了，让那些使用这条海峡的国家自己去把它打开。
 
-库存方面，LME铜库存下降150吨至398575吨；COMEX库存增加4650吨至544892吨；SHFE铜仓单下降3086吨至127491吨，BC下降275吨至11280吨。
+因为我想，无论是谁在控制石油，都会非常乐意重新开放这条海峡”。
 
-美伊谈判局势依旧不明朗，霍尔木兹海峡通航问题依然难以解决，市场情绪再次偏谨慎，铜价高位震荡运行。
+特朗普还表示：“我们不会在那里停留太久，不过在消灭他们的进攻能力、无论他们还剩下什么进攻能力方面，我们还有更多工作要做”。
 
-不过总体来看，铜价预计将延续震荡反弹格局，核心逻辑在于供给端收缩预期持续强化，而宏观风险偏好边际修复，但需降低反弹高度预期。
-
-另外，临近五一小长假，企业或担心节日前后地缘生变，因此对于高价铜普遍偏谨慎，策略上建议以逢低做多为主，不宜追涨，上方关注104000-105000元/吨阻力区间的突破情况。
-
-镍&不锈钢： （朱希，从业资格号：F03109968；交易咨询资格号：Z0021609） 隔夜LME镍跌0.47%报18150美元/吨，沪镍涨0.19%报141060元/吨。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 14:50 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 14:52 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 14:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 14:56 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 14:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 15:04 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 14:52 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 14:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 14:59 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 14:37 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 14:49 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 14:45 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 14:51 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 14:49 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 14:53 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 14:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 14:46 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 15:06 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 15:00 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 14:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 15:00 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 14:51 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 15:07 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 15:10 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 15:10 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 14:50 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 14:57 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 14:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 15:03 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 15:04 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:36 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/694490867.shtml)
-- 2026-06-29 14:47 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/886460052637.shtml)
-- 2026-06-29 14:42 - [久坐小心“死臀综合征”](http://www.share.minike.top/Article/details/325044192788.shtml)
-- 2026-06-29 14:46 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/795133.shtml)
-- 2026-06-29 14:38 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/9296354.shtml)
-- 2026-06-29 14:49 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/3393185692.shtml)
-- 2026-06-29 14:49 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/936491635098.shtml)
-- 2026-06-29 14:39 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/706446431357.shtml)
-- 2026-06-29 14:42 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/68052802.shtml)
-- 2026-06-29 15:03 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/00752274679.shtml)
-- 2026-06-29 14:41 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/7567878085.shtml)
-- 2026-06-29 14:44 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/42325.shtml)
-- 2026-06-29 14:49 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/830248234.shtml)
-- 2026-06-29 14:59 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/666526.shtml)
-- 2026-06-29 15:02 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/796540235.shtml)
+- 2026-06-29 15:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/50097730822.shtml)
+- 2026-06-29 15:02 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/2322768186.shtml)
+- 2026-06-29 14:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/07002616.shtml)
+- 2026-06-29 14:44 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/5664278.shtml)
+- 2026-06-29 15:09 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/0834142284.shtml)
+- 2026-06-29 14:58 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/2695414482.shtml)
+- 2026-06-29 14:50 - [爸爸当家](https://www.share.minike.top/Article/details/130619937983.shtml)
+- 2026-06-29 14:45 - [迈巴赫提车第二天发现大灯起雾](http://www.share.minike.top/Article/details/9423665287.shtml)
+- 2026-06-29 15:02 - [以前不让妆女二可以艳压女主](https://www.blog.minike.top/Article/details/7753723183.shtml)
+- 2026-06-29 15:10 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/16611.shtml)
+- 2026-06-29 15:04 - [首尔商铺禁止洪明甫入内](http://www.blog.minike.top/Article/details/44175502678.shtml)
+- 2026-06-29 14:48 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/687306295.shtml)
+- 2026-06-29 14:51 - [久坐小心“死臀综合征”](http://www.share.minike.top/Article/details/7053871.shtml)
+- 2026-06-29 15:08 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/2665860226.shtml)
+- 2026-06-29 14:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/4033231.shtml)

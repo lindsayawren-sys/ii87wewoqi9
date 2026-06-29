@@ -1,53 +1,60 @@
-# 首只船舶ETF规模已达16亿元
+# Decom Engineering海底切割技术获美国专利
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-中新网上海4月22日电 (高志苗)记者22日从上海证券交易所获悉，截至目前，船舶ETF规模已达16亿元。 船舶ETF于2月6日在上交所上市，是境内首只投资于船舶产业的指数基金，深度聚焦船舶产业核心资产，其中中船集团旗下上市公司权重占比超五成。 “十五五”规划明确了“推动海洋经济高质量发展，加快建设海洋强国”的目标，同时，在提升中国海洋装备制造业优势、关乎国家战略与安全命脉的背景
+总部位于阿伯丁的海底技术专业公司Decom Engineering已获得一项美国专利，该专利涵盖了其Chopsaw切割技术的关键要素，从而巩固了其在海底及陆上切割市场的地位。 该专利保护了定义Decom创新切割方法的一系列机械和操作特性，包括线性驱动切割系统、模块化驱动装置以及高度适应性夹持方法。 Chopsaw技术的核心是一个线性驱动切割头，可将刀片直接送入被切割的结构中。与
 
 ## 正文
 
-中新网上海4月22日电 (高志苗)记者22日从上海证券交易所获悉，截至目前，船舶ETF规模已达16亿元。
+总部位于阿伯丁的海底技术专业公司Decom Engineering已获得一项美国专利，该专利涵盖了其Chopsaw切割技术的关键要素，从而巩固了其在海底及陆上切割市场的地位。
 
-船舶ETF于2月6日在上交所上市，是境内首只投资于船舶产业的指数基金，深度聚焦船舶产业核心资产，其中中船集团旗下上市公司权重占比超五成。
+该专利保护了定义Decom创新切割方法的一系列机械和操作特性，包括线性驱动切割系统、模块化驱动装置以及高度适应性夹持方法。
 
-“十五五”规划明确了“推动海洋经济高质量发展，加快建设海洋强国”的目标，同时，在提升中国海洋装备制造业优势、关乎国家战略与安全命脉的背景下，船舶ETF采用了“央企—基金”联动模式，将产业央企的业务优势与公募基金的专业投资能力深度融合，在引导社会资金流向产业优质核心资产的同时，通过指数化投资模式填补了市场对该细分领域标准化投资工具的空白，为投资者提供了透明、高效、低门槛的参与渠道，让其能便捷分享国家经济发展成果。
+Chopsaw技术的核心是一个线性驱动切割头，可将刀片直接送入被切割的结构中。
 
-(完)
+与依赖枢转或旋转运动的传统切割锯不同，Decom的系统采用受控的线性运动来引导刀片穿过材料，从而显著提高了控制性、精度和一致性。
+
+专利的其他关键要素还包括： 模块化驱动系统：将电机、刀片和驱动部件集成到一个组件中，可在现场快速更换或重新配置，便于在作业期间进行快速维护。
+
+适应性夹持装置：使单台锯能够切割多种材料、直径和结构，适用于从小型脐带缆到大型系泊链和导管等各种应用。
+
+稳定切割区：通过在切割线的上方和下方进行夹持，创造了一个稳定、无张力的切割区域，提高了在复杂或不稳定结构中的安全性。
+
+该技术设计用于切割多种材料，包括碳钢、双相钢和带涂层结构。
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 15:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 14:41 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 14:50 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 14:43 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 14:56 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 15:02 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 14:55 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 14:54 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 14:41 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 14:57 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 14:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 15:04 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 14:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 14:56 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 14:49 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 15:08 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 14:51 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 14:44 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 15:03 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 14:49 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 15:04 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 15:00 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 15:10 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 14:46 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 15:08 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 14:55 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 15:10 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 15:11 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:59 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/36809311.shtml)
-- 2026-06-29 14:37 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/87329380.shtml)
-- 2026-06-29 15:00 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/54927620.shtml)
-- 2026-06-29 15:02 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/903331.shtml)
-- 2026-06-29 14:49 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.minike.top/Article/details/6166627.shtml)
-- 2026-06-29 15:05 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/878183.shtml)
-- 2026-06-29 14:50 - [李在明称韩国足协任命了无能之人](https://www.blog.minike.top/Article/details/29854526.shtml)
-- 2026-06-29 14:51 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/33698680258.shtml)
-- 2026-06-29 14:38 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/7101496550.shtml)
-- 2026-06-29 14:45 - [发反科学内容为何会有200万粉丝](https://www.blog.kurohicncr.top/Article/details/2825222223.shtml)
-- 2026-06-29 15:00 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/01772465.shtml)
-- 2026-06-29 14:41 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/339053441212.shtml)
-- 2026-06-29 14:38 - [沉睡花园](https://www.share.minike.top/Article/details/61739938.shtml)
-- 2026-06-29 14:48 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/6510191299.shtml)
-- 2026-06-29 15:05 - [啊啊啊](http://www.share.minike.top/Article/details/362371473669.shtml)
+- 2026-06-29 14:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/16101764.shtml)
+- 2026-06-29 15:10 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/1682026335.shtml)
+- 2026-06-29 15:08 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/71863332208.shtml)
+- 2026-06-29 14:51 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/0494001575.shtml)
+- 2026-06-29 15:06 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/977020370.shtml)
+- 2026-06-29 15:08 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/2520675767.shtml)
+- 2026-06-29 14:49 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/30663.shtml)
+- 2026-06-29 15:02 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/20032829.shtml)
+- 2026-06-29 15:09 - [扬名立万](http://www.share.minike.top/Article/details/49186200.shtml)
+- 2026-06-29 14:52 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/49082606.shtml)
+- 2026-06-29 15:03 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/491974689.shtml)
+- 2026-06-29 15:06 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/7541652436.shtml)
+- 2026-06-29 15:09 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/15696291107.shtml)
+- 2026-06-29 14:44 - [日本主帅：目标是冠军](https://www.share.minike.top/Article/details/99682700.shtml)
+- 2026-06-29 14:55 - [李连杰回应网传不管前妻俩女儿](http://www.share.minike.top/Article/details/35689.shtml)

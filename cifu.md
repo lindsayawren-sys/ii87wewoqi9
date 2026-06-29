@@ -1,59 +1,61 @@
-# 酒价内参4月23日价格发布：精品茅台下跌2元
+# 核心CPU业务疲软，英特尔面临压力
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月23日小幅走高，延续回升态势。如果主要单品各取一瓶整体打包售卖，今日总售价为9928元，较昨日上涨2元，升至近14日最高位。市场连续四日持续修复，终端交投情绪整体保持平稳，但核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨五跌
+随着市场对其传统CPU业务的依赖日益担忧，尤其是在整体PC市场显现疲软迹象的背景下，英特尔公司正面临新的考验。 客户端计算事业部仍是该公司最大的收入和运营利润来源，尽管该业务板块正承受着越来越大的压力。分析师认为，由于内存、存储和处理器价格预计上涨，将抑制消费者的购买意愿，2026年全球PC市场预计将萎缩。 与此同时，英特尔面临的竞争也在加剧。超微半导体在服务器CPU领域仍在持
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月23日小幅走高，延续回升态势。
+随着市场对其传统CPU业务的依赖日益担忧，尤其是在整体PC市场显现疲软迹象的背景下，英特尔公司正面临新的考验。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9928元，较昨日上涨2元，升至近14日最高位。
+客户端计算事业部仍是该公司最大的收入和运营利润来源，尽管该业务板块正承受着越来越大的压力。
 
-市场连续四日持续修复，终端交投情绪整体保持平稳，但核心单品涨跌分化依然显著。
+分析师认为，由于内存、存储和处理器价格预计上涨，将抑制消费者的购买意愿，2026年全球PC市场预计将萎缩。
 
-今日白酒市场11大单品五涨五跌一平，涨跌结构较为均衡。
+与此同时，英特尔面临的竞争也在加剧。
 
-上涨方面，习酒君品涨幅居前，上涨6元/瓶，价格创近一个月最高；洋河梦之蓝M6+与古井贡古20均上涨5元/瓶，其中古井贡古20连续三日大踏步上行，价格再创近一个月最高；五粮液普五八代与五粮液1618均小幅上涨1元/瓶。
+超微半导体在服务器CPU领域仍在持续扩大份额，而基于Arm架构的设计在数据中心和消费设备领域都日益普及。
 
-下跌方面，国窖1573跌幅居前，下跌9元/瓶，前一日创下近一个月最高后明显回落，此前的五连阳积累了较强卖压；青花汾20下跌3元/瓶，前一日创近一个月最高后技术性回落；精品茅台下跌2元/瓶；飞天茅台与青花郎均小幅回落1元/瓶。
+英特尔在其服务器业务方面也时而难以完全满足需求，这增添了另一层不确定性。
 
-水晶剑南春的价格环比保持不变。
+英特尔的代工业务仍是该公司最积极的亮点。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+投资者正密切关注该公司能否为其先进制程节点招揽到外部客户，这可能有助于提振市场情绪，尽管该业务目前仍在亏损。
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 14:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 14:52 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 14:41 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 14:47 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 14:46 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 14:59 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 14:42 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 15:05 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 14:56 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 14:48 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 14:36 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 14:45 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 14:57 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 14:49 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 15:05 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 15:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 14:42 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 15:09 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 14:49 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 14:44 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 14:57 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 14:45 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 14:55 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 15:02 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 14:54 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 14:42 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 15:09 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:44 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/3404001.shtml)
-- 2026-06-29 14:53 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/615204575756.shtml)
-- 2026-06-29 14:40 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/660649.shtml)
-- 2026-06-29 14:46 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/61814673.shtml)
-- 2026-06-29 14:44 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/95035693958.shtml)
-- 2026-06-29 14:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/351064823217.shtml)
-- 2026-06-29 14:36 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/2964023.shtml)
-- 2026-06-29 15:02 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/06666966.shtml)
-- 2026-06-29 14:46 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/46350.shtml)
-- 2026-06-29 14:44 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/186811023.shtml)
-- 2026-06-29 14:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/30973.shtml)
-- 2026-06-29 14:56 - [小娘惹](http://www.share.kurohicncr.top/Article/details/32119301981.shtml)
-- 2026-06-29 14:45 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/22802.shtml)
-- 2026-06-29 14:51 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.kurohicncr.top/Article/details/702389.shtml)
-- 2026-06-29 14:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/58196312199.shtml)
+- 2026-06-29 14:42 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/9182917.shtml)
+- 2026-06-29 15:09 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/934572176.shtml)
+- 2026-06-29 14:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/832710.shtml)
+- 2026-06-29 14:59 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/10015730.shtml)
+- 2026-06-29 14:52 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/51907271.shtml)
+- 2026-06-29 14:52 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/67391.shtml)
+- 2026-06-29 15:05 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/04754.shtml)
+- 2026-06-29 15:11 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/0416537.shtml)
+- 2026-06-29 14:47 - [女心理师](https://www.share.minike.top/Article/details/1136066682.shtml)
+- 2026-06-29 15:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/809468587646.shtml)
+- 2026-06-29 15:10 - [扫黑风暴](http://www.blog.minike.top/Article/details/5461146.shtml)
+- 2026-06-29 15:00 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/70018.shtml)
+- 2026-06-29 14:46 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.minike.top/Article/details/446766043.shtml)
+- 2026-06-29 14:43 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/78683866.shtml)
+- 2026-06-29 14:45 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/31294580.shtml)

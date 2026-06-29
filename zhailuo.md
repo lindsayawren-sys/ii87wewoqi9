@@ -1,55 +1,57 @@
-# 全球19家最大航司计划削减航班
+# Palantir与Stellantis深化合作，达成新的人工智能协议
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-（原标题：全球19家最大航司计划削减航班 汉莎航空将取消约2万架次航班） 人民财讯4月22日电，受中东冲突的影响，全球航空燃油成本上升，令航空公司承压。根据航空分析公司睿思誉的数据，全球20家最大航空公司中有19家计划在5月削减航班。睿思誉的分析显示，5月全球航司计划的运力较今年3月初下降了约3个百分点。该机构此前预计今年全年全球的运力将增长4%到6%，但现在判断，在部分情况下
+Palantir Technologies已通过一项新的五年协议，延长了与Stellantis的长期合作伙伴关系，使这家汽车制造商能够更广泛地使用Palantir的数据和人工智能软件。 双方的合作始于2016年，一直致力于协助Stellantis在其所有活动中更好地利用数据。根据新协议，Stellantis将更广泛地使用Palantir Foundry平台，并开始在其多项业务活
 
 ## 正文
 
-（原标题：全球19家最大航司计划削减航班 汉莎航空将取消约2万架次航班） 人民财讯4月22日电，受中东冲突的影响，全球航空燃油成本上升，令航空公司承压。
+Palantir Technologies已通过一项新的五年协议，延长了与Stellantis的长期合作伙伴关系，使这家汽车制造商能够更广泛地使用Palantir的数据和人工智能软件。
 
-根据航空分析公司睿思誉的数据，全球20家最大航空公司中有19家计划在5月削减航班。
+双方的合作始于2016年，一直致力于协助Stellantis在其所有活动中更好地利用数据。
 
-睿思誉的分析显示，5月全球航司计划的运力较今年3月初下降了约3个百分点。
+根据新协议，Stellantis将更广泛地使用Palantir Foundry平台，并开始在其多项业务活动和领域中使用Palantir的人工智能平台。
 
-该机构此前预计今年全年全球的运力将增长4%到6%，但现在判断，在部分情况下，全年运力甚至可能转为下降，最多下滑3%。
+这一点至关重要，因为汽车制造商在制造、供应链和内部决策方面正面临越来越大的压力，需要加快速度、简化流程并更好地利用数据。
 
-当地时间周二，汉莎航空宣布，将在5月到10月期间，取消大约2万架次航班。
+Foundry平台有助于梳理和利用大型数据集，而人工智能平台旨在让日常工作中使用人工智能技术变得更加便捷。
 
-责任编辑：刘万里 SF014
+更广泛地部署这些平台可能有助于Stellantis整合过去在不同团队和市场之间存在壁垒的系统。
+
+这显示了Palantir如何将与大客户的长期合作伙伴关系拓展为更大规模的业务部署。
+
+投资者将拭目以待，这些更大规模的业务收购能否带来更快的收入增长，并实现大型工业客户的更广泛应用。
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 14:48 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 14:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 14:50 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 14:46 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 15:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 15:06 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 14:52 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 14:54 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 14:40 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 14:56 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 14:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 15:05 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 15:09 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 14:48 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 14:57 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 15:10 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 15:00 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 15:11 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 15:05 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 15:08 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 15:10 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 14:54 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 15:02 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:52 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/0880017128.shtml)
-- 2026-06-29 14:45 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/1045833954.shtml)
-- 2026-06-29 14:56 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/59944.shtml)
-- 2026-06-29 14:50 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/804162794.shtml)
-- 2026-06-29 14:40 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/968306083125.shtml)
-- 2026-06-29 14:49 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/01826.shtml)
-- 2026-06-29 14:44 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/15361273.shtml)
-- 2026-06-29 14:44 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/088798483105.shtml)
-- 2026-06-29 14:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/12046145.shtml)
-- 2026-06-29 14:47 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/887251959.shtml)
-- 2026-06-29 14:44 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/27845958063.shtml)
-- 2026-06-29 14:40 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/14928828.shtml)
-- 2026-06-29 15:01 - [德国队前往比赛场地遭遇囧途](https://www.share.minike.top/Article/details/967029044.shtml)
-- 2026-06-29 15:00 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/106358.shtml)
-- 2026-06-29 14:56 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/886499113653.shtml)
+- 2026-06-29 15:06 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/70363737.shtml)
+- 2026-06-29 15:06 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/352514679496.shtml)
+- 2026-06-29 14:48 - [起风了](https://www.share.minike.top/Article/details/293562903.shtml)
+- 2026-06-29 14:44 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/37220866790.shtml)
+- 2026-06-29 15:05 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/94305588667.shtml)
+- 2026-06-29 15:05 - [请回答王牌2019](http://www.share.minike.top/Article/details/712003137.shtml)
+- 2026-06-29 14:55 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/9928873.shtml)
+- 2026-06-29 14:51 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/60211.shtml)
+- 2026-06-29 15:10 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/38441.shtml)
+- 2026-06-29 14:43 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/608734638460.shtml)
+- 2026-06-29 14:54 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/3717889.shtml)
+- 2026-06-29 14:59 - [流金岁月](https://www.share.kurohicncr.top/Article/details/48063651.shtml)
+- 2026-06-29 14:47 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/2358645.shtml)
+- 2026-06-29 15:01 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/4012975.shtml)
+- 2026-06-29 14:47 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/95327.shtml)

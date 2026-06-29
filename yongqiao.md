@@ -1,61 +1,60 @@
-# 美伊停火最后期限临近，加拿大主要股指周二小幅收低
+# 百年人寿戴文浩：个险是险企稳定性来源，中小公司切勿对标大公司
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-加拿大主要股指周二小幅收低，投资者在美伊停火协议即将到期的最后时刻保持谨慎，矿业板块成为拖累大盘的主要因素。 多伦多证券交易所S&P/TSX综合指数周二下跌0.5%，收于34，176.89点。美伊双方为期两周的停火协议将于周三到期，尽管有报道称巴基斯坦正在推进美伊第二轮和谈的筹备工作，但伊朗是否会派代表团参会仍存在不确定性，令市场情绪承压。 材料板块领跌全场，跌幅达2.2%。黄
+来源：慧保天下 又是一年春天，多家人身险公司开启了新一轮的代理人招募高潮。这些险企以头部公司居多，但也有例外，百年人寿，作为中小公司的代表，也在近期举行了“启行工程”二周年成果展暨2026年“启行新伙伴”优才战略发布会，推出全方位代理人支持赋能体系，目标直指精英代理人。 自2019年代理人数量达到顶点以来，6年时间，国内保险代理人数量一路下行，个险渠道承压不可谓不重，叠加银保渠
 
 ## 正文
 
-加拿大主要股指周二小幅收低，投资者在美伊停火协议即将到期的最后时刻保持谨慎，矿业板块成为拖累大盘的主要因素。
+来源：慧保天下 又是一年春天，多家人身险公司开启了新一轮的代理人招募高潮。
 
-多伦多证券交易所S&P/TSX综合指数周二下跌0.5%，收于34，176.89点。
+这些险企以头部公司居多，但也有例外，百年人寿，作为中小公司的代表，也在近期举行了“启行工程”二周年成果展暨2026年“启行新伙伴”优才战略发布会，推出全方位代理人支持赋能体系，目标直指精英代理人。
 
-美伊双方为期两周的停火协议将于周三到期，尽管有报道称巴基斯坦正在推进美伊第二轮和谈的筹备工作，但伊朗是否会派代表团参会仍存在不确定性，令市场情绪承压。
+自2019年代理人数量达到顶点以来，6年时间，国内保险代理人数量一路下行，个险渠道承压不可谓不重，叠加银保渠道受“报行合一”政策推动再度快速崛起等因素影响，业界对于个险渠道的疑虑有增无减，关于“中小公司该不该做个险”的争论一度甚嚣尘上，百年人寿的选择却非常坚定，做个险，而且必须做好。
 
-材料板块领跌全场，跌幅达2.2%。
+近期，慧保天下专访百年人寿执行董事、总裁戴文浩，试图管窥该公司抉择背后的逻辑基础、信心来源与发展规划。
 
-黄金和白银价格分别下跌逾0.8%和1.4%，直接拖累了相关矿业股的表现。
+戴文浩的回答也很直接，简而言之： 高质量发展时代需要重塑个险认知，中小公司也无需对标大公司；个险的核心不是获客，而是专业的、有温度的服务，这是一份注重积累的工作，这是一份AI取代不了的工作。
 
-受此影响，Equinox Gold Corp股价显著走低，NovaGold Resources也成为跌幅最大的个股之一。
+01 延续高增长态势，百年人寿开启新一轮精英代理人招募 2026年3月20日，百年人寿启行工程二周年成果展暨2026年“启行新伙伴”优才战略发布会在复旦大学邯郸校区举行。
 
-值得注意的是，Equinox Gold此前公布的2026年第一季度更新报告显示，公司产量环比下降20%，引发了市场对其能否完成全年产量指引的担忧，进一步加剧了股价的下行压力。
+来自百年人寿、复旦大学以及主流媒体嘉宾齐聚一堂，共同见证百年人寿开启新一轮精英代理人招募。
 
-与此同时，原油价格下跌超过1美元，回吐了前一交易日的部分涨幅。
+此次会议之所以选择在复旦大学举行，也是因为当天百年人寿与复旦大学保险应用创新研究院正式签署了战略合作备忘录，约定双方将共建专属培养体系，助力精英人才实现专业进阶与内外勤价值共生。
 
 ## 相关推荐
 
-- 2026-06-29 14:43 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 15:02 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 14:44 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 14:44 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 14:45 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 14:56 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 14:50 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 14:59 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 14:40 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 15:01 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 15:01 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 15:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 14:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 14:43 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 14:46 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 15:09 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 14:46 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 15:04 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 14:48 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 14:47 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 15:02 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 14:50 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 15:08 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 15:06 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 14:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 14:57 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 15:02 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 15:04 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 14:44 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:41 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/22371.shtml)
-- 2026-06-29 14:38 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/140047963.shtml)
-- 2026-06-29 14:41 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/19632913.shtml)
-- 2026-06-29 14:55 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/995161.shtml)
-- 2026-06-29 15:00 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/0617889.shtml)
-- 2026-06-29 14:40 - [把古诗里的动作换成加班](https://www.blog.minike.top/Article/details/313921.shtml)
-- 2026-06-29 14:53 - [教育部发布高考志愿填报预警](https://www.blog.minike.top/Article/details/1744104924.shtml)
-- 2026-06-29 14:37 - [急先锋](https://www.share.minike.top/Article/details/868775.shtml)
-- 2026-06-29 15:05 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/26780.shtml)
-- 2026-06-29 14:44 - [马斯克也站到了光里](http://www.share.minike.top/Article/details/7065972.shtml)
-- 2026-06-29 14:41 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/124621517568.shtml)
-- 2026-06-29 15:04 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/6685845513.shtml)
-- 2026-06-29 14:56 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/540712.shtml)
-- 2026-06-29 14:51 - [俄军新型无人机战力如何](http://www.share.kurohicncr.top/Article/details/82394529.shtml)
-- 2026-06-29 14:51 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/345032.shtml)
+- 2026-06-29 14:52 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/69200124835.shtml)
+- 2026-06-29 15:10 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/19639451.shtml)
+- 2026-06-29 14:42 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/084325704156.shtml)
+- 2026-06-29 15:11 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/43410240613.shtml)
+- 2026-06-29 14:59 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/205155.shtml)
+- 2026-06-29 14:49 - [毒液2](http://www.share.minike.top/Article/details/39277.shtml)
+- 2026-06-29 14:53 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/020167003134.shtml)
+- 2026-06-29 14:45 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/72490.shtml)
+- 2026-06-29 14:42 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/8375753304.shtml)
+- 2026-06-29 15:03 - [金牌调解](https://www.share.minike.top/Article/details/65543559.shtml)
+- 2026-06-29 15:06 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/76210685.shtml)
+- 2026-06-29 14:44 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/82721295093.shtml)
+- 2026-06-29 14:45 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/920992966264.shtml)
+- 2026-06-29 15:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/4115055461.shtml)
+- 2026-06-29 15:07 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/200707849.shtml)

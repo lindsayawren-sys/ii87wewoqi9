@@ -1,59 +1,59 @@
-# 日本各界反对政府为武器出口“松绑”
+# 二手车价格升至 2023 年夏季以来最高点
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-视频丨日本各界反对政府为武器出口“松绑” 对于日本政府修改“防卫装备转移三原则”及其运用指南，原则上允许包括护卫舰、导弹在内的杀伤性武器出口，日本各方表达反对意见。 日本《东京新闻》22日发表社论文章指出，这是日本安全保障政策的重大转变，是损害和平主义的轻率之举。此次政府允许杀伤性武器出口，是在没有经过国会充分审议、也缺乏全民讨论的情况下的举动，无疑是对和平主义理念的轻视，令人
+据一项备受市场关注的汽车行业指标显示，受供应持续偏紧影响，二手车价格继续走高。 考克斯汽车旗下的曼海姆二手车价值指数（追踪美国二手车批发拍卖价格）周二公布，该指数上月同比上涨 6.2%，同时创下 2023 年夏季以来的最高水平。 曼海姆拍卖数据显示，尽管地缘政治紧张、油价高企以及伊朗战争持续，二手车需求依然坚挺。 考克斯汽车首席经济学家杰里米・罗布在公告中表示：“我们原本预计中
 
 ## 正文
 
-视频丨日本各界反对政府为武器出口“松绑” 对于日本政府修改“防卫装备转移三原则”及其运用指南，原则上允许包括护卫舰、导弹在内的杀伤性武器出口，日本各方表达反对意见。
+据一项备受市场关注的汽车行业指标显示，受供应持续偏紧影响，二手车价格继续走高。
 
-日本《东京新闻》22日发表社论文章指出，这是日本安全保障政策的重大转变，是损害和平主义的轻率之举。
+考克斯汽车旗下的曼海姆二手车价值指数（追踪美国二手车批发拍卖价格）周二公布，该指数上月同比上涨 6.2%，同时创下 2023 年夏季以来的最高水平。
 
-此次政府允许杀伤性武器出口，是在没有经过国会充分审议、也缺乏全民讨论的情况下的举动，无疑是对和平主义理念的轻视，令人深感忧虑。
+曼海姆拍卖数据显示，尽管地缘政治紧张、油价高企以及伊朗战争持续，二手车需求依然坚挺。
 
-日本共产党委员长田村智子21日发表声明，对日本政府全面解禁武器出口表示强烈抗议。
+考克斯汽车首席经济学家杰里米・罗布在公告中表示：“我们原本预计中东冲突会带来一些影响，这种情况未来仍有可能出现。
 
-声明指出，高市政权强行通过对“防卫装备转移三原则”及其运用指南的修改，意味着抛弃宪法第九条。
+但目前数据十分明确：二手车需求表现稳健，库存水平相对紧张。
 
-同一天，日本社会民主党党首福岛瑞穗在参议院外交防卫委员会上提出抗议。
+” 考克斯报告称，3 月份二手车库存周转天数（对经销商和消费者都极为关键的指标）已降至 40 天以下，为 2026 年最低水平，且低于去年同期。
 
-日本社会民主党党首 福岛瑞穗：对于国家方针作出重大转变，决定向海外出口具有杀伤能力武器的做法，我表示强烈抗议。
+消费者终端零售价通常会跟随批发价变动，但近年来零售价的回落速度一直慢于批发价。
+
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 14:54 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 14:54 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 14:47 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 14:40 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 14:39 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 15:04 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 15:00 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 14:55 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 14:54 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 14:37 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 14:52 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 14:53 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 14:43 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 15:05 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 14:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 14:54 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 14:53 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 15:09 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 14:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 15:01 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 15:07 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 14:52 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 14:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 14:57 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 15:10 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 14:57 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 14:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 15:11 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/5449390.shtml)
-- 2026-06-29 14:47 - [刘烨16岁儿子诺一颜值](https://www.blog.kurohicncr.top/Article/details/80355696158.shtml)
-- 2026-06-29 14:44 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/321998519.shtml)
-- 2026-06-29 14:38 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/166697592544.shtml)
-- 2026-06-29 14:36 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/61380.shtml)
-- 2026-06-29 14:42 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/757266678655.shtml)
-- 2026-06-29 14:41 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/392525660.shtml)
-- 2026-06-29 14:46 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/6827895060.shtml)
-- 2026-06-29 14:45 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/61426600.shtml)
-- 2026-06-29 14:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/5170551799.shtml)
-- 2026-06-29 14:38 - [国家体育总局政策法规司原副司长获刑](https://www.share.kurohicncr.top/Article/details/928576254298.shtml)
-- 2026-06-29 14:58 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/59799118793.shtml)
-- 2026-06-29 14:52 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/16252627708.shtml)
-- 2026-06-29 14:44 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/44292326814.shtml)
-- 2026-06-29 14:38 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/845022878.shtml)
+- 2026-06-29 15:07 - [5万块的威力](https://www.share.minike.top/Article/details/335088171.shtml)
+- 2026-06-29 14:47 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/311712431186.shtml)
+- 2026-06-29 14:45 - [流金岁月](https://www.blog.minike.top/Article/details/837804008128.shtml)
+- 2026-06-29 14:56 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/93606.shtml)
+- 2026-06-29 14:46 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/01773558149.shtml)
+- 2026-06-29 14:46 - [金牌调解](https://www.share.minike.top/Article/details/1018677657.shtml)
+- 2026-06-29 15:07 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/6590048640.shtml)
+- 2026-06-29 14:43 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/73239728.shtml)
+- 2026-06-29 15:03 - [新一代影后杨紫](http://www.share.minike.top/Article/details/13637292215.shtml)
+- 2026-06-29 15:11 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/179604897929.shtml)
+- 2026-06-29 15:11 - [李连杰回应网传不管前妻俩女儿](http://www.share.kurohicncr.top/Article/details/1644425860.shtml)
+- 2026-06-29 14:43 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/16108496.shtml)
+- 2026-06-29 15:09 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/15419.shtml)
+- 2026-06-29 15:03 - [灿如繁星定档](http://www.blog.minike.top/Article/details/692573.shtml)
+- 2026-06-29 14:44 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/75418.shtml)

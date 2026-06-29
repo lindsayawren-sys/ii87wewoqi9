@@ -1,46 +1,58 @@
-# 中孚实业2025年度归母净利润约16.17亿元 同比增129.83%
+# 四招稳住“存款搬家”压力，招行2025年业绩重回正增长轨道
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-4月21日晚间，中孚实业（600595.SH）发布年度业绩报告。2025年该公司营业收入约230.68亿元，同比增加1.35%；归属于上市公司股东的净利润约16.17亿元，同比增加129.83%；基本每股收益0.4元，同比增加122.22%。（央广财经）（文章来源：央广财经）
+3月30日，招商银行召开2025年度业绩发布会。在银行业净息差持续收窄、存款定期化与 “存款搬家” 等多重压力下，该行营业收入重回正增长轨道。年报数据显示，2025年，招商银行实现营业收入3375.32亿元，同比微增0.01%；归母净利润1501.81亿元，同比增长1.21%。告别连续两年营收下滑态势，正式迎来营收利润双修复。值得注意的是，该行财富管理业务迎来强势反弹，多类代销
 
 ## 正文
 
-4月21日晚间，中孚实业（600595.SH）发布年度业绩报告。
+3月30日，招商银行召开2025年度业绩发布会。
 
-2025年该公司营业收入约230.68亿元，同比增加1.35%；归属于上市公司股东的净利润约16.17亿元，同比增加129.83%；基本每股收益0.4元，同比增加122.22%。
+在银行业净息差持续收窄、存款定期化与 “存款搬家” 等多重压力下，该行营业收入重回正增长轨道。
 
-（央广财经）（文章来源：央广财经）
+年报数据显示，2025年，招商银行实现营业收入3375.32亿元，同比微增0.01%；归母净利润1501.81亿元，同比增长1.21%。
+
+告别连续两年营收下滑态势，正式迎来营收利润双修复。
+
+值得注意的是，该行财富管理业务迎来强势反弹，多类代销业务表现良好，带动净手续费及佣金收入三年来首次转正；零售AUM也突破17万亿元，当年新增超2万亿元，创出历史新高。
+
+面对市场高度关注的“存款搬家”问题，招商银行副行长、财务负责人兼董事会秘书彭家文在该行2025年业绩发布会上表示：存款流失不等于客户流失、不等于资金流失。
+
+“从招行定期存款到期的量来看，2025年比上年及过往年度的确要略多一点，但不是异常数据，仍在正常范围之内。
+
+”代销业务实现两位数增长“招行近几年营收的增长确实面临很大压力，零售银行业务作为该行的优势，外部政策、市场的变化冲击受影响较大，所以招行一直在通过其他业务板块来弥补缺口，促使营收实现正增长。
 
 ## 相关推荐
 
-- 2026-06-29 14:40 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 14:36 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 14:56 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 14:57 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 14:45 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 14:40 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 14:44 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 14:47 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 15:04 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 15:01 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 14:46 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 15:03 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 14:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 14:47 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 15:10 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 15:10 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 14:50 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 14:42 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 14:47 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 14:44 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 14:52 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 14:55 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:49 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/4401629.shtml)
-- 2026-06-29 14:54 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/354520064550.shtml)
-- 2026-06-29 15:00 - [请回答王牌2019](https://www.blog.minike.top/Article/details/6648323.shtml)
-- 2026-06-29 15:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/82722062.shtml)
-- 2026-06-29 15:05 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/5621586.shtml)
-- 2026-06-29 14:51 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/23434199759.shtml)
-- 2026-06-29 15:05 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/716430451.shtml)
-- 2026-06-29 14:38 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/99532.shtml)
-- 2026-06-29 14:55 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/70861266.shtml)
-- 2026-06-29 15:01 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/903036252698.shtml)
-- 2026-06-29 14:39 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/133393.shtml)
-- 2026-06-29 14:40 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/265559.shtml)
-- 2026-06-29 14:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/144142254355.shtml)
-- 2026-06-29 14:38 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/75473.shtml)
-- 2026-06-29 14:53 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.kurohicncr.top/Article/details/926453.shtml)
+- 2026-06-29 14:46 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/9107753.shtml)
+- 2026-06-29 14:43 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/52532.shtml)
+- 2026-06-29 15:08 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/5817294717.shtml)
+- 2026-06-29 14:43 - [上班主打一个薪尽自然凉](https://www.blog.minike.top/Article/details/7531443.shtml)
+- 2026-06-29 14:46 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/198440.shtml)
+- 2026-06-29 14:48 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/28314.shtml)
+- 2026-06-29 14:54 - [俄称继续推进 乌称打击俄军设施](http://www.blog.minike.top/Article/details/85625.shtml)
+- 2026-06-29 14:45 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/73136.shtml)
+- 2026-06-29 15:05 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/513317501.shtml)
+- 2026-06-29 15:00 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/012622370816.shtml)
+- 2026-06-29 15:03 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/006980888.shtml)
+- 2026-06-29 14:47 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/96004715191.shtml)
+- 2026-06-29 15:11 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/22749024.shtml)
+- 2026-06-29 15:05 - [民进党为什么拼命抹黑统战](http://www.blog.minike.top/Article/details/7560423.shtml)
+- 2026-06-29 15:01 - [南非老帅布罗斯的梦没能做完](http://www.share.kurohicncr.top/Article/details/6161782.shtml)

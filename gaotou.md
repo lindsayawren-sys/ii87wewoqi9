@@ -1,58 +1,58 @@
-# 贝森特：美国的海湾和亚洲盟友已提出外汇互换安排请求
+# 19家公募披露去年罚单：合规内控成“重灾区”，华安嘉实等多家被暂停产品注册
 
-> 更新时间：2026-06-29 15:06:03 UTC+8
+> 更新时间：2026-06-29 15:12:02 UTC+8
 
 ## 摘要
 
-美国财政部长贝森特周三表示，许多波斯湾盟友以及一些亚洲国家已请求与美国进行货币互换，并指出这类安排可支持海外以美元计价的贷款。 贝森特在参议院拨款委员会一个小组委员会答问时表示：“我们的许多海湾盟友已请求进行外汇互换安排。”此前一天，美国总统特朗普证实，在考虑与阿联酋建立互换安排。“其他许多国家也提出了请求，其中包括我们的一些亚洲盟友。” 外汇互换传统上在央行之间设立。美联储目
+登录新浪财经APP 搜索【信披】查看更多考评等级 19家公募披露去年罚单：合规内控成“重灾区”，多家被暂停产品注册 伴随着公募产品2025年报的集中披露，过去一年基金公司受到监管处罚的情况曝光。 据澎湃新闻记者不完全统计，2025年全年，至少有19家公募收到来自监管部门出具的警示函、责令改正通知书等行政监管措施，部分公募还面临暂停产品注册或业务申请的处罚。从处罚原因来看，内控管
 
 ## 正文
 
-美国财政部长贝森特周三表示，许多波斯湾盟友以及一些亚洲国家已请求与美国进行货币互换，并指出这类安排可支持海外以美元计价的贷款。
+登录新浪财经APP 搜索【信披】查看更多考评等级 19家公募披露去年罚单：合规内控成“重灾区”，多家被暂停产品注册 伴随着公募产品2025年报的集中披露，过去一年基金公司受到监管处罚的情况曝光。
 
-贝森特在参议院拨款委员会一个小组委员会答问时表示：“我们的许多海湾盟友已请求进行外汇互换安排。
+据澎湃新闻记者不完全统计，2025年全年，至少有19家公募收到来自监管部门出具的警示函、责令改正通知书等行政监管措施，部分公募还面临暂停产品注册或业务申请的处罚。
 
-”此前一天，美国总统特朗普证实，在考虑与阿联酋建立互换安排。
+从处罚原因来看，内控管理不完善、合规内控缺陷、投资运作违规、公司治理及人员管理问题成为被监管点名的集中领域。
 
-“其他许多国家也提出了请求，其中包括我们的一些亚洲盟友。
+多家头部机构在列 在已披露的信息中，多家头部公募基金公司在列。
 
-” 外汇互换传统上在央行之间设立。
+2025年11月5日，易方达基金因投资运作、合规内控、其他问题（销售管理），被广东证监局出具警示函。
 
-美联储目前与欧洲央行、日本央行及其他几家央行维持常设互换安排。
+公司已及时通过完善制度、优化流程和系统功能等措施完成整改，整改成果已经监管部门验收通过。
 
-贝森特去年则首创利用一项财政部基金，向阿根廷提供美元互换，帮助该国支撑本币。
+据华夏基金旗下产品年报，2025年11月4日，华夏基金因人员管理、其他问题（内部控制、销售管理等），被北京证监局出具警示函。
 
-贝森特表示：“无论是由美联储还是财政部提供，货币互换都是为了维持美元融资市场秩序，并防止美国资产遭到无序抛售。
+同年12月26日，公司一位高级管理人员也因上述问题被出具警示函。
 
 ## 相关推荐
 
-- 2026-06-29 14:48 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 14:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 15:05 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 14:50 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 14:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-29 15:05 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 14:41 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 14:48 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 15:03 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 14:46 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 14:43 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 14:55 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 14:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 15:04 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 14:55 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 14:59 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 14:42 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 14:45 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 15:00 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 14:50 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 14:46 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 15:03 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 15:11 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 14:44 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:03 - [乔家的儿女](https://www.blog.minike.top/Article/details/1307325449.shtml)
-- 2026-06-29 14:42 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/925885748162.shtml)
-- 2026-06-29 15:04 - [美国近12万名科技员工被解雇](https://www.blog.kurohicncr.top/Article/details/172658649981.shtml)
-- 2026-06-29 15:00 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/1673630907.shtml)
-- 2026-06-29 14:59 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/139676773341.shtml)
-- 2026-06-29 14:41 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/29158433.shtml)
-- 2026-06-29 14:44 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/00008579.shtml)
-- 2026-06-29 14:40 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/608188171309.shtml)
-- 2026-06-29 14:48 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/2305621.shtml)
-- 2026-06-29 15:04 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/24915508164.shtml)
-- 2026-06-29 14:50 - [勇敢的心第二部](http://www.share.minike.top/Article/details/39145.shtml)
-- 2026-06-29 14:52 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/5321068.shtml)
-- 2026-06-29 14:47 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/118039924.shtml)
-- 2026-06-29 14:55 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/574361.shtml)
-- 2026-06-29 15:02 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.minike.top/Article/details/37474025.shtml)
+- 2026-06-29 14:43 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/94415380.shtml)
+- 2026-06-29 14:42 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/25518.shtml)
+- 2026-06-29 15:08 - [天道](http://www.blog.kurohicncr.top/Article/details/57393872.shtml)
+- 2026-06-29 15:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/768932637985.shtml)
+- 2026-06-29 14:42 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/74625285442.shtml)
+- 2026-06-29 15:06 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/3936811.shtml)
+- 2026-06-29 15:06 - [林昀儒不敌17岁小将止步首轮](https://www.share.minike.top/Article/details/784158.shtml)
+- 2026-06-29 14:51 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.kurohicncr.top/Article/details/347595063.shtml)
+- 2026-06-29 14:56 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/864999198.shtml)
+- 2026-06-29 15:00 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/531196.shtml)
+- 2026-06-29 15:09 - [网约车司机转账1.5万后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/443354.shtml)
+- 2026-06-29 14:56 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/1569003634.shtml)
+- 2026-06-29 14:52 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/1336506.shtml)
+- 2026-06-29 14:59 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/538396869.shtml)
+- 2026-06-29 15:06 - [国家体育总局政策法规司原副司长获刑](http://www.share.minike.top/Article/details/661853368.shtml)
