@@ -1,52 +1,60 @@
-# 市场监管总局开展“迎端午 享食安”抽检活动
+# T12 Engineering为挪威油气项目交付海底结构
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据“市说新语”微信公众号消息，端午佳节临近，为筑牢节日食品安全防线，保障端午节期间饮食安全，市场监管总局组织各地开展以“迎端午 享食安”为主题的“你点我检”活动，深入排查节日期间食品安全风险隐患，全力守护百姓“舌尖上的安全”。本次“你点我检”活动广泛征集消费者的抽检需求，累计发布调查问卷171次，20.9万人次参与食品点选，收集民意信息475.4万条。各地监
+能源和工业领域提供工程与技术解决方案提供商T12 Engineering公司已完成一个重达60吨的重力式海底结构的组装和发运工作，该结构将安装在挪威海上。 该结构专为一家独立的挪威油气运营商设计，已从伊明汉姆港启运，并将安装在挪威海，用于支持关键的海底设备。 该项目根据工程设计、采购和施工（EPC）合同交付，由 T12 Engineering 管理。该公司最近通过在奥斯陆设立办
 
 ## 正文
 
-中新网6月18日电 据“市说新语”微信公众号消息，端午佳节临近，为筑牢节日食品安全防线，保障端午节期间饮食安全，市场监管总局组织各地开展以“迎端午 享食安”为主题的“你点我检”活动，深入排查节日期间食品安全风险隐患，全力守护百姓“舌尖上的安全”。
+能源和工业领域提供工程与技术解决方案提供商T12 Engineering公司已完成一个重达60吨的重力式海底结构的组装和发运工作，该结构将安装在挪威海上。
 
-本次“你点我检”活动广泛征集消费者的抽检需求，累计发布调查问卷171次，20.9万人次参与食品点选，收集民意信息475.4万条。
+该结构专为一家独立的挪威油气运营商设计，已从伊明汉姆港启运，并将安装在挪威海，用于支持关键的海底设备。
 
-各地监管部门围绕消费者关注度高、消费量大的端午节令食品，累计抽检粽子、糯米、咸鸭蛋等食品4.6万余批次，严防不合格食品流入市场。
+该项目根据工程设计、采购和施工（EPC）合同交付，由 T12 Engineering 管理。
 
-市场监管部门将持续压实食品生产经营企业主体责任，加强食品安全日常监督检查，严惩重处食品安全违法违规行为，切实保障人民群众饮食安全。
+该公司最近通过在奥斯陆设立办事处，扩大了在挪威的业务。
+
+该重力式结构占地59平方米，其设计满足技术、运营和商业要求，同时确保在恶劣的海上环境中具有长期可靠性。
+
+该结构最初设计为模块化系统，可通过标准集装箱运输，并可在未来适应多种海底应用场景进行重复使用。
+
+在发运前，该结构已在码头边完成总装。
+
+T12 表示，在整个概念设计、详细设计和制造阶段，公司与其制造合作伙伴密切合作，以优化可制造性、材料效率和成本控制，同时满足海底部署要求。
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 00:55 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 01:15 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-30 01:13 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 01:15 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 01:14 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 01:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 01:04 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 00:57 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 01:10 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 00:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 01:01 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 01:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 00:57 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 01:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 01:00 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 01:15 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 01:21 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 01:26 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 01:16 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 01:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 01:13 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 01:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 01:24 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 01:25 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 01:28 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 01:01 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 01:09 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/35286841750.shtml)
-- 2026-06-30 00:55 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/50664.shtml)
-- 2026-06-30 01:14 - [周生如故](https://www.share.minike.top/Article/details/721003.shtml)
-- 2026-06-30 01:18 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/8253585149.shtml)
-- 2026-06-30 01:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/076998466.shtml)
-- 2026-06-30 01:03 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/2091139756.shtml)
-- 2026-06-30 01:06 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/8335564205.shtml)
-- 2026-06-30 01:09 - [急先锋](http://www.blog.minike.top/Article/details/7863939749.shtml)
-- 2026-06-30 01:09 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/210897732321.shtml)
-- 2026-06-30 01:09 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/68051.shtml)
-- 2026-06-30 00:57 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/425532092712.shtml)
-- 2026-06-30 01:09 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/764878564642.shtml)
-- 2026-06-30 01:19 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/461486947224.shtml)
-- 2026-06-30 01:10 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/27159621376.shtml)
-- 2026-06-30 00:54 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/14149.shtml)
+- 2026-06-30 01:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/074421421588.shtml)
+- 2026-06-30 01:11 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/430493038.shtml)
+- 2026-06-30 01:11 - [沉睡花园](https://www.share.minike.top/Article/details/79169.shtml)
+- 2026-06-30 01:07 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/62295786.shtml)
+- 2026-06-30 01:13 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/6722786454.shtml)
+- 2026-06-30 01:00 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/949458226.shtml)
+- 2026-06-30 01:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/568622331.shtml)
+- 2026-06-30 01:19 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/658894.shtml)
+- 2026-06-30 01:01 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/350711179.shtml)
+- 2026-06-30 01:28 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/60068545277.shtml)
+- 2026-06-30 01:02 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/7223913677.shtml)
+- 2026-06-30 01:00 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/11989406582.shtml)
+- 2026-06-30 01:04 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/060379.shtml)
+- 2026-06-30 01:23 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/0027031720.shtml)
+- 2026-06-30 01:28 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/80844.shtml)

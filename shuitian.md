@@ -1,58 +1,60 @@
-# 最新修订！上交所：新增量子、机器人、氢能、脑机接口......
+# 告别开户“躺平”！储蓄国债纳入个人养老金产品池，利率高于定存，多家银行开放预约通道
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，为落实国家“十五五”规划纲要，服务国家培育壮大新兴产业和未来产业战略部署，上交所修订发布《上海证券交易所科创板企业发行上市申报及推荐暂行规定（征求意见稿）》（下称《暂行规定》）。上交所同步就《暂行规定》向社会公开征求意见，意见反馈截止时间为2026年7月2日。 记者了解到，去年以来，多家量子科技
+来源：中国基金报 记者：马嘉昕 李树超 步入6月，一场事关个人养老金“产品池”的变革如期来临。近日，工商银行、建设银行、邮储银行、浦发银行等多家银行在手机银行App的个人养老金专区上线储蓄国债（电子式）线上申购功能。同时，虽然储蓄国债尚未发行，但部分银行已开通预约提醒功能。 这意味着，储蓄国债纳入个人养老金“产品池”已全面步入实操落地阶段。据悉，2025年11月，财政部、央行曾
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：中国基金报 记者：马嘉昕 李树超 步入6月，一场事关个人养老金“产品池”的变革如期来临。
 
-6月17日，为落实国家“十五五”规划纲要，服务国家培育壮大新兴产业和未来产业战略部署，上交所修订发布《上海证券交易所科创板企业发行上市申报及推荐暂行规定（征求意见稿）》（下称《暂行规定》）。
+近日，工商银行、建设银行、邮储银行、浦发银行等多家银行在手机银行App的个人养老金专区上线储蓄国债（电子式）线上申购功能。
 
-上交所同步就《暂行规定》向社会公开征求意见，意见反馈截止时间为2026年7月2日。
+同时，虽然储蓄国债尚未发行，但部分银行已开通预约提醒功能。
 
-记者了解到，去年以来，多家量子科技、生物制造、脑机接口等领域的企业有在科创板上市的意愿。
+这意味着，储蓄国债纳入个人养老金“产品池”已全面步入实操落地阶段。
 
-为更好地支持符合条件的量子科技、生物制造、氢能和核聚变能、脑机接口、具身智能及第六代移动通信（6G）等更多领域“硬科技”企业在科创板上市，进一步提升科创板的包容性和适应性，支持前沿科技创新和新质生产力发展，上交所修订《暂行规定》，调整更新科创板重点支持的具体行业范围。
+据悉，2025年11月，财政部、央行曾联合发布了《关于储蓄国债（电子式）纳入个人养老金产品范围有关事宜的通知》，要求开办机构应自2026年6月起，为养老金投资者提供相关购买服务。
 
-据悉，本次《暂行规定》修订主要调整更新第五条规定的战略性新兴产业领域二级行业。
+在业内看来，储蓄国债的入局，不仅打破了个人养老金原有四类产品格局，补齐了养老第三支柱风险收益谱系的最后一块拼图，丰富了产品体系，更标志着我国个人养老金行业从规模普及的“开户时代”，正式迈入提质增效的“深耕运营时代”。
 
-其中，新一代信息技术领域，新增“量子”；高端装备领域，新增“机器人”，并调整“海洋工程装备”为“海洋装备”；新能源领域，新增“氢能”；生物医药领域，新增“脑机接口、生物药品、基因工程药物和疫苗、生物医学工程”等。
+同时，储蓄国债投资也有望破解个人养老金账户长期存在的“开户热、缴存冷”痛点问题。
 
-“需要注意的是，科技企业既蕴含发展动能，也面临较大的不确定性风险，其发展是一个不断探索、逐步前行的过程。
+多家银行App上线储蓄国债的线上申购功能 记者注意到，近日，包括工商银行、建设银行、邮储银行、浦发银行，以及兴业银行等多家银行完成了手机银行App系统改造，在个人养老金专区中增设了“储蓄国债”的购买入口。
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 01:03 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 01:10 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 01:07 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 01:00 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 01:06 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 01:08 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 01:09 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-30 01:05 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 01:15 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 00:54 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 01:04 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 01:27 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 01:29 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 01:13 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 01:26 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 01:21 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 01:18 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 01:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 01:00 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 01:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 01:06 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 01:11 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 01:22 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 01:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 01:16 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:10 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/162687.shtml)
-- 2026-06-30 01:03 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/500736.shtml)
-- 2026-06-30 01:08 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/254835410319.shtml)
-- 2026-06-30 01:21 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/0816662334.shtml)
-- 2026-06-30 01:01 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/2044929987.shtml)
-- 2026-06-30 01:16 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/9409199.shtml)
-- 2026-06-30 01:08 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/806395246034.shtml)
-- 2026-06-30 00:58 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/259189796279.shtml)
-- 2026-06-30 01:03 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/1007453.shtml)
-- 2026-06-30 00:58 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/48913702419.shtml)
-- 2026-06-30 00:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/01151.shtml)
-- 2026-06-30 01:02 - [恋与深空致歉](https://www.share.minike.top/Article/details/59282.shtml)
-- 2026-06-30 01:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/2868557540.shtml)
-- 2026-06-30 01:19 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/279128120.shtml)
-- 2026-06-30 01:23 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/092701.shtml)
+- 2026-06-30 01:03 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/416059829.shtml)
+- 2026-06-30 01:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/383521623769.shtml)
+- 2026-06-30 01:04 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/3435067432.shtml)
+- 2026-06-30 01:08 - [明星大侦探第四季](https://www.share.minike.top/Article/details/342201576.shtml)
+- 2026-06-30 01:29 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/09970.shtml)
+- 2026-06-30 01:16 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/9249934488.shtml)
+- 2026-06-30 01:04 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/462482328.shtml)
+- 2026-06-30 01:01 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/411244047360.shtml)
+- 2026-06-30 01:14 - [女心理师](http://www.blog.kurohicncr.top/Article/details/111832207.shtml)
+- 2026-06-30 01:03 - [周生如故](https://www.share.kurohicncr.top/Article/details/99219870.shtml)
+- 2026-06-30 01:21 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/670991156117.shtml)
+- 2026-06-30 01:03 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/575337570012.shtml)
+- 2026-06-30 01:25 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/05251583826.shtml)
+- 2026-06-30 01:07 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/42665616.shtml)
+- 2026-06-30 01:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/100489.shtml)

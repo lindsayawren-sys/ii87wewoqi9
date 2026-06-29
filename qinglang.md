@@ -1,52 +1,56 @@
-# 工行行长刘珺：现代经济是一种交互经济、参与经济、融合经济
+# 强势回血！科创芯片ETF华宝（589190）涨近3%，黄仁勋：SK海力士到2030年将晶圆产能翻倍的计划还不够
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 边万莉 6月17日-18日，陆家嘴论坛在上海召开。在“全体大会五：健全科技金融全生命周期服务体系，服务实体经济高质量发展”上，中国工商银行行长刘珺表示，“现代的经济不是简简单单的产品经济，也不是简简单单的注意力经济。注意力经济可能是数字经济时代的序章，但现代经济更准确地说，是一种交互经济、参与经
+6月9日，芯片产业强势回血，全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格现涨2.84%。中微公司涨超4%，佰维存储、澜起科技涨超3%，海光信息涨超2%，寒武纪涨逾1%。受外围影响，此前两日板块回调，资金借道科创芯片ETF华宝（589190）增仓超4000万元。 消息面上，隔夜美股芯片股迎来技术性修复，费城半导体指数大涨5.61%，美光信息领涨9.9%，英伟达
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 边万莉 6月17日-18日，陆家嘴论坛在上海召开。
+6月9日，芯片产业强势回血，全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格现涨2.84%。
 
-在“全体大会五：健全科技金融全生命周期服务体系，服务实体经济高质量发展”上，中国工商银行行长刘珺表示，“现代的经济不是简简单单的产品经济，也不是简简单单的注意力经济。
+中微公司涨超4%，佰维存储、澜起科技涨超3%，海光信息涨超2%，寒武纪涨逾1%。
 
-注意力经济可能是数字经济时代的序章，但现代经济更准确地说，是一种交互经济、参与经济、融合经济。
+受外围影响，此前两日板块回调，资金借道科创芯片ETF华宝（589190）增仓超4000万元。
 
-” 他表示，吸引注意力只是前置环节，关键是要实现交互和融合，让客户成为金融活动的有机组成部分，从而为客户提供更加适配的服务，形成价值创造的共同体。
+消息面上，隔夜美股芯片股迎来技术性修复，费城半导体指数大涨5.61%，美光信息领涨9.9%，英伟达、博通等芯片龙头同步走高。
 
-客户在金融消费的过程中，也是新的金融创新的生产者。
+英伟达CEO黄仁勋表示，SK海力士到2030年将晶圆产能翻倍的计划还不够。
 
-银行是通过客户的反馈进一步优化调整银行产品，使得客户本身参与了创新金融产品的生产，这是特别重要的新经济的概念。
+SK集团会长崔泰源6月2日曾称，SK海力士计划五年内将晶圆产能翻番。
+
+他表示，存储芯片产能瓶颈问题可能会持续到2030年。
+
+就在前一日，英伟达和SK海力士宣布达成一项多年技术合作协议，将共同开发用于英伟达Vera Rubin人工智能超级计算机、英伟达Vera CPU等计算平台的内存，并将AI技术应用于半导体芯片设计与制造。
 
 ## 相关推荐
 
-- 2026-06-30 01:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 01:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 01:04 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 01:13 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 00:57 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 01:19 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 01:18 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 00:55 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 01:07 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 00:57 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 01:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 01:05 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 01:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 01:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 01:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 01:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 01:07 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 01:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 01:09 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 01:13 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/995360829.shtml)
-- 2026-06-30 01:16 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/5232242.shtml)
-- 2026-06-30 01:19 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/556694571.shtml)
-- 2026-06-30 01:04 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/3645204.shtml)
-- 2026-06-30 00:54 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/037853667.shtml)
-- 2026-06-30 01:09 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/88855.shtml)
-- 2026-06-30 01:03 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/3203267.shtml)
-- 2026-06-30 01:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/2151617.shtml)
-- 2026-06-30 01:05 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/980927.shtml)
-- 2026-06-30 00:58 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/53072914.shtml)
-- 2026-06-30 00:57 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/798580010.shtml)
-- 2026-06-30 00:56 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/48088210.shtml)
-- 2026-06-30 01:10 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/35841461132.shtml)
-- 2026-06-30 01:05 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/952436689.shtml)
-- 2026-06-30 01:22 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/000066952243.shtml)
+- 2026-06-30 01:02 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/80485.shtml)
+- 2026-06-30 01:07 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/6414506923.shtml)
+- 2026-06-30 01:12 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/576139.shtml)
+- 2026-06-30 01:01 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/39312621.shtml)
+- 2026-06-30 01:14 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/63089574897.shtml)
+- 2026-06-30 01:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/777636637369.shtml)
+- 2026-06-30 01:20 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/808253186.shtml)
+- 2026-06-30 01:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/572362967.shtml)
+- 2026-06-30 01:01 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/5404356.shtml)
+- 2026-06-30 01:22 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/1869599.shtml)
+- 2026-06-30 01:17 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/13250737.shtml)
+- 2026-06-30 01:14 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/274534246233.shtml)
+- 2026-06-30 01:25 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/80923106.shtml)
+- 2026-06-30 01:24 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/8988516476.shtml)
+- 2026-06-30 01:19 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/1587763.shtml)

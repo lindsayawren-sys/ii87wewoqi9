@@ -1,48 +1,60 @@
-# 江西省水利投资集团有限公司副总经理邹文明被“双开”
+# 大华继显：近期地产股回调创造买入机会 首选新鸿基地产及领展房产基金
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据江西省纪委监委消息：经中共江西省委批准，江西省纪委监委对江西省水利投资集团有限公司副总经理邹文明严重违纪违法问题进行了立案审查调查。 经查，邹文明丧失理想信念，背弃初心使命，无视中央八项规定精神，接受可能影响公正执行公务的宴请、娱乐和旅游等活动安排，违规收受礼品礼金，由他人支付应当由本人支付的费用，违规组织用公款支付的宴请；违反组织原则，不按规定报告个人有
+大华继显发布研报称，新的对外投资规定将抑制来自中国内地的投资需求，但不会影响在香港工作/生活的专业人才。住宅市场价格动能强劲。零售销售复苏支持租金回稳。该行维持香港地产行业“与大市同步”评级。重申预测住宅价格将上涨7%。将零售销售增长预测从2.5%上调至5%。近期地产股回调创造买入机会。首选新鸿基地产（00016）及领展房产基金（00823），目标价分别143.8港元及44.3
 
 ## 正文
 
-中新网6月18日电 据江西省纪委监委消息：经中共江西省委批准，江西省纪委监委对江西省水利投资集团有限公司副总经理邹文明严重违纪违法问题进行了立案审查调查。
+大华继显发布研报称，新的对外投资规定将抑制来自中国内地的投资需求，但不会影响在香港工作/生活的专业人才。
 
-经查，邹文明丧失理想信念，背弃初心使命，无视中央八项规定精神，接受可能影响公正执行公务的宴请、娱乐和旅游等活动安排，违规收受礼品礼金，由他人支付应当由本人支付的费用，违规组织用公款支付的宴请；违反组织原则，不按规定报告个人有关事项，在职工录用等工作中为他人谋取利益；廉洁底线失守，违规兼职取酬；违规干预和插手市场经济活动；将党和人民赋予的公权力异化为谋取私利的工具，利用职务便利为他人在项目收购、工程承揽等方面谋利，非法收受巨额财物；滥用职权，致使国家利益遭受特别重大损失。
+住宅市场价格动能强劲。
 
-邹文明严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律、生活纪律，构成严重职务违法并涉嫌受贿、国有公司人员滥用职权犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+零售销售复苏支持租金回稳。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等相关规定，经江西省纪委常委会会议研究并报中共江西省委批准，决定给予邹文明开除党籍处分；由江西省监委给予其开除公职处分；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+该行维持香港地产行业“与大市同步”评级。
+
+重申预测住宅价格将上涨7%。
+
+将零售销售增长预测从2.5%上调至5%。
+
+近期地产股回调创造买入机会。
+
+首选新鸿基地产（00016）及领展房产基金（00823），目标价分别143.8港元及44.3港元，均予“买入”评级。
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 01:11 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 01:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 01:20 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 00:58 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 01:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 00:54 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 01:01 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 01:07 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 01:20 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 01:26 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 01:26 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 01:25 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 01:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 01:25 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 01:29 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 01:24 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 01:10 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 01:16 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 01:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 01:28 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 01:17 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 01:10 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 01:09 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:57 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/48444.shtml)
-- 2026-06-30 01:19 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/81400.shtml)
-- 2026-06-30 00:55 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/22907430.shtml)
-- 2026-06-30 01:10 - [我们的少年时代2](http://www.share.minike.top/Article/details/673967825.shtml)
-- 2026-06-30 01:19 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/126514.shtml)
-- 2026-06-30 01:17 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/39533718.shtml)
-- 2026-06-30 01:19 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/7260157733.shtml)
-- 2026-06-30 01:03 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/555574777.shtml)
-- 2026-06-30 01:22 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/4749224269.shtml)
-- 2026-06-30 01:09 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/845174774850.shtml)
-- 2026-06-30 00:57 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/06078042.shtml)
-- 2026-06-30 01:16 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/7209173026.shtml)
-- 2026-06-30 01:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/73348.shtml)
-- 2026-06-30 00:56 - [沙丘](https://www.blog.minike.top/Article/details/195133817169.shtml)
-- 2026-06-30 00:56 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/8710688.shtml)
+- 2026-06-30 01:07 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/57430582.shtml)
+- 2026-06-30 01:18 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/0505712887.shtml)
+- 2026-06-30 01:19 - [巴西vs日本](http://www.share.minike.top/Article/details/9189450980.shtml)
+- 2026-06-30 01:13 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/312839778542.shtml)
+- 2026-06-30 01:14 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/59210261778.shtml)
+- 2026-06-30 01:23 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/4217092497.shtml)
+- 2026-06-30 01:08 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/2892466.shtml)
+- 2026-06-30 01:24 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/068210369.shtml)
+- 2026-06-30 01:02 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/80683.shtml)
+- 2026-06-30 01:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/17601952.shtml)
+- 2026-06-30 01:23 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/2072709427.shtml)
+- 2026-06-30 01:09 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/25037525833.shtml)
+- 2026-06-30 01:19 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/50838.shtml)
+- 2026-06-30 01:21 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/5453530251.shtml)
+- 2026-06-30 01:14 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/985005497888.shtml)

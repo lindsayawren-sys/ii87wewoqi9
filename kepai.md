@@ -1,45 +1,59 @@
-# 淋雨涉水后 及时科学处置可降低感染风险
+# 郑濬将出任大华银行中国行长兼首席执行官
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 09:38 来源：央视新闻 责任编辑：【王祎】
+大华银行（中国）有限公司（“大华银行中国”）及大华银行香港分行迎来管理层调整。 6月8日，总部位于新加坡的大华银行宣布，现任大华银行香港分行行政总裁郑濬将出任大华银行中国行长兼首席执行官，接替今年荣休的符懋赞。现任大华银行（韩国）区域主管董庆贤将接替郑濬，出任大华银行香港分行行政总裁。上述任命均于2026年7月1日起生效。 简历显示，郑濬拥有逾20年中国内地及香港的银行业经验。
 
 ## 正文
 
-发布时间：2026年06月18日 09:38 来源：央视新闻 责任编辑：【王祎】
+大华银行（中国）有限公司（“大华银行中国”）及大华银行香港分行迎来管理层调整。
+
+6月8日，总部位于新加坡的大华银行宣布，现任大华银行香港分行行政总裁郑濬将出任大华银行中国行长兼首席执行官，接替今年荣休的符懋赞。
+
+现任大华银行（韩国）区域主管董庆贤将接替郑濬，出任大华银行香港分行行政总裁。
+
+上述任命均于2026年7月1日起生效。
+
+简历显示，郑濬拥有逾20年中国内地及香港的银行业经验。
+
+她于2018年加入大华银行中国并担任批发银行部主管，负责管理企业银行、商业银行、金融机构、结构性贸易及商品融资、交易银行及投资银行等业务。
+
+2024年3月，她出任大华银行香港分行行政总裁。
+
+在加入大华银行之前，郑濬曾在一跨国银行先后担任批发银行及投资银行业务多个管理职务。
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 01:12 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 01:07 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 01:00 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 01:12 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 00:54 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 01:03 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 01:14 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 00:56 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 00:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 01:07 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 01:03 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 01:04 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 01:28 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 01:14 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 01:05 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 01:08 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 01:21 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 01:01 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 01:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 01:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 01:10 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 01:05 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 01:16 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 01:14 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 01:28 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:04 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/9479541.shtml)
-- 2026-06-30 01:22 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/60949.shtml)
-- 2026-06-30 01:20 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/49104862584.shtml)
-- 2026-06-30 01:12 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/18687515670.shtml)
-- 2026-06-30 01:23 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/49122152689.shtml)
-- 2026-06-30 00:55 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/391212.shtml)
-- 2026-06-30 01:08 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/553478053.shtml)
-- 2026-06-30 01:15 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/0167120357.shtml)
-- 2026-06-30 01:10 - [这一刀 会很帅](http://www.share.minike.top/Article/details/34768334088.shtml)
-- 2026-06-30 01:01 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/62649.shtml)
-- 2026-06-30 01:18 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/2269692117.shtml)
-- 2026-06-30 01:04 - [起风了](http://www.blog.kurohicncr.top/Article/details/96589963503.shtml)
-- 2026-06-30 00:56 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/2325795.shtml)
-- 2026-06-30 01:00 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/89900429.shtml)
-- 2026-06-30 01:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/404814037.shtml)
+- 2026-06-30 01:24 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/72395730015.shtml)
+- 2026-06-30 01:00 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/16673815.shtml)
+- 2026-06-30 01:28 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/2990023.shtml)
+- 2026-06-30 01:21 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/95685034.shtml)
+- 2026-06-30 01:14 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/522852.shtml)
+- 2026-06-30 01:09 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/668940552.shtml)
+- 2026-06-30 01:21 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/052432279.shtml)
+- 2026-06-30 01:02 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/853195926298.shtml)
+- 2026-06-30 01:17 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/8704005370.shtml)
+- 2026-06-30 01:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/377297256.shtml)
+- 2026-06-30 01:15 - [世界杯](https://www.blog.kurohicncr.top/Article/details/362713191.shtml)
+- 2026-06-30 01:12 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/35833.shtml)
+- 2026-06-30 01:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/22303198.shtml)
+- 2026-06-30 01:28 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/96411.shtml)
+- 2026-06-30 01:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/701977763908.shtml)

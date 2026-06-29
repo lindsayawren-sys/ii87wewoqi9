@@ -1,58 +1,59 @@
-# 受人工智能需求提振，BE半导体上调长期营收及盈利目标
+# SailPoint发布疲弱全年指引 股价重挫逾12%
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 人工智能相关数据中心、光子应用领域需求旺盛，叠加各类新兴应用场景落地，公司上调业绩预期 荷兰半导体封装设备厂商 BE 半导体（BESI）位于杜伊文总部砖墙上的企业标识 BE 半导体（股票代码：BESI，当日股价上涨 0.26%）表示，自 2025 年第二季度以来，整体市场环境与订单增长势头大幅回暖。 受益于人工智能相关产品需求持续攀升，荷兰
+身份安全软件公司SailPoint周二盘前股价大跌超过12%，尽管公司公布的第一季度财报超出市场预期，但其对全年的业绩指引未能令投资者满意。 SailPoint公布的第一季度财报显示，调整后每股收益为8美分，高于FactSet分析师普遍预期的7美分。营收达到2.947亿美元，同样超出市场预期的2.9亿美元。公司年度经常性收入同比增长30%至9.25亿美元，其中SaaS ARR增
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 人工智能相关数据中心、光子应用领域需求旺盛，叠加各类新兴应用场景落地，公司上调业绩预期 荷兰半导体封装设备厂商 BE 半导体（BESI）位于杜伊文总部砖墙上的企业标识 BE 半导体（股票代码：BESI，当日股价上涨 0.26%）表示，自 2025 年第二季度以来，整体市场环境与订单增长势头大幅回暖。
+身份安全软件公司SailPoint周二盘前股价大跌超过12%，尽管公司公布的第一季度财报超出市场预期，但其对全年的业绩指引未能令投资者满意。
 
-受益于人工智能相关产品需求持续攀升，荷兰芯片封装设备供应商 BE 半导体（简称 Besi）于周四上调了公司长期营收与盈利目标。
+SailPoint公布的第一季度财报显示，调整后每股收益为8美分，高于FactSet分析师普遍预期的7美分。
 
-公司最新长期总营收目标区间上调至 17 亿 —22 亿欧元（折合 19.6 亿 —25.3 亿美元），此前原定目标为 15 亿 —19 亿欧元。
+营收达到2.947亿美元，同样超出市场预期的2.9亿美元。
 
-Besi 2025 年全年实现营业收入 5.913 亿欧元。
+公司年度经常性收入同比增长30%至9.25亿美元，其中SaaS ARR增长39%至5.74亿美元。
 
-同时公司上调长期营业利润率目标：新目标区间为 45%—55%，此前目标区间为 40%—55%。
+此外，年度贡献收入超过100万美元的客户数量同比增长62%。
 
-公司总裁兼首席执行官理查德・W・布利克曼表示：“自 2025 年第二季度以来，整体市场环境显著改善，订单增长势头强劲。
+然而，引发市场抛售的主要原因在于公司发布的全年业绩指引未达预期。
 
-” 布利克曼称，人工智能驱动下的数据中心、光子技术相关应用需求高涨，再加上各类新兴落地应用场景，大幅改善了公司的经营前景预期。
+SailPoint预计截至明年一月的全年调整后每股收益为30至34美分，而FactSet分析师的普遍预期为32美分。
 
-责任编辑：郭明煜
+公司预计全年营收为12.65亿至12.75亿美元，处于市场预期的12.7亿美元下限区间。
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 01:19 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 01:02 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 01:16 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 01:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 01:04 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 01:16 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 01:00 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 01:00 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 01:21 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 01:09 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 01:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 01:02 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 01:27 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 01:17 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 01:20 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 01:09 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 01:14 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 01:23 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 01:16 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 01:12 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 01:13 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 01:08 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 01:03 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 01:25 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/4020909.shtml)
-- 2026-06-30 01:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/30725222.shtml)
-- 2026-06-30 01:10 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/24971862589.shtml)
-- 2026-06-30 01:10 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/289370954.shtml)
-- 2026-06-30 00:54 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/817757.shtml)
-- 2026-06-30 01:14 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/73580892.shtml)
-- 2026-06-30 01:05 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/2011251.shtml)
-- 2026-06-30 00:56 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/280708318.shtml)
-- 2026-06-30 00:57 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/4716431728.shtml)
-- 2026-06-30 01:03 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/67196219945.shtml)
-- 2026-06-30 01:07 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/79452194645.shtml)
-- 2026-06-30 00:54 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/65126512727.shtml)
-- 2026-06-30 01:08 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/45050906.shtml)
-- 2026-06-30 01:21 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/42139.shtml)
-- 2026-06-30 01:22 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/126666897.shtml)
+- 2026-06-30 01:29 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/5534297093.shtml)
+- 2026-06-30 01:02 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/4710933778.shtml)
+- 2026-06-30 01:19 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/51177.shtml)
+- 2026-06-30 01:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/69467862.shtml)
+- 2026-06-30 01:16 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/58773085.shtml)
+- 2026-06-30 01:20 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/654801978.shtml)
+- 2026-06-30 01:23 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/59322906.shtml)
+- 2026-06-30 01:22 - [金牌调解](https://www.share.kurohicncr.top/Article/details/40090840160.shtml)
+- 2026-06-30 01:19 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/765809.shtml)
+- 2026-06-30 01:16 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/4910784.shtml)
+- 2026-06-30 01:02 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/012705373605.shtml)
+- 2026-06-30 01:22 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/89137.shtml)
+- 2026-06-30 01:24 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/89112.shtml)
+- 2026-06-30 01:10 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/225311078.shtml)
+- 2026-06-30 01:18 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/23528.shtml)

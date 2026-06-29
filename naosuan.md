@@ -1,59 +1,55 @@
-# 金融监管总局：注册在浦东新区的商业银行或者注册在浦东新区的商业银行分支机构可承销自贸离岸债
+# 海底珊瑚监测、废弃渔网回收 珠澳携手保护海洋生态
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-6月17日金融一线消息，国家金融监督管理总局办公厅发布关于商业银行开展浦东新区自贸离岸债业务有关事项的通知。通知提到，注册在浦东新区的商业银行或者注册在浦东新区的商业银行分支机构可承销自贸离岸债。商业银行应当严格遵守债券承销业务风险管理的相关规定。由分支机构开展业务的，应当事先获得总行书面授权，确定内设部门和分支机构的责任和决策机制，明确承销业务范围、权限边界、风险限额、责任追
+6月8日是世界海洋日。这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。 在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。 此外，当地还开展了为期两
 
 ## 正文
 
-6月17日金融一线消息，国家金融监督管理总局办公厅发布关于商业银行开展浦东新区自贸离岸债业务有关事项的通知。
+6月8日是世界海洋日。
 
-通知提到，注册在浦东新区的商业银行或者注册在浦东新区的商业银行分支机构可承销自贸离岸债。
+这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。
 
-商业银行应当严格遵守债券承销业务风险管理的相关规定。
+在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。
 
-由分支机构开展业务的，应当事先获得总行书面授权，确定内设部门和分支机构的责任和决策机制，明确承销业务范围、权限边界、风险限额、责任追究等内容。
+巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。
 
-未经授权分支机构不得开展承销业务。
+此外，当地还开展了为期两天的“海洋小卫士”亲子研学营，许多亲子家庭参与了海洋科普课堂、潜水知识分享、贝壳归海等研学活动，在沉浸式体验中学习珊瑚保护、海洋垃圾治理和生物多样性保护。
 
-商业银行可与境外合格承销商合作，共同为发行人提供承销服务。
-
-责任编辑：王馨茹
+未来，当地还将持续开展珊瑚监测、海底保育、海滩清洁和跨境海洋科普研学等公益行动，推动粤港澳大湾区海洋生态保护和生态文明建设不断深化。
 
 ## 相关推荐
 
-- 2026-06-30 01:19 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 00:56 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 01:02 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 01:22 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 01:04 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 01:19 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 01:15 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 01:18 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 01:09 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 01:19 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 01:02 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-30 01:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 00:54 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 00:55 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 01:19 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 01:06 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 01:15 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 01:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 01:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 01:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 01:16 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 01:27 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 01:29 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 01:04 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 01:04 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 01:29 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 01:16 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 01:08 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/768885920960.shtml)
-- 2026-06-30 01:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/102183.shtml)
-- 2026-06-30 01:16 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/408928.shtml)
-- 2026-06-30 00:56 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/74740168.shtml)
-- 2026-06-30 00:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/14210.shtml)
-- 2026-06-30 00:58 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/883941090.shtml)
-- 2026-06-30 01:01 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/3536703.shtml)
-- 2026-06-30 01:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/16445260.shtml)
-- 2026-06-30 01:20 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/309548.shtml)
-- 2026-06-30 01:06 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/4685114078.shtml)
-- 2026-06-30 01:15 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/21838.shtml)
-- 2026-06-30 01:08 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/6321575150.shtml)
-- 2026-06-30 01:01 - [勇敢的心第二部](http://www.share.minike.top/Article/details/27583.shtml)
-- 2026-06-30 01:17 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/4148665324.shtml)
-- 2026-06-30 01:18 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/93018938.shtml)
+- 2026-06-30 01:24 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/1893447.shtml)
+- 2026-06-30 01:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/197935104683.shtml)
+- 2026-06-30 01:15 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/7071020823.shtml)
+- 2026-06-30 01:10 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/172923.shtml)
+- 2026-06-30 01:24 - [急先锋](http://www.blog.kurohicncr.top/Article/details/037223453.shtml)
+- 2026-06-30 01:03 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/5175943900.shtml)
+- 2026-06-30 01:05 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/77654.shtml)
+- 2026-06-30 01:27 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/84972.shtml)
+- 2026-06-30 01:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/7868880872.shtml)
+- 2026-06-30 01:18 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/96548401933.shtml)
+- 2026-06-30 01:08 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/26493415220.shtml)
+- 2026-06-30 01:11 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/326388996.shtml)
+- 2026-06-30 01:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/298234321.shtml)
+- 2026-06-30 01:23 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/710961.shtml)
+- 2026-06-30 01:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/00770.shtml)

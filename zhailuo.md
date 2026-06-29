@@ -1,48 +1,59 @@
-# 苹果股价盘后微升 库克宣布计划提高产品价格
+# 行走欧陆文化架桥 上海侨界会客厅共话中欧文化交流
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-苹果股价盘后上涨0.5%，此前这家iPhone制造商在接受采访时宣布计划提高产品售价，以抵消内存和存储芯片的成本。 苹果首席执行官库克在采访中表示，苹果准备好动用现金储备来增加内存供应。责任编辑：丁文武
+中新网上海6月8日电(范宇斌)近日，在上海豫园“海上梨园”，古韵悠扬，昆曲艺术家张冉献演经典选段、华裔歌唱家陈小安带来中西融合表演……“侨界会客厅：行走欧陆·文化架桥”主题交流活动在此间举行。 活动现场发布由中国华侨出版社出版，上海市侨联海外委员、奥中文化交流协会会长常恺推出的新作《多瑙河畔风声云影——我的欧洲故事》。 常恺深耕奥地利30余年，常年奔走欧洲多国，曾参与举办联合国
 
 ## 正文
 
-苹果股价盘后上涨0.5%，此前这家iPhone制造商在接受采访时宣布计划提高产品售价，以抵消内存和存储芯片的成本。
+中新网上海6月8日电(范宇斌)近日，在上海豫园“海上梨园”，古韵悠扬，昆曲艺术家张冉献演经典选段、华裔歌唱家陈小安带来中西融合表演……“侨界会客厅：行走欧陆·文化架桥”主题交流活动在此间举行。
 
-苹果首席执行官库克在采访中表示，苹果准备好动用现金储备来增加内存供应。
+活动现场发布由中国华侨出版社出版，上海市侨联海外委员、奥中文化交流协会会长常恺推出的新作《多瑙河畔风声云影——我的欧洲故事》。
 
-责任编辑：丁文武
+常恺深耕奥地利30余年，常年奔走欧洲多国，曾参与举办联合国中文日等活动，并深入当地主流社会，依托华文媒体，传播中国文化。
+
+他还在维也纳金色大厅策划举办跨界融合演出，推动中国艺术家赴欧演出，也促成欧洲乐团来华展演。
+
+常恺说：“我相信文化架桥不是一次性展演，而是日复一日的坚持，让外国民众在笔墨、唱腔与色彩里读懂真实的中国。
+
+” 活动现场，常恺分享了一则亲身见闻：一名奥地利孩童初学毛笔，多年坚持习画后在校开办中国画展。
+
+“那一刻我深知，文化架桥最好的成果是让外国人主动成为中华文化的传播者。
+
+” 上海市公共关系协会副会长兼文化艺术专业委员会主任、上海艺术电影联盟主席滕俊杰曾经和常恺联手策划多场跨国文化演出，把中国戏曲、音乐、电影、水墨带到欧洲。
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 01:09 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 01:05 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 01:08 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 01:11 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 01:03 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 01:02 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 01:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 01:03 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 01:05 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 01:18 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 00:55 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 01:09 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 01:02 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 01:15 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 01:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 01:12 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 01:13 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 01:04 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 01:26 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 01:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 01:11 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 01:18 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-30 01:09 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 01:15 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/1709015800.shtml)
-- 2026-06-30 00:58 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/0665736596.shtml)
-- 2026-06-30 00:56 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/05101674.shtml)
-- 2026-06-30 01:01 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/5351969675.shtml)
-- 2026-06-30 01:21 - [女心理师](http://www.share.minike.top/Article/details/51616195740.shtml)
-- 2026-06-30 00:54 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/342583284131.shtml)
-- 2026-06-30 01:02 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/551178437.shtml)
-- 2026-06-30 01:16 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/45584339.shtml)
-- 2026-06-30 01:18 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/788141092.shtml)
-- 2026-06-30 01:21 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/52853.shtml)
-- 2026-06-30 01:03 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/44150929451.shtml)
-- 2026-06-30 00:59 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/90310821070.shtml)
-- 2026-06-30 01:06 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/485166.shtml)
-- 2026-06-30 01:22 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/993094.shtml)
-- 2026-06-30 00:55 - [TOP Prada](https://www.share.minike.top/Article/details/4751202.shtml)
+- 2026-06-30 01:19 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/3145690.shtml)
+- 2026-06-30 01:01 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/505704390176.shtml)
+- 2026-06-30 01:27 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/3041446.shtml)
+- 2026-06-30 01:17 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/81943.shtml)
+- 2026-06-30 01:05 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/931973755569.shtml)
+- 2026-06-30 01:20 - [刘宇宁 好听](http://www.share.minike.top/Article/details/869979403.shtml)
+- 2026-06-30 01:11 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/55183.shtml)
+- 2026-06-30 01:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/18232.shtml)
+- 2026-06-30 01:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/077461398.shtml)
+- 2026-06-30 01:01 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/61982120617.shtml)
+- 2026-06-30 01:14 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/9307519.shtml)
+- 2026-06-30 01:18 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/236087854306.shtml)
+- 2026-06-30 01:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/32447526884.shtml)
+- 2026-06-30 01:12 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/156405.shtml)
+- 2026-06-30 01:19 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/7016050.shtml)

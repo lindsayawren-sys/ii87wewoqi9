@@ -1,55 +1,59 @@
-# 零成本环保攻略 从源头减少生活垃圾
+# 遇持续强降雨 长途旅行如何做好全程攻略
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 18:42 来源：中国新闻网 2026年6月15日至21日是第36个全国节能宣传周，主题为“节能新起点 低碳向未来”。日常买菜、点外卖，哪些小习惯能实实在在减少垃圾、保护环境？普通人收入有限，低成本甚至零成本的环保做法有哪些？《能源对话》栏目第一期，中新社国是直通车采访清华大学环境学院教授、固体废物控制与资源化教研所所长刘建国，进行解答。(汪俐
+近日有网友反映，6月6日，长春至昆明的Z328次旅客列车在出发7小时后，在第四站山海关站折返。记者从国铁沈阳局了解到，事发原因是列车行至山海关站，接到天气预警，列车即将途经的沪昆铁路大龙至贵定区段普降暴雨，为主动避险，确保旅客列车运行安全，调度部门根据实际情况向列车下发折返指令。车上旅客未乘区段全额退票，一部分在山海关自行下车换乘其他交通工具，另一部分跟随列车原路返回始发地。
 
 ## 正文
 
-发布时间：2026年06月18日 18:42 来源：中国新闻网 2026年6月15日至21日是第36个全国节能宣传周，主题为“节能新起点 低碳向未来”。
+近日有网友反映，6月6日，长春至昆明的Z328次旅客列车在出发7小时后，在第四站山海关站折返。
 
-日常买菜、点外卖，哪些小习惯能实实在在减少垃圾、保护环境？
+记者从国铁沈阳局了解到，事发原因是列车行至山海关站，接到天气预警，列车即将途经的沪昆铁路大龙至贵定区段普降暴雨，为主动避险，确保旅客列车运行安全，调度部门根据实际情况向列车下发折返指令。
 
-普通人收入有限，低成本甚至零成本的环保做法有哪些？
+车上旅客未乘区段全额退票，一部分在山海关自行下车换乘其他交通工具，另一部分跟随列车原路返回始发地。
 
-《能源对话》栏目第一期，中新社国是直通车采访清华大学环境学院教授、固体废物控制与资源化教研所所长刘建国，进行解答。
+遇持续强降雨 长途旅行如何做好全程攻略 近期多地持续强降雨天气，给长途旅行带来诸多不便，有计划乘坐长途列车出行的旅客该如何做好全程攻略，以确保顺利出行呢？
 
-(汪俐辰） 责任编辑：【李季】
+首先要查询列车运行图，以Z328次列车为例，从时长上来说，全程运行时间49小时，相当于两天两夜，旅客购票时要查询列车运行全程的沿线天气预报。
+
+此外，列车运行线路也要提前关注，从长春到昆明的这趟列车在湖南、贵州两省途经山区线路较多，雨季行车线路受降雨影响较大。
+
+国铁成都局六盘水工电段桥路检查工区工长 王鑫：综合雨量数据和现场情况，来研判是直接通行、迂回，还是直接折返或终止运行，这就是我们说的“源头避险”。
+
+铁路沿线降雨量达到一定值后，可能会引发道床冲空等问题，危及行车安全，遇极端天气铁路优先保障安全，临时调整属于避险刚需。
 
 ## 相关推荐
 
-- 2026-06-30 01:04 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 01:05 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 01:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 01:14 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 01:14 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 01:13 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 01:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 01:07 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 01:17 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 01:05 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 01:05 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 00:59 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 01:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 00:54 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 01:17 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 01:17 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 01:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-30 01:19 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 01:16 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 01:25 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 01:11 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 01:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 01:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 01:26 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 01:18 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 01:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 01:15 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 01:15 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/2247651.shtml)
-- 2026-06-30 00:57 - [沉睡花园](http://www.blog.minike.top/Article/details/98206407.shtml)
-- 2026-06-30 01:20 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/725989.shtml)
-- 2026-06-30 01:04 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/677862929672.shtml)
-- 2026-06-30 01:13 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/35252042982.shtml)
-- 2026-06-30 01:02 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/87248779174.shtml)
-- 2026-06-30 01:19 - [蔚来车主罚站](https://www.share.minike.top/Article/details/8368842189.shtml)
-- 2026-06-30 00:58 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/4050625.shtml)
-- 2026-06-30 01:11 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/23781289.shtml)
-- 2026-06-30 01:08 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/7725995933.shtml)
-- 2026-06-30 01:05 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/19114750246.shtml)
-- 2026-06-30 01:21 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/68214224.shtml)
-- 2026-06-30 01:21 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/791105631.shtml)
-- 2026-06-30 01:07 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/60145.shtml)
-- 2026-06-30 01:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/5393524.shtml)
+- 2026-06-30 01:12 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/7344773.shtml)
+- 2026-06-30 01:29 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/706260.shtml)
+- 2026-06-30 01:29 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/062545.shtml)
+- 2026-06-30 01:28 - [美股](http://www.blog.minike.top/Article/details/989343.shtml)
+- 2026-06-30 01:03 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/66716817.shtml)
+- 2026-06-30 01:06 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/8387825701.shtml)
+- 2026-06-30 01:14 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/778831251605.shtml)
+- 2026-06-30 01:04 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/95074.shtml)
+- 2026-06-30 01:04 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/2173880.shtml)
+- 2026-06-30 01:27 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/44323153.shtml)
+- 2026-06-30 01:27 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/50456.shtml)
+- 2026-06-30 01:24 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/1345362007.shtml)
+- 2026-06-30 01:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/6835171281.shtml)
+- 2026-06-30 01:17 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/660443044.shtml)
+- 2026-06-30 01:04 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/65015045196.shtml)

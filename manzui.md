@@ -1,51 +1,61 @@
-# 苏州银行被罚721.02万元，涉违反账户管理规定等11项违法行为
+# 印度国有银行趁央行政策利好大举抛售国债获利套现
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-6月18日金融一线消息，中国人民银行江苏省分行行政处罚决定信息公示表显示，苏州银行股份有限公司因11项违法行为，被给予警告、通报批评，没收违法所得399480.86元，并处罚款721.02万元。 罚单涉及违法行为类型如下：违反账户管理规定；违反收单管理规定；违反网络安全管理规定；违反数据安全管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；占压财政存款或者资金；违反信
+随着印度央行公布最新的货币政策决议，市场对政策紧缩的担忧有所缓解，推动印度国债价格攀升。印度国有银行借此利好时机，在二级市场大举抛售国债、锁定利润。最新统计数据显示，上周五（6月5日）印度国有银行净变现国债总额高达1070亿卢比（约合11.2亿美元），创下2025年1月以来的单日最高抛售纪录。 印度储备银行（央行）在最新的议息会议上决定维持现行利率与货币政策立场不变。为缓解地缘
 
 ## 正文
 
-6月18日金融一线消息，中国人民银行江苏省分行行政处罚决定信息公示表显示，苏州银行股份有限公司因11项违法行为，被给予警告、通报批评，没收违法所得399480.86元，并处罚款721.02万元。
+随着印度央行公布最新的货币政策决议，市场对政策紧缩的担忧有所缓解，推动印度国债价格攀升。
 
-罚单涉及违法行为类型如下：违反账户管理规定；违反收单管理规定；违反网络安全管理规定；违反数据安全管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；占压财政存款或者资金；违反信用信息采集、提供、查询及相关管理规定；未按照规定开展客户尽职调查；未按照规定保存客户身份资料和交易记录；未按照规定报告可疑交易。
+印度国有银行借此利好时机，在二级市场大举抛售国债、锁定利润。
 
-同时，相关责任人吴某（苏州银行股份有限公司越溪支行）因对违反反假货币业务管理规定负有责任，被给予警告并罚款6.5万元；陆某（苏州银行股份有限公司网络金融部）因对违反收单管理规定负有责任，被给予警告并罚款5万元。
+最新统计数据显示，上周五（6月5日）印度国有银行净变现国债总额高达1070亿卢比（约合11.2亿美元），创下2025年1月以来的单日最高抛售纪录。
 
-责任编辑：王馨茹
+印度储备银行（央行）在最新的议息会议上决定维持现行利率与货币政策立场不变。
+
+为缓解地缘政治冲突给本国货币带来的贬值压力，印度央行同时出台了一系列旨在吸引美元流入、放宽外资投资限制的组合拳。
+
+受此影响，市场避险情绪出现缓和，作为基准的印度2035年到期国债收益率上周五一度盘中跌至6.94%的近期低点（国债收益率与价格呈反向变动，收益率下跌意味着价格上涨），随后小幅回升。
+
+市场分析人士指出，尽管印度国有银行在今年4月至5月期间曾在二级市场大举净买入价值3260亿卢比的国债，但随着央行利好落地，这些大行已迅速由“买方”转变为“卖方”。
+
+私营银行交易员透露，当前国有银行的抛售盘依然沉重，预计基准国债及2036年到期国债的收益率短期内将在6.96%至6.98%的区间内维持震荡。
 
 ## 相关推荐
 
-- 2026-06-30 01:14 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 01:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 01:19 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 01:15 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 01:16 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 01:00 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 01:17 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 01:12 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 01:18 - [蔚来车主罚站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 01:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 01:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 01:21 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 00:54 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 01:10 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 01:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 01:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 01:06 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 01:22 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 01:13 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 01:25 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 01:14 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 01:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 01:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 01:19 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 01:29 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 01:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 01:02 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 01:09 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/394883.shtml)
-- 2026-06-30 01:14 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/29264171.shtml)
-- 2026-06-30 01:06 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/7756834.shtml)
-- 2026-06-30 01:18 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/717094652.shtml)
-- 2026-06-30 01:10 - [啊啊啊](http://www.blog.minike.top/Article/details/801869259.shtml)
-- 2026-06-30 01:06 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/02917.shtml)
-- 2026-06-30 01:19 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/298147.shtml)
-- 2026-06-30 01:12 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/95549959.shtml)
-- 2026-06-30 01:05 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/02757486.shtml)
-- 2026-06-30 01:22 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/09679464323.shtml)
-- 2026-06-30 01:13 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/91253565669.shtml)
-- 2026-06-30 01:12 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/73324.shtml)
-- 2026-06-30 00:55 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/57003625141.shtml)
-- 2026-06-30 01:09 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/7906230.shtml)
-- 2026-06-30 01:07 - [时光音乐会](http://www.share.minike.top/Article/details/89580072588.shtml)
+- 2026-06-30 01:04 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/4175080792.shtml)
+- 2026-06-30 01:01 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/72711.shtml)
+- 2026-06-30 01:21 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/391437366.shtml)
+- 2026-06-30 01:12 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/95870.shtml)
+- 2026-06-30 01:24 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/5682153485.shtml)
+- 2026-06-30 01:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/485880.shtml)
+- 2026-06-30 01:17 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/0732017.shtml)
+- 2026-06-30 01:23 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/91962719.shtml)
+- 2026-06-30 01:25 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/06176696.shtml)
+- 2026-06-30 01:30 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/198740.shtml)
+- 2026-06-30 01:13 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/89717203713.shtml)
+- 2026-06-30 01:09 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/5906429.shtml)
+- 2026-06-30 01:03 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/36435588.shtml)
+- 2026-06-30 01:12 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/492066834.shtml)
+- 2026-06-30 01:19 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/24527078.shtml)

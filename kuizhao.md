@@ -1,59 +1,57 @@
-# 成渝中线高铁重庆北站站改施工第三阶段完成
+# APEC成员经济体代表在香港共研“廉洁促繁荣”
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月17日电 (张旭)中国铁路成都局集团有限公司17日发布消息称，当日，成渝中线高铁重庆北站站改施工第三阶段顺利完成，为成渝中线高铁正式引入重庆北站创造了条件。 成渝中线高铁是中国“八纵八横”高铁网沿江通道的重要组成部分，重庆北站是既有一等站，主要承担郑渝高铁、沪蓉铁路、渝怀铁路、渝利铁路、成渝高铁等铁路的客运业务。 为确保成渝中线高铁顺利引入重庆北站，铁路部门对重庆
+中新社香港6月9日电 (记者 刘玥晴)国家监察委员会与香港廉政公署(简称“廉署”)9日在香港合办亚太经合组织(APEC)“廉洁促繁荣”研讨会，来自APEC成员经济体、国际组织与机构的150余位代表参会，围绕廉洁治理促进繁荣发展、构建务实合作网络等议题展开讨论。 中共中央纪律检查委员会副书记、国家监察委员会副主任傅奎致开幕辞时表示，今年是中国“十五五”开局之年，亦是亚太经合组织“
 
 ## 正文
 
-中新网重庆6月17日电 (张旭)中国铁路成都局集团有限公司17日发布消息称，当日，成渝中线高铁重庆北站站改施工第三阶段顺利完成，为成渝中线高铁正式引入重庆北站创造了条件。
+中新社香港6月9日电 (记者 刘玥晴)国家监察委员会与香港廉政公署(简称“廉署”)9日在香港合办亚太经合组织(APEC)“廉洁促繁荣”研讨会，来自APEC成员经济体、国际组织与机构的150余位代表参会，围绕廉洁治理促进繁荣发展、构建务实合作网络等议题展开讨论。
 
-成渝中线高铁是中国“八纵八横”高铁网沿江通道的重要组成部分，重庆北站是既有一等站，主要承担郑渝高铁、沪蓉铁路、渝怀铁路、渝利铁路、成渝高铁等铁路的客运业务。
+中共中央纪律检查委员会副书记、国家监察委员会副主任傅奎致开幕辞时表示，今年是中国“十五五”开局之年，亦是亚太经合组织“中国年”，中国是亚太经合组织积极的参与者、贡献者，将继续与各方一道，秉持腐败零容忍态度，充分发挥廉洁的保障促进作用，深化反腐败司法执法合作，推动实现“建设亚太共同体，促进共同繁荣”的愿景，让更多发展成果惠及亚太人民。
 
-为确保成渝中线高铁顺利引入重庆北站，铁路部门对重庆北站站改分为四个阶段。
+香港廉政专员胡英明说，各方踊跃参与此次研讨会，展现出共同打击贪污、推动发展的决心。
 
-其中，第一阶段恢复渝怀线双线运行；第二阶段开通新建渝万上行联络线；第三阶段完成重庆北站19—21道、13—18道改造；第四阶段完成渝中线引入重庆北站及重庆北站互联互通运输优化。
+香港的反贪模式是执法、预防和教育三管齐下，享誉国际，廉署日后将凭借“狮子山精神”，秉持诚信理念，继续为这座城市构建信任、稳定和持久的繁荣发展。
 
-第三阶段施工于6月9日开始、6月17日结束，共计4个天窗(指封锁线路，确保无列车经过，而预留的相应时间段)施工，需同步封锁多个区域，进行既有道岔拆除、轨排回铺、线路拨移、道岔移铺、线路连通、钢轨焊接、大机捣固、信号过渡及调试、接触网调整等作业。
+香港特区政府律政司司长林定国强调，香港是国际金融、贸易和航运中心，以廉洁、法治闻名。
 
-据中铁五局现场施工负责人介绍，第三阶段施工中，该局累计投入1100余名作业人员及80余台大型设备，将有限复杂作业空间合理划分，实现人员、材料和设备等资源高效周转，充分释放作业空间效能，确保多工序有序作业。
+虽然每个经济体都要根据各自情况寻找方法以宣扬廉洁，但经济体之间分享知识和经验至关重要。
 
-成渝中线高铁建成后，将与已建成运营以及在建的多条铁路互联互通，进一步完善成渝地区路网结构，大幅压缩成渝两地旅行时间，极大便利沿线民众出行。
+香港期望与各经济体，共同在永不停步的廉洁路上携手并进。
 
-(完)
+当天研讨会设多个专题讨论环节，议题包括“强化诚信以缔造美好生活”“构建稳健的廉洁金融系统”“推动廉洁的跨境投资及贸易”。
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 01:02 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 01:12 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 01:10 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 01:14 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 01:01 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 01:02 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 00:59 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 01:03 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 00:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 01:10 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 01:23 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 01:19 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 01:09 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 01:06 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 01:28 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 01:15 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 01:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 01:26 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 01:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 01:01 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 01:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 01:16 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 01:05 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/668151.shtml)
-- 2026-06-30 01:09 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/45359790.shtml)
-- 2026-06-30 01:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/716153.shtml)
-- 2026-06-30 01:12 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/8301342.shtml)
-- 2026-06-30 01:23 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/57898.shtml)
-- 2026-06-30 01:04 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/407128.shtml)
-- 2026-06-30 01:14 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/351574.shtml)
-- 2026-06-30 01:03 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/12667485.shtml)
-- 2026-06-30 00:54 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/6927343.shtml)
-- 2026-06-30 01:03 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/265897142.shtml)
-- 2026-06-30 00:56 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/63533706436.shtml)
-- 2026-06-30 01:20 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/2224409.shtml)
-- 2026-06-30 01:05 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/874201992442.shtml)
-- 2026-06-30 00:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/748349.shtml)
-- 2026-06-30 00:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/16522260.shtml)
+- 2026-06-30 01:05 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/830903.shtml)
+- 2026-06-30 01:01 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/4082581.shtml)
+- 2026-06-30 01:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/4124025.shtml)
+- 2026-06-30 01:01 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/6370112078.shtml)
+- 2026-06-30 01:04 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/2894837.shtml)
+- 2026-06-30 01:25 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/84801730337.shtml)
+- 2026-06-30 01:02 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/07087.shtml)
+- 2026-06-30 01:14 - [极限挑战第一季](https://www.share.minike.top/Article/details/51855.shtml)
+- 2026-06-30 01:20 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/63263411369.shtml)
+- 2026-06-30 01:27 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/8165617298.shtml)
+- 2026-06-30 01:16 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/249097146.shtml)
+- 2026-06-30 01:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/0859336149.shtml)
+- 2026-06-30 01:12 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/6091409.shtml)
+- 2026-06-30 01:03 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/94449808467.shtml)
+- 2026-06-30 01:28 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/015982725.shtml)

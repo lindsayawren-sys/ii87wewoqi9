@@ -1,60 +1,46 @@
-# 资深策略师Yardeni：美联储若真想实现通胀目标就很可能加息
+# 快讯：现货白银日内跌2%，现报66.49美元/盎司。
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-资深市场策略师Ed Yardeni表示，如果美联储真打算将通胀率降至2%的目标水平，那很有可能会上调利率。 周三美联储维持利率不变，新任主席凯文·沃什在随后的新闻发布会上展现的鹰派姿态令市场感到意外。 “让我印象最深的是沃什说的一句话：‘看，我们已经五年多没有达到2%的通胀目标了’，”Yardeni Research总裁兼首席投资策略师Yardeni在电视上表示，“如果不加息，
+现货白银日内跌2%，现报66.49美元/盎司。 责任编辑：朱赫楠
 
 ## 正文
 
-资深市场策略师Ed Yardeni表示，如果美联储真打算将通胀率降至2%的目标水平，那很有可能会上调利率。
+现货白银日内跌2%，现报66.49美元/盎司。
 
-周三美联储维持利率不变，新任主席凯文·沃什在随后的新闻发布会上展现的鹰派姿态令市场感到意外。
-
-“让我印象最深的是沃什说的一句话：‘看，我们已经五年多没有达到2%的通胀目标了’，”Yardeni Research总裁兼首席投资策略师Yardeni在电视上表示，“如果不加息，怎么能实现这一目标呢？
-
-所以我认为市场现在的判断是正确的。
-
-” 随着沃什在周三的新闻发布会上强调绝不容忍通胀，美股下跌，短期国债收益率飙升。
-
-沃什长期以来一直批评美联储的预测和沟通方式，此次他选择不参与“点阵图”预测，这使得投资者无法获得明确的政策信号，不得不将更大的不确定性计入市场定价。
-
-Yardeni指出，沃什提及“通胀”和“物价稳定”的次数远多于“劳动力市场”，看起来正毫不含糊地致力于实现2%的通胀目标。
-
-尽管本周中东达成的临时和平协议可能导致油价进一步下跌并缓解消费者价格上涨压力，但沃什仍表明了这一立场。
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 01:08 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 01:10 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 01:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 01:21 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 01:11 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 01:02 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 01:23 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 01:15 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 01:04 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 01:06 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 01:23 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 01:00 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 01:08 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 01:13 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 01:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 01:27 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 01:26 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 01:07 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 01:09 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 01:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 01:29 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 01:18 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 01:10 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 01:24 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 01:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:22 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/4509893.shtml)
-- 2026-06-30 01:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/1643825454.shtml)
-- 2026-06-30 00:56 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/981684772.shtml)
-- 2026-06-30 01:02 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/9031758174.shtml)
-- 2026-06-30 01:17 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/59600531183.shtml)
-- 2026-06-30 01:17 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/54781348.shtml)
-- 2026-06-30 01:20 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/2200993.shtml)
-- 2026-06-30 00:58 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/06903695.shtml)
-- 2026-06-30 01:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/30756545232.shtml)
-- 2026-06-30 01:13 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/607418962.shtml)
-- 2026-06-30 01:02 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/7371159.shtml)
-- 2026-06-30 01:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/17929380994.shtml)
-- 2026-06-30 00:59 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/216183343578.shtml)
-- 2026-06-30 01:14 - [巴西vs日本](http://www.share.minike.top/Article/details/486725.shtml)
-- 2026-06-30 00:55 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/7076331675.shtml)
+- 2026-06-30 01:12 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/0641948.shtml)
+- 2026-06-30 01:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/417575543.shtml)
+- 2026-06-30 01:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/79244.shtml)
+- 2026-06-30 01:10 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/055958.shtml)
+- 2026-06-30 01:26 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/142718942.shtml)
+- 2026-06-30 01:09 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/585193.shtml)
+- 2026-06-30 01:06 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/61476803883.shtml)
+- 2026-06-30 01:26 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/7223503844.shtml)
+- 2026-06-30 01:13 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/17670742811.shtml)
+- 2026-06-30 01:01 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/762022.shtml)
+- 2026-06-30 01:20 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/765037.shtml)
+- 2026-06-30 01:10 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/48345721489.shtml)
+- 2026-06-30 01:18 - [逃狱兄弟](http://www.share.minike.top/Article/details/642596.shtml)
+- 2026-06-30 01:15 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/0239288.shtml)
+- 2026-06-30 01:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/30134129066.shtml)

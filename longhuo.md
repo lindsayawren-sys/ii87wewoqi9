@@ -1,56 +1,48 @@
-# 2026北京CBD国际金融论坛暨中信全球财富与投资大会成功举办
+# 外交部：绝不允许日菲侵害中方海洋权益
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-2026年6月17日，2026北京CBD国际金融论坛暨中信全球财富与投资大会在京成功举办。本次活动由北京市地方金融管理局、中国中信金融控股有限公司、北京市朝阳区人民政府主办，中信建投证券股份有限公司、北京市朝阳区发展和改革委员会承办，中信银行股份有限公司北京分行协办。活动以“财富驱动增长 投资引领未来”为主题，聚焦全球投资合作、财富管理转型、长期资产配置、未来产业投资机遇等话题
+新华社北京6月9日电（记者曹嘉玥、万倩仪）外交部发言人林剑6月9日在例行记者会上答问时重申，中国在台湾以东海域拥有专属经济区和大陆架。日本和菲律宾绕开中方擅自启动所谓“海域划界谈判”，严重违反包括《联合国海洋法公约》在内的国际法和国际关系基本准则，严重侵害中方的海洋权益，中方绝不允许。责任编辑：刘万里 SF014
 
 ## 正文
 
-2026年6月17日，2026北京CBD国际金融论坛暨中信全球财富与投资大会在京成功举办。
+新华社北京6月9日电（记者曹嘉玥、万倩仪）外交部发言人林剑6月9日在例行记者会上答问时重申，中国在台湾以东海域拥有专属经济区和大陆架。
 
-本次活动由北京市地方金融管理局、中国中信金融控股有限公司、北京市朝阳区人民政府主办，中信建投证券股份有限公司、北京市朝阳区发展和改革委员会承办，中信银行股份有限公司北京分行协办。
+日本和菲律宾绕开中方擅自启动所谓“海域划界谈判”，严重违反包括《联合国海洋法公约》在内的国际法和国际关系基本准则，严重侵害中方的海洋权益，中方绝不允许。
 
-活动以“财富驱动增长 投资引领未来”为主题，聚焦全球投资合作、财富管理转型、长期资产配置、未来产业投资机遇等话题展开探讨。
-
-北京市政府党组成员、副市长孙硕，中信集团党委副书记、副董事长、总经理张文武，北京市朝阳区委书记吴小杰出席并致辞。
-
-中信集团党委委员、副总经理曾琪，朝阳区委副书记、区长聂杰英，以及国家金融监督管理总局北京监管局、中国人民银行北京市分行、中国证监会北京监管局、北京市相关委办局及朝阳区有关负责同志出席会议。
-
-十四届全国政协委员尹艳林，中信建投证券党委书记、董事长刘成等嘉宾发表主旨演讲，中国社会科学院原副院长、学部委员李扬主持会议。
-
-来自全球金融机构、科技企业及研究机构的近400位嘉宾参会。
-
-张文武表示，北京CBD是首都金融开放前沿，也是全球资本共享中国发展机遇的重要对接平台。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 01:13 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 01:15 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 01:20 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 01:12 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 01:16 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 01:00 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 01:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 01:13 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 01:01 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 01:00 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 01:24 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 01:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 01:12 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 01:06 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 01:24 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 01:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 01:19 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 01:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 01:17 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 01:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 01:13 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:54 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/160095.shtml)
-- 2026-06-30 00:54 - [一见倾心](http://www.share.kurohicncr.top/Article/details/99951465292.shtml)
-- 2026-06-30 01:09 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/54942453.shtml)
-- 2026-06-30 00:57 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/7818805538.shtml)
-- 2026-06-30 00:57 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/599821895576.shtml)
-- 2026-06-30 01:02 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/72380589083.shtml)
-- 2026-06-30 01:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/583521789.shtml)
-- 2026-06-30 01:06 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/0999041445.shtml)
-- 2026-06-30 01:16 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/074643891523.shtml)
-- 2026-06-30 01:02 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/39008368541.shtml)
-- 2026-06-30 01:21 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/035991394346.shtml)
-- 2026-06-30 01:07 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/729590619437.shtml)
-- 2026-06-30 01:07 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/361057489444.shtml)
-- 2026-06-30 01:00 - [内马尔替补](http://www.blog.minike.top/Article/details/16472.shtml)
-- 2026-06-30 01:19 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/3938769.shtml)
+- 2026-06-30 01:02 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/4433099071.shtml)
+- 2026-06-30 01:19 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/314364.shtml)
+- 2026-06-30 01:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/7769846687.shtml)
+- 2026-06-30 01:21 - [刘念回应](https://www.blog.minike.top/Article/details/48767274.shtml)
+- 2026-06-30 01:24 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/316416.shtml)
+- 2026-06-30 01:02 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/44111482559.shtml)
+- 2026-06-30 01:01 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/9252056108.shtml)
+- 2026-06-30 01:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/482546.shtml)
+- 2026-06-30 01:17 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/0040083.shtml)
+- 2026-06-30 01:04 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/0451858.shtml)
+- 2026-06-30 01:16 - [扬名立万](http://www.share.minike.top/Article/details/517748.shtml)
+- 2026-06-30 01:11 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/379078.shtml)
+- 2026-06-30 01:08 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/5081303.shtml)
+- 2026-06-30 01:26 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/1433835625.shtml)
+- 2026-06-30 01:03 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/471943199.shtml)

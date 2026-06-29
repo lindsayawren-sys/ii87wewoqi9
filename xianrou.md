@@ -1,55 +1,53 @@
-# 鑫科材料：公司及控股子公司不存在逾期担保事项
+# 国家数据局：探索词元交易等新型交易模式，构建以词元为基础，可量化、可定价的数据价值体系
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月17日，鑫科材料发布公告称，本次鑫科材料为控股子公司鑫科铜业提供担保人民币5，000万元。截至本公告日，公司及控股子公司实际对外担保总额为247，075万元，占公司2025年度经审计归属于母公司所有者净资产的169.30%。公司及控股子公司根据实际经营需要在人民币300，000万元额度范围内为公司及控股子公司向金融机构融资提供担保（包括母子公司之间、子公司之间
+人民财讯6月8日电，国家数据局印发《关于推进行业高质量数据集建设行动的实施方案》，方案提出，创新行业高质量数据集商业模式。完善数据集长效运营机制，鼓励数据集在数据交易所（中心）等数据流通服务机构挂牌交易，发展“订阅模式”“商场模式”“定制模式”等多元服务形态，推动商业模式从基础数据包销售向API调用、模型化解决方案及全栈服务梯次跃升。探索词元交易等新型交易模式，构建以词元为基础
 
 ## 正文
 
-证券日报网讯 6月17日，鑫科材料发布公告称，本次鑫科材料为控股子公司鑫科铜业提供担保人民币5，000万元。
+人民财讯6月8日电，国家数据局印发《关于推进行业高质量数据集建设行动的实施方案》，方案提出，创新行业高质量数据集商业模式。
 
-截至本公告日，公司及控股子公司实际对外担保总额为247，075万元，占公司2025年度经审计归属于母公司所有者净资产的169.30%。
+完善数据集长效运营机制，鼓励数据集在数据交易所（中心）等数据流通服务机构挂牌交易，发展“订阅模式”“商场模式”“定制模式”等多元服务形态，推动商业模式从基础数据包销售向API调用、模型化解决方案及全栈服务梯次跃升。
 
-公司及控股子公司根据实际经营需要在人民币300，000万元额度范围内为公司及控股子公司向金融机构融资提供担保（包括母子公司之间、子公司之间相互提供的担保及反担保，不包括为合并报表范围外的其他企业提供的担保）。
+探索词元交易等新型交易模式，构建以词元为基础，可量化、可定价的数据价值体系。
 
-担保额度占公司2025年度经审计归属于母公司所有者净资产的205.57%。
-
-公司及控股子公司不存在逾期担保事项。
-
-（文章来源：证券日报）
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 00:56 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-30 01:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 01:09 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-30 01:16 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 00:56 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 01:18 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 01:19 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 01:13 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 01:23 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 01:00 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 01:03 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 01:00 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 00:54 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 01:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 01:26 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 01:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 01:23 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 01:09 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 01:16 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 01:15 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 01:07 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 01:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 01:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 01:08 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 01:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 01:24 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 01:15 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 01:27 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/132606.shtml)
-- 2026-06-30 01:09 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/427372.shtml)
-- 2026-06-30 01:18 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/552439909232.shtml)
-- 2026-06-30 00:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/828907.shtml)
-- 2026-06-30 00:55 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/132335041.shtml)
-- 2026-06-30 01:15 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/15869.shtml)
-- 2026-06-30 01:03 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/7173673157.shtml)
-- 2026-06-30 01:05 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/72360.shtml)
-- 2026-06-30 00:54 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/52424011716.shtml)
-- 2026-06-30 01:23 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/542423579.shtml)
-- 2026-06-30 01:01 - [东方风云榜直播](https://www.blog.minike.top/Article/details/53820.shtml)
-- 2026-06-30 01:18 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/221982617205.shtml)
-- 2026-06-30 01:00 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/896413.shtml)
-- 2026-06-30 01:02 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/5263965.shtml)
-- 2026-06-30 01:18 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/50023287.shtml)
+- 2026-06-30 01:02 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/551544560482.shtml)
+- 2026-06-30 01:04 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/42688815403.shtml)
+- 2026-06-30 01:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/07104.shtml)
+- 2026-06-30 01:11 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/677624414.shtml)
+- 2026-06-30 01:28 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/43194195364.shtml)
+- 2026-06-30 01:23 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/00984347.shtml)
+- 2026-06-30 01:26 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/1868303406.shtml)
+- 2026-06-30 01:17 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/80321600369.shtml)
+- 2026-06-30 01:19 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/103119.shtml)
+- 2026-06-30 01:14 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/9990950856.shtml)
+- 2026-06-30 01:24 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/40244.shtml)
+- 2026-06-30 01:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/0119880.shtml)
+- 2026-06-30 01:27 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/14509815.shtml)
+- 2026-06-30 01:15 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/729606.shtml)
+- 2026-06-30 01:09 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/433439802608.shtml)

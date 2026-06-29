@@ -1,54 +1,57 @@
-# 伊朗外长与俄外长通电话 讨论美伊谅解备忘录
+# 从3个生活场景感受长三角民生温度
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-当地时间17日，俄罗斯外长拉夫罗夫与伊朗外长阿拉格齐通电话，就美伊谅解备忘录及一些地区和双边议题进行了讨论。 阿拉格齐在通话中介绍了该谅解备忘录的相关细节，并强调美国对其条款的良好执行负有责任，同时强调必须彻底停止以色列对黎巴嫩的袭击。 拉夫罗夫对该谅解备忘录文本最终敲定表示欢迎，并重申俄方完全支持其条款的实施。 两国外长指出，国际社会及联合国安理会有必要支持该协议，同时强调应
+公交“一卡通”贯通41城、异地就医备案结算联网定点医疗机构超2.6万家 从3个生活场景感受长三角民生温度 人民日报 本报记者 王崟欣 巨云鹏 人民网记者 唐小丽 马作鹏早上6点半，安徽马鞍山雨山东路地铁站，缪永挎着电脑包，“嘀”一声，熟练地刷开闸机。缪永是马鞍山人，在江苏南京上班。自打今年4月22日，南京到马鞍山的地铁开通，他每天都可以回家了。 近日，第八届长三角一体化发展高层
 
 ## 正文
 
-当地时间17日，俄罗斯外长拉夫罗夫与伊朗外长阿拉格齐通电话，就美伊谅解备忘录及一些地区和双边议题进行了讨论。
+公交“一卡通”贯通41城、异地就医备案结算联网定点医疗机构超2.6万家 从3个生活场景感受长三角民生温度 人民日报 本报记者 王崟欣 巨云鹏 人民网记者 唐小丽 马作鹏早上6点半，安徽马鞍山雨山东路地铁站，缪永挎着电脑包，“嘀”一声，熟练地刷开闸机。
 
-阿拉格齐在通话中介绍了该谅解备忘录的相关细节，并强调美国对其条款的良好执行负有责任，同时强调必须彻底停止以色列对黎巴嫩的袭击。
+缪永是马鞍山人，在江苏南京上班。
 
-拉夫罗夫对该谅解备忘录文本最终敲定表示欢迎，并重申俄方完全支持其条款的实施。
+自打今年4月22日，南京到马鞍山的地铁开通，他每天都可以回家了。
 
-两国外长指出，国际社会及联合国安理会有必要支持该协议，同时强调应继续加强地区国家间的外交合作，以实现地区和平与稳定。
+近日，第八届长三角一体化发展高层论坛在上海举行，一系列规划与新政同步落地；《上海大都市圈国土空间规划(2025—2035年)》草案已完成公示，引发热议；《长三角政务服务“一网通办”三年行动计划(2026—2028年)》也正式通过……随着一体化建设不断走深走实，民生福祉融入长三角居民衣食住行各方面。
 
-双方还就双边关系中的若干问题交换意见，并同意继续跟进相关事项并加以落实。
+一趟车 双城变“同城”，工作更省心 走进地铁车厢，缪永找到座位坐下，戴上耳机。
 
-(总台记者 魏然)
+时间充裕，他还能眯一会儿。
+
+2019年，缪永入职位于南京的中国电子科技集团公司第二十八研究所，从事硬件研发。
+
+从那以后，他开始了双城生活，平时租住在南京，周末、节假日回马鞍山。
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 01:18 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 01:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 00:58 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 01:18 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 01:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 01:09 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 01:12 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 00:55 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 01:07 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 00:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 01:04 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 01:25 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 01:22 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 01:16 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 01:12 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 01:25 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 01:20 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 01:08 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 01:27 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 01:19 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 01:01 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 01:03 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/120188253992.shtml)
-- 2026-06-30 01:07 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/90897.shtml)
-- 2026-06-30 00:56 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/39878692.shtml)
-- 2026-06-30 00:54 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/67782.shtml)
-- 2026-06-30 00:55 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/02309187639.shtml)
-- 2026-06-30 00:58 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/483573.shtml)
-- 2026-06-30 01:15 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/12510.shtml)
-- 2026-06-30 01:18 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/6244176.shtml)
-- 2026-06-30 01:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/4126630346.shtml)
-- 2026-06-30 01:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/326886833661.shtml)
-- 2026-06-30 01:07 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/64528097.shtml)
-- 2026-06-30 01:09 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/83911.shtml)
-- 2026-06-30 00:54 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/433458.shtml)
-- 2026-06-30 01:24 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/415360424761.shtml)
-- 2026-06-30 01:16 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/83114890342.shtml)
+- 2026-06-30 01:20 - [美股](http://www.blog.minike.top/Article/details/96313.shtml)
+- 2026-06-30 01:02 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/1302859.shtml)
+- 2026-06-30 01:24 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/641161753799.shtml)
+- 2026-06-30 01:27 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/213459.shtml)
+- 2026-06-30 01:10 - [逃狱兄弟](http://www.share.minike.top/Article/details/3943079.shtml)
+- 2026-06-30 01:07 - [扬名立万](https://www.share.minike.top/Article/details/77858761.shtml)
+- 2026-06-30 01:06 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/79048.shtml)
+- 2026-06-30 01:24 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/4175948679.shtml)
+- 2026-06-30 01:23 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/67333.shtml)
+- 2026-06-30 01:06 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/754201872302.shtml)
+- 2026-06-30 01:28 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/71077172.shtml)
+- 2026-06-30 01:09 - [啊啊啊](http://www.share.minike.top/Article/details/451505.shtml)
+- 2026-06-30 01:12 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/3366203894.shtml)
+- 2026-06-30 01:08 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/5228744.shtml)
+- 2026-06-30 01:12 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/478680775816.shtml)

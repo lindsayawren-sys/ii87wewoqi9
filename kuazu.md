@@ -1,58 +1,56 @@
-# 外媒：以军与黎巴嫩真主党互袭 五名以军士兵受伤
+# 港股融资市场火爆！签字保荐人不够用了
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据《以色列时报》报道，当地时间17日，黎巴嫩真主党向以色列军队发射爆炸性无人机，造成五名以色列国防军士兵受伤，其中一人伤势严重。作为回应，以军对真主党基础设施进行了袭击。 据报道，以色列国防军称，袭击事件发生在当地时间17日早上6点左右，无人机引发的爆炸导致五名士兵受伤。袭击发生后，以色列军方表示，对真主党基础设施进行了炮击。 另据卡塔尔半岛电视台援引黎巴嫩
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财通社 港股融资市场持续火热之际，保荐人出现紧缺。 Wind数据显示，今年以来香港IPO募资规模已达1668亿港元，相当于2025年全年募资额的58%，而且超过了2023年和2024年两年募资总和。 与此同时，上市后募资规模达到1017亿港元，接近2024年全年水平。 融资热潮之下，企业赴港上市热情不
 
 ## 正文
 
-中新网6月18日电 据《以色列时报》报道，当地时间17日，黎巴嫩真主党向以色列军队发射爆炸性无人机，造成五名以色列国防军士兵受伤，其中一人伤势严重。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-作为回应，以军对真主党基础设施进行了袭击。
+来源：财通社 港股融资市场持续火热之际，保荐人出现紧缺。
 
-据报道，以色列国防军称，袭击事件发生在当地时间17日早上6点左右，无人机引发的爆炸导致五名士兵受伤。
+Wind数据显示，今年以来香港IPO募资规模已达1668亿港元，相当于2025年全年募资额的58%，而且超过了2023年和2024年两年募资总和。
 
-袭击发生后，以色列军方表示，对真主党基础设施进行了炮击。
+与此同时，上市后募资规模达到1017亿港元，接近2024年全年水平。
 
-另据卡塔尔半岛电视台援引黎巴嫩国家通讯社17日报道称，以色列无人机在提尔发动了三起袭击，造成人员受伤。
+融资热潮之下，企业赴港上市热情不减。
 
-据美国哥伦比亚广播公司报道，美国白宫一名官员17日透露，美国和伊朗已远程签署谅解备忘录，该谅解备忘录现已“生效”。
+截至6月8日，港交所处于正常聆讯状态的企业达到425家，其中385家于2026年递交上市申请，228家为首次递表企业。
 
-当天早些时候，一名美国政府高级官员向媒体宣读了美国同伊朗达成的谅解备忘录正式文本。
+不过，与企业排队上市形成鲜明对比的是，港股保荐资源正变得愈发紧张。
+
+今年1月，香港证监会实施新规，要求每名签字主要人员（Signing Principal）最多只能同时负责5宗活跃上市项目，以提升上市文件质量和保荐工作规范性。
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 00:59 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 01:04 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 00:58 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 00:54 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 01:19 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 00:56 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 00:58 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 01:22 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 01:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 01:03 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 00:57 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 00:56 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 00:58 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 01:09 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 01:27 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 01:23 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 01:11 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 01:23 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 01:20 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 01:13 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 01:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 01:23 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 01:23 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:13 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/85990569.shtml)
-- 2026-06-30 00:56 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/267023697.shtml)
-- 2026-06-30 00:54 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/62252679.shtml)
-- 2026-06-30 01:14 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/41798385120.shtml)
-- 2026-06-30 01:01 - [锐评T1零封KC](https://www.share.minike.top/Article/details/1681475866.shtml)
-- 2026-06-30 01:05 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/01976.shtml)
-- 2026-06-30 00:57 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/19613512375.shtml)
-- 2026-06-30 01:15 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/9568453.shtml)
-- 2026-06-30 01:21 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/189481645142.shtml)
-- 2026-06-30 01:22 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/69589.shtml)
-- 2026-06-30 01:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/231242745.shtml)
-- 2026-06-30 00:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/504993897.shtml)
-- 2026-06-30 01:09 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/236640996.shtml)
-- 2026-06-30 01:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/76206545876.shtml)
-- 2026-06-30 00:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/59940319.shtml)
+- 2026-06-30 01:14 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/6665759.shtml)
+- 2026-06-30 01:25 - [小娘惹](https://www.share.kurohicncr.top/Article/details/5556510451.shtml)
+- 2026-06-30 01:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/4734096.shtml)
+- 2026-06-30 01:22 - [扬名立万](https://www.share.kurohicncr.top/Article/details/5885207080.shtml)
+- 2026-06-30 01:19 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/8732430.shtml)
+- 2026-06-30 01:11 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/30709775.shtml)
+- 2026-06-30 01:18 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/691572012356.shtml)
+- 2026-06-30 01:00 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/94994.shtml)
+- 2026-06-30 01:23 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/599217894547.shtml)
+- 2026-06-30 01:25 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/8587287507.shtml)
+- 2026-06-30 01:27 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/931371161122.shtml)
+- 2026-06-30 01:28 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/48247158673.shtml)
+- 2026-06-30 01:21 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/66515454925.shtml)
+- 2026-06-30 01:11 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/94316236.shtml)
+- 2026-06-30 01:07 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/883343253121.shtml)

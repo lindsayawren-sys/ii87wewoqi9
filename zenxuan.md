@@ -1,60 +1,60 @@
-# 坚持党中央集中统一领导——深入学习贯彻习近平党建思想系列述评之二
+# ACI Sky™ Workbench获房利美和房地美认证，全面支持UAD 3.6评估规范
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-新华社北京6月17日电 题：坚持党中央集中统一领导——深入学习贯彻习近平党建思想系列述评之二 新华社记者胡浩、严赋憬 事在四方，要在中央。回望我们党105年光辉党史，经历风高浪急甚至惊涛骇浪的重大考验，何以力挽狂澜，书写气壮山河的史诗？展望新时代非凡征程，拥有超1亿名党员、领导着14亿多人口的世界第一大执政党，何以凝心聚力，带领人民创造新的更大奇迹？ 一条根本经验就是坚持党中央
+First American Mortgage Solutions公司近日宣布，其ACI Sky™ Workbench平台已获得房利美和房地美的正式认证，确认该平台符合统一评估数据集3.6规范的技术要求。这一认证意味着评估师可立即采用该平台准备新一代评估报告，并确保满足即将于2026年11月2日生效的强制合规要求。 UAD 3.6是房利美和房地美自2018年起联合推进的评估数据
 
 ## 正文
 
-新华社北京6月17日电 题：坚持党中央集中统一领导——深入学习贯彻习近平党建思想系列述评之二 新华社记者胡浩、严赋憬 事在四方，要在中央。
+First American Mortgage Solutions公司近日宣布，其ACI Sky™ Workbench平台已获得房利美和房地美的正式认证，确认该平台符合统一评估数据集3.6规范的技术要求。
 
-回望我们党105年光辉党史，经历风高浪急甚至惊涛骇浪的重大考验，何以力挽狂澜，书写气壮山河的史诗？
+这一认证意味着评估师可立即采用该平台准备新一代评估报告，并确保满足即将于2026年11月2日生效的强制合规要求。
 
-展望新时代非凡征程，拥有超1亿名党员、领导着14亿多人口的世界第一大执政党，何以凝心聚力，带领人民创造新的更大奇迹？
+UAD 3.6是房利美和房地美自2018年起联合推进的评估数据标准改革的最新成果，旨在以更加结构化、数据优先的报告框架取代传统的静态评估表格，从而提升抵押贷款生态系统中评估数据的一致性、准确性和可用性。
 
-一条根本经验就是坚持党中央集中统一领导。
+新规要求评估数据须符合MISMO v3.6行业标准，并引入全新的统一住宅评估报告格式，适用于所有房产类型和估值方法。
 
-习近平总书记深刻指出，“党的历史、新中国发展的历史都告诉我们：要治理好我们这个大党、治理好我们这个大国，保证党的团结和集中统一至关重要，维护党中央权威至关重要”。
+First American贷款部门总裁表示：“UAD 3.6从根本上改变了评估数据的采集、结构和交付方式。
 
-深入学习贯彻习近平党建思想，必须始终坚持党中央集中统一领导，始终在思想上政治上行动上同以习近平同志为核心的党中央保持高度一致，齐心协力推动党和国家事业行稳致远。
+ACI Sky Workbench在开发过程中采纳了数百名评估师的反馈意见，打造了一个覆盖从现场勘查到报告提交全流程的一体化云平台。
 
-维护党中央权威和集中统一领导，是一个成熟的马克思主义执政党的重大建党原则 一个国家、一个政党，领导核心至关重要。
+获得房利美和房地美的认证，使评估师能够放心地立即采用Workbench，并使用为新一代评估报告量身定制的平台，同时完全符合UAD 3.6规范。
 
-马克思曾生动比喻，“一个单独的提琴手是自己指挥自己，一个乐队就需要一个乐队指挥”。
+” 通过此次认证，ACI Sky Workbench已正式列入房利美的集成供应商名单和房地美的软件提供商名单。
 
 ## 相关推荐
 
-- 2026-06-30 01:12 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 01:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 01:12 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 01:11 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 01:11 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 00:54 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 01:20 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 01:21 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 01:06 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-30 00:58 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 01:18 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 01:21 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 01:19 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 00:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 01:02 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 01:20 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 01:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 01:23 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 01:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 01:00 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 01:08 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 01:27 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 01:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-30 01:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 01:07 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 01:11 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 01:29 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 01:06 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:58 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/323942378305.shtml)
-- 2026-06-30 01:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/03522295.shtml)
-- 2026-06-30 01:05 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/5586894077.shtml)
-- 2026-06-30 01:08 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/373905592.shtml)
-- 2026-06-30 01:14 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/417000357.shtml)
-- 2026-06-30 01:23 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/744120531368.shtml)
-- 2026-06-30 01:03 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/3520530.shtml)
-- 2026-06-30 01:01 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/736150756294.shtml)
-- 2026-06-30 01:04 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/5859907010.shtml)
-- 2026-06-30 01:19 - [蔚来车主罚站](http://www.share.minike.top/Article/details/798488831.shtml)
-- 2026-06-30 01:08 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/3771823.shtml)
-- 2026-06-30 01:14 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/424432031.shtml)
-- 2026-06-30 00:56 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/021360311265.shtml)
-- 2026-06-30 01:20 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/11766946.shtml)
-- 2026-06-30 01:12 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/030975996306.shtml)
+- 2026-06-30 01:16 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/020277723.shtml)
+- 2026-06-30 01:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/38527500832.shtml)
+- 2026-06-30 01:01 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/7487195.shtml)
+- 2026-06-30 01:04 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/00906504.shtml)
+- 2026-06-30 01:07 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/29569340525.shtml)
+- 2026-06-30 01:26 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/221689332893.shtml)
+- 2026-06-30 01:17 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/6656804.shtml)
+- 2026-06-30 01:28 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/079358166799.shtml)
+- 2026-06-30 01:29 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/088941.shtml)
+- 2026-06-30 01:02 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/703184.shtml)
+- 2026-06-30 01:03 - [急先锋](http://www.share.kurohicncr.top/Article/details/90847805091.shtml)
+- 2026-06-30 01:04 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/96575860644.shtml)
+- 2026-06-30 01:09 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/52731.shtml)
+- 2026-06-30 01:13 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/39721.shtml)
+- 2026-06-30 01:15 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/346228.shtml)

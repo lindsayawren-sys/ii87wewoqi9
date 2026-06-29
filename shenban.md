@@ -1,58 +1,51 @@
-# 交通银行行长张宝江：传统普惠贷款的“不可能三角”通过数字技术有可能解决
+# 开盘：国内期货主力合约涨跌多涨少 焦煤跌超6%
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，2026陆家嘴论坛于今日召开。交通银行行长张宝江出席“全体大会七：提高普惠金融的有效性与精准度”并演讲。 谈及小微企业的风控问题，张宝江表示，这个问题很难回避，需要依托数据赋能来解决。传统的普惠贷款有一个“不可能三角”，可得性、低成本和高质量三者不可兼得。对接客户需求时，成本非常高，如果好好对
+早盘开盘，国内期货主力合约跌多涨少，焦煤跌超6%，焦炭跌超3%，燃料油、烧碱、低硫燃料油（LU）跌超2%，尿素跌近2%，钯、沪银、液化石油气（LPG）跌超1%。涨幅方面，集运欧线、PTA、淀粉、PX0>对二甲苯涨超1%，瓶片、玉米涨近1%。 责任编辑：朱赫楠
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，2026陆家嘴论坛于今日召开。
+早盘开盘，国内期货主力合约跌多涨少，焦煤跌超6%，焦炭跌超3%，燃料油、烧碱、低硫燃料油（LU）跌超2%，尿素跌近2%，钯、沪银、液化石油气（LPG）跌超1%。
 
-交通银行行长张宝江出席“全体大会七：提高普惠金融的有效性与精准度”并演讲。
+涨幅方面，集运欧线、PTA、淀粉、PX0>对二甲苯涨超1%，瓶片、玉米涨近1%。
 
-谈及小微企业的风控问题，张宝江表示，这个问题很难回避，需要依托数据赋能来解决。
-
-传统的普惠贷款有一个“不可能三角”，可得性、低成本和高质量三者不可兼得。
-
-对接客户需求时，成本非常高，如果好好对接、好好调查，成本很高；如果潦草地做，风险控不住。
-
-不管是成本高还是风险控不住，最终都会影响可得性。
-
-通过数字技术，有可能解决这个问题。
-
-责任编辑：王馨茹
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 01:10 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 01:22 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 01:01 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 01:21 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 01:18 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 01:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 00:59 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 01:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 00:55 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 01:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 01:04 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 01:05 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 01:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 01:10 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 01:22 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 01:20 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-30 01:23 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 01:28 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 01:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 01:23 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 01:28 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 01:15 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 01:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 01:01 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 01:27 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 01:25 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/93003379.shtml)
-- 2026-06-30 00:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/75650831.shtml)
-- 2026-06-30 01:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/6950520819.shtml)
-- 2026-06-30 01:08 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/384432722755.shtml)
-- 2026-06-30 01:20 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/425188000991.shtml)
-- 2026-06-30 00:56 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/23917165062.shtml)
-- 2026-06-30 00:57 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/047833.shtml)
-- 2026-06-30 01:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/63567957578.shtml)
-- 2026-06-30 01:14 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/3164221.shtml)
-- 2026-06-30 01:08 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/979716570.shtml)
-- 2026-06-30 01:20 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/515054.shtml)
-- 2026-06-30 01:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/29258327707.shtml)
-- 2026-06-30 00:58 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/09001.shtml)
-- 2026-06-30 01:12 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/86450721456.shtml)
-- 2026-06-30 00:56 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/30696283187.shtml)
+- 2026-06-30 01:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/1962325.shtml)
+- 2026-06-30 01:01 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/145257436.shtml)
+- 2026-06-30 01:24 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/835112.shtml)
+- 2026-06-30 01:19 - [时光音乐会](https://www.share.minike.top/Article/details/871995164.shtml)
+- 2026-06-30 01:01 - [毒液2](https://www.share.kurohicncr.top/Article/details/831764179.shtml)
+- 2026-06-30 01:26 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/08616.shtml)
+- 2026-06-30 01:26 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/8477308.shtml)
+- 2026-06-30 01:10 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/535334489.shtml)
+- 2026-06-30 01:00 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/56488.shtml)
+- 2026-06-30 01:20 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/20396722.shtml)
+- 2026-06-30 01:20 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/469916645379.shtml)
+- 2026-06-30 01:19 - [速度与激情9](https://www.blog.minike.top/Article/details/674075665.shtml)
+- 2026-06-30 01:26 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/699864.shtml)
+- 2026-06-30 01:13 - [蔚来车主罚站](http://www.share.minike.top/Article/details/51080196636.shtml)
+- 2026-06-30 01:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/96083.shtml)

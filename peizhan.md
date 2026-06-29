@@ -1,56 +1,60 @@
-# “寒王”暴涨刷新历史新高，华宝基金科创增强ETF（589280）连涨四日！硬科技成绝对吸金主线！
+# 国家防总办公室继续组织多部门会商部署防汛救灾工作
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-端午节假期前最后一个交易日，市场再度延续结构性分化格局，三大指数涨跌互现，截至收盘，沪指跌0.43%，深证成指收涨0.94%，创业板指大涨2.05%。硬科技板块继续强势表现，科创综指今日大涨3.29%，刷新历史新高。两市成交额放大至3.33万亿元，显示资金活跃度有所提升。 一键布局硬科技的科创增强ETF华宝（589280）今日再度强势表现，盘中持续上攻，收盘大涨2.05%，场内
+中新网6月9日电 据应急管理部微信公众号消息，6月9日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房城乡建设部、交通运输部等多部门联合值守和联合会商，分析研判近期防汛形势，研究部署重点地区防汛救灾工作。国家防总维持针对云南、福建、广东、广西的防汛四级应急响应。会商指出，本轮强降雨过程已趋于结束，但福建、广东、云南等省份部分地区降雨持续，局地有暴雨、大暴雨。
 
 ## 正文
 
-端午节假期前最后一个交易日，市场再度延续结构性分化格局，三大指数涨跌互现，截至收盘，沪指跌0.43%，深证成指收涨0.94%，创业板指大涨2.05%。
+中新网6月9日电 据应急管理部微信公众号消息，6月9日，国家防总办公室、应急管理部组织中国气象局、水利部、自然资源部、住房城乡建设部、交通运输部等多部门联合值守和联合会商，分析研判近期防汛形势，研究部署重点地区防汛救灾工作。
 
-硬科技板块继续强势表现，科创综指今日大涨3.29%，刷新历史新高。
+国家防总维持针对云南、福建、广东、广西的防汛四级应急响应。
 
-两市成交额放大至3.33万亿元，显示资金活跃度有所提升。
+会商指出，本轮强降雨过程已趋于结束，但福建、广东、云南等省份部分地区降雨持续，局地有暴雨、大暴雨。
 
-一键布局硬科技的科创增强ETF华宝（589280）今日再度强势表现，盘中持续上攻，收盘大涨2.05%，场内成交2354万元，收获日线四连阳！
+另据气象部门预测，12日起我国南方地区将迎新一轮强降雨过程。
 
-前十大权重股绝大部分收涨，第一大权重股寒武纪暴涨超14%，股价刷新历史新高！
+近年来极端天气多发频发，多地出现突破历史极值的强降雨。
 
-来源：Wind，截至2026.6.18 消息面上，产业层面催化不断。
+当前部分地区仍处高考时段，要坚决克服麻痹思想和侥幸心理，扎实做好防汛救灾各项工作。
 
-SK海力士已向客户供应12层堆叠HBM4E样品，容量48GB，引脚速率16Gbps，能效提升20%，热阻降低17%。
+会商要求，要逐级压实防汛责任，严格落实各项防范应对措施。
 
-产品采用Advanced MR-MUF工艺，旨在提升AI数据中心性能，将与客户协作确保量产，解决系统瓶颈。
+要强化风险隐患排查，盯紧重点部位和关键领域，动态调整隐患清单，做到真查真改、闭环管理。
 
 ## 相关推荐
 
-- 2026-06-30 00:56 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 00:57 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 01:19 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 01:18 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 00:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 00:59 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 01:01 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 00:55 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 01:10 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 00:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 01:16 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 01:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 01:26 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 01:05 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 01:26 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 01:23 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 01:30 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 01:23 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 01:17 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 01:29 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 01:05 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 01:05 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 01:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 01:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/9088812.shtml)
-- 2026-06-30 01:16 - [新官上任三把火](http://www.share.minike.top/Article/details/97803.shtml)
-- 2026-06-30 01:07 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/27041192.shtml)
-- 2026-06-30 01:00 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/81710789.shtml)
-- 2026-06-30 00:57 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/321768334.shtml)
-- 2026-06-30 01:21 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/60168978.shtml)
-- 2026-06-30 01:06 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/015208542545.shtml)
-- 2026-06-30 01:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/03302769644.shtml)
-- 2026-06-30 01:19 - [电影后室值得看吗](https://www.share.minike.top/Article/details/625047613.shtml)
-- 2026-06-30 01:15 - [女心理师](https://www.share.kurohicncr.top/Article/details/5545218989.shtml)
-- 2026-06-30 01:07 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/17388185.shtml)
-- 2026-06-30 01:06 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/53165742.shtml)
-- 2026-06-30 01:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/58552901952.shtml)
-- 2026-06-30 01:01 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/1787590287.shtml)
-- 2026-06-30 01:12 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/438714520.shtml)
+- 2026-06-30 01:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/38376995914.shtml)
+- 2026-06-30 01:07 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/846016306.shtml)
+- 2026-06-30 01:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/9859502141.shtml)
+- 2026-06-30 01:20 - [爱很美味](http://www.share.minike.top/Article/details/0593086700.shtml)
+- 2026-06-30 01:19 - [第一炉香](https://www.share.minike.top/Article/details/970193143.shtml)
+- 2026-06-30 01:24 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/52448.shtml)
+- 2026-06-30 01:13 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/17601.shtml)
+- 2026-06-30 01:13 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/1588193.shtml)
+- 2026-06-30 01:24 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/27497625091.shtml)
+- 2026-06-30 01:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/283699446.shtml)
+- 2026-06-30 01:24 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/481641025683.shtml)
+- 2026-06-30 01:22 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/63389400.shtml)
+- 2026-06-30 01:18 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/945981153.shtml)
+- 2026-06-30 01:21 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/68493275.shtml)
+- 2026-06-30 01:03 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/421559465.shtml)

@@ -1,58 +1,47 @@
-# 从“精准赋能”到“数智重塑”，科技、金融何以双向奔赴｜2026陆家嘴论坛热议
+# 新疆：特警护航高考，执勤现场秒变“招生简章”
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 界面新闻记者 | 安震 科技创新是引领现代化产业体系建设、实现实体经济高质量发展的核心动力。面对科创企业高风险、轻资产、长周期等特征，金融机构与政府引导基金应如何建立更加包容的风险分担与容错机制？ 与此同时，人工智能等技术的发展，正在重塑金融服务模式和行业生态，如何推动金融科技在风险可控的前提下深化应用？ 6月18日
+发布时间：2026年06月09日 13:54 来源：中国新闻网 高考考场外，新疆兵团第十二师公安特警助阵，颜值气场直接拉满。特警当场呼吁考生报考警校，执勤现场秒变“招生简章”。(作者：刘露露 姜瑞） 责任编辑：【魏聪聪】
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 界面新闻记者 | 安震 科技创新是引领现代化产业体系建设、实现实体经济高质量发展的核心动力。
+发布时间：2026年06月09日 13:54 来源：中国新闻网 高考考场外，新疆兵团第十二师公安特警助阵，颜值气场直接拉满。
 
-面对科创企业高风险、轻资产、长周期等特征，金融机构与政府引导基金应如何建立更加包容的风险分担与容错机制？
+特警当场呼吁考生报考警校，执勤现场秒变“招生简章”。
 
-与此同时，人工智能等技术的发展，正在重塑金融服务模式和行业生态，如何推动金融科技在风险可控的前提下深化应用？
-
-6月18日，在2026陆家嘴论坛全体大会上， 中外嘉宾围绕“金融如何服务实体经济”和“科技创新赋能金融高质量发展”展开讨论。
-
-以金融之力支持科技发展，用科技进步赋能金融应用，这是科技和金融的双向奔赴。
-
-投早投小投硬科技，金融机构怎么做？
-
-科技创新不同于传统产业，其高风险、轻资产、长周期的特征，对金融供给提出了特殊要求。
-
-上海新金融研究院理事长屠光绍指出，科技金融最核心的支点是“科技资本”，中国不缺资金，缺的是懂科技、能赋能的科技资本。
+(作者：刘露露 姜瑞） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 01:01 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 01:17 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 01:19 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 01:04 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 01:04 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 01:02 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 01:11 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 01:14 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 00:58 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 01:18 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 00:58 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 01:15 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 01:04 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 01:08 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 01:14 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 01:20 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 01:11 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 01:28 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 01:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 01:11 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 01:20 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 01:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:11 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/56326437580.shtml)
-- 2026-06-30 01:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/270815859.shtml)
-- 2026-06-30 01:21 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/0091877243.shtml)
-- 2026-06-30 01:10 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/234852.shtml)
-- 2026-06-30 01:15 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/52700811.shtml)
-- 2026-06-30 01:03 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/26634935579.shtml)
-- 2026-06-30 01:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/9601515785.shtml)
-- 2026-06-30 01:18 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/385375426.shtml)
-- 2026-06-30 01:22 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/38967.shtml)
-- 2026-06-30 01:18 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/468796121.shtml)
-- 2026-06-30 01:01 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/54431192.shtml)
-- 2026-06-30 01:19 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/246312734.shtml)
-- 2026-06-30 01:12 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/73658597.shtml)
-- 2026-06-30 01:00 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/516145036.shtml)
-- 2026-06-30 01:01 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/01453.shtml)
+- 2026-06-30 01:29 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/436806.shtml)
+- 2026-06-30 01:01 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/04024090.shtml)
+- 2026-06-30 01:01 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/43244.shtml)
+- 2026-06-30 01:01 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/29449.shtml)
+- 2026-06-30 01:11 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/6914855.shtml)
+- 2026-06-30 01:23 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/798383249904.shtml)
+- 2026-06-30 01:08 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/150201.shtml)
+- 2026-06-30 01:14 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/24293822.shtml)
+- 2026-06-30 01:19 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/922824.shtml)
+- 2026-06-30 01:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/50369593863.shtml)
+- 2026-06-30 01:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/37331373.shtml)
+- 2026-06-30 01:27 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/58574822.shtml)
+- 2026-06-30 01:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/12653291141.shtml)
+- 2026-06-30 01:03 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/24063.shtml)
+- 2026-06-30 01:08 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/25605703556.shtml)

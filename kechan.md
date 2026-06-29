@@ -1,59 +1,58 @@
-# 中英出版界签约合作出版《伍连德画传》英文版
+# 陕西入境旅客综合服务平台正式启用
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 《伍连德画传》英文版版权输出发布会暨签约仪式6月17日在第32届北京国际图书博览会现场举行。京版若晴公司与英国新一代出版社签署了《伍连德画传》英文版合作协议。 伍连德是中国卫生防疫、检疫事业以及中国现代医学等领域的先驱，诺贝尔奖首位华人候选人。《伍连德画传》依托作者历时十余载挖掘、整理的史料，集纳近800幅历史影像，以图文并茂、通俗生动的画传形式，完整再
+中新网西安6月9日电 (记者 阿琳娜)陕西入境旅客综合服务平台启用仪式9日在西安咸阳国际机场举行。该平台设置入境事务、文旅综合、交通接驳、金融通信等功能板块，集成政策咨询、文旅预订、出行规划、外币兑换等服务。 此次落地西安咸阳国际机场T5航站楼的入境旅客综合服务平台，由陕西省文化和旅游厅牵头统筹，多方携手共建，打破部门与行业服务壁垒，打造线上线下协同、国内国际联动的一体化服务矩
 
 ## 正文
 
-中新网北京6月17日电 《伍连德画传》英文版版权输出发布会暨签约仪式6月17日在第32届北京国际图书博览会现场举行。
+中新网西安6月9日电 (记者 阿琳娜)陕西入境旅客综合服务平台启用仪式9日在西安咸阳国际机场举行。
 
-京版若晴公司与英国新一代出版社签署了《伍连德画传》英文版合作协议。
+该平台设置入境事务、文旅综合、交通接驳、金融通信等功能板块，集成政策咨询、文旅预订、出行规划、外币兑换等服务。
 
-伍连德是中国卫生防疫、检疫事业以及中国现代医学等领域的先驱，诺贝尔奖首位华人候选人。
+此次落地西安咸阳国际机场T5航站楼的入境旅客综合服务平台，由陕西省文化和旅游厅牵头统筹，多方携手共建，打破部门与行业服务壁垒，打造线上线下协同、国内国际联动的一体化服务矩阵，让远道而来的国际游客落地即享便捷服务，真切感受三秦大地的热情与温度。
 
-《伍连德画传》依托作者历时十余载挖掘、整理的史料，集纳近800幅历史影像，以图文并茂、通俗生动的画传形式，完整再现了伍连德跌宕传奇的一生。
+据了解，平台坚守公益属性为主、市场化运营为辅的定位，建立标准化巡检、满意度考核等管理制度，后续还将联动各地市推出文旅消费活动，进一步激活入境旅游消费潜力。
 
-出席仪式的《伍连德画传》作者、伍连德亲属代表及伍连德权益在华唯⼀授权维护⼈黄建堃表示，伍连德与英国渊源深厚，是剑桥首位华人医学博士，且长期推动中英文化学术交流。
+陕西省文化和旅游厅党组书记、厅长高阳表示，建设入境旅客综合服务平台，是陕西聚力打造文化强省、培育万亿级文旅产业集群的务实举措，更是推动文旅与航空深度融合、提升涉外服务品质的生动实践。
 
-希望通过《伍连德画传》英文版的推出，依托全球传播渠道，更好地让世界读懂伍连德济世为民的医者精神。
+陕西将以平台为纽带，深化多方协同联动，持续丰富服务内涵、打磨服务细节、健全保障体系，致力将其打造为全国口岸入境服务标杆、中外人文交流的重要桥梁，让丝路古韵与时代新风借助文旅交流走向世界。
 
-京版若晴公司董事长袁海表示，《伍连德画传》版权输出合作体现了中英出版与医学人文文化的深度交融。
-
-未来将继续立足首都出版优势，持续深化国际版权合作，打造更多可传播、可感知、可共鸣的中国原创好书，持续助力中华文化国际传播。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 01:03 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 01:07 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 01:18 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 01:13 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 01:05 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 01:03 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 01:08 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 01:00 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 01:02 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 01:06 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 00:58 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-30 01:10 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 01:21 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 01:28 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 01:05 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 01:27 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 01:20 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 01:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 01:29 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 01:13 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 01:27 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 01:07 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 01:06 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 01:24 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 01:10 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 01:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/306682.shtml)
-- 2026-06-30 01:05 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/425763635285.shtml)
-- 2026-06-30 01:23 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/147992.shtml)
-- 2026-06-30 00:58 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/95951.shtml)
-- 2026-06-30 01:20 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/23696021.shtml)
-- 2026-06-30 01:19 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/232666768.shtml)
-- 2026-06-30 00:56 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/360426731.shtml)
-- 2026-06-30 01:21 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/009245073661.shtml)
-- 2026-06-30 01:08 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/81573921297.shtml)
-- 2026-06-30 01:13 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/412839.shtml)
-- 2026-06-30 01:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/08276552701.shtml)
-- 2026-06-30 01:05 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/78290052.shtml)
-- 2026-06-30 01:12 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/2722698.shtml)
-- 2026-06-30 01:02 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/363970200.shtml)
-- 2026-06-30 00:55 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/20228694879.shtml)
+- 2026-06-30 01:14 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/25647080098.shtml)
+- 2026-06-30 01:10 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/396075899.shtml)
+- 2026-06-30 01:05 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/77241.shtml)
+- 2026-06-30 01:28 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/448575165592.shtml)
+- 2026-06-30 01:29 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/189765.shtml)
+- 2026-06-30 01:22 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/45872739014.shtml)
+- 2026-06-30 01:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/617682.shtml)
+- 2026-06-30 01:20 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/76303863.shtml)
+- 2026-06-30 01:23 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/3314522.shtml)
+- 2026-06-30 01:25 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/33409.shtml)
+- 2026-06-30 01:15 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/114397684.shtml)
+- 2026-06-30 01:23 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/469228512.shtml)
+- 2026-06-30 01:00 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/5485428.shtml)
+- 2026-06-30 01:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/952942325.shtml)
+- 2026-06-30 01:01 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/24691.shtml)

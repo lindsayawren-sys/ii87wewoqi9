@@ -1,57 +1,58 @@
-# 邦达亚洲:美联储加息预期升温 黄金回落收跌
+# “海天雄鹰”的新航迹——来自东部战区海军航空兵某师的调查报告
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-6月18日，美国商务部周三发布的数据显示，5月零售销售环比增长0.9%，远高于预期的0.5%。经济学家指出，4月和5月的大规模政府退税为消费提供了助力，但这一现金缓冲正在开始消退。5月加油站销售额环比增长3.4%，高于4月的2.4%，同比则大幅增长26.5%。剔除加油站销售额后，5月零售销售增长0.7%，这表明消费增长呈现广泛分布。服装、配饰及家具等门店销售均实现增长，线上销售
+张德升 郝勇飞 本报记者 侯永波 华东某机场，旭日初升。东部战区海军航空兵某师长航时跨昼夜飞行训练刚一结束，一场复盘总结随即在塔台休息室展开。 “能打仗、打胜仗是军人最大的实绩。平时训练再热闹、场面再好看，若经不起实战检验，便是政绩观出现偏差。”该师师长的一席话掷地有声，“面对军事训练加速转型，我们要愿挑最重的担子、能啃最硬的骨头，努力破解训练难题，不断夯实胜战根基，确保部队召
 
 ## 正文
 
-6月18日，美国商务部周三发布的数据显示，5月零售销售环比增长0.9%，远高于预期的0.5%。
+张德升 郝勇飞 本报记者 侯永波 华东某机场，旭日初升。
 
-经济学家指出，4月和5月的大规模政府退税为消费提供了助力，但这一现金缓冲正在开始消退。
+东部战区海军航空兵某师长航时跨昼夜飞行训练刚一结束，一场复盘总结随即在塔台休息室展开。
 
-5月加油站销售额环比增长3.4%，高于4月的2.4%，同比则大幅增长26.5%。
+“能打仗、打胜仗是军人最大的实绩。
 
-剔除加油站销售额后，5月零售销售增长0.7%，这表明消费增长呈现广泛分布。
+平时训练再热闹、场面再好看，若经不起实战检验，便是政绩观出现偏差。
 
-服装、配饰及家具等门店销售均实现增长，线上销售增长1.5%。
+”该师师长的一席话掷地有声，“面对军事训练加速转型，我们要愿挑最重的担子、能啃最硬的骨头，努力破解训练难题，不断夯实胜战根基，确保部队召之即来、来之能战、战之必胜。
 
-当然，也存在部分疲弱领域，电子及家电商店和百货商店销售额均出现小幅下滑。
+” 头脑清醒、思路清晰，源于该师党委一班人对“业绩都是干出来的，真干才能真出业绩、出真业绩”的深刻理解。
 
-周三发布的数据仅反映消费支出的一个截面，未涵盖旅游和酒店住宿等服务性消费。
+近年来，该师官兵牢固树立战斗力这个唯一的根本的标准，实干担当、向战奋飞，不断提升打赢本领，努力把部队锻造成为克敌制胜的海空利剑。
 
-在唯一纳入统计的服务类别中，餐饮支出下降了0.1%。
+飞行课目的“增”与“减”—— 加进来的是处置复杂特情的底气，减掉的是好看却不中用的虚功 去年底，一份调整过的阶段性训练计划表公布后，在该师官兵中掀起不小波澜。
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 01:10 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 01:03 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 01:20 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 01:18 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 01:11 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 01:01 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 01:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 00:58 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 01:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 01:03 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 01:07 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 01:07 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 01:15 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 01:24 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 01:13 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 01:24 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 01:21 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 01:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 01:21 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 01:07 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 01:17 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 01:13 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:09 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/974134345.shtml)
-- 2026-06-30 00:59 - [月亮](http://www.share.kurohicncr.top/Article/details/821365.shtml)
-- 2026-06-30 01:06 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/19210711538.shtml)
-- 2026-06-30 01:08 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/42541.shtml)
-- 2026-06-30 00:58 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/11882.shtml)
-- 2026-06-30 01:18 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/6663813460.shtml)
-- 2026-06-30 01:07 - [一见倾心](https://www.blog.minike.top/Article/details/7660330619.shtml)
-- 2026-06-30 01:02 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/09391471394.shtml)
-- 2026-06-30 01:04 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/6390461.shtml)
-- 2026-06-30 01:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/5967582606.shtml)
-- 2026-06-30 01:14 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/72811499.shtml)
-- 2026-06-30 00:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/93604753.shtml)
-- 2026-06-30 01:20 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/836881124.shtml)
-- 2026-06-30 01:01 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/56252722590.shtml)
-- 2026-06-30 01:18 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/2386183960.shtml)
+- 2026-06-30 01:00 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/9569454903.shtml)
+- 2026-06-30 01:22 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/586011833255.shtml)
+- 2026-06-30 01:04 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/876849.shtml)
+- 2026-06-30 01:22 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/34638484793.shtml)
+- 2026-06-30 01:00 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/956794.shtml)
+- 2026-06-30 01:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/415814196.shtml)
+- 2026-06-30 01:15 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/41278598053.shtml)
+- 2026-06-30 01:19 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/52190302283.shtml)
+- 2026-06-30 01:24 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/555450.shtml)
+- 2026-06-30 01:26 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/2703721527.shtml)
+- 2026-06-30 01:10 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/35176.shtml)
+- 2026-06-30 01:25 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/47268791.shtml)
+- 2026-06-30 01:29 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/01377.shtml)
+- 2026-06-30 01:06 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/469226930.shtml)
+- 2026-06-30 01:24 - [急先锋](https://www.share.kurohicncr.top/Article/details/3148827.shtml)

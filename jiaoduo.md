@@ -1,56 +1,44 @@
-# 破解债市钱荒负反馈，央行拟用互换机制“兜底”非银紧急流动性
+# 中国足球小将抵达巴西参赛 教练董路谈意大利夺冠：中国足球什么都不缺 只缺胜利 我不认为差距是决定比赛胜负的主要原因 找对方法同样可以以弱胜强
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-6月17日，中国人民银行行长潘功胜在2026陆家嘴论坛上明确表态，央行正研究设立特定情景下非银流动性支持宏观审慎工具。当债券等市场出现系统性压力，正常流动性渠道受阻，机构群体性面临流动性危机且可能引发系统性风险时，通过互换方式向非银机构提供紧急流动性。 这一制度构想并非首次提出。回溯至2025年10月，潘功胜在2025年金融街论坛年会开幕式上便已释放政策信号，称人民银行将综合平
+发布时间：2026年06月09日 14:10 来源：中国新闻网 中国足球小将抵达巴西参赛 教练董路谈意大利夺冠：中国足球什么都不缺 只缺胜利 我不认为差距是决定比赛胜负的主要原因 找对方法同样可以以弱胜强 责任编辑：【翟璐】
 
 ## 正文
 
-6月17日，中国人民银行行长潘功胜在2026陆家嘴论坛上明确表态，央行正研究设立特定情景下非银流动性支持宏观审慎工具。
-
-当债券等市场出现系统性压力，正常流动性渠道受阻，机构群体性面临流动性危机且可能引发系统性风险时，通过互换方式向非银机构提供紧急流动性。
-
-这一制度构想并非首次提出。
-
-回溯至2025年10月，潘功胜在2025年金融街论坛年会开幕式上便已释放政策信号，称人民银行将综合平衡维护金融市场稳定运行和防范金融市场道德风险，探索在特定情景下向非银机构提供流动性的机制安排。
-
-此次陆家嘴论坛上，央行进一步细化工具适用场景与实施路径，标志着该项宏观审慎工具从框架构思迈入落地研究阶段。
-
-近年来，随着非银产品规模快速扩张，其内部所面临的流动性风险也容易通过机构行为，放大为整个市场的冲击，典型案例包括2022年末的理财赎回负反馈，2025年三季度债基产品的集中降久期，两段风波中，10年期国债收益率的上行幅度均超过20bp。
-
-兴业证券首席经济学家刘郁表示，在传统的货币工具体系下，央行向非银输送“兜底”流动性，通常需要经过商业银行等中间节点。
-
-2024年10月，央行正式创设证券、基金、保险公司互换便利工具（SFISF），非银机构可以通过质押债券、股票ETF、沪深300成分股等方式向央行获取紧急流动性。
+发布时间：2026年06月09日 14:10 来源：中国新闻网 中国足球小将抵达巴西参赛 教练董路谈意大利夺冠：中国足球什么都不缺 只缺胜利 我不认为差距是决定比赛胜负的主要原因 找对方法同样可以以弱胜强 责任编辑：【翟璐】
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 00:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 01:03 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 01:06 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 00:57 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 00:55 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 01:08 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 01:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 01:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 01:18 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 01:13 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 01:17 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 01:23 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 01:15 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 01:10 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 01:14 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 01:08 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 01:02 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 01:20 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 01:13 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 01:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 01:01 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/09659223.shtml)
-- 2026-06-30 01:09 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/4925721.shtml)
-- 2026-06-30 01:05 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/95929132745.shtml)
-- 2026-06-30 01:08 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/46719.shtml)
-- 2026-06-30 01:06 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/335249185527.shtml)
-- 2026-06-30 00:56 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/8460741623.shtml)
-- 2026-06-30 01:22 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/507490.shtml)
-- 2026-06-30 01:01 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/5104395241.shtml)
-- 2026-06-30 01:02 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/16960956857.shtml)
-- 2026-06-30 00:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/13897231.shtml)
-- 2026-06-30 01:05 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/18820884557.shtml)
-- 2026-06-30 01:05 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/57295566791.shtml)
-- 2026-06-30 00:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/22113206586.shtml)
-- 2026-06-30 01:20 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/591892.shtml)
-- 2026-06-30 01:13 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/2652932133.shtml)
+- 2026-06-30 01:14 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/6183993864.shtml)
+- 2026-06-30 01:19 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/64330301009.shtml)
+- 2026-06-30 01:27 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/607292888.shtml)
+- 2026-06-30 01:14 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/738591815071.shtml)
+- 2026-06-30 01:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/624781200475.shtml)
+- 2026-06-30 01:17 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/83697.shtml)
+- 2026-06-30 01:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/86691.shtml)
+- 2026-06-30 01:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/4266841810.shtml)
+- 2026-06-30 01:01 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/7303653.shtml)
+- 2026-06-30 01:07 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/4181112.shtml)
+- 2026-06-30 01:14 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/67345.shtml)
+- 2026-06-30 01:02 - [小娘惹](http://www.blog.minike.top/Article/details/412479.shtml)
+- 2026-06-30 01:23 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/9961578879.shtml)
+- 2026-06-30 01:18 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/79884106563.shtml)
+- 2026-06-30 01:06 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/7960153133.shtml)

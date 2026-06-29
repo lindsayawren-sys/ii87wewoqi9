@@ -1,59 +1,57 @@
-# 桃花潭龙舟赛启幕
+# 国信证券：深耕绿色金融 赋能低碳转型
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网合肥6月18日电 (记者 张强)24支本土龙舟队18日在安徽省泾县桃花潭竞逐，迎接端午节的到来。 唐代诗人李白曾于桃花潭写下“桃花潭水深千尺，不及汪伦送我情”的千古绝唱。桃花潭龙舟文化最早可以追溯到元末明初。 本次赛事以“微笑暖泾县，竞渡桃花潭”为主题。比赛现场，青、白、黄、黑四色龙舟灵动穿梭，菜籽龙、木龙等特色龙舟承载着民众对五谷丰登、岁岁安宁的质朴心愿。龙舟祭祀、“回
+绿色发展是高质量发展的底色。绿色金融作为推动产业升级、守护生态底色的关键力量，正持续为高质量发展注入澎湃动能。作为资本市场的参与者，国信证券坚守金融服务实体经济本源，把公司自身发展与国家战略紧密结合，践行绿色发展理念，持续加大绿色领域投入，以实际行动为绿色发展提供强劲动力，为实体经济低碳转型提供坚实金融支撑。 截至2026年一季度末，国信证券累计完成29单绿色金融股权融资项目，
 
 ## 正文
 
-中新网合肥6月18日电 (记者 张强)24支本土龙舟队18日在安徽省泾县桃花潭竞逐，迎接端午节的到来。
+绿色发展是高质量发展的底色。
 
-唐代诗人李白曾于桃花潭写下“桃花潭水深千尺，不及汪伦送我情”的千古绝唱。
+绿色金融作为推动产业升级、守护生态底色的关键力量，正持续为高质量发展注入澎湃动能。
 
-桃花潭龙舟文化最早可以追溯到元末明初。
+作为资本市场的参与者，国信证券坚守金融服务实体经济本源，把公司自身发展与国家战略紧密结合，践行绿色发展理念，持续加大绿色领域投入，以实际行动为绿色发展提供强劲动力，为实体经济低碳转型提供坚实金融支撑。
 
-本次赛事以“微笑暖泾县，竞渡桃花潭”为主题。
+截至2026年一季度末，国信证券累计完成29单绿色金融股权融资项目，融资规模超520亿元；发行绿色（含碳中和）债券124只，承销规模约459亿元。
 
-比赛现场，青、白、黄、黑四色龙舟灵动穿梭，菜籽龙、木龙等特色龙舟承载着民众对五谷丰登、岁岁安宁的质朴心愿。
+根据中国证券业协会发布的《2026年一季度证券公司债券（含企业债券）承销业务专项统计》，国信证券子公司国信资管绿色债券（含资产证券化产品）承销规模位列行业第二，产品家数位列行业第六。
 
-龙舟祭祀、“回娘家”等传统习俗再度呈现，唤醒乡土记忆。
+全链条专业服务 浇灌绿色产业沃土 国信证券基于自身多元化的金融产品与服务，在绿色融资、绿色投资、碳金融等领域深化创新，强化绿色项目全流程服务，提升资源配置效率，助力重点行业低碳转型，打造具有特色的综合化绿色金融服务体系，持续推动绿色金融发展。
 
-为丰富游客体验，主办方新增鱼灯巡游、打铁花展演，构建“日间竞渡、夜间赏韵”的全天候游玩体系。
+隆基绿能作为全球光伏行业的龙头企业，在单晶硅片与组件领域保持领先地位。
 
-赛事期间，桃花潭旅游度假区实行免门票惠民政策，进一步释放赛事红利。
+从初创企业到行业龙头的发展过程中，资金活水是关键支撑。
 
 ## 相关推荐
 
-- 2026-06-30 01:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 01:16 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 00:59 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 01:21 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 01:03 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 01:04 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 01:21 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 00:56 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 01:07 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 01:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 00:56 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 00:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 01:02 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 01:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 01:17 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 01:09 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 01:01 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 01:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 01:08 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 01:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 01:12 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 01:26 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 01:11 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 01:25 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.kurohicncr.top/Article/details/507255014.shtml)
-- 2026-06-30 01:23 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/189377520028.shtml)
-- 2026-06-30 01:08 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/188552.shtml)
-- 2026-06-30 01:11 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/813987481.shtml)
-- 2026-06-30 01:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/3565432.shtml)
-- 2026-06-30 01:20 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/343799.shtml)
-- 2026-06-30 01:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/19706.shtml)
-- 2026-06-30 01:14 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/540352.shtml)
-- 2026-06-30 00:58 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/22581284.shtml)
-- 2026-06-30 01:06 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/871190172.shtml)
-- 2026-06-30 01:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/119077.shtml)
-- 2026-06-30 01:18 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/824574.shtml)
-- 2026-06-30 00:59 - [千与千寻](http://www.share.minike.top/Article/details/5441716.shtml)
-- 2026-06-30 01:10 - [金刚川](https://www.blog.minike.top/Article/details/5032455115.shtml)
-- 2026-06-30 01:02 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/099744461725.shtml)
+- 2026-06-30 01:25 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/23616396561.shtml)
+- 2026-06-30 01:19 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/11916833.shtml)
+- 2026-06-30 01:07 - [扫黑风暴](http://www.blog.minike.top/Article/details/9020729174.shtml)
+- 2026-06-30 01:01 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/3556348.shtml)
+- 2026-06-30 01:00 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/870999680176.shtml)
+- 2026-06-30 01:09 - [周生如故](http://www.blog.kurohicncr.top/Article/details/0906472547.shtml)
+- 2026-06-30 01:03 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/9859328617.shtml)
+- 2026-06-30 01:06 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/126097972789.shtml)
+- 2026-06-30 01:12 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/0350717.shtml)
+- 2026-06-30 01:14 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/64798588.shtml)
+- 2026-06-30 01:25 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/107182663.shtml)
+- 2026-06-30 01:07 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/2211765698.shtml)
+- 2026-06-30 01:17 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/91153.shtml)
+- 2026-06-30 01:14 - [千香](http://www.share.minike.top/Article/details/77264390.shtml)
+- 2026-06-30 01:18 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/14939.shtml)

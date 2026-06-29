@@ -1,45 +1,56 @@
-# 欧洲三大股指17日涨跌不一
+# SpaceX影响力加深，xAI更换Grok训练负责人
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 14:49 来源：央视新闻 责任编辑：【王祎】
+一份内部备忘录显示，埃隆·马斯克旗下的人工智能公司xAI已从SpaceX的星链卫星互联网部门调入一名高管，由其负责Grok聊天机器人的模型训练团队。 新上任的是杰克·加拉贝迪安，他自2021年起在SpaceX担任星链项目工程师。加入xAI后，他将接管“人类数据团队”，该团队由数百名各领域专家组成，负责从金融到科学等专业方向对Grok进行训练。此前负责该团队的是年轻工程师迭戈·帕
 
 ## 正文
 
-发布时间：2026年06月18日 14:49 来源：央视新闻 责任编辑：【王祎】
+一份内部备忘录显示，埃隆·马斯克旗下的人工智能公司xAI已从SpaceX的星链卫星互联网部门调入一名高管，由其负责Grok聊天机器人的模型训练团队。
+
+新上任的是杰克·加拉贝迪安，他自2021年起在SpaceX担任星链项目工程师。
+
+加入xAI后，他将接管“人类数据团队”，该团队由数百名各领域专家组成，负责从金融到科学等专业方向对Grok进行训练。
+
+此前负责该团队的是年轻工程师迭戈·帕西尼，他于2023年高中毕业后因赢得xAI黑客马拉松而受到马斯克赏识。
+
+此次人事调整是xAI近期管理层大换血的最新一环。
+
+自2026年2月SpaceX完成对xAI的收购以来，马斯克正将其商业帝国的核心人马全面注入这家AI公司。
+
+此前，SpaceX公司总裁格温妮·肖特韦尔已开始督导xAI运营，前星链高管迈克尔·尼科尔斯出任xAI总裁，SpaceX首席财务官布雷特·约翰森则同时督管xAI的财务运营。
+
+xAI正面临严峻挑战。
 
 ## 相关推荐
 
-- 2026-06-30 01:06 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 00:58 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 01:19 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 01:11 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 01:09 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 01:02 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 01:11 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 00:55 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 01:05 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-30 01:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 01:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 01:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 00:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 01:25 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 01:17 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 01:17 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 01:14 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 01:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 01:29 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 01:02 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 01:15 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 01:19 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 01:16 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:10 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/5748788574.shtml)
-- 2026-06-30 01:02 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/92963.shtml)
-- 2026-06-30 01:21 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/2856884.shtml)
-- 2026-06-30 01:17 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/715436676.shtml)
-- 2026-06-30 01:21 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/7515122.shtml)
-- 2026-06-30 01:18 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/434372508669.shtml)
-- 2026-06-30 01:08 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/21466391.shtml)
-- 2026-06-30 01:20 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/9392678.shtml)
-- 2026-06-30 00:57 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/33300062187.shtml)
-- 2026-06-30 01:19 - [女心理师](http://www.share.kurohicncr.top/Article/details/623467722283.shtml)
-- 2026-06-30 01:18 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/152213217582.shtml)
-- 2026-06-30 01:21 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/680691911049.shtml)
-- 2026-06-30 00:54 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/399829556.shtml)
-- 2026-06-30 01:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/32819.shtml)
-- 2026-06-30 01:00 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/586382.shtml)
+- 2026-06-30 01:21 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/8058963.shtml)
+- 2026-06-30 01:13 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/210689.shtml)
+- 2026-06-30 01:02 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/212346.shtml)
+- 2026-06-30 01:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/214392.shtml)
+- 2026-06-30 01:03 - [沙丘](http://www.blog.minike.top/Article/details/43645078465.shtml)
+- 2026-06-30 01:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/27567805.shtml)
+- 2026-06-30 01:04 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/919046895035.shtml)
+- 2026-06-30 01:22 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/784735.shtml)
+- 2026-06-30 01:17 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/2372709829.shtml)
+- 2026-06-30 01:17 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/47639.shtml)
+- 2026-06-30 01:07 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/25823440.shtml)
+- 2026-06-30 01:05 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/448975296514.shtml)
+- 2026-06-30 01:22 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/32985347.shtml)
+- 2026-06-30 01:01 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/9493465980.shtml)
+- 2026-06-30 01:09 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/24499.shtml)

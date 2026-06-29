@@ -1,57 +1,58 @@
-# 博时宏观观点：海外扰动缓解，考虑均衡配置
+# 东阳光转型算力：成立不足两月子公司拿下310亿元订单 严苛履约条件拷问公司垫资能力
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-海外方面，油价拉动5月美国CPI超4%，接近同比高点，住房项恢复正常及核心商品需求偏弱使得核心CPI环比略低于预期，总体而言，5月美国通胀没有进一步激化加息预期。与此同时，随着近期美伊谈判出现积极进展，美元流动性收紧已出现缓和迹象，全球风险偏好有所提振。 国内方面，5月CPI同比持平上月，PPI升至3.9%，1-5月PPI累计同比回升至1%，有望带动二季度GDP平减指数回正及企
+6月2日，东阳光发布公告，称控股子公司东莞东阳光云智算科技有限公司（以下简称“东阳光云智算”）与某企业B公司（仅代称，无实际指代对象）签署《算力服务采购合同》，合同预计总金额区间为人民币100亿元至120亿元。 而不到一个月之前，该子公司刚刚与另一匿名客户A公司签署金额为人民币160亿元至190亿元的算力大单。两份合同订单金额最高可达到310亿元，是东阳光2025年全年营收的两
 
 ## 正文
 
-海外方面，油价拉动5月美国CPI超4%，接近同比高点，住房项恢复正常及核心商品需求偏弱使得核心CPI环比略低于预期，总体而言，5月美国通胀没有进一步激化加息预期。
+6月2日，东阳光发布公告，称控股子公司东莞东阳光云智算科技有限公司（以下简称“东阳光云智算”）与某企业B公司（仅代称，无实际指代对象）签署《算力服务采购合同》，合同预计总金额区间为人民币100亿元至120亿元。
 
-与此同时，随着近期美伊谈判出现积极进展，美元流动性收紧已出现缓和迹象，全球风险偏好有所提振。
+而不到一个月之前，该子公司刚刚与另一匿名客户A公司签署金额为人民币160亿元至190亿元的算力大单。
 
-国内方面，5月CPI同比持平上月，PPI升至3.9%，1-5月PPI累计同比回升至1%，有望带动二季度GDP平减指数回正及企业盈利增速持续回升。
+两份合同订单金额最高可达到310亿元，是东阳光2025年全年营收的两倍多。
 
-5月出口同比较4月的14.1%加速上行至19.4%，今年1-5月出口增速录得15.5%，AI产业链高景气、出口价格上行、海外增长回暖等因素共同推动出口景气度。
+市场比较关注的是，公司已手握成熟IDC资产秦淮数据，为什么却让一家新设子公司主导百亿订单的落地？
 
-市场策略方面，债券方面，上周资金面持续收紧，海外加息预期升温，非银负债端赎回压力浮现，债市整体调整。
+东阳光成立于1996年，目前其主营业务包括电器元器件、高端铝箔、化工新材料、能源材料四大板块，其中高端铝箔为公司第一大业务，2025年营收规模59.21亿元，营收占比高达39.65%，但该业务毛利率在四大业务中排名倒数，仅为4.12%，比上年同比下降0.45个百分点。
 
-6月以来央行通过公开市场操作、政策窗口指导等措施，资金面约束下债市下行空间可能有限。
+东阳光第二大业务为化工新材料，2025年营收40.60亿元，营收占比27.18%，毛利率为43.33%。
 
-但基本面和信贷疲弱背景下央行或也无意进一步收紧资金面，配置盘欠配压力仍在，债市大幅调整空间也有限，短期内或回归震荡格局。
+从业务属性来看，铝箔业务盈利能力薄弱，化工新材料业务又严重受制于行业周期，公司的业务基本盘缺乏高盈利、高成长板块的支撑。
 
-关注资金面变化及本周美联储议息会议表态对国内外风险偏好的影响。
+在此情形下，东阳光将目光转向了AI基础设施赛道。
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 01:13 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 01:23 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 01:06 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 00:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 01:06 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 01:02 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 00:58 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 01:01 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 01:18 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 01:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 01:22 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 01:28 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 01:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 01:12 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 01:01 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 01:28 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 01:27 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 01:06 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 01:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 01:28 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 01:00 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 01:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:04 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/690136870818.shtml)
-- 2026-06-30 01:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/0218966.shtml)
-- 2026-06-30 01:15 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/64350497659.shtml)
-- 2026-06-30 01:09 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/661938.shtml)
-- 2026-06-30 01:15 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/7602842.shtml)
-- 2026-06-30 01:01 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/38475102.shtml)
-- 2026-06-30 01:15 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/801702.shtml)
-- 2026-06-30 01:20 - [一见倾心](http://www.share.minike.top/Article/details/374303733.shtml)
-- 2026-06-30 01:01 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/08747.shtml)
-- 2026-06-30 01:11 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/741145.shtml)
-- 2026-06-30 01:02 - [毒液2](http://www.blog.kurohicncr.top/Article/details/937858372175.shtml)
-- 2026-06-30 01:17 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/887485647429.shtml)
-- 2026-06-30 00:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/93065.shtml)
-- 2026-06-30 01:10 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/755520540.shtml)
-- 2026-06-30 00:56 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/2327084.shtml)
+- 2026-06-30 01:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/856845491.shtml)
+- 2026-06-30 01:00 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/85555.shtml)
+- 2026-06-30 01:18 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/2648307.shtml)
+- 2026-06-30 01:23 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/559069325569.shtml)
+- 2026-06-30 01:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/763012498225.shtml)
+- 2026-06-30 01:04 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/3747191.shtml)
+- 2026-06-30 01:03 - [美人鱼](http://www.blog.minike.top/Article/details/96506.shtml)
+- 2026-06-30 01:03 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/62175.shtml)
+- 2026-06-30 01:15 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/759866922.shtml)
+- 2026-06-30 01:14 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/090744.shtml)
+- 2026-06-30 01:09 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/205628417854.shtml)
+- 2026-06-30 01:25 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/2020649.shtml)
+- 2026-06-30 01:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/7165049.shtml)
+- 2026-06-30 01:22 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/107092.shtml)
+- 2026-06-30 01:25 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/06070364.shtml)

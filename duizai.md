@@ -1,53 +1,61 @@
-# 五月上海开具离境退税申请单同比大增3.6倍
+# 贵州银行：董事长杨明尚辞任 提名杨鸿钧为执行董事候选人
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新社上海6月17日电 (记者 姜煜)记者17日从上海市税务局获悉，今年5月，上海开具离境退税申请单与去年同期相比增长3.6倍，离境退税销售额同比增长83.9%。 据上海市商务委当天介绍，截至5月底，第七届上海“五五购物节”举办了21个重点IP活动以及百余场促消费活动，有效带动入境消费持续增长。 今年上海“五五购物节”亮点纷呈：升级“五五购物节—爱购上海全球大直播”，以“城市漫
+6月8日金融一线消息，贵州银行今日发布公告称，董事会于今日收到该行董事长、执行董事杨明尚的辞任函。因贵州省政府工作安排，杨明尚申请辞去该行董事长、执行董事、董事会战略发展委员会主任委员、香港联合交易所有限公司证券上市规则项下的授权代表以及在该行担任的其他一切职务。 贵州银行对杨明尚作出高度评价：“杨先生在履职过程中始终恪尽职守、勤勉敬业，坚决贯彻落实国家经济金融方针政策及重大决
 
 ## 正文
 
-中新社上海6月17日电 (记者 姜煜)记者17日从上海市税务局获悉，今年5月，上海开具离境退税申请单与去年同期相比增长3.6倍，离境退税销售额同比增长83.9%。
+6月8日金融一线消息，贵州银行今日发布公告称，董事会于今日收到该行董事长、执行董事杨明尚的辞任函。
 
-据上海市商务委当天介绍，截至5月底，第七届上海“五五购物节”举办了21个重点IP活动以及百余场促消费活动，有效带动入境消费持续增长。
+因贵州省政府工作安排，杨明尚申请辞去该行董事长、执行董事、董事会战略发展委员会主任委员、香港联合交易所有限公司证券上市规则项下的授权代表以及在该行担任的其他一切职务。
 
-今年上海“五五购物节”亮点纷呈：升级“五五购物节—爱购上海全球大直播”，以“城市漫游+实景直播+全域购物”新模式，带领海内外消费者沉浸式打卡申城首店、商业地标与文旅场景，深度解锁“文商旅体展”融合新体验；上海国际花卉节激活“赏花经济”，以参与花卉节为目的游览各会场的活动核心人群规模为202.63万人次，直接带动消费25.72亿元人民币，活动辐射的15个商圈展期内累计实现线下零售餐饮消费总计85.45亿元，同比增长16.1%；上海国际咖啡文化节主会场打造北外滩2.3公里岸线沉浸式消费场景，活动期间累计接待市民游客105.6万人次。
+贵州银行对杨明尚作出高度评价：“杨先生在履职过程中始终恪尽职守、勤勉敬业，坚决贯彻落实国家经济金融方针政策及重大决策部署，坚守金融初心本源。
 
-今年“五五购物节”期间，“环球小黄人调香实验室”全球首店、MUSINSA STANDARD中国旗舰店、万代南梦宫中国首家线下旗舰店、Vitra全国首家旗舰店、方寸黄金全国首店等多家高能级首店亮相上海。
+始终立足全行战略大局，聚焦中长期发展目标，统筹部署推进各项重点工作，保障本行战略规划落地见效，切实将顶层战略设计转化为高质量发展成果，持续推动党的领导与公司治理深度融合，健全完善现代金融企业治理体系，不断提升全行治理效能和发展动能；牢固树立底线思维，统筹发展与安全，持续完善全面风险管理体系，切实防范化解各类风险，坚决守住全行稳健经营底线；紧跟金融数字化发展趋势，全力推进业务运营、风险管控、金融服务数字化转型升级。
 
-同期，“巨肺装置艺术展”在上海首秀、GRAFF格拉夫珠宝亚洲巡展亮相上海、百老汇现象级音乐剧《梦断花都》在上海举行中国首秀，首发首秀经济持续赋能上海消费升级。
+在其统筹引领下，全行‘十四五’期间主要经营指标实现稳步增长，高质量发展基础持续夯实，为全省经济社会发展作出积极贡献。
 
-(完)
+本行董事会借此机会对杨先生在任职期间对本行作出的贡献致以衷心感谢！
+
+” 贵州银行在公告中表示，为保障该行的公司治理平稳运行及正常经营，经该行董事一致推荐，执行董事、行长吴帆代为履行董事长、法定代表人职责，并履行授权代表职责。
+
+同日，贵州银行发布人事任命公告称，经贵州省政府建议，结合董事会工作需要，根据《中华人民共和国公司法》等有关法律法规和《贵州银行股份有限公司章程》、该行董事提名政策等有关规定，董事会于2026年6月8日召开会议，决定提名杨鸿钧为该行执行董事候选人。
 
 ## 相关推荐
 
-- 2026-06-30 01:18 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 00:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 01:12 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 01:14 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 01:12 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 01:23 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 01:08 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 01:11 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 00:58 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 01:13 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 01:14 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 01:22 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 01:19 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 01:00 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 01:16 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 01:00 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 01:02 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 01:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 01:28 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 01:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 01:26 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 01:28 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 01:05 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 01:01 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 01:22 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 01:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:22 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/8770994.shtml)
-- 2026-06-30 00:56 - [金刚川](http://www.blog.minike.top/Article/details/80239944.shtml)
-- 2026-06-30 01:19 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/267114.shtml)
-- 2026-06-30 00:59 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/2551332333.shtml)
-- 2026-06-30 01:10 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/7470417983.shtml)
-- 2026-06-30 00:56 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/71139217.shtml)
-- 2026-06-30 01:16 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/809697.shtml)
-- 2026-06-30 00:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/45304101.shtml)
-- 2026-06-30 01:20 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/732829.shtml)
-- 2026-06-30 01:06 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/909688.shtml)
-- 2026-06-30 01:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/96873.shtml)
-- 2026-06-30 01:19 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/911006.shtml)
-- 2026-06-30 01:00 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/80012.shtml)
-- 2026-06-30 01:22 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/97524710959.shtml)
-- 2026-06-30 00:56 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/050386.shtml)
+- 2026-06-30 01:02 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/8795769739.shtml)
+- 2026-06-30 01:25 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/835565813853.shtml)
+- 2026-06-30 01:07 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/740259890498.shtml)
+- 2026-06-30 01:00 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/45053084.shtml)
+- 2026-06-30 01:21 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/05281365045.shtml)
+- 2026-06-30 01:02 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/49966225800.shtml)
+- 2026-06-30 01:19 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/296003.shtml)
+- 2026-06-30 01:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/4057024194.shtml)
+- 2026-06-30 01:10 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/5330736488.shtml)
+- 2026-06-30 01:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/42303.shtml)
+- 2026-06-30 01:05 - [刘念回应](http://www.blog.minike.top/Article/details/350334478.shtml)
+- 2026-06-30 01:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/111214104.shtml)
+- 2026-06-30 01:09 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/28331.shtml)
+- 2026-06-30 01:06 - [内马尔替补](https://www.blog.minike.top/Article/details/66442462.shtml)
+- 2026-06-30 01:26 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/359673614599.shtml)

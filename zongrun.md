@@ -1,61 +1,61 @@
-# 熊猫中心2026年首对双胞胎大熊猫幼崽诞生
+# 国防部：日方炒作中方正当行动不可能得逞
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据中国大熊猫保护研究中心微信公众号消息，6月10日上午，熊猫中心大熊猫“芊芊”在雅安基地产下双胞胎幼崽，这是今年熊猫中心圈养大熊猫种群产下的首对双胞胎大熊猫幼崽。 “双胞胎幼崽均为雄性，目前发育良好，眼睛、耳朵、四肢、肩带开始变黑，叫声洪亮，经检查身体健康。其中一只幼崽由熊猫母兽哺育，另一只幼崽由人工育幼团队照顾，两只幼崽将轮流交换到母亲身边。大熊猫生单胎和
+中新网6月9日电 据国防部网站消息，6月9日下午，国防部新闻发言人张晓刚大校就近期涉军问题发布消息。 有记者提问：据报道，近期日方多次跟监辽宁舰航母编队在西太平洋训练，日本防卫省连续公布编队舰艇数量、所在海域、舰载机起降架次等情况。日防卫大臣表示将密切关注中方航母编队动向，继续进行警戒监视。请问对此有何评论？ 张晓刚表示，目前，辽宁舰航母编队正按计划在西太平洋相关海域开展训练。
 
 ## 正文
 
-中新网6月18日电 据中国大熊猫保护研究中心微信公众号消息，6月10日上午，熊猫中心大熊猫“芊芊”在雅安基地产下双胞胎幼崽，这是今年熊猫中心圈养大熊猫种群产下的首对双胞胎大熊猫幼崽。
+中新网6月9日电 据国防部网站消息，6月9日下午，国防部新闻发言人张晓刚大校就近期涉军问题发布消息。
 
-“双胞胎幼崽均为雄性，目前发育良好，眼睛、耳朵、四肢、肩带开始变黑，叫声洪亮，经检查身体健康。
+有记者提问：据报道，近期日方多次跟监辽宁舰航母编队在西太平洋训练，日本防卫省连续公布编队舰艇数量、所在海域、舰载机起降架次等情况。
 
-其中一只幼崽由熊猫母兽哺育，另一只幼崽由人工育幼团队照顾，两只幼崽将轮流交换到母亲身边。
+日防卫大臣表示将密切关注中方航母编队动向，继续进行警戒监视。
 
-大熊猫生单胎和双胞胎的概率各占约50%。
+请问对此有何评论？
 
-在生单胎的情况下，通常由母兽独立照顾幼崽；而在生双胞胎的情况下，为最大限度保障幼崽的成活与健康成长，我们采取‘母兽哺育一只、人工育幼一只’的饲养方式。
+张晓刚表示，目前，辽宁舰航母编队正按计划在西太平洋相关海域开展训练。
 
-长期监测数据显示，大熊猫母兽同时哺育两只幼崽并都成活的案例极低。
+此次行动不针对任何特定国家和目标，旨在通过远海训练提升航母编队战斗力。
 
-”熊猫中心雅安基地副主任李果6月18日介绍道。
+其间，日方多次进行跟踪监视，中方舰艇编队依法依规予以处置。
 
-大熊猫“芊芊”出生于2006年9月11日，今年2月上旬在熊猫中心卧龙神树坪基地完成自然交配，当月底转移至雅安基地。
+日方对中方正当行动煽宣炒作，妄图制造紧张、误导舆论，明眼人看得一清二楚，这是不可能得逞的。
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 01:22 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-30 01:18 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 01:08 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 00:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 01:22 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 01:06 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 01:06 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 01:04 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 00:55 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 01:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 00:59 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 01:13 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 01:15 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 01:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 01:24 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 01:05 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 01:09 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 01:12 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 01:02 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 01:12 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 01:19 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 01:00 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 01:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 01:20 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 01:11 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 01:11 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 01:04 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 01:19 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 01:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/7439102104.shtml)
-- 2026-06-30 01:23 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/4078962.shtml)
-- 2026-06-30 01:09 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/04373506.shtml)
-- 2026-06-30 01:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/90602022.shtml)
-- 2026-06-30 01:20 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/41377112.shtml)
-- 2026-06-30 00:57 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/088362.shtml)
-- 2026-06-30 01:16 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/7168982.shtml)
-- 2026-06-30 01:08 - [点菜也要教吗](https://www.share.minike.top/Article/details/31723648.shtml)
-- 2026-06-30 01:16 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/2213796359.shtml)
-- 2026-06-30 01:08 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/026316433.shtml)
-- 2026-06-30 00:57 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/69636.shtml)
-- 2026-06-30 00:58 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/0289330.shtml)
-- 2026-06-30 01:18 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/6088073.shtml)
-- 2026-06-30 00:55 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/3214213.shtml)
-- 2026-06-30 01:08 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/190295.shtml)
+- 2026-06-30 01:26 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/823102258490.shtml)
+- 2026-06-30 01:11 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/746104.shtml)
+- 2026-06-30 01:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/294316141.shtml)
+- 2026-06-30 01:23 - [千香](https://www.blog.kurohicncr.top/Article/details/26180.shtml)
+- 2026-06-30 01:17 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/76185799.shtml)
+- 2026-06-30 01:14 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/134243.shtml)
+- 2026-06-30 01:15 - [张凌赫 客串](http://www.share.minike.top/Article/details/7555368.shtml)
+- 2026-06-30 01:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/9054107.shtml)
+- 2026-06-30 01:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/930959791.shtml)
+- 2026-06-30 01:18 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/6351292954.shtml)
+- 2026-06-30 01:20 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/47764658.shtml)
+- 2026-06-30 01:10 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/72962.shtml)
+- 2026-06-30 01:16 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/141784715.shtml)
+- 2026-06-30 01:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/88854883.shtml)
+- 2026-06-30 01:24 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/91897981818.shtml)

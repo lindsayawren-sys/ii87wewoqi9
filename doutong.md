@@ -1,59 +1,56 @@
-# （机遇澳门）月球与行星科学全国重点实验室：澳门科研力量助力国家航天事业
+# 今年前5月中国纺织服装累计出口1167.2亿美元
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网澳门6月18日电 (记者 郑嘉伟)澳门科技大学月球与行星科学全国重点实验室副主任张小平17日接受媒体采访时表示，澳门高校和科研机构凭借“背靠祖国、联通世界”的优势，在国家航天工程中发挥着越来越重要的作用。作为国家天文与行星科学领域首个全国重点实验室，该实验室近5年在月球科学领域发表的论文数量位居全球第七，深度参与了从嫦娥一号到天问四号等深空探测任务。 张小平介绍，实验室目
+中新社北京6月9日电 (记者 阮煜琳)记者9日从中国纺织品进出口商会获悉，2026年1月至5月，中国纺织服装累计出口1167.2亿美元，同比增长0.1%。 数据显示，5月，中国纺织服装出口256.1亿美元，同比下降2.3%，环比增长6.4%，其中纺织品出口125.9亿美元，同比下降0.3%，环比下降0.9%，服装出口130.2亿美元，同比下降4.1%，环比增长14.7%。 1月
 
 ## 正文
 
-中新网澳门6月18日电 (记者 郑嘉伟)澳门科技大学月球与行星科学全国重点实验室副主任张小平17日接受媒体采访时表示，澳门高校和科研机构凭借“背靠祖国、联通世界”的优势，在国家航天工程中发挥着越来越重要的作用。
+中新社北京6月9日电 (记者 阮煜琳)记者9日从中国纺织品进出口商会获悉，2026年1月至5月，中国纺织服装累计出口1167.2亿美元，同比增长0.1%。
 
-作为国家天文与行星科学领域首个全国重点实验室，该实验室近5年在月球科学领域发表的论文数量位居全球第七，深度参与了从嫦娥一号到天问四号等深空探测任务。
+数据显示，5月，中国纺织服装出口256.1亿美元，同比下降2.3%，环比增长6.4%，其中纺织品出口125.9亿美元，同比下降0.3%，环比下降0.9%，服装出口130.2亿美元，同比下降4.1%，环比增长14.7%。
 
-张小平介绍，实验室目前正参与嫦娥五号、六号月壤样品分析，承担嫦娥七号月壤水分子分析仪、天问二号挥发分分析仪与尘埃分析仪等关键载荷研制任务，并牵头天问三号火星分子离子分析仪的研制工作。
+1月至5月，中国纺织服装累计出口1167.2亿美元，同比增长0.1%，其中纺织品出口594.8亿美元，增长1.7%，服装出口572.4亿美元，下降1.6%。
 
-张小平指出，澳门可利用现有的卫星数据分析、高精度传感器研发及样品分析平台三大积累，探索航天科技成果转化。
+该商会表示，当前，中国服装出口处于结构调整与动能转换的关键阶段。
 
-此外，实验室已在横琴设立分部，形成了“澳门基础研究—横琴中试转化—市场对接”的成熟协同模式。
+进入二季度以来，外部环境仍趋复杂，行业面临多重机遇与挑战并存的新格局。
 
-在推动国际航天合作方面，澳门高校已与欧洲航天局和葡萄牙、巴西等开展行星科学合作，未来计划成立国际学术组织，使澳门成为亚太区航天基础科学交流节点。
+中美经贸关系趋于缓和，带动5月中国服装出口环比实现较快增长、纺织服装整体出口环比增长6.4%。
 
-张小平说，澳门正积极对接粤港澳大湾区商业航天产业链，成为中国航天“走出去”与国际先进技术“引进来”的精准联系人。
+因去年基数较高，5月中国纺织服装出口同比微降，1月至5月累计出口保持微弱增长。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 01:13 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 01:16 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 00:59 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 01:13 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 01:02 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 01:15 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 01:21 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 01:06 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 01:13 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 01:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 01:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 01:03 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 01:24 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 01:10 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 01:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 01:15 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 01:07 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 01:20 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 01:19 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 01:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 01:19 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 01:15 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:05 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/2641099.shtml)
-- 2026-06-30 01:06 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/37697242458.shtml)
-- 2026-06-30 01:15 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/71051.shtml)
-- 2026-06-30 01:07 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/8468182499.shtml)
-- 2026-06-30 01:22 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/7106270487.shtml)
-- 2026-06-30 01:08 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/64797344.shtml)
-- 2026-06-30 01:01 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/18135635985.shtml)
-- 2026-06-30 01:23 - [勇敢的心第二部](http://www.share.minike.top/Article/details/163854414.shtml)
-- 2026-06-30 01:20 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/17472415566.shtml)
-- 2026-06-30 01:20 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/31321095.shtml)
-- 2026-06-30 00:55 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/375944860711.shtml)
-- 2026-06-30 01:11 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/733083.shtml)
-- 2026-06-30 01:03 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/86424.shtml)
-- 2026-06-30 01:16 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/32933224144.shtml)
-- 2026-06-30 01:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/88178289.shtml)
+- 2026-06-30 01:23 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/3370017597.shtml)
+- 2026-06-30 01:01 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/02672343.shtml)
+- 2026-06-30 01:00 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/25595232843.shtml)
+- 2026-06-30 01:29 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/6125551977.shtml)
+- 2026-06-30 01:11 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/025585341001.shtml)
+- 2026-06-30 01:14 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/122878707332.shtml)
+- 2026-06-30 01:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/51958035.shtml)
+- 2026-06-30 01:28 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/04345997.shtml)
+- 2026-06-30 01:14 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/51441263775.shtml)
+- 2026-06-30 01:16 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/327212949.shtml)
+- 2026-06-30 01:22 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/80592486245.shtml)
+- 2026-06-30 01:13 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/42307327316.shtml)
+- 2026-06-30 01:19 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/64264.shtml)
+- 2026-06-30 01:22 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/354718810983.shtml)
+- 2026-06-30 01:17 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/766910428.shtml)

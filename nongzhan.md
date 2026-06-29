@@ -1,52 +1,58 @@
-# 2026年1季度末金融业机构总资产556.3万亿元
+# 习近平同金正恩举行会谈
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-初步统计，2026年1季度末，我国金融业机构总资产为556.34万亿元，同比增长8.8%，其中，银行业机构总资产为494.72万亿元，同比增长8.0%；证券业机构总资产为19.15万亿元，同比增长25.4%；保险业机构总资产为42.47万亿元，同比增长12.2%。 金融业机构负债为509.53万亿元，同比增长9.0%，其中，银行业机构负债为455.69万亿元，同比增长8.1%；
+新华社平壤6月8日电(记者李忠发 杨依军 王超)当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。 习近平指出，时隔7年再次到访美丽的平壤，我感到十分高兴，也格外亲切。我愿同总书记同志一道，以这次访问为契机，加强对新时期中朝关系的顶层设计和战略指引，推动中朝关系与时俱进、得到更大发展，更好造福两国和两国人民，为地
 
 ## 正文
 
-初步统计，2026年1季度末，我国金融业机构总资产为556.34万亿元，同比增长8.8%，其中，银行业机构总资产为494.72万亿元，同比增长8.0%；证券业机构总资产为19.15万亿元，同比增长25.4%；保险业机构总资产为42.47万亿元，同比增长12.2%。
+新华社平壤6月8日电(记者李忠发 杨依军 王超)当地时间6月8日下午，中共中央总书记、国家主席习近平在平壤锦绣山迎宾馆同朝鲜劳动党总书记、国务委员长金正恩举行会谈。
 
-金融业机构负债为509.53万亿元，同比增长9.0%，其中，银行业机构负债为455.69万亿元，同比增长8.1%；证券业机构负债为15.14万亿元，同比增长30.9%；保险业机构负债为38.69万亿元，同比增长12.7%。
+习近平指出，时隔7年再次到访美丽的平壤，我感到十分高兴，也格外亲切。
 
-附表 2026年1季度末金融业机构资产负债项目表 余额（万亿元） 同比增速（%） 金融业机构总资产 556.34 8.8 其中：银行业 494.72 8.0 证券业 19.15 25.4 保险业 42.47 12.2 金融业机构负债 509.53 9.0 其中：银行业 455.69 8.1 证券业 15.14 30.9 保险业 12.7 金融业机构所有者权益 46.81 6.3 其中：银行业 39.03 6.0 证券业 4.00 8.3 保险业 3.78 7.3 注1：金融业机构总资产、负债和所有者权益是银行业、证券业和保险业机构相应指标的汇总数。
+我愿同总书记同志一道，以这次访问为契机，加强对新时期中朝关系的顶层设计和战略指引，推动中朝关系与时俱进、得到更大发展，更好造福两国和两国人民，为地区乃至世界和平稳定和发展繁荣作出积极贡献。
 
-其中，银行业机构指法人金融机构（含境外分行），不包括中央银行；证券业机构包括证券公司、期货公司和基金公司；保险业机构包括财产保险公司、人身保险公司、再保险公司、保险集团公司和保险资产管理公司。
+习近平强调，中朝两国同为共产党领导的社会主义国家。
 
-注2：数据来源于国家金融监督管理总局、中国证券监督管理委员会。
+中朝传统友谊植根于双方共同的理想信念和奋斗目标，有深厚历史积淀、坚实政治基础、牢固情感纽带，世代友好、命运与共、守望相助始终是中朝关系的鲜明特征。
 
-责任编辑：王馨茹
+无论国际形势如何变化，中国党和政府高度重视中朝传统友好的坚定立场不会改变，对金正恩总书记同志领导朝鲜社会主义事业的坚定支持不会改变，维护中朝双方共同利益和良好战略环境的坚定决心不会改变。
+
+习近平指出，面对加速演进的世界百年变局，双方要登高望远、继往开来，从两党两国关系发展历程中汲取智慧，在人类历史发展大势中把握机遇，为中朝传统友谊注入新的时代内涵和强劲动力，开辟两国社会主义事业和地区和平与发展更加美好的前景。
+
+习近平就发展中朝关系提出4点意见。
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 00:59 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 00:59 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 01:03 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 00:58 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 01:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 01:14 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 01:20 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 01:08 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 01:23 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 01:10 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 01:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 01:11 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 01:29 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 01:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 01:29 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 01:19 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 01:20 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-30 01:06 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 01:09 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 01:06 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 01:28 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:23 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/20135145.shtml)
-- 2026-06-30 01:04 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/08051.shtml)
-- 2026-06-30 01:01 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/892391062443.shtml)
-- 2026-06-30 01:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/09760731.shtml)
-- 2026-06-30 01:21 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/943583.shtml)
-- 2026-06-30 01:08 - [田曦薇没招了](https://www.blog.minike.top/Article/details/47543.shtml)
-- 2026-06-30 00:59 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/419133.shtml)
-- 2026-06-30 00:56 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/6509657319.shtml)
-- 2026-06-30 00:54 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/88369131691.shtml)
-- 2026-06-30 01:13 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/445812989.shtml)
-- 2026-06-30 01:20 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/21913062848.shtml)
-- 2026-06-30 01:19 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/18221322031.shtml)
-- 2026-06-30 00:54 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/945144.shtml)
-- 2026-06-30 00:57 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/739914.shtml)
-- 2026-06-30 00:56 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/755181921008.shtml)
+- 2026-06-30 01:25 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/203725094873.shtml)
+- 2026-06-30 01:04 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/96303347003.shtml)
+- 2026-06-30 01:11 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/83504156038.shtml)
+- 2026-06-30 01:08 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/130726.shtml)
+- 2026-06-30 01:28 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/8439620.shtml)
+- 2026-06-30 01:07 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/8615551654.shtml)
+- 2026-06-30 01:10 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/85482979905.shtml)
+- 2026-06-30 01:01 - [时光音乐会](http://www.blog.minike.top/Article/details/400997026.shtml)
+- 2026-06-30 01:18 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/961040397.shtml)
+- 2026-06-30 01:20 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/137935.shtml)
+- 2026-06-30 01:22 - [沙丘](http://www.share.minike.top/Article/details/03358.shtml)
+- 2026-06-30 01:14 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/569159931305.shtml)
+- 2026-06-30 01:06 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/864232.shtml)
+- 2026-06-30 01:07 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/304388332.shtml)
+- 2026-06-30 01:13 - [金牌调解](http://www.blog.minike.top/Article/details/3529841.shtml)

@@ -1,45 +1,59 @@
-# 甘咨询：公司制定了《违规经营投资责任追究办法》《应收账款管理办法》等相关制度
+# 光模块再踩刹车，高“光”创业板人工智能ETF（159363）三连跌，情绪“错杀”还是行情见顶？机构火线解读
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月18日，甘咨询在互动平台回答投资者提问时表示，公司制定了《违规经营投资责任追究办法》《应收账款管理办法》等相关制度，完善了“经营管理有关人员违反规定，未履行或未正确履行职责，在经营投资中造成国有资产损失以及其他严重不良后果，经调查核实和责任认定，对相关责任人进行问责处理”“市场运营部会同党委组织部（人力资源部）对应收账款的回收情况与相关业务部门和人员的绩效考核
+周一（6月8日），A股震荡调整，创业板指跌超3%，全市场近4600只个股下跌。盘面上，光模块CPO等算力硬件调整，天孚通信下跌7%日线三连跌，新易盛下跌3%，中际旭创下跌2%。 热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）大幅低开后跌幅收窄，最终场内收跌3.97%，日线三连跌，单日成交17.69亿元。 今日AI板块下跌，或
 
 ## 正文
 
-证券日报网讯 6月18日，甘咨询在互动平台回答投资者提问时表示，公司制定了《违规经营投资责任追究办法》《应收账款管理办法》等相关制度，完善了“经营管理有关人员违反规定，未履行或未正确履行职责，在经营投资中造成国有资产损失以及其他严重不良后果，经调查核实和责任认定，对相关责任人进行问责处理”“市场运营部会同党委组织部（人力资源部）对应收账款的回收情况与相关业务部门和人员的绩效考核及其奖惩相挂钩”等相关问责机制。
+周一（6月8日），A股震荡调整，创业板指跌超3%，全市场近4600只个股下跌。
 
-（文章来源：证券日报）
+盘面上，光模块CPO等算力硬件调整，天孚通信下跌7%日线三连跌，新易盛下跌3%，中际旭创下跌2%。
+
+热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）大幅低开后跌幅收窄，最终场内收跌3.97%，日线三连跌，单日成交17.69亿元。
+
+今日AI板块下跌，或主要受外部情绪扰动影响，但基本面核心逻辑未变，调整更多是结构性、情绪性的短期反应。
+
+从直接原因看，消息面上，6月5日美股上演“黑色星期五”，科技股普遍调整。
+
+背后有两重触发因素：一是美股AI芯片龙头博通业绩不及预期，二是美国强劲的非农数据推升流动性紧缩预期。
+
+兴业证券对此轮调整的定性认为，本轮调整并非支撑行情的核心逻辑发生变化，更多是情绪层面的扰动，且影响偏结构。
+
+近期的外部扰动并不能改变、反而有望更加强化A股盈利驱动的底层逻辑。
 
 ## 相关推荐
 
-- 2026-06-30 01:02 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 01:11 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 01:10 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 01:00 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 00:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 00:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 00:54 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 01:00 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 00:56 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 00:58 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 01:00 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 01:08 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 01:21 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 01:04 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 01:03 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 01:02 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 01:26 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 01:29 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 01:22 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 01:17 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 01:16 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 01:28 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 01:04 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 01:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:21 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/751041.shtml)
-- 2026-06-30 00:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/5503561.shtml)
-- 2026-06-30 01:10 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/4984246159.shtml)
-- 2026-06-30 01:05 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/1440389.shtml)
-- 2026-06-30 01:15 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/410530773625.shtml)
-- 2026-06-30 01:15 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/42493.shtml)
-- 2026-06-30 01:08 - [巴西vs日本](http://www.share.minike.top/Article/details/077726.shtml)
-- 2026-06-30 01:18 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/43076.shtml)
-- 2026-06-30 01:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/7851938.shtml)
-- 2026-06-30 01:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/282747080.shtml)
-- 2026-06-30 01:15 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/6483828.shtml)
-- 2026-06-30 01:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/493239.shtml)
-- 2026-06-30 01:16 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/56792037079.shtml)
-- 2026-06-30 01:06 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/576935703.shtml)
-- 2026-06-30 01:18 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/354213806.shtml)
+- 2026-06-30 01:21 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/98472.shtml)
+- 2026-06-30 01:12 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/908904959523.shtml)
+- 2026-06-30 01:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/970049345778.shtml)
+- 2026-06-30 01:09 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/0786955.shtml)
+- 2026-06-30 01:14 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/052145.shtml)
+- 2026-06-30 01:09 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/310350926.shtml)
+- 2026-06-30 01:13 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/476665031.shtml)
+- 2026-06-30 01:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/86611751464.shtml)
+- 2026-06-30 01:12 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/157451416.shtml)
+- 2026-06-30 01:15 - [沙丘](http://www.share.kurohicncr.top/Article/details/202929685758.shtml)
+- 2026-06-30 01:28 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/679388121.shtml)
+- 2026-06-30 01:13 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/706195095.shtml)
+- 2026-06-30 01:10 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/210160.shtml)
+- 2026-06-30 01:16 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/6730547.shtml)
+- 2026-06-30 01:16 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/104218.shtml)

@@ -1,60 +1,57 @@
-# 高盛：通胀如不降温 预计美联储最早9月加息
+# 微信AI大动作，腾讯异动拉升4%，港股互联网ETF华宝（513770）涨超1%底部连阳 未来AI竞争重心将转向生态构建
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-新华财经北京6月18日电 高盛集团副董事长、前达拉斯联邦储备主席卡普兰表示，如果通胀持续高企，美联储可能最早需要在9月加息。 卡普兰说：“如果从现在到9月之间通胀数据没有降温，美联储在9月或秋季采取行动将是明智之举。那会是更稳妥的做法。 ”在美联储主席沃什暗示仍专注于抗击通胀后，市场转向鹰派。交易员抛售短期国债，推高部分收益率。沃什的表态得到美联储成员个人预测的强化，其中半数成
+6月9日，市场情绪回暖，港股低开高走，权重龙头腾讯控股异动，现涨超4%，美团-W、哔哩哔哩-W、快手-W跟涨，阿里巴巴-W、小米集团-W微跌。港股AI核心工具——港股互联网ETF华宝（513770）场内价格现涨超1%，底部连阳。 截至目前，港股互联网板块估值已回落至历史底部。截至6月8日，重仓互联网龙头的中证港股通互联网指数自2025年10月3日开启回调以来累计下跌逾40%，当
 
 ## 正文
 
-新华财经北京6月18日电 高盛集团副董事长、前达拉斯联邦储备主席卡普兰表示，如果通胀持续高企，美联储可能最早需要在9月加息。
+6月9日，市场情绪回暖，港股低开高走，权重龙头腾讯控股异动，现涨超4%，美团-W、哔哩哔哩-W、快手-W跟涨，阿里巴巴-W、小米集团-W微跌。
 
-卡普兰说：“如果从现在到9月之间通胀数据没有降温，美联储在9月或秋季采取行动将是明智之举。
+港股AI核心工具——港股互联网ETF华宝（513770）场内价格现涨超1%，底部连阳。
 
-那会是更稳妥的做法。
+截至目前，港股互联网板块估值已回落至历史底部。
 
-”在美联储主席沃什暗示仍专注于抗击通胀后，市场转向鹰派。
+截至6月8日，重仓互联网龙头的中证港股通互联网指数自2025年10月3日开启回调以来累计下跌逾40%，当前市盈率PE（TTM）仅19.97倍，位于近5年5.36%分位点。
 
-交易员抛售短期国债，推高部分收益率。
+（注：中证港股通互联网指数近5个完整年度的涨跌幅分别为： 2021年，-36.61%；2022年，-23.01%；2023年，-24.74%；2024年，23.04%；2025年，27.02%。
 
-沃什的表态得到美联储成员个人预测的强化，其中半数成员预计年底前加息。
+指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
-卡普兰表示，如果通胀依然顽固，则表明货币政策仍过于宽松。
+） 消息面上，微信公开课昨日发布《关于开发者接入微信AI生态的指引》称，微信开放平台在充分尊重开发者权益和自主选择的基础上，面向开发者提供了便捷接入微信AI生态的能力，开发者可主动授权接入微信AI。
 
-他还指出：“美联储的政策行动很少是单次操作，加息往往以两次或三次的系列形式出现。
+据悉，京东首批内测接入，将围绕电商、外卖、物流等业务落地微信AI Agent（智能体）。
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 01:05 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 01:05 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 01:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 01:20 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 00:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 01:06 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 01:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 01:10 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 00:58 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 00:59 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 01:21 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 01:11 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 01:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 01:14 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 01:14 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 01:19 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-30 01:22 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 01:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 01:07 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 01:19 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 01:23 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 01:00 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 01:11 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 01:05 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:09 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/62347185.shtml)
-- 2026-06-30 01:05 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/776558647.shtml)
-- 2026-06-30 01:19 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/9534622837.shtml)
-- 2026-06-30 01:06 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/305825.shtml)
-- 2026-06-30 01:12 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/2405532359.shtml)
-- 2026-06-30 00:57 - [周生如故](http://www.share.minike.top/Article/details/7807883652.shtml)
-- 2026-06-30 01:18 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/26671223.shtml)
-- 2026-06-30 01:12 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/399043119.shtml)
-- 2026-06-30 01:01 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/24837760661.shtml)
-- 2026-06-30 00:56 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/200463837892.shtml)
-- 2026-06-30 01:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/805822.shtml)
-- 2026-06-30 01:15 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/2630754.shtml)
-- 2026-06-30 01:03 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/1918341777.shtml)
-- 2026-06-30 00:54 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/79031075459.shtml)
-- 2026-06-30 01:23 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/328388.shtml)
+- 2026-06-30 01:02 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/9858571.shtml)
+- 2026-06-30 01:15 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/2223962.shtml)
+- 2026-06-30 01:16 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/632824.shtml)
+- 2026-06-30 01:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/62451.shtml)
+- 2026-06-30 01:19 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/00646813.shtml)
+- 2026-06-30 01:09 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/27333021.shtml)
+- 2026-06-30 01:19 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/3705965131.shtml)
+- 2026-06-30 01:07 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/930245.shtml)
+- 2026-06-30 01:01 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/1258312.shtml)
+- 2026-06-30 01:19 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/43087624140.shtml)
+- 2026-06-30 01:29 - [小娘惹](https://www.blog.minike.top/Article/details/4677075375.shtml)
+- 2026-06-30 01:01 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/222973527.shtml)
+- 2026-06-30 01:01 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/879243469754.shtml)
+- 2026-06-30 01:29 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/4550054.shtml)
+- 2026-06-30 01:19 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/290933650024.shtml)

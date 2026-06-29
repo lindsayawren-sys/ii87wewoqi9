@@ -1,50 +1,61 @@
-# 市场监管总局督导货拉拉落实反垄断合规整改
+# H2DO启动北海绿氢可行性研究
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月18日电(记者 左雨晴) 18日，记者从市场监管总局获悉，前期，市场监管总局依据《中华人民共和国反垄断法》公开约谈货拉拉，要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改，依法合规经营，主动回应各方关切，自觉接受社会监督。市场监管总局加强对货拉拉反垄断合规整改的全过程督导，压实平台主体责任，督促其严格落实整改要求，具体包括
+荷兰本土氢能公司（H2DO）及其合作伙伴已启动一项关于荷兰北海30-50兆瓦海上绿氢项目的可行性与概念研究，旨在展示海上制氢如何支持海上风电的扩展，同时减轻陆上基础设施的压力。 这项由荷兰顶尖能源计划（TSE）资助的研究将评估通过管道连接至岸上的海上制氢设施的开发方案。 该项目旨在将海上风电场产生的电力在海上转化为绿氢，以帮助缓解电网拥堵，并减少对额外输电基础设施的需求。该概念
 
 ## 正文
 
-中新网北京6月18日电(记者 左雨晴) 18日，记者从市场监管总局获悉，前期，市场监管总局依据《中华人民共和国反垄断法》公开约谈货拉拉，要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改，依法合规经营，主动回应各方关切，自觉接受社会监督。
+荷兰本土氢能公司（H2DO）及其合作伙伴已启动一项关于荷兰北海30-50兆瓦海上绿氢项目的可行性与概念研究，旨在展示海上制氢如何支持海上风电的扩展，同时减轻陆上基础设施的压力。
 
-市场监管总局加强对货拉拉反垄断合规整改的全过程督导，压实平台主体责任，督促其严格落实整改要求，具体包括四方面内容：一是停止利用算法不合理压低货运价格，严格控制多因素计价订单占比，公平合理运用调价算法，推动平均每单运价、每公里运价合理回升，并常态化公示计价规则和运价涨降理由；二是全面取消强制独家车贴规则，停止提高抽成、罚款等惩罚措施，并将向司机退还不合理费用1.2亿元；三是切实降低平台抽成费率，平台整体抽成费率由整改前约11%降至约9%，每年可减轻司机负担超13亿元；四是全面保障司机合法权益，取消非付费会员司机每天接2单限制，提升车型与订单匹配度，取消扣减里程机制，每年投入里程偏差补偿金1000万元，优化司机申诉流程，投入司机帮扶资金5000万元。
+这项由荷兰顶尖能源计划（TSE）资助的研究将评估通过管道连接至岸上的海上制氢设施的开发方案。
 
-市场监管总局将深入整治平台经济领域“内卷式”竞争，督促货拉拉持续深化反垄断合规整改质效，保护货车司机和消费者利益，形成优质优价、良性竞争的市场秩序，促进平台企业与平台内经营者、劳动者实现共赢发展。
+该项目旨在将海上风电场产生的电力在海上转化为绿氢，以帮助缓解电网拥堵，并减少对额外输电基础设施的需求。
 
-(完)
+该概念还旨在减轻对稀缺的陆上土地以及电解所需淡水资源的压力。
+
+该研究的目标是为一座30-50兆瓦容量的海上制氢装置（包括氢气出口基础设施）提供一个可进入前端工程设计（FEED）阶段的概念设计，同时评估技术、商业、法规及许可要求。
+
+合作伙伴们还将评估该项目是否符合欧洲可再生燃料标准、北海空间规划考量、氢气销售商业结构，以及海上制氢与通过高压直流输电系统支持的陆上制氢设施之间的经济性比较。
+
+该联盟成员包括H2sea、Haskoning、TCI Risk Management和ECHT Regie in Transitie，并得到Smulders HSM及其他参与海上氢价值链的企业的支持。
+
+合作伙伴表示，该项目旨在将该概念发展到可进入下一开发阶段的成熟度，并为计划于2031年投入运行的示范项目做好前期准备。
 
 ## 相关推荐
 
-- 2026-06-30 00:55 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 01:20 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 01:20 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 01:12 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 00:54 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 01:21 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 00:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 01:04 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 01:14 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 00:58 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 01:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 01:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-30 01:29 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 01:14 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 01:28 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 01:26 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 01:06 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 01:02 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 01:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 01:01 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 01:21 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 01:21 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 01:25 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 01:15 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 01:29 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 01:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 01:18 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/651961514088.shtml)
-- 2026-06-30 01:12 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/36903269.shtml)
-- 2026-06-30 01:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/5268729.shtml)
-- 2026-06-30 01:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/243442136460.shtml)
-- 2026-06-30 01:07 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/93380262283.shtml)
-- 2026-06-30 01:19 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/39066168542.shtml)
-- 2026-06-30 01:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/91596524.shtml)
-- 2026-06-30 01:12 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/484803918198.shtml)
-- 2026-06-30 01:23 - [金刚川](https://www.share.minike.top/Article/details/716654114.shtml)
-- 2026-06-30 01:10 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/20867070.shtml)
-- 2026-06-30 01:23 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/21633092.shtml)
-- 2026-06-30 01:15 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/3090025062.shtml)
-- 2026-06-30 00:56 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/824053050.shtml)
-- 2026-06-30 01:15 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/50627648204.shtml)
-- 2026-06-30 00:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/856308.shtml)
+- 2026-06-30 01:25 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/2752308.shtml)
+- 2026-06-30 01:16 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/270481735531.shtml)
+- 2026-06-30 01:27 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/2195137.shtml)
+- 2026-06-30 01:29 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/341203.shtml)
+- 2026-06-30 01:24 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/044329030.shtml)
+- 2026-06-30 01:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/159558080.shtml)
+- 2026-06-30 01:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/3004373509.shtml)
+- 2026-06-30 01:01 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/749168.shtml)
+- 2026-06-30 01:24 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/064627833501.shtml)
+- 2026-06-30 01:16 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/78892.shtml)
+- 2026-06-30 01:12 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/3782650631.shtml)
+- 2026-06-30 01:00 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/906718.shtml)
+- 2026-06-30 01:23 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/0018308886.shtml)
+- 2026-06-30 01:12 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/657159219.shtml)
+- 2026-06-30 01:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/5228075.shtml)

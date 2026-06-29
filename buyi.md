@@ -1,59 +1,57 @@
-# 它是餐桌上的“天然抗生素” 夏天这样吃正合适
+# Bending Spoons递交赴美上市申请
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-鱼腥草 又名折耳根 被民间誉为“天然抗生素” 有助于消炎、抗菌、解毒 消暑、治疗肺部疾病 推荐用法：两杯代茶饮+一道凉菜 一起来看看吧～ 01 “天然抗生素”鱼腥草 鱼腥草又名折耳根。新鲜鱼腥草叶子的总黄酮含量比较高，有助于抗氧化、清热；鱼腥草的根茎则含有挥发油，抗菌消炎作用更突出，所以它也被民间誉为“天然抗生素”，具有养生保健、防病治病的双重作用。 丨清热解毒、抑菌： 鱼腥草
+该意大利集团接连收购多家美国老牌互联网企业，计划继续大举并购 意大利综合企业 Bending Spoons 已向美国递交上市招股书，计划赴美 IPO 募资，用于持续开展收购。此前该公司已接连收购多家美国老牌互联网公司，包括美国在线（AOL）、活动票务平台 Eventbrite、笔记软件印象笔记（Evernote）以及视频平台 Vimeo。 招股文件显示，受密集收购动作推动，Be
 
 ## 正文
 
-鱼腥草 又名折耳根 被民间誉为“天然抗生素” 有助于消炎、抗菌、解毒 消暑、治疗肺部疾病 推荐用法：两杯代茶饮+一道凉菜 一起来看看吧～ 01 “天然抗生素”鱼腥草 鱼腥草又名折耳根。
+该意大利集团接连收购多家美国老牌互联网企业，计划继续大举并购 意大利综合企业 Bending Spoons 已向美国递交上市招股书，计划赴美 IPO 募资，用于持续开展收购。
 
-新鲜鱼腥草叶子的总黄酮含量比较高，有助于抗氧化、清热；鱼腥草的根茎则含有挥发油，抗菌消炎作用更突出，所以它也被民间誉为“天然抗生素”，具有养生保健、防病治病的双重作用。
+此前该公司已接连收购多家美国老牌互联网公司，包括美国在线（AOL）、活动票务平台 Eventbrite、笔记软件印象笔记（Evernote）以及视频平台 Vimeo。
 
-丨清热解毒、抑菌： 鱼腥草具有清热解毒的功效，是历代治疗肺痈或者肺脓肿的主要药物，可以散热毒痈肿。
+招股文件显示，受密集收购动作推动，Bending Spoons 2025 年营收同比翻倍，达到 13 亿美元；2026 年第一季度营收再度同比翻番，录得 6.01 亿美元。
 
-现代药理学研究发现，鱼腥草的主要成分鱼腥草素，对金黄色葡萄球菌、肺炎球菌等多种细菌，均有不同程度的抑制作用。
+自去年以来，公司斥资 33 亿美元收购 AOL、Eventbrite 与 Vimeo，收购资金主要来源于借贷。
 
-能增强白细胞吞噬能力，提高机体免疫力。
+2026 年一季度，Bending Spoons 实现营业利润 1.2 亿美元，而去年同期为营业亏损 460 万美元。
 
-目前临床使用鱼腥草制剂治疗扁桃体炎、大叶性肺炎、急性支气管炎以及肠炎、腹泻、尿路感染等疾病。
+招股书披露，AOL 在被收购时盈利状况稳健：2025 年 AOL 营收 6.33 亿美元，营业利润达 3.336 亿美元，Bending Spoons 为这笔收购支付了 14.54 亿美元。
 
-丨夏季食用帮助消暑： 鱼腥草性微寒，除了有良好的清热解毒作用，还具有清暑消疮的作用。
-
-夏季天气炎热时食用新鲜的鱼腥草，能清火消暑、解毒防病，尤其适合体质偏热、夏季容易上火、喉咙痛的人群。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 01:18 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 01:15 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 01:23 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 01:23 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 01:18 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 01:00 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 01:10 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 01:09 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 01:09 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 01:01 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 01:13 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 00:57 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 01:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 01:04 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 01:10 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 01:16 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 01:23 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 01:27 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 01:23 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 01:03 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 01:11 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 01:03 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 01:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 01:11 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 01:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/825906.shtml)
-- 2026-06-30 01:06 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/06071034640.shtml)
-- 2026-06-30 00:57 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/14004.shtml)
-- 2026-06-30 01:21 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/55627.shtml)
-- 2026-06-30 00:57 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/78871.shtml)
-- 2026-06-30 01:02 - [刘宇宁 好听](https://www.share.minike.top/Article/details/135195941.shtml)
-- 2026-06-30 01:18 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/88443209.shtml)
-- 2026-06-30 01:10 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/5512900830.shtml)
-- 2026-06-30 01:11 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/851470.shtml)
-- 2026-06-30 01:11 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/36896849269.shtml)
-- 2026-06-30 01:05 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/485312688.shtml)
-- 2026-06-30 00:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/95133531970.shtml)
-- 2026-06-30 01:02 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/4711354.shtml)
-- 2026-06-30 01:02 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/26039.shtml)
-- 2026-06-30 00:58 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/043023848.shtml)
+- 2026-06-30 01:28 - [周生如故](http://www.share.kurohicncr.top/Article/details/526416.shtml)
+- 2026-06-30 01:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/9684812.shtml)
+- 2026-06-30 01:21 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/33425167.shtml)
+- 2026-06-30 01:12 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/951901.shtml)
+- 2026-06-30 01:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/8346168.shtml)
+- 2026-06-30 01:03 - [第一炉香](https://www.blog.minike.top/Article/details/17595.shtml)
+- 2026-06-30 01:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/25457.shtml)
+- 2026-06-30 01:12 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/95248776131.shtml)
+- 2026-06-30 01:26 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/59925.shtml)
+- 2026-06-30 01:09 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/570763290.shtml)
+- 2026-06-30 01:15 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/9107533064.shtml)
+- 2026-06-30 01:28 - [美人鱼](http://www.share.minike.top/Article/details/431429.shtml)
+- 2026-06-30 01:09 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/4857751921.shtml)
+- 2026-06-30 01:17 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/1621005959.shtml)
+- 2026-06-30 01:09 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/147701869299.shtml)

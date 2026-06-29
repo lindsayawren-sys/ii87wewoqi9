@@ -1,56 +1,58 @@
-# 自门间青艾至桌畔花束：西安年轻一代为端午古俗添新韵
+# 小米消金收缩“阵线”：清退12家助贷方，新增大昌科技有何来头？
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网西安6月18日电 题：自门间青艾至桌畔花束：西安年轻一代为端午古俗添新韵 中新网记者 张一辰 “以往艾草论捆卖，今年论束卖，年轻人买回去不挂大门，专门摆书桌、拍朋友圈。”端午节前夕，位于西安市南郊的一间花艺店内，店主陈琳正将青绿艾草、修长菖蒲搭配淡色干花与唐纹香囊捆扎成花艺摆件。 “清明插柳，端午插艾”，千年来，悬艾挂菖蒲是端午驱邪纳福的标志性习俗，功能始终围绕祈福安康。
+界面新闻记者 | 何柳颖 重庆小米消费金融有限公司（下称“小米消金”）极速收缩“阵线”。 6月5日，小米消金更新的助贷业务合作机构缩减至33家。与5月22日的名单相比，清退了12家合作机构，同时新增了一家名为“山西大昌科技有限公司”（下称“大昌科技”）的合作方，该公司隶属于山西大昌汽车集团。 可以看出，小米消金正对助贷平台、消费场景进行优化调整。目前，小米旗下借贷平台已有“车主
 
 ## 正文
 
-中新网西安6月18日电 题：自门间青艾至桌畔花束：西安年轻一代为端午古俗添新韵 中新网记者 张一辰 “以往艾草论捆卖，今年论束卖，年轻人买回去不挂大门，专门摆书桌、拍朋友圈。
+界面新闻记者 | 何柳颖 重庆小米消费金融有限公司（下称“小米消金”）极速收缩“阵线”。
 
-”端午节前夕，位于西安市南郊的一间花艺店内，店主陈琳正将青绿艾草、修长菖蒲搭配淡色干花与唐纹香囊捆扎成花艺摆件。
+6月5日，小米消金更新的助贷业务合作机构缩减至33家。
 
-“清明插柳，端午插艾”，千年来，悬艾挂菖蒲是端午驱邪纳福的标志性习俗，功能始终围绕祈福安康。
+与5月22日的名单相比，清退了12家合作机构，同时新增了一家名为“山西大昌科技有限公司”（下称“大昌科技”）的合作方，该公司隶属于山西大昌汽车集团。
 
-如今，在古城西安，记者走访当地多家花店发现，艾草已突破其“悬挂祈福”的节令局限，成为兼具美学价值、社交属性的创意花艺。
+可以看出，小米消金正对助贷平台、消费场景进行优化调整。
 
-“老顾客依旧会买整捆艾草挂门，但创意花艺的销量也开始逐渐增大。
+目前，小米旗下借贷平台已有“车主贷”的产品入口，但资金方未显示有小米消金。
 
-”陈琳介绍，购买艾草花艺的客群以20岁至35岁年轻人为主，他们既要端午独有的民俗氛围感，更追求视觉美感，买艾草不再仅是为了祈福，更把其当作家居软装、提升节日氛围感的单品。
+在业内人士看来，车辆抵押贷款比现金贷的风险更小、盈利空间更优。
 
-不少顾客专程到店挑选，拍完花艺成品发社交平台后，又带动亲友到店打卡消费。
+值得关注的是，后续消金公司会否对汽车信贷类业务倾斜更多资源。
 
-漫步西安街巷，新旧端午景致相映成趣。
+清退12家助贷合作机构 6月5日，小米消金公布的最新名单显示，助贷合作机构已从5月22日的44家减少至33家。
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 01:13 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 00:55 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 01:11 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 01:03 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 01:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 01:00 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 01:01 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 01:18 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 01:04 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 01:20 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 01:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 01:28 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 01:15 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 01:07 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 01:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 01:27 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 01:09 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 01:29 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 01:19 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 01:27 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 01:29 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/5808149.shtml)
-- 2026-06-30 01:23 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/5554406777.shtml)
-- 2026-06-30 01:20 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/1891594.shtml)
-- 2026-06-30 01:12 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/629894974.shtml)
-- 2026-06-30 01:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/0427776.shtml)
-- 2026-06-30 01:21 - [东方风云榜直播](https://www.share.minike.top/Article/details/6384005.shtml)
-- 2026-06-30 00:57 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/152782374640.shtml)
-- 2026-06-30 00:59 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/34362.shtml)
-- 2026-06-30 01:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/931478473418.shtml)
-- 2026-06-30 01:12 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/28335207036.shtml)
-- 2026-06-30 01:10 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/9276346667.shtml)
-- 2026-06-30 01:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/508202.shtml)
-- 2026-06-30 01:12 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/846337095413.shtml)
-- 2026-06-30 01:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/57217989.shtml)
-- 2026-06-30 01:21 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.minike.top/Article/details/089220799735.shtml)
+- 2026-06-30 01:29 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/60996.shtml)
+- 2026-06-30 01:02 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/7172685706.shtml)
+- 2026-06-30 01:01 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/8231346.shtml)
+- 2026-06-30 01:29 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/204065207.shtml)
+- 2026-06-30 01:17 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/3977055287.shtml)
+- 2026-06-30 01:16 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/151177.shtml)
+- 2026-06-30 01:29 - [请回答王牌2019](https://www.blog.minike.top/Article/details/819001337.shtml)
+- 2026-06-30 01:20 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/26418.shtml)
+- 2026-06-30 01:14 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/20723947956.shtml)
+- 2026-06-30 01:19 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/00173733.shtml)
+- 2026-06-30 01:02 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/24516.shtml)
+- 2026-06-30 01:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/77721.shtml)
+- 2026-06-30 01:02 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/390737556.shtml)
+- 2026-06-30 01:11 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/876520492.shtml)
+- 2026-06-30 01:26 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/1392021406.shtml)

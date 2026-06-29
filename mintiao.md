@@ -1,58 +1,60 @@
-# 从肩挑手扛到智能建造：扬州大学毕业生一家三代的“工程家谱”
+# 贵州多地遭受特大暴雨 已紧急转移上万人
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网扬州6月17日电 题：从肩挑手扛到智能建造：扬州大学毕业生一家三代的“工程家谱” 作者 谷华 朱尔立 徐婷 6月16日，在扬州大学毕业典礼上，身穿学位服的刘嘉琪和他的爷爷、父亲，三人合拍了一张毕业照。这张照片定格了三代工程人跨越七十年的梦想接力。 刘嘉琪的爷爷刘学海今年88岁，是新中国第一代建设者。二十世纪五十年代，他每天天不亮就上工地，肩挑砖瓦，手推灰浆，用一双粗手为城
+中新网贵阳6月8日电 (记者 周燕玲)“感觉昨天就像天漏了一样，河水很快就涨起来，部分低洼的农田、房子和圈舍都被淹了。”家住贵州省铜仁市松桃苗族自治县的沈霖8日对记者说。 6月6日以来，贵州多地遭遇特大暴雨。其中，6月7日6时至8日6时，贵州省铜仁市的德江县、江口县、松桃苗族自治县，黔南布依族苗族自治州的贵定县4个县域内的12个观测站降雨量超过200毫米，43个县(市、区)域内
 
 ## 正文
 
-中新网扬州6月17日电 题：从肩挑手扛到智能建造：扬州大学毕业生一家三代的“工程家谱” 作者 谷华 朱尔立 徐婷 6月16日，在扬州大学毕业典礼上，身穿学位服的刘嘉琪和他的爷爷、父亲，三人合拍了一张毕业照。
+中新网贵阳6月8日电 (记者 周燕玲)“感觉昨天就像天漏了一样，河水很快就涨起来，部分低洼的农田、房子和圈舍都被淹了。
 
-这张照片定格了三代工程人跨越七十年的梦想接力。
+”家住贵州省铜仁市松桃苗族自治县的沈霖8日对记者说。
 
-刘嘉琪的爷爷刘学海今年88岁，是新中国第一代建设者。
+6月6日以来，贵州多地遭遇特大暴雨。
 
-二十世纪五十年代，他每天天不亮就上工地，肩挑砖瓦，手推灰浆，用一双粗手为城市建设打拼。
+其中，6月7日6时至8日6时，贵州省铜仁市的德江县、江口县、松桃苗族自治县，黔南布依族苗族自治州的贵定县4个县域内的12个观测站降雨量超过200毫米，43个县(市、区)域内的207个观测站出现大暴雨。
 
-没有学历，没有职称，心中只有一个朴素的信念：“把城市建设好。
+松桃苗族自治县7日凌晨起遭遇持续强降雨天气，多个乡镇出现特大暴雨。
 
-” 1986年，刘嘉琪的父亲刘定忠接过这份信念，考入江苏水利工程专科学校(扬州大学土木与交通学院前身)工业民用建筑专业。
+面对汛情，各级各部门连夜行动，全力以赴开展抢险救灾，在出现内涝的黔东农贸市场，消防救援大队、公安干警和城管队员第一时间赶到现场，帮助商户转移物资、撤离人员。
 
-大二那年，刘定忠母亲骤然离世，班主任陶阳老师陪在他身边，从学业到生活，一点点将他从悲痛中拉起。
+当地还对山洪危险区、地质隐患点等重点区域展开拉网式巡查，截至6月7日16时50分，19个乡镇紧急避险转移901户2822人。
 
-这份师恩，刘定忠铭记一生，也为儿子日后走进扬州大学埋下伏笔。
+强降雨引发的山洪顺河道下泄。
 
 ## 相关推荐
 
-- 2026-06-30 01:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 01:03 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 01:11 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 01:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 01:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 01:18 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 01:00 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 01:06 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 01:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 01:17 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 01:08 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 01:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 01:27 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 01:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-30 01:28 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 01:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 01:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 01:13 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 01:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 01:19 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 01:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 01:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 01:07 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 01:25 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 01:15 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 01:08 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/814919233.shtml)
-- 2026-06-30 01:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/305479360724.shtml)
-- 2026-06-30 01:13 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/37523439347.shtml)
-- 2026-06-30 01:19 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/12770.shtml)
-- 2026-06-30 01:09 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/824790.shtml)
-- 2026-06-30 01:00 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/6585147425.shtml)
-- 2026-06-30 01:06 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/2278132.shtml)
-- 2026-06-30 01:11 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/1676772.shtml)
-- 2026-06-30 00:58 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/3618432.shtml)
-- 2026-06-30 01:14 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/137653554521.shtml)
-- 2026-06-30 01:11 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/7021549212.shtml)
-- 2026-06-30 01:22 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/731207806.shtml)
-- 2026-06-30 01:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/802966.shtml)
-- 2026-06-30 01:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/8598626.shtml)
-- 2026-06-30 01:21 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/874283973899.shtml)
+- 2026-06-30 01:10 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/6916313.shtml)
+- 2026-06-30 01:28 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/69816.shtml)
+- 2026-06-30 01:29 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/62653441058.shtml)
+- 2026-06-30 01:19 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/71388544295.shtml)
+- 2026-06-30 01:26 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/0959433.shtml)
+- 2026-06-30 01:21 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/61876776608.shtml)
+- 2026-06-30 01:29 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/148609259.shtml)
+- 2026-06-30 01:17 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/6658412.shtml)
+- 2026-06-30 01:23 - [内马尔替补](https://www.share.minike.top/Article/details/695612.shtml)
+- 2026-06-30 01:01 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/842182.shtml)
+- 2026-06-30 01:05 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/724411.shtml)
+- 2026-06-30 01:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/438119675.shtml)
+- 2026-06-30 01:17 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/457728280.shtml)
+- 2026-06-30 01:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/844292203016.shtml)
+- 2026-06-30 01:01 - [金刚川](http://www.blog.minike.top/Article/details/451470997810.shtml)

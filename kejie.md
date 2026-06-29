@@ -1,58 +1,60 @@
-# 中越边境河口口岸今年出入境旅客突破300万人次
+# 招商证券：文远知行-W维持“增持”评级 全球化进程加速
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-【东盟专线】中越边境河口口岸今年出入境旅客突破300万人次 中新社云南红河6月18日电 (赵国骁 张航)云南河口出入境边防检查站18日通报称，截至当日12时，中越边境河口口岸今年以来出入境旅客达300.12万人次，同比增长6.7%，成为今年云南省首个出入境客流突破300万人次的对外开放口岸。 河口口岸位于云南省红河哈尼族彝族自治州河口瑶族自治县。作为中越边境云南段最大的陆路口岸
+招商证券发布研报称，6月4日，文远知行-W（00800）正式纳入港股通。随着海外商业化的加速和车队规模的扩大，预计文远知行收入将实现高速增长。该行预测公司2026-28E收入为10.5亿/20.3亿/48.1亿元，维持“增持”评级。 招商证券主要观点如下： 事件 6月2日，文远知行与Uber宣布计划在马德里推出西班牙首个商业化Robotaxi试点服务，这是双方首次携手进入欧洲市
 
 ## 正文
 
-【东盟专线】中越边境河口口岸今年出入境旅客突破300万人次 中新社云南红河6月18日电 (赵国骁 张航)云南河口出入境边防检查站18日通报称，截至当日12时，中越边境河口口岸今年以来出入境旅客达300.12万人次，同比增长6.7%，成为今年云南省首个出入境客流突破300万人次的对外开放口岸。
+招商证券发布研报称，6月4日，文远知行-W（00800）正式纳入港股通。
 
-河口口岸位于云南省红河哈尼族彝族自治州河口瑶族自治县。
+随着海外商业化的加速和车队规模的扩大，预计文远知行收入将实现高速增长。
 
-作为中越边境云南段最大的陆路口岸，其凭借便捷的交通持续吸引中外旅客从此出入境，其中以越南游客居多。
+该行预测公司2026-28E收入为10.5亿/20.3亿/48.1亿元，维持“增持”评级。
 
-6月18日，河口口岸迎来越南旅游团入境高峰。
+招商证券主要观点如下： 事件 6月2日，文远知行与Uber宣布计划在马德里推出西班牙首个商业化Robotaxi试点服务，这是双方首次携手进入欧洲市场，马德里也将成为文远Robotaxi驶入的全球第12座城市。
 
-许多越南游客为体验中国端午节，在联检大楼前排队等候办理入境手续。
+6月4日，文远知行-W正式纳入港股通。
 
-入境后，部分游客乘坐动车前往昆明、大理、丽江等地旅游，有的游客留在河口县城体验中国边境城市的美景和人文风情。
+Robotaxi规模与效率双升，全球商业化加速 车队规模方面，截至2026年4月底，公司在全球Robotaxi车队增至约1，300辆，其中国内约1，000辆，预计到2026年底Robotaxi车队规模将达到2600辆。
 
-2026年至2027年是中越跨境旅游合作年。
+海外商业化进程加速，公司目前已覆盖新加坡、阿布扎比、迪拜、利雅得、苏黎世等多个海内外核心市场，此次进入马德里，将进一步拓展公司Robotaxi的全球版图，驶入全球第12城，加速全球规模化部署进程。
 
-今年1月1日至6月15日，持用护照从河口口岸入境的越南旅游团超1500个，共计2.96万人次，同比分别增长14.6%和13.8%。
+加强Uber的合作，加速推进五年全球十五城承诺 2025年5月，公司与Uber宣布将在“未来五年内新增15座国际城市部署Robotaxi服务”。
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 01:17 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 01:22 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 01:15 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 01:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 01:14 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 00:57 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 01:20 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 01:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 01:10 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 01:14 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 01:20 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 01:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 01:01 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 01:26 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 01:03 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 01:19 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 01:01 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 01:17 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 01:00 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 01:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 01:05 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 01:11 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 01:16 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 01:09 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 01:25 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:09 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/0425202823.shtml)
-- 2026-06-30 01:01 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/594344264560.shtml)
-- 2026-06-30 01:07 - [美股](http://www.share.kurohicncr.top/Article/details/7919945.shtml)
-- 2026-06-30 01:08 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/72976342.shtml)
-- 2026-06-30 01:15 - [天道](https://www.share.kurohicncr.top/Article/details/28618677012.shtml)
-- 2026-06-30 01:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/4107769397.shtml)
-- 2026-06-30 01:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/805910.shtml)
-- 2026-06-30 01:17 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/172431.shtml)
-- 2026-06-30 01:21 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/26627255407.shtml)
-- 2026-06-30 00:57 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/29434995708.shtml)
-- 2026-06-30 01:07 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/816186.shtml)
-- 2026-06-30 01:01 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/86496556326.shtml)
-- 2026-06-30 01:20 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/312060954598.shtml)
-- 2026-06-30 01:17 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/94321.shtml)
-- 2026-06-30 01:05 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/1861508.shtml)
+- 2026-06-30 01:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/669408.shtml)
+- 2026-06-30 01:07 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/630367627451.shtml)
+- 2026-06-30 01:27 - [恋与深空回应争议](http://www.share.minike.top/Article/details/76378678176.shtml)
+- 2026-06-30 01:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/17860726.shtml)
+- 2026-06-30 01:19 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/77469533771.shtml)
+- 2026-06-30 01:24 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/631051062308.shtml)
+- 2026-06-30 01:22 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/8128439.shtml)
+- 2026-06-30 01:04 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/6794605.shtml)
+- 2026-06-30 01:01 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/578131.shtml)
+- 2026-06-30 01:16 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/67331478.shtml)
+- 2026-06-30 01:29 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/350711338.shtml)
+- 2026-06-30 01:25 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/95818932242.shtml)
+- 2026-06-30 01:03 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/495009310.shtml)
+- 2026-06-30 01:13 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/617127912870.shtml)
+- 2026-06-30 01:16 - [爱很美味](http://www.share.kurohicncr.top/Article/details/64783581.shtml)

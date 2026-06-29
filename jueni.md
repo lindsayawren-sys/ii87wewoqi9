@@ -1,58 +1,56 @@
-# 长三角铁路将调图 沪港跨境高铁新增义乌办客车站
+# 周期轮动下多元配置迎机遇 银华华瑞 FOF正在发行中
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新社上海6月18日电 (谢梦圆)记者18日从中国铁路上海局集团有限公司(下称上铁集团)获悉，7月1日零时起，全国铁路将实行新的列车运行图。调图后，上海虹桥至香港西九龙的既有G895/G896次1对跨境高铁动车组列车经停站中增设办客车站义乌站。此次调图后，长三角铁路旅客列车开行总数将达1433.5对，并增加了既有列车办客车站。浙江温岭至山西太原间首次实现高铁直达，浙中至岭南间客
+全球市场起伏加剧，单一资产单边波动、股债走势同步抬升等扰动因素接连显现，如何筛选优质资产、借助多元配置平滑波动，成为当前资产配置的重要命题。 面对这一问题，银华基金FOF投资管理部基金经理王嘉鹏给出了朴素而直接的答案：在周期的往复轮转中，力争寻找高性价比的资产。 立足于周期思维，王嘉鹏长期深耕大类资产配置与基金优选，打造出多只产品。眼下，拟由其担纲的银华华瑞多元配置三个月持有期
 
 ## 正文
 
-中新社上海6月18日电 (谢梦圆)记者18日从中国铁路上海局集团有限公司(下称上铁集团)获悉，7月1日零时起，全国铁路将实行新的列车运行图。
+全球市场起伏加剧，单一资产单边波动、股债走势同步抬升等扰动因素接连显现，如何筛选优质资产、借助多元配置平滑波动，成为当前资产配置的重要命题。
 
-调图后，上海虹桥至香港西九龙的既有G895/G896次1对跨境高铁动车组列车经停站中增设办客车站义乌站。
+面对这一问题，银华基金FOF投资管理部基金经理王嘉鹏给出了朴素而直接的答案：在周期的往复轮转中，力争寻找高性价比的资产。
 
-此次调图后，长三角铁路旅客列车开行总数将达1433.5对，并增加了既有列车办客车站。
+立足于周期思维，王嘉鹏长期深耕大类资产配置与基金优选，打造出多只产品。
 
-浙江温岭至山西太原间首次实现高铁直达，浙中至岭南间客运产品更加丰富。
+眼下，拟由其担纲的银华华瑞多元配置三个月持有期混合（FOF）（A类：027506；C类：027507）正在发行中。
 
-新图还增开6列共线货物班列，承接多式联运和“公转铁”运量。
+该产品致力于为投资者提供多元配置的解决方案，通过动态调整力求适应多变市场。
 
-长三角铁路货运列车开行总数将达1377.5对。
+立足周期思维，摒弃静态拼盘配置 在王嘉鹏看来，所有的资产都有其固定的周期轮动规律，没有一种资产可以长期维持超高的收益率。
 
-新图完善区域班列结构，构建长三角地区与粤港澳大湾区间的铁路快运通道，新增徐州北至龙川北、东莞东快速多式联运班列1列，预计新增年运量6.4万吨。
+基于这一判断，他锚定全球资产，通过多元均衡配置力争降低市场波动的影响，追求不同品类阶段性投资机会。
 
-增加区域市场物流供给，统筹开行苏北地区至岭南地区货运班列，增强鲁南多地货源运输服务能力。
+此次发行的银华华瑞多元配置三个月持有期混合（FOF）正是这一理念的落地实践，该基金将关注中债、A股、港股、美股、黄金等资产的投资机遇，力争兼顾组合的风险和收益。
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 01:03 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 01:14 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 00:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 01:12 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 00:57 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 01:03 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 01:11 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 01:02 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 01:04 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 01:14 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 01:22 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 01:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 01:29 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 01:11 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 01:24 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 01:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 01:01 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 01:12 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 01:00 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 01:25 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 01:06 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/45270732150.shtml)
-- 2026-06-30 01:23 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/1822843401.shtml)
-- 2026-06-30 01:23 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/8327801351.shtml)
-- 2026-06-30 01:12 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/5439893382.shtml)
-- 2026-06-30 01:23 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/0095374.shtml)
-- 2026-06-30 01:12 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/03809216406.shtml)
-- 2026-06-30 01:16 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/31328.shtml)
-- 2026-06-30 01:13 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/17590067.shtml)
-- 2026-06-30 01:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/0795048.shtml)
-- 2026-06-30 01:16 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/5898058.shtml)
-- 2026-06-30 01:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/6938496.shtml)
-- 2026-06-30 01:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/97458.shtml)
-- 2026-06-30 01:00 - [恋与深空 巧合](https://www.share.minike.top/Article/details/2843868312.shtml)
-- 2026-06-30 01:13 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/351806005077.shtml)
-- 2026-06-30 01:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/111905611048.shtml)
+- 2026-06-30 01:06 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/07568080867.shtml)
+- 2026-06-30 01:07 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/06110.shtml)
+- 2026-06-30 01:24 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/83158262419.shtml)
+- 2026-06-30 01:15 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/8250389462.shtml)
+- 2026-06-30 01:05 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/54249.shtml)
+- 2026-06-30 01:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/7974063139.shtml)
+- 2026-06-30 01:11 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/0356885616.shtml)
+- 2026-06-30 01:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/21890.shtml)
+- 2026-06-30 01:26 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/5670523.shtml)
+- 2026-06-30 01:15 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/836634290.shtml)
+- 2026-06-30 01:18 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/24805.shtml)
+- 2026-06-30 01:08 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/43899558322.shtml)
+- 2026-06-30 01:16 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/38455403.shtml)
+- 2026-06-30 01:00 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/14069466184.shtml)
+- 2026-06-30 01:21 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/934580296928.shtml)

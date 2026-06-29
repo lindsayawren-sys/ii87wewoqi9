@@ -1,61 +1,61 @@
-# 长江有色: 国内淡季消费乏力+高库存压力 18日铝价或下跌
+# 中方：敦促韩方不被“台独”分子利用，不向“台独”分裂势力发出错误信号
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：周五美伊会谈推迟地缘偏强支撑铝价，隔夜伦铝收涨0.99%；海外电解铝供应紧张叠加库存续降带动沪铝，国内淡季消费乏力，预今现铝下跌。 【铝期货市场】：周五美伊会谈推迟地缘偏强支撑铝价，隔夜伦铝片震荡，最新收盘报价3425美元/吨，收涨34美元，涨幅0.99%，成交量20993手减少20813手，持仓量616997手减少17153
+中新网北京6月9日电 (记者 张素)中国外交部发言人林剑6月9日主持例行记者会。会上，有记者就韩国议员与台湾当局外事主管部门交流一事提问。 林剑：台湾是中国的一部分，没有什么“外交部”。中方一贯坚决反对建交国同中国台湾地区进行任何形式的官方往来。 1992年中韩建交时，双方发表联合公报，明确规定韩国承认中华人民共和国为代表中国的唯一合法政府，尊重中方只有一个中国、台湾是中国的一
 
 ## 正文
 
-长江有色金属网 长江铝价alu.ccmn.cn短评：周五美伊会谈推迟地缘偏强支撑铝价，隔夜伦铝收涨0.99%；海外电解铝供应紧张叠加库存续降带动沪铝，国内淡季消费乏力，预今现铝下跌。
+中新网北京6月9日电 (记者 张素)中国外交部发言人林剑6月9日主持例行记者会。
 
-【铝期货市场】：周五美伊会谈推迟地缘偏强支撑铝价，隔夜伦铝片震荡，最新收盘报价3425美元/吨，收涨34美元，涨幅0.99%，成交量20993手减少20813手，持仓量616997手减少17153手。
+会上，有记者就韩国议员与台湾当局外事主管部门交流一事提问。
 
-晚间沪铝窄幅震荡；主力月2606合约最新收盘价报23940元/吨，涨50元，涨幅0.21%。
+林剑：台湾是中国的一部分，没有什么“外交部”。
 
-伦敦金属交易所（LME）6月17日伦铝最新库存量报316525吨，较上个交易日下降1475吨，跌幅0.46%。
+中方一贯坚决反对建交国同中国台湾地区进行任何形式的官方往来。
 
-长江铝业网讯：6月17日现货铝价，长江现货A00铝锭价报23870元/吨，涨70元；广东现货A00铝锭价报23840元/吨，涨60元。
+1992年中韩建交时，双方发表联合公报，明确规定韩国承认中华人民共和国为代表中国的唯一合法政府，尊重中方只有一个中国、台湾是中国的一部分的立场。
 
-宏观层面，美伊谅解备忘录签署存变数——特朗普称“若不满意将恢复打击”、伊朗外交部宣布原定6月19日瑞士会谈“不再确定”，和平进程反复使地缘风险溢价难完全消散。
+今年以来，韩方在多个场合公开重申，尊重一个中国的立场没有变化。
 
-部分空头回补及“逢低买盘”使伦铝微反弹（Tom Price指出属区间交易特征），但美元受美联储沃什鹰派点阵图支撑反弹至100.38→压制沪铝上行空间。
+中方已就此事向韩方提出了严正交涉。
 
-国内方面，5月规上工业增加值+4.5%（高技术制造业+15.1%），社零同比-0.6%（1-5月商品+服务零售总额+2.8%），固投-4.1%（地产开发-16.2%）；乘联会6月1-14日新能源乘用车零售34.1万辆（同比-8%、环比+5%，累计403.9万辆-15%）。
+我们敦促韩方从中韩关系的大局出发，信守承诺，切实恪守一个中国原则，不同台湾地区开展任何形式的官方往来，不被“台独”分子利用，不向“台独”分裂势力发出错误信号，用实际行动维护双边关系健康稳定发展。
 
 ## 相关推荐
 
-- 2026-06-30 01:19 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 01:20 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 01:22 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 01:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 01:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 01:01 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 01:00 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 01:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 01:15 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 00:59 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 00:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 00:55 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 01:00 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 01:04 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 01:01 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 01:05 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 01:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 01:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 01:23 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 01:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 01:01 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 01:08 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 01:09 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 01:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 01:23 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 01:10 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 01:08 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 01:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 01:17 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 01:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:22 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/8399691.shtml)
-- 2026-06-30 01:11 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/981275784.shtml)
-- 2026-06-30 00:54 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/8174827455.shtml)
-- 2026-06-30 01:04 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/9623545.shtml)
-- 2026-06-30 01:06 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/78113.shtml)
-- 2026-06-30 01:23 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/0967945744.shtml)
-- 2026-06-30 01:19 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/71696118648.shtml)
-- 2026-06-30 00:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/5120504.shtml)
-- 2026-06-30 01:01 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/30169399.shtml)
-- 2026-06-30 01:01 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/19796680142.shtml)
-- 2026-06-30 01:11 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/558825.shtml)
-- 2026-06-30 00:54 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/705852339535.shtml)
-- 2026-06-30 01:24 - [世界杯](http://www.share.minike.top/Article/details/836232.shtml)
-- 2026-06-30 01:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/058906041157.shtml)
-- 2026-06-30 00:58 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/0341079.shtml)
+- 2026-06-30 01:22 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/17962172.shtml)
+- 2026-06-30 01:17 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/92582206.shtml)
+- 2026-06-30 01:21 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/4813307.shtml)
+- 2026-06-30 01:08 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/454068300969.shtml)
+- 2026-06-30 01:17 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/3433211960.shtml)
+- 2026-06-30 01:21 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/79841971606.shtml)
+- 2026-06-30 01:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/58945140525.shtml)
+- 2026-06-30 01:12 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/21788699.shtml)
+- 2026-06-30 01:23 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/168156963129.shtml)
+- 2026-06-30 01:14 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/22126208187.shtml)
+- 2026-06-30 01:22 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/2269619.shtml)
+- 2026-06-30 01:27 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/395842.shtml)
+- 2026-06-30 01:04 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/230682698.shtml)
+- 2026-06-30 01:13 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/92600.shtml)
+- 2026-06-30 01:08 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/475207.shtml)

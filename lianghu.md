@@ -1,59 +1,60 @@
-# 通航曙光渐近？美伊达成协议后 霍尔木兹海峡威胁级别下调
+# Stellantis因起火风险全球召回逾130万辆Jeep汽车
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-来源：财联社 财联社6月18日讯（编辑 刘蕊）随着美伊宣布达成谅解备忘录，美国领导的海军联盟本周向航运公司发布通告称，穿越霍尔木兹海峡的船舶所面临的威胁评级已有所降低，不过航运公司在航行时仍应警惕袭击风险。 威胁评级有所下调 联合海上信息中心（JMIC）发表最新公告，将霍尔木兹地区的威胁等级从“严重（Severe）”下调至“显著（Substantial）”。该中心是总部位于巴林
+Stellantis公司周二表示，由于存在起火隐患，将在全球范围内召回超过130万辆Jeep SUV和皮卡，并敦促车主在问题解决前将车辆停放在远离建筑物或其他车辆的地方。 此次召回涉及2021年至2025年款的Jeep Wrangler和Jeep Gladiator皮卡，原因是电动液压助力转向泵的线路存在电气连接问题。在极少数情况下，该问题可能导致可燃材料过热，从而引发车辆起火
 
 ## 正文
 
-来源：财联社 财联社6月18日讯（编辑 刘蕊）随着美伊宣布达成谅解备忘录，美国领导的海军联盟本周向航运公司发布通告称，穿越霍尔木兹海峡的船舶所面临的威胁评级已有所降低，不过航运公司在航行时仍应警惕袭击风险。
+Stellantis公司周二表示，由于存在起火隐患，将在全球范围内召回超过130万辆Jeep SUV和皮卡，并敦促车主在问题解决前将车辆停放在远离建筑物或其他车辆的地方。
 
-威胁评级有所下调 联合海上信息中心（JMIC）发表最新公告，将霍尔木兹地区的威胁等级从“严重（Severe）”下调至“显著（Substantial）”。
+此次召回涉及2021年至2025年款的Jeep Wrangler和Jeep Gladiator皮卡，原因是电动液压助力转向泵的线路存在电气连接问题。
 
-该中心是总部位于巴林的海上安全组织，负责协调中东地区盟军海军与商船之间的行动。
+在极少数情况下，该问题可能导致可燃材料过热，从而引发车辆起火。
 
-然而，联合海上信息中心在通告中指出，航运公司在航行时仍需保持警惕，因为“仍存在较大的袭击可能性”。
+Stellantis表示，此次召回涉及美国近108万辆汽车、加拿大10.6万辆、墨西哥2.3万辆以及全球其他市场约12.5万辆汽车。
 
-水雷依然构成威胁，“所有接近区域均应保持谨慎”。
+Stellantis称，此次召回将包括检查并可能维修或更换线束或电动液压助力转向泵。
 
-此前，JMIC在6月4日才将霍尔木兹的安全状况定为“关键（Critical）”，这是其发布的最高威胁等级。
+Stellantis表示，公司正在努力加快解决方案的提供，预计最迟将于7月完成召回修复。
 
-6月7日，JMIC又将霍尔木兹的威胁评估从“关键（Critical）”下调至“严重（Severe）”，这是第二高的级别， 根据JMIC的最新公告，随着美伊协议的公布，伊朗革命卫队的行为“已变得不那么激进”。
+该公司表示，已收到一起与此问题相关的潜在受伤报告，但尚未收到任何碰撞或死亡事故报告。
 
-通告还提到，美国海军仍在持续“提供稳定监督”。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 01:11 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 01:23 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 01:19 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 00:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 01:07 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 01:01 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 01:14 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 01:04 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 01:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 01:07 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 01:11 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 01:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 01:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 01:08 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 01:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 01:05 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 01:22 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 01:03 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 01:28 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 01:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 01:12 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 01:22 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 01:13 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 01:28 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 01:18 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 01:17 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 01:29 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:05 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/46876235.shtml)
-- 2026-06-30 00:55 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/9918774598.shtml)
-- 2026-06-30 01:06 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/1597937.shtml)
-- 2026-06-30 00:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/9842267.shtml)
-- 2026-06-30 01:17 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/495191820524.shtml)
-- 2026-06-30 01:16 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/14461.shtml)
-- 2026-06-30 01:08 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/20621.shtml)
-- 2026-06-30 01:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/95184940.shtml)
-- 2026-06-30 01:04 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/2475498.shtml)
-- 2026-06-30 01:21 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/02314.shtml)
-- 2026-06-30 00:54 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/9838790020.shtml)
-- 2026-06-30 01:07 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/651998934.shtml)
-- 2026-06-30 01:17 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/666015311.shtml)
-- 2026-06-30 01:15 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/15665404.shtml)
-- 2026-06-30 01:00 - [一见倾心](http://www.share.kurohicncr.top/Article/details/67423781.shtml)
+- 2026-06-30 01:20 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/337046993014.shtml)
+- 2026-06-30 01:01 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/448137144.shtml)
+- 2026-06-30 01:16 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/084588042.shtml)
+- 2026-06-30 01:22 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/541099324.shtml)
+- 2026-06-30 01:12 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/0515948294.shtml)
+- 2026-06-30 01:09 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/249268792063.shtml)
+- 2026-06-30 01:08 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/5422962862.shtml)
+- 2026-06-30 01:19 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/06122147.shtml)
+- 2026-06-30 01:24 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/055103.shtml)
+- 2026-06-30 01:28 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/724550404.shtml)
+- 2026-06-30 01:20 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/692341091.shtml)
+- 2026-06-30 01:15 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/847223154.shtml)
+- 2026-06-30 01:20 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/1079119.shtml)
+- 2026-06-30 01:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/33032742.shtml)
+- 2026-06-30 01:22 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/845098902860.shtml)

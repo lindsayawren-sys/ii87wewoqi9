@@ -1,55 +1,59 @@
-# 马士基尚未恢复霍尔木兹海峡的通行
+# “内推角色、保证出镜”？小心“童星”包装暗藏陷阱
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-马士基发言人通过电子邮件表示，马士基欢迎美国和伊朗签署谅解备忘录，但目前尚未恢复霍尔木兹海峡的通行。 一旦确认安全，将立即恢复航运。 目前，马士基在海湾地区拥有五艘船舶。 6月15日，马士基表示现在判断伊朗协议将如何影响物流还为时尚早。责任编辑：刘明亮
+“支付数万元，保证孩子与巨星同框录制综艺”“内部渠道，锁定热门影视剧角色”……中青报·中青网记者在采访中发现，一些机构利用部分家长培养“童星”的急切心理，在网络平台以“资源”“内推”“包装”为名招徕客户，背后或暗藏消费陷阱。“对方承诺得特别好，说有名额，能确保录制，还能和明星合影。我们觉得机会难得，就签了合同。”5月底，北京一家少儿艺术工作室负责人李娟(化名)向记者讲述。 她经
 
 ## 正文
 
-马士基发言人通过电子邮件表示，马士基欢迎美国和伊朗签署谅解备忘录，但目前尚未恢复霍尔木兹海峡的通行。
+“支付数万元，保证孩子与巨星同框录制综艺”“内部渠道，锁定热门影视剧角色”……中青报·中青网记者在采访中发现，一些机构利用部分家长培养“童星”的急切心理，在网络平台以“资源”“内推”“包装”为名招徕客户，背后或暗藏消费陷阱。
 
-一旦确认安全，将立即恢复航运。
+“对方承诺得特别好，说有名额，能确保录制，还能和明星合影。
 
-目前，马士基在海湾地区拥有五艘船舶。
+我们觉得机会难得，就签了合同。
 
-6月15日，马士基表示现在判断伊朗协议将如何影响物流还为时尚早。
+”5月底，北京一家少儿艺术工作室负责人李娟(化名)向记者讲述。
 
-责任编辑：刘明亮
+她经营的工作室有200多名学员。
+
+去年，她结识自称在某娱乐公司任职、掌握儿童演艺资源的张某，其正为多部影视剧和综艺节目招募小演员。
+
+为给学员争取机会，李娟的工作室与张某所属的娱乐公司签订《综艺录制合作协议书》，约定公司提供一档知名综艺的儿童演员录制名额，并负责录制期间的交通、食宿、化妆等，收取服务费2.6万元，合同中明确写有“保证儿童演员与天王巨星合影”。
+
+李娟支付全款并推荐了学员。
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 01:19 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 01:15 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 00:57 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 00:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 01:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 01:14 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 01:22 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 01:10 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 01:09 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 01:14 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 01:17 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 01:23 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 01:02 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 01:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 01:20 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 01:24 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 01:12 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 01:03 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 01:23 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 01:14 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 01:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 01:00 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 01:15 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 01:13 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 01:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 01:18 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 01:10 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/5978733.shtml)
-- 2026-06-30 01:01 - [天道](https://www.share.minike.top/Article/details/6525151167.shtml)
-- 2026-06-30 01:14 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/24183031866.shtml)
-- 2026-06-30 01:02 - [TOP Prada](https://www.share.minike.top/Article/details/17862.shtml)
-- 2026-06-30 01:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/34431.shtml)
-- 2026-06-30 01:05 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/4206016.shtml)
-- 2026-06-30 01:03 - [女心理师](https://www.blog.minike.top/Article/details/45394957.shtml)
-- 2026-06-30 01:22 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/18474.shtml)
-- 2026-06-30 01:07 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/966623.shtml)
-- 2026-06-30 01:17 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/1455062.shtml)
-- 2026-06-30 01:17 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/73713302.shtml)
-- 2026-06-30 01:07 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/1860944211.shtml)
-- 2026-06-30 01:02 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/98127.shtml)
-- 2026-06-30 01:15 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/7775119.shtml)
-- 2026-06-30 01:07 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/1927749.shtml)
+- 2026-06-30 01:03 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/3054203020.shtml)
+- 2026-06-30 01:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/852384350410.shtml)
+- 2026-06-30 01:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/4561068651.shtml)
+- 2026-06-30 01:11 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/134520.shtml)
+- 2026-06-30 01:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/79206173699.shtml)
+- 2026-06-30 01:29 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/46573793.shtml)
+- 2026-06-30 01:01 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/974992452081.shtml)
+- 2026-06-30 01:14 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/53755478304.shtml)
+- 2026-06-30 01:17 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/23635582.shtml)
+- 2026-06-30 01:29 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/050880430428.shtml)
+- 2026-06-30 01:04 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/8258560.shtml)
+- 2026-06-30 01:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/63288975009.shtml)
+- 2026-06-30 01:29 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/9775940.shtml)
+- 2026-06-30 01:19 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/416822.shtml)
+- 2026-06-30 01:29 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/7943449.shtml)

@@ -1,59 +1,57 @@
-# 冲刺百万亿，服务业高质量发展提速
+# “不同文明可以和平共处，可以创造性地相互丰富”
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-6月17日，国家发展改革委在《人民日报》发表署名文章《努力开创服务业高质量发展新局面》。 看懂这篇文章，要先了解当前的背景。 当前，中国正在努力打造一个百万亿级产业，这就是服务业。 今年以来，国家有关服务业的重磅动作频频。就在全国两会结束后不久，全国服务业大会在4月初召开，这是新时代首次聚焦服务业的全国性大会，重要性不言而喻。随后，国务院4月21日发布《关于推进服务业扩能提质的
+“不同文明可以和平共处，可以创造性地相互丰富” ——访希腊雅典科学院院长迪亚曼多罗斯 人民日报 本报记者 谢亚宏 李安琪“亚里士多德在《政治学》中将城邦定义为为了‘优良生活’而存在的共同体，指出政治应是一种旨在实现公共利益的道德实践。《论语·为政》引用孔子提出的‘道之以德，齐之以礼’，反映出中国传统文化中深厚的人本主义观念。希中两大文明都认为，社会稳定取决于人的道德品质及个人利
 
 ## 正文
 
-6月17日，国家发展改革委在《人民日报》发表署名文章《努力开创服务业高质量发展新局面》。
+“不同文明可以和平共处，可以创造性地相互丰富” ——访希腊雅典科学院院长迪亚曼多罗斯 人民日报 本报记者 谢亚宏 李安琪“亚里士多德在《政治学》中将城邦定义为为了‘优良生活’而存在的共同体，指出政治应是一种旨在实现公共利益的道德实践。
 
-看懂这篇文章，要先了解当前的背景。
+《论语·为政》引用孔子提出的‘道之以德，齐之以礼’，反映出中国传统文化中深厚的人本主义观念。
 
-当前，中国正在努力打造一个百万亿级产业，这就是服务业。
+希中两大文明都认为，社会稳定取决于人的道德品质及个人利益与集体利益间的平衡。
 
-今年以来，国家有关服务业的重磅动作频频。
+在全球信任缺失、治理危机加剧的当下，两大文明加强对话交流尤显重要。
 
-就在全国两会结束后不久，全国服务业大会在4月初召开，这是新时代首次聚焦服务业的全国性大会，重要性不言而喻。
+”日前，希腊雅典科学院院长尼基弗罗斯·迪亚曼多罗斯在接受本报记者专访时表示。
 
-随后，国务院4月21日发布《关于推进服务业扩能提质的意见》，明确提出到2030年服务业总规模迈上100万亿元台阶。
+迪亚曼多罗斯表示，全球化带来了经济上的相互依存，但并未建立起更深层次的文化理解，如今文化对抗和地缘冲突重现，世界正面临深刻的文化和道德挑战：人类如何在差异中创造性地共存。
 
-冲击100万亿元，服务业有实力和潜力。
+“一个可持续的国际秩序不能仅建立在经济实力或军事威慑之上，更需要共同价值观和跨文化信任。
 
-作为国民经济第一大产业，服务业2025年增加值首次突破80万亿元，占国内生产总值比重达57.7%，对国民经济增长贡献率超过60%。
+因此我认为，‘和而不同’理念是中国传统思想对当今世界秩序最切题的贡献之一。
 
 ## 相关推荐
 
-- 2026-06-30 01:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 01:12 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 00:58 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 01:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 01:22 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 01:08 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 01:13 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 01:14 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 01:17 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 01:03 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-30 01:21 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 01:13 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 00:55 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 01:09 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 01:28 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 01:05 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 01:04 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 01:10 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 01:25 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 01:09 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 01:10 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 01:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 01:15 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 01:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:56 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/29032079.shtml)
-- 2026-06-30 01:15 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/93146100821.shtml)
-- 2026-06-30 01:03 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/323707.shtml)
-- 2026-06-30 01:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/4426385.shtml)
-- 2026-06-30 01:04 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/27181.shtml)
-- 2026-06-30 01:10 - [斗破苍穹](http://www.share.minike.top/Article/details/651973788.shtml)
-- 2026-06-30 01:08 - [沉睡花园](https://www.blog.minike.top/Article/details/204534412.shtml)
-- 2026-06-30 00:57 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/728922876.shtml)
-- 2026-06-30 01:21 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/645008495.shtml)
-- 2026-06-30 01:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/672152220.shtml)
-- 2026-06-30 01:16 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/42942879398.shtml)
-- 2026-06-30 01:08 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/664144378978.shtml)
-- 2026-06-30 00:57 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/80436277942.shtml)
-- 2026-06-30 01:18 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/290307109705.shtml)
-- 2026-06-30 01:10 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/73768694.shtml)
+- 2026-06-30 01:09 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/27092.shtml)
+- 2026-06-30 01:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/950148510237.shtml)
+- 2026-06-30 01:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/6122341518.shtml)
+- 2026-06-30 01:09 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/62503383070.shtml)
+- 2026-06-30 01:00 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/46544.shtml)
+- 2026-06-30 01:01 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/389052720.shtml)
+- 2026-06-30 01:05 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/28332512.shtml)
+- 2026-06-30 01:25 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/295246595945.shtml)
+- 2026-06-30 01:23 - [千与千寻](https://www.blog.minike.top/Article/details/55194.shtml)
+- 2026-06-30 01:20 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/7622398.shtml)
+- 2026-06-30 01:06 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/535923047.shtml)
+- 2026-06-30 01:29 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/2394685.shtml)
+- 2026-06-30 01:27 - [爱很美味](https://www.share.minike.top/Article/details/8692271.shtml)
+- 2026-06-30 01:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/872897209399.shtml)
+- 2026-06-30 01:25 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/3781645104.shtml)

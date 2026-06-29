@@ -1,49 +1,57 @@
-# 人首鸟身，“妙音”千年：西夏陵红陶迦陵频伽的丝路“混血”密码
+# 韩正访问白俄罗斯
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 08:34 来源：中国新闻网 近日，山西博物院“贺兰怀古——西夏陵出土文物展”中，一件红陶迦陵频伽吸引众多观众驻足。她人首鸟身，神态安详，头戴华丽花冠，宝缯下垂，双手合十，身后双翅展开，尾部优雅上扬。这件来自“神秘古国”西夏的建筑构件，以独特的“混血”面貌，讲述着丝绸之路上文明交融的故事。(记者 王惠琳） 责任编辑：【黄钰涵】
+新华社明斯克6月8日电(记者王昭 陈汀)当地时间2026年6月6日至8日，应白俄罗斯共和国政府邀请，国家副主席韩正访问白俄罗斯，在明斯克分别会见白俄罗斯总统卢卡申科、总理图尔钦、第一副总理斯诺普科夫。 会见卢卡申科时，韩正转达习近平主席的亲切问候并表示，在习近平主席和卢卡申科总统的战略引领下，中白关系快速发展，达到全天候全面战略伙伴关系的高水平。中方愿同白方坚持元首外交领航定向
 
 ## 正文
 
-发布时间：2026年06月18日 08:34 来源：中国新闻网 近日，山西博物院“贺兰怀古——西夏陵出土文物展”中，一件红陶迦陵频伽吸引众多观众驻足。
+新华社明斯克6月8日电(记者王昭 陈汀)当地时间2026年6月6日至8日，应白俄罗斯共和国政府邀请，国家副主席韩正访问白俄罗斯，在明斯克分别会见白俄罗斯总统卢卡申科、总理图尔钦、第一副总理斯诺普科夫。
 
-她人首鸟身，神态安详，头戴华丽花冠，宝缯下垂，双手合十，身后双翅展开，尾部优雅上扬。
+会见卢卡申科时，韩正转达习近平主席的亲切问候并表示，在习近平主席和卢卡申科总统的战略引领下，中白关系快速发展，达到全天候全面战略伙伴关系的高水平。
 
-这件来自“神秘古国”西夏的建筑构件，以独特的“混血”面貌，讲述着丝绸之路上文明交融的故事。
+中方愿同白方坚持元首外交领航定向，弘扬相互支持优良传统，开辟共赢发展新的空间，夯实两国友好民意基础，推动中白关系和两国合作继续走深走实。
 
-(记者 王惠琳） 责任编辑：【黄钰涵】
+卢卡申科请韩正转达对习近平主席的亲切问候。
+
+卢卡申科表示，白俄罗斯是中国全天候全面战略伙伴、永远可靠的好朋友。
+
+白中建交30多年来，双边关系蓬勃发展。
+
+白方一如既往重视对华关系，期待同中方密切高层交往，加强政治互信，深化务实合作，传承人民友好，推动两国关系不断向前发展。
+
+会见图尔钦时，韩正表示，中白友好源远流长、历久弥坚。
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 01:06 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 01:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 00:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 01:19 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 01:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 01:22 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 01:09 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 00:55 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 01:07 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-30 01:26 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 01:28 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 01:25 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 01:21 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 01:18 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 01:00 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 01:08 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 01:25 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 01:00 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 01:09 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 01:22 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/53866.shtml)
-- 2026-06-30 01:14 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/309978.shtml)
-- 2026-06-30 01:22 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/6564159.shtml)
-- 2026-06-30 01:20 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/2545006850.shtml)
-- 2026-06-30 01:12 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/01201.shtml)
-- 2026-06-30 00:58 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/152735.shtml)
-- 2026-06-30 01:11 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/25234453.shtml)
-- 2026-06-30 01:01 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/78237504207.shtml)
-- 2026-06-30 01:17 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/6620820.shtml)
-- 2026-06-30 01:02 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/242592752.shtml)
-- 2026-06-30 00:55 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/927816.shtml)
-- 2026-06-30 00:56 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/74952784.shtml)
-- 2026-06-30 01:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/060122998965.shtml)
-- 2026-06-30 01:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/11042500.shtml)
-- 2026-06-30 00:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/703498159714.shtml)
+- 2026-06-30 01:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/2968465.shtml)
+- 2026-06-30 01:03 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/475928566918.shtml)
+- 2026-06-30 01:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/22651331889.shtml)
+- 2026-06-30 01:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/481522764147.shtml)
+- 2026-06-30 01:18 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/195943.shtml)
+- 2026-06-30 01:28 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/426512.shtml)
+- 2026-06-30 01:25 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/67068575.shtml)
+- 2026-06-30 01:00 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/57317838.shtml)
+- 2026-06-30 01:15 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/83944088.shtml)
+- 2026-06-30 01:29 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/1040590.shtml)
+- 2026-06-30 01:20 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/683717.shtml)
+- 2026-06-30 01:07 - [青春环游记第三季](https://www.share.minike.top/Article/details/1802082409.shtml)
+- 2026-06-30 01:25 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/5104024711.shtml)
+- 2026-06-30 01:22 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/8572429.shtml)
+- 2026-06-30 01:14 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/87605.shtml)

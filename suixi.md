@@ -1,50 +1,59 @@
-# 科创金融生态共建合作框架协议在沪签署
+# 香港6月中小企业收益展望动向指数改善
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 中国长城资产与中国银行、中国中信金融资产、中国东方资产、上海国投公司在2026陆家嘴论坛上共同签署科创金融生态共建合作框架协议。 合作由中国银行发起，聚焦上海三大先导产业，创新打造“股权投资+银行服务+AMC资本盘活”一体化模式，覆盖科创企业全生命周期。 依据协议，“十五五”期间合作各方将协同投入百亿级资金，构建多层
+中新社香港6月9日电 香港特区政府统计处9日公布的中小企业业务状况按月统计调查结果显示，中小企业业务收益的现时动向指数从2026年4月的44点，上升至同年5月的44.4点，而6月的业务收益展望动向指数为47.2点。按行业分析，一些统计调查涵盖的行业的业务收益现时动向指数于5月较4月上升，特别是饮食业、物流业及零售业。 进出口贸易业新订单的现时动向指数从4月的46.1点轻微下降至
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 中国长城资产与中国银行、中国中信金融资产、中国东方资产、上海国投公司在2026陆家嘴论坛上共同签署科创金融生态共建合作框架协议。
+中新社香港6月9日电 香港特区政府统计处9日公布的中小企业业务状况按月统计调查结果显示，中小企业业务收益的现时动向指数从2026年4月的44点，上升至同年5月的44.4点，而6月的业务收益展望动向指数为47.2点。
 
-合作由中国银行发起，聚焦上海三大先导产业，创新打造“股权投资+银行服务+AMC资本盘活”一体化模式，覆盖科创企业全生命周期。
+按行业分析，一些统计调查涵盖的行业的业务收益现时动向指数于5月较4月上升，特别是饮食业、物流业及零售业。
 
-依据协议，“十五五”期间合作各方将协同投入百亿级资金，构建多层次基金集群与服务闭环。
+进出口贸易业新订单的现时动向指数从4月的46.1点轻微下降至5月的46点，而6月的新订单展望动向指数为47.8点。
 
-责任编辑：秦艺
+特区政府发言人表示，5月中小企业的营商气氛大致稳定。
+
+未来，香港强韧的经济增长前景应会为本地营商气氛提供支持，但中东冲突的变数仍是影响营商气氛的不确定因素。
+
+中小型企业业务状况按月统计调查旨在于最短时间内就中小企的短期业务状况提供快捷参考。
+
+特区政府统计处根据该统计调查收集的意见，编制一套动向指数，包括现时与展望动向指数。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 01:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 01:15 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 01:09 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 01:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 01:16 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 01:21 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 00:55 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 01:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 00:55 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 01:15 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 00:54 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 01:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 01:24 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 01:18 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 01:11 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 01:19 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 01:16 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 01:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 01:20 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 01:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 01:11 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 01:22 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 01:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-30 01:12 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:18 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/426690230.shtml)
-- 2026-06-30 01:05 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/28105.shtml)
-- 2026-06-30 01:07 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/756374.shtml)
-- 2026-06-30 01:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/58732033.shtml)
-- 2026-06-30 00:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/3488829198.shtml)
-- 2026-06-30 01:22 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/20116208744.shtml)
-- 2026-06-30 01:21 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/430183.shtml)
-- 2026-06-30 01:09 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/50620.shtml)
-- 2026-06-30 00:55 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/3307649820.shtml)
-- 2026-06-30 01:08 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/169446835495.shtml)
-- 2026-06-30 01:17 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/64051.shtml)
-- 2026-06-30 01:18 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/6912575409.shtml)
-- 2026-06-30 01:22 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/628750409.shtml)
-- 2026-06-30 01:07 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/51710564508.shtml)
-- 2026-06-30 01:04 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/08252.shtml)
+- 2026-06-30 01:22 - [世界杯](https://www.share.kurohicncr.top/Article/details/077526.shtml)
+- 2026-06-30 01:03 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/7248837.shtml)
+- 2026-06-30 01:13 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/564575542204.shtml)
+- 2026-06-30 01:11 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/09310780.shtml)
+- 2026-06-30 01:27 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/9853171569.shtml)
+- 2026-06-30 01:21 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/171547461940.shtml)
+- 2026-06-30 01:08 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/674970.shtml)
+- 2026-06-30 01:29 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/49773.shtml)
+- 2026-06-30 01:25 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/9182897.shtml)
+- 2026-06-30 01:24 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/42995.shtml)
+- 2026-06-30 01:22 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/41056311.shtml)
+- 2026-06-30 01:13 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/189806733.shtml)
+- 2026-06-30 01:13 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/0519236.shtml)
+- 2026-06-30 01:10 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/49610016889.shtml)
+- 2026-06-30 01:14 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/8826189571.shtml)

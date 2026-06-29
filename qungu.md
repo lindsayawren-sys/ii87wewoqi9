@@ -1,57 +1,60 @@
-# 4只千元股齐创新高！茅台股价则退守“924”，“高价股”成关键词
+# 经济学家警告欧洲央行紧缩政策风险 呼吁警惕重蹈2011年“政策过头”覆辙
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-来源：@财联社APP微博财联社6月18日讯（编辑 梓隆），今日（6月18日），A股千元俱乐部迎来历史性一刻——联讯仪器、源杰科技、寒武纪、中际旭创4股集体创历史新高。其中，联讯仪器盘中一度摸高至2478元；寒武纪全天大涨14.2%，创下2025年8月以来最大单日涨幅。​注：A股股价TOP4今日集体创历史新高（截至6月18日收盘）股价TOP4人气聚集，融资余额持续攀升一直以来，千
+欧洲中央银行本周将举行货币政策会议。多位经济学家和分析人士日前发出警告，认为欧洲央行为了维护其抑制通胀的政策信誉，正面临仓促加息、重蹈2011年“政策过头”覆辙的风险，恐将给疲态显露的欧元区经济带来代价高昂的负面影响。 自中东地区爆发伊朗冲突以来，欧洲央行此前一直维持现行利率不变。然而，鉴于能源价格飙升带来的潜在通胀传导压力，目前欧洲央行多位官员似乎倾向于采取加息举措。 多数市
 
 ## 正文
 
-来源：@财联社APP微博财联社6月18日讯（编辑 梓隆），今日（6月18日），A股千元俱乐部迎来历史性一刻——联讯仪器、源杰科技、寒武纪、中际旭创4股集体创历史新高。
+欧洲中央银行本周将举行货币政策会议。
 
-其中，联讯仪器盘中一度摸高至2478元；寒武纪全天大涨14.2%，创下2025年8月以来最大单日涨幅。
+多位经济学家和分析人士日前发出警告，认为欧洲央行为了维护其抑制通胀的政策信誉，正面临仓促加息、重蹈2011年“政策过头”覆辙的风险，恐将给疲态显露的欧元区经济带来代价高昂的负面影响。
 
-​注：A股股价TOP4今日集体创历史新高（截至6月18日收盘）股价TOP4人气聚集，融资余额持续攀升一直以来，千元股始终是A股市场关注的焦点，其股价涨跌与阵营更迭，往往牵动着市场神经。
+自中东地区爆发伊朗冲突以来，欧洲央行此前一直维持现行利率不变。
 
-身处热门科技赛道的联讯仪器、源杰科技、寒武纪、中际旭创，目前股价已全面超越贵州茅台，且仍在不断刷新历史纪录。
+然而，鉴于能源价格飙升带来的潜在通胀传导压力，目前欧洲央行多位官员似乎倾向于采取加息举措。
 
-以年内行情统计，源杰科技、中际旭创股价均已翻倍，寒武纪也录得近66%的涨幅。
+多数市场分析人士则持谨慎态度，呼吁欧洲央行应当继续保持观望。
 
-从资金面来看，其四者近期持续获融资客加仓。
+宏观经济研究机构朗伯德街研究公司（TS Lombard）经济学家戴维德·奥内利亚（Davide Oneglia）指出，当前欧洲央行高度关注通胀预期，并深受2022年通胀危机教训的影响，似乎正不惜一切代价证明其政策信誉。
 
-截至6月17日数据，中际旭创、寒武纪、源杰科技、联讯仪器近5个交易日分别获融资客29.47亿元、11.26亿元、3.54亿元、3.48亿元增持。
+他强调，2011年欧洲债务危机期间的加息已被证明是严重的政策失误，在当前欧元区经济复苏动力不足、投资者可能将加息误读为新一轮紧缩周期开端的背景下，“重蹈覆辙”将是欧洲央行当前面临的最大风险之一。
 
-其中，中际旭创目前融资余额已达430.27亿元，稳居全市场第一名，并为其上市以来的最高纪录。
+分析人士普遍认为，考虑到美国与伊朗目前正就达成和平协议进行接触，外部能源冲击的持续性仍有待评估，欧洲央行审慎行事的理由依然充分。
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 01:18 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 01:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 01:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 01:04 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 01:03 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 01:20 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 01:14 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 01:05 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 01:03 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 01:17 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 01:26 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 01:20 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 01:23 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 01:24 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 01:15 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 01:06 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 01:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 01:14 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 01:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 01:01 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 01:05 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 01:18 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 01:24 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 01:14 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/67281678495.shtml)
-- 2026-06-30 01:11 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/04938242.shtml)
-- 2026-06-30 00:57 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/8160617020.shtml)
-- 2026-06-30 01:11 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/123879185.shtml)
-- 2026-06-30 01:08 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/26123024864.shtml)
-- 2026-06-30 01:08 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/636586.shtml)
-- 2026-06-30 01:01 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/80327.shtml)
-- 2026-06-30 00:59 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/9747256583.shtml)
-- 2026-06-30 01:02 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/714361025096.shtml)
-- 2026-06-30 01:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/666963760.shtml)
-- 2026-06-30 01:02 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/32778.shtml)
-- 2026-06-30 01:12 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/040974366.shtml)
-- 2026-06-30 01:16 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/6212859.shtml)
-- 2026-06-30 01:12 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/3193366.shtml)
-- 2026-06-30 01:04 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/45280.shtml)
+- 2026-06-30 01:27 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/153193.shtml)
+- 2026-06-30 01:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/76217799.shtml)
+- 2026-06-30 01:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/623727.shtml)
+- 2026-06-30 01:26 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/101953507.shtml)
+- 2026-06-30 01:19 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/7291747518.shtml)
+- 2026-06-30 01:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/5231629346.shtml)
+- 2026-06-30 01:15 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/383526706.shtml)
+- 2026-06-30 01:10 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/83825.shtml)
+- 2026-06-30 01:12 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/525086.shtml)
+- 2026-06-30 01:10 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/94834567537.shtml)
+- 2026-06-30 01:04 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/517924418.shtml)
+- 2026-06-30 01:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/687036583.shtml)
+- 2026-06-30 01:03 - [内马尔替补](http://www.share.minike.top/Article/details/011143.shtml)
+- 2026-06-30 01:18 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/247887056.shtml)
+- 2026-06-30 01:26 - [绘画区你赢了](https://www.blog.minike.top/Article/details/52677870.shtml)

@@ -1,60 +1,59 @@
-# 瞬间弹射“零帧”急停 福建舰下水四周年有哪些新亮点？
+# 汇泉说｜刘源：解读华为“韬定律”，AI硬件的底层逻辑正在重估
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-时间的指针拨回到2022年6月17日，那天我国首艘弹射型航母福建舰正式下水，舷号“18”。四年后的今天，福建舰下水4周年，从初出船坞的崭新巨舰，到历经无数次系泊试验、远洋海试，从完成多型舰载机弹射起降，到正式入列，福建舰走过的每一步，都划出了里程碑式的航迹。四年间福建舰经历了哪些重要时刻？点击下面短片回顾↓↓ 福建舰两年八次海试 航母技术实现跨越 2024年5月1日，福建舰进行
+来源：汇泉基金 11年金融从业经验，5年投资管理经验 专注科技创新领域，对AI+、智能终端、机器人等领域有长期深入研究，坚持成长、质量和估值并重的投资策略 大家好，我是基金经理刘源。 近期，华为在国际电路与系统研讨会（ISCAS）上正式发布“韬（τ）定律”，提出以“时间缩微”替代“几何缩微”，通过逻辑折叠、四层级协同优化，在成熟制程上实现等效性能跃升。过去六年已量产381款芯片
 
 ## 正文
 
-时间的指针拨回到2022年6月17日，那天我国首艘弹射型航母福建舰正式下水，舷号“18”。
+来源：汇泉基金 11年金融从业经验，5年投资管理经验 专注科技创新领域，对AI+、智能终端、机器人等领域有长期深入研究，坚持成长、质量和估值并重的投资策略 大家好，我是基金经理刘源。
 
-四年后的今天，福建舰下水4周年，从初出船坞的崭新巨舰，到历经无数次系泊试验、远洋海试，从完成多型舰载机弹射起降，到正式入列，福建舰走过的每一步，都划出了里程碑式的航迹。
+近期，华为在国际电路与系统研讨会（ISCAS）上正式发布“韬（τ）定律”，提出以“时间缩微”替代“几何缩微”，通过逻辑折叠、四层级协同优化，在成熟制程上实现等效性能跃升。
 
-四年间福建舰经历了哪些重要时刻？
+过去六年已量产381款芯片，今年秋季将搭载于新一代麒麟芯片。
 
-点击下面短片回顾↓↓ 福建舰两年八次海试 航母技术实现跨越 2024年5月1日，福建舰进行了首次海试。
+这一技术路线的发布，对半导体产业格局影响深远。
 
-福建舰作为一艘电磁弹射型航母，跟其他航母的海试内容不太一样。
+站在AI硬件的投资视角，我认为有三点值得重点关注。
 
-技术起点不同。
+先进封装与半导体设备的需求 被系统性放大 韬定律的核心路径，是在不依赖极紫外光刻（EUV）的前提下，通过3D堆叠、逻辑折叠、异构集成来提升芯片性能。
 
-福建舰是我国从零开始、完全自主设计建造的，而且首次使用的电磁弹射技术特别复杂，所以需要更长的时间调试测试。
+这意味着，成熟制程（7nm、14nm、28nm）加先进封装，将成为国产芯片性能突破的主流组合。
 
-测试内容不一样。
+对于AI硬件产业链，直接的影响是：刻蚀、薄膜沉积、清洗等前道设备需求持续增加；同时，晶圆级封装、混合键合、硅通孔（TSV）、缺陷检测等先进封装相关设备与材料的景气度将明显提升。
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 01:15 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 01:16 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 01:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 01:09 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 01:04 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 01:11 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 00:55 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 01:10 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 00:59 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 00:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 01:22 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 01:22 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 01:01 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 01:04 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 01:06 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 01:17 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 01:01 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 01:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 01:06 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 01:07 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 01:03 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 01:17 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 01:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 01:23 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 01:09 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 01:04 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:18 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/33403.shtml)
-- 2026-06-30 01:04 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/28055802.shtml)
-- 2026-06-30 01:06 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/047141568211.shtml)
-- 2026-06-30 01:01 - [一见倾心](https://www.share.kurohicncr.top/Article/details/174089617.shtml)
-- 2026-06-30 01:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/420608922109.shtml)
-- 2026-06-30 01:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/173198186385.shtml)
-- 2026-06-30 01:05 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/995812.shtml)
-- 2026-06-30 01:02 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/47496.shtml)
-- 2026-06-30 01:12 - [《贺子珍》](http://www.share.minike.top/Article/details/868479801940.shtml)
-- 2026-06-30 01:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/98990016.shtml)
-- 2026-06-30 01:09 - [女心理师](https://www.share.kurohicncr.top/Article/details/70888321379.shtml)
-- 2026-06-30 01:23 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/113456889773.shtml)
-- 2026-06-30 01:18 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/21748693.shtml)
-- 2026-06-30 01:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/190159.shtml)
-- 2026-06-30 01:00 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/363163915.shtml)
+- 2026-06-30 01:19 - [毒液2](https://www.blog.kurohicncr.top/Article/details/7099239240.shtml)
+- 2026-06-30 01:22 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/71415871279.shtml)
+- 2026-06-30 01:09 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/13988893.shtml)
+- 2026-06-30 01:06 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/361393448338.shtml)
+- 2026-06-30 01:06 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/340350541031.shtml)
+- 2026-06-30 01:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/49872.shtml)
+- 2026-06-30 01:11 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/24872805735.shtml)
+- 2026-06-30 01:00 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/3151867.shtml)
+- 2026-06-30 01:10 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/54466169.shtml)
+- 2026-06-30 01:20 - [锐评T1零封KC](http://www.share.minike.top/Article/details/074462.shtml)
+- 2026-06-30 01:19 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/487215.shtml)
+- 2026-06-30 01:14 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/9143205.shtml)
+- 2026-06-30 01:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/398471188.shtml)
+- 2026-06-30 01:23 - [第一炉香](http://www.share.minike.top/Article/details/45881.shtml)
+- 2026-06-30 01:27 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/63902457.shtml)

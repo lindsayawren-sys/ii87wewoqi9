@@ -1,57 +1,53 @@
-# 廊坊经洽会侧记：当“非遗小狗”遇上机器狗
+# 小米17T Pro体验：持久续航 全能均衡
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网廊坊6月18日电 题：廊坊经洽会侧记：当“非遗小狗”遇上机器狗 作者 张会杰 当“非遗小狗”遇上机器狗会是一幅怎样的画面？2026年中国·廊坊国际经济贸易洽谈会(简称“廊坊经洽会”)上，老手艺与新科技奇妙“相逢”，引人驻足。 “非遗小狗”的参展商是河北白洋淀的一家工艺品公司，“我们主要制作芦苇画，除了用芦苇做的小狗画，还有很多以荷花为主题的画作。”兼画室主理人和公司总经理
+不是所有人都要买旗舰机，这或许是小米给17T Pro的定义。 直屏直边，不误触、好贴膜，7000毫安时的大电池直接告别电量焦虑，配上100W有线+50W无线，随手一充就能量满满。 徕卡三摄没有夸张的镜头模组，但随手拍色彩很稳，长焦也能随手出片。性能不烫不掉帧，日常用基本没短板！ 它不跟超大杯比噱头，低调实用，这就够了。
 
 ## 正文
 
-中新网廊坊6月18日电 题：廊坊经洽会侧记：当“非遗小狗”遇上机器狗 作者 张会杰 当“非遗小狗”遇上机器狗会是一幅怎样的画面？
+不是所有人都要买旗舰机，这或许是小米给17T Pro的定义。
 
-2026年中国·廊坊国际经济贸易洽谈会(简称“廊坊经洽会”)上，老手艺与新科技奇妙“相逢”，引人驻足。
+直屏直边，不误触、好贴膜，7000毫安时的大电池直接告别电量焦虑，配上100W有线+50W无线，随手一充就能量满满。
 
-“非遗小狗”的参展商是河北白洋淀的一家工艺品公司，“我们主要制作芦苇画，除了用芦苇做的小狗画，还有很多以荷花为主题的画作。
+徕卡三摄没有夸张的镜头模组，但随手拍色彩很稳，长焦也能随手出片。
 
-”兼画室主理人和公司总经理双重身份的刘永乐，正兴致勃勃地介绍被誉为“绿色艺术品”的芦苇画，希望借助展会推广到更多地方。
+性能不烫不掉帧，日常用基本没短板！
 
-只见用芦苇编织而成的“小狗”吐着舌头，神态俏皮。
-
-白洋淀芦苇画是以白洋淀天然芦苇为原料，经十几道全手工工序制成的特色民间工艺画，素有“一淀水，一淀银，一寸芦苇一寸金”的美誉。
-
-其最大特点在于“不用画笔勾勒、颜料着色”，完全利用芦苇本身色泽、光泽和纹理来呈现画面。
-
-“非遗小狗”的“邻居”，机器狗的“主人”则来自深圳一家科技公司。
+它不跟超大杯比噱头，低调实用，这就够了。
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 01:19 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 01:07 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 01:15 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 01:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 01:03 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 01:06 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 01:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-30 00:59 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 01:19 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 01:00 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 01:08 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 01:13 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 01:29 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 01:25 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 01:20 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 01:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 01:16 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 01:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 01:10 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 01:00 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 01:16 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 01:02 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 01:20 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:01 - [刘念回应](https://www.blog.minike.top/Article/details/033732.shtml)
-- 2026-06-30 00:54 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/69801840858.shtml)
-- 2026-06-30 01:07 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/9383729177.shtml)
-- 2026-06-30 00:58 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/1661939.shtml)
-- 2026-06-30 01:03 - [送你一朵小红花](http://www.share.minike.top/Article/details/5219294068.shtml)
-- 2026-06-30 01:06 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/812401199150.shtml)
-- 2026-06-30 01:08 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/710870563.shtml)
-- 2026-06-30 01:03 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/54978.shtml)
-- 2026-06-30 00:56 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/04620225.shtml)
-- 2026-06-30 01:19 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/956293412.shtml)
-- 2026-06-30 00:55 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/60494409.shtml)
-- 2026-06-30 01:22 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/060589634224.shtml)
-- 2026-06-30 01:22 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/65541903.shtml)
-- 2026-06-30 01:03 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/196240609.shtml)
-- 2026-06-30 01:08 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/92601315306.shtml)
+- 2026-06-30 01:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/994770.shtml)
+- 2026-06-30 01:17 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/07164122241.shtml)
+- 2026-06-30 01:28 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/0896832973.shtml)
+- 2026-06-30 01:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/893226412.shtml)
+- 2026-06-30 01:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/89793517.shtml)
+- 2026-06-30 01:17 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/304160079.shtml)
+- 2026-06-30 01:00 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/9490815980.shtml)
+- 2026-06-30 01:10 - [世界杯](https://www.blog.minike.top/Article/details/2428566.shtml)
+- 2026-06-30 01:12 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/193431126686.shtml)
+- 2026-06-30 01:13 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/029557.shtml)
+- 2026-06-30 01:29 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/580189.shtml)
+- 2026-06-30 01:09 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/112720.shtml)
+- 2026-06-30 01:27 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/78812928.shtml)
+- 2026-06-30 01:22 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/995666773783.shtml)
+- 2026-06-30 01:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/754163.shtml)

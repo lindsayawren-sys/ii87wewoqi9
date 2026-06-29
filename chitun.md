@@ -1,56 +1,53 @@
-# 巨星之日！美加墨世界杯三大球星亮相，他们首战创下了哪些纪录？
+# 黄河实业正就一项自主智能式人工智慧(Agentic AI)金融科技业务的潜在投资进行深入讨论
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 题：巨星之日！姆巴佩、哈兰德、梅西相继亮相，他们首战创下哪些纪录？ 作者 刘梦青 邢翀 当地时间16日，美加墨世界杯小组赛迎来巨星大放异彩的一天，本届杯赛三大顶级球星姆巴佩、哈兰德、梅西接连登场，姆巴佩、哈兰德先后完成双响，梅西上演帽子戏法，首战即表现出强大战力，各自更是创下一系列纪录。 姆巴佩：打破质疑，成就法国队史第一射手面对24年前爆冷击败自己的塞
+黄河实业（00318）发布公告，本集团正与独立第三方就一项自主智能式人工智慧（Agentic AI）金融科技业务的潜在投资（潜在投资）进行深入讨论。若该潜在投资落实，将延续集团的既定业务策略，以进一步扩大及深化现有的自主智能式人工智慧（Agentic AI）业务。 于本公告日期，本公司尚未就潜在投资订立任何协议。潜在投资的条款仍在讨论中，且可能会或可能不会落实。责任编辑：卢昱君
 
 ## 正文
 
-中新网北京6月17日电 题：巨星之日！
+黄河实业（00318）发布公告，本集团正与独立第三方就一项自主智能式人工智慧（Agentic AI）金融科技业务的潜在投资（潜在投资）进行深入讨论。
 
-姆巴佩、哈兰德、梅西相继亮相，他们首战创下哪些纪录？
+若该潜在投资落实，将延续集团的既定业务策略，以进一步扩大及深化现有的自主智能式人工智慧（Agentic AI）业务。
 
-作者 刘梦青 邢翀 当地时间16日，美加墨世界杯小组赛迎来巨星大放异彩的一天，本届杯赛三大顶级球星姆巴佩、哈兰德、梅西接连登场，姆巴佩、哈兰德先后完成双响，梅西上演帽子戏法，首战即表现出强大战力，各自更是创下一系列纪录。
+于本公告日期，本公司尚未就潜在投资订立任何协议。
 
-姆巴佩：打破质疑，成就法国队史第一射手面对24年前爆冷击败自己的塞内加尔队，夺冠热门法国队欲一雪前耻。
+潜在投资的条款仍在讨论中，且可能会或可能不会落实。
 
-然而上半场的姆巴佩和法国队的表现让人大跌眼镜，射门次数1:5落后，预期进球只有可怜的0.02。
-
-0次射门、3次尝试过人失败、丢失球权7次的姆巴佩，让球迷捏了一把汗。
-
-但下半场风云突变，第66分钟，奥利塞的直塞唤醒了沉睡的“高卢雄鸡”：姆巴佩接球转身一气呵成，低射远角打破僵局。
-
-补时最后时刻，塞内加尔刚扳回一城，姆巴佩就在禁区弧顶附近轰出一记石破天惊的世界波。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 01:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 01:18 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 00:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 01:22 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 01:15 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 01:17 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 01:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 01:19 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 01:14 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 01:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 01:16 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 01:20 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 01:13 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 01:02 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 01:04 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 01:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 01:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 01:05 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 01:10 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 01:26 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 01:11 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 01:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/408832.shtml)
-- 2026-06-30 01:15 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/162289688.shtml)
-- 2026-06-30 01:11 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/652391097.shtml)
-- 2026-06-30 01:03 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/0833322.shtml)
-- 2026-06-30 01:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/6081263.shtml)
-- 2026-06-30 01:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/70257854375.shtml)
-- 2026-06-30 01:23 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/64557345264.shtml)
-- 2026-06-30 01:10 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/957390791805.shtml)
-- 2026-06-30 01:08 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/65392656737.shtml)
-- 2026-06-30 01:04 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/4437887.shtml)
-- 2026-06-30 01:19 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/790645150935.shtml)
-- 2026-06-30 01:05 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/00711218820.shtml)
-- 2026-06-30 00:58 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/18199320353.shtml)
-- 2026-06-30 00:58 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/443263395910.shtml)
-- 2026-06-30 00:55 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/655244.shtml)
+- 2026-06-30 01:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/548081409619.shtml)
+- 2026-06-30 01:04 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/8850515648.shtml)
+- 2026-06-30 01:05 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/2939494.shtml)
+- 2026-06-30 01:09 - [世界杯](http://www.share.minike.top/Article/details/033508277556.shtml)
+- 2026-06-30 01:11 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/867989071343.shtml)
+- 2026-06-30 01:17 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/98885169730.shtml)
+- 2026-06-30 01:17 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/2778476.shtml)
+- 2026-06-30 01:11 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/3995689861.shtml)
+- 2026-06-30 01:22 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/27196.shtml)
+- 2026-06-30 01:05 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/250797.shtml)
+- 2026-06-30 01:18 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/129601572986.shtml)
+- 2026-06-30 01:14 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/104568145852.shtml)
+- 2026-06-30 01:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/17991252207.shtml)
+- 2026-06-30 01:00 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/3852417.shtml)
+- 2026-06-30 01:10 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/893940743563.shtml)

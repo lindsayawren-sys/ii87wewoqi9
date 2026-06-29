@@ -1,60 +1,55 @@
-# 申万宏源董事长刘健：建议港股通进一步扩容， 研究允许内地投资者参与港股IPO
+# 近镜头｜习近平和彭丽媛参谒中朝友谊塔
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，申万宏源集团股份有限公司和申万宏源证券有限公司董事长刘健指出，在当前全球经济格局深刻调整与中国金融市场加速开放的背景下，沪港金融协作已从区域性的城市合作，上升为国家金融战略的关键支点，兼具现实迫切性与长远战略意义。 刘健在发言中首先
+当地时间6月9日上午，正在朝鲜进行国事访问的中共中央总书记、国家主席习近平和夫人彭丽媛参谒中朝友谊塔。朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主陪同。 中朝友谊塔建成于1959年。塔身由1025块花岗岩和大理石砌成，象征中国人民志愿军1950年10月25日赴朝作战。(记者：朱基钗、谢环驰、虞东升；视频：操兰漪、程大雨、陆睿、张枫、董亚雷、王申)
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，申万宏源集团股份有限公司和申万宏源证券有限公司董事长刘健指出，在当前全球经济格局深刻调整与中国金融市场加速开放的背景下，沪港金融协作已从区域性的城市合作，上升为国家金融战略的关键支点，兼具现实迫切性与长远战略意义。
+当地时间6月9日上午，正在朝鲜进行国事访问的中共中央总书记、国家主席习近平和夫人彭丽媛参谒中朝友谊塔。
 
-刘健在发言中首先剖析了沪港金融协作的深层动力。
+朝鲜劳动党总书记、国务委员长金正恩和夫人李雪主陪同。
 
-他援引数据指出，2025年底中国人均GDP已达10万元人民币（约合1.4万美元），标志着中国正式步入中等收入国家行列。
+中朝友谊塔建成于1959年。
 
-伴随居民财富积累与企业国际化需求井喷，跨境资产配置成为必然趋势。
+塔身由1025块花岗岩和大理石砌成，象征中国人民志愿军1950年10月25日赴朝作战。
 
-建议进一步扩容港股通标的，研究允许内地投资者参与港股IPO。
-
-第一，沪港金融协作是制度型对外开放的典范。
-
-刘健回顾了自2003年以来沪港金融合作逾二十载的历程，从股票通、债券通、互换通，到基金互认与ETF通，互联互通机制不断深化。
-
-他引用数据指出，近期外资通过陆港通投资A股的占比已达90%，通过债券通投资中国债券市场的比例接近70%。
+(记者：朱基钗、谢环驰、虞东升；视频：操兰漪、程大雨、陆睿、张枫、董亚雷、王申)
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 00:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 00:59 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 01:21 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 01:16 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 01:13 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 00:55 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 01:15 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 01:19 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 01:11 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 01:18 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 01:09 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 01:18 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 01:17 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 01:26 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 01:18 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 01:27 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 01:22 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 01:01 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 01:11 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 01:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 01:10 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 01:11 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 01:06 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 01:26 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-30 01:06 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 01:07 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 01:11 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 01:20 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:07 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/41684999.shtml)
-- 2026-06-30 00:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/53971140.shtml)
-- 2026-06-30 01:23 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/63556.shtml)
-- 2026-06-30 00:57 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/2847656213.shtml)
-- 2026-06-30 01:12 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/72192623347.shtml)
-- 2026-06-30 01:22 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/0692482599.shtml)
-- 2026-06-30 00:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/38252.shtml)
-- 2026-06-30 01:02 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/22915.shtml)
-- 2026-06-30 00:59 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/31469.shtml)
-- 2026-06-30 01:01 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/234668.shtml)
-- 2026-06-30 01:12 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/613823912287.shtml)
-- 2026-06-30 01:08 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/123517455067.shtml)
-- 2026-06-30 01:07 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/6638365142.shtml)
-- 2026-06-30 01:03 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/02347754157.shtml)
-- 2026-06-30 01:19 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/794032.shtml)
+- 2026-06-30 01:14 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/318707333.shtml)
+- 2026-06-30 01:20 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/704321992218.shtml)
+- 2026-06-30 01:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/313376.shtml)
+- 2026-06-30 01:16 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/7462811327.shtml)
+- 2026-06-30 01:14 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/019895623.shtml)
+- 2026-06-30 01:21 - [绘画区你赢了](https://www.share.minike.top/Article/details/524362682743.shtml)
+- 2026-06-30 01:18 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/90821.shtml)
+- 2026-06-30 01:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/45128794.shtml)
+- 2026-06-30 01:23 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/318800190.shtml)
+- 2026-06-30 01:20 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/4198903135.shtml)
+- 2026-06-30 01:17 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/08976269480.shtml)
+- 2026-06-30 01:13 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/1925057416.shtml)
+- 2026-06-30 01:11 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/45344.shtml)
+- 2026-06-30 01:07 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/8701293027.shtml)
+- 2026-06-30 01:09 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/925831402476.shtml)

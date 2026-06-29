@@ -1,60 +1,57 @@
-# 华虹宏力、智谱大涨超10%！规模最大港股通信息技术ETF华宝（159131）强势翻红逼近上市高点
+# 新兴芯片厂商持续挑战英伟达，本轮主角是微软投资的D-Matrix
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-今日（6月18日）午后，港股硬科技强势冲高翻红，智谱、天数智心大涨逾13%，华虹宏力涨超10%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）午后发力拉涨0.72%，盘中价格逼近上市以来高点。 银河证券指出， 6月预计全球半导体板块将处于高位震荡阶段，建议继续关注产业链有增量和景气加强的环节。或可关注存储、半导体设备和材料、功率半导体、国产算力方向。 大同
+核心要点 AI 芯片赛道竞争日趋白热化，又一家实现量产的初创企业宣称产品性能超越全球市值最高企业英伟达。 D-Matrix公司总部坐落于硅谷，距离英伟达总部仅三英里。该公司表示，针对小型算力推理任务，自家芯片运算速度是英伟达独立图形处理器的 10 倍，能耗仅为其五分之一。 这款名为 “海盗船（Corsair）” 的全新推理芯片采用创新内存架构设计，思路与塞雷布拉斯、格罗克（Gr
 
 ## 正文
 
-今日（6月18日）午后，港股硬科技强势冲高翻红，智谱、天数智心大涨逾13%，华虹宏力涨超10%。
+核心要点 AI 芯片赛道竞争日趋白热化，又一家实现量产的初创企业宣称产品性能超越全球市值最高企业英伟达。
 
-同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）午后发力拉涨0.72%，盘中价格逼近上市以来高点。
+D-Matrix公司总部坐落于硅谷，距离英伟达总部仅三英里。
 
-银河证券指出， 6月预计全球半导体板块将处于高位震荡阶段，建议继续关注产业链有增量和景气加强的环节。
+该公司表示，针对小型算力推理任务，自家芯片运算速度是英伟达独立图形处理器的 10 倍，能耗仅为其五分之一。
 
-或可关注存储、半导体设备和材料、功率半导体、国产算力方向。
+这款名为 “海盗船（Corsair）” 的全新推理芯片采用创新内存架构设计，思路与塞雷布拉斯、格罗克（Groq）相近。
 
-大同证券认为，英伟达新一代Vera Rubin平台已步入密集拉货期，其架构革新对PCB的层数、材质及工艺要求实现了全面跃升，带动单台服务器PCB价值量显著提升。
+各大科技巨头对算力资源的需求持续暴涨，行业清晰显现：中小型芯片企业仍有充足空间挖掘细分市场机会。
 
-从台积电先进制程产能排产及供应链备货节奏来看，AI算力硬件的订单能见度已延伸至2027年，短期与中期需求均呈现持续超预期的强劲态势。
+2015 年成立的塞雷布拉斯上月完成重磅 IPO，募资超 55 亿美元，当前估值突破 500 亿美元；格罗克则在去年 12 月被英伟达以 200 亿美元收购，创下这家 AI 巨头史上最大收购案。
 
-在此背景下，AI服务器及高速交换机需求呈现爆发式增长，PCB板块迎来量价齐升的景气格局。
+英伟达随后于 3 月 GTC 大会推出基于格罗克技术的新品 —— 语言处理单元。
 
-目前国内多家AIPCB核心供应商产能利用率已触及历史峰值，在手订单饱满、满产满销，并正积极通过资本开支扩张产能以响应下游迫切需求，业绩高增长的确定性较强，正向盈利弹性有望持续释放。
+西德・谢斯在采访中向 CNBC 表示：“万亿美元级别的市场正在成型，我完全没有出售公司的打算。
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 01:20 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 00:54 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 01:17 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 00:59 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 01:08 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 01:02 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 01:09 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 00:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 00:59 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 01:18 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 00:58 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 00:58 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 01:00 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 01:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 01:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 01:26 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 01:21 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 01:22 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 01:08 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 01:10 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 01:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 01:23 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 01:05 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 01:21 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:59 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/58570487208.shtml)
-- 2026-06-30 01:05 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/20109243289.shtml)
-- 2026-06-30 00:57 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/4830665607.shtml)
-- 2026-06-30 01:05 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/995260669123.shtml)
-- 2026-06-30 01:00 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/83806.shtml)
-- 2026-06-30 00:58 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/0797800061.shtml)
-- 2026-06-30 00:57 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/734197.shtml)
-- 2026-06-30 01:10 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/234699737.shtml)
-- 2026-06-30 01:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/84783335603.shtml)
-- 2026-06-30 01:16 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/9427754.shtml)
-- 2026-06-30 01:11 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/63050347.shtml)
-- 2026-06-30 01:04 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/3841265.shtml)
-- 2026-06-30 01:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/4045435.shtml)
-- 2026-06-30 01:10 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/3080793323.shtml)
-- 2026-06-30 01:03 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/63821.shtml)
+- 2026-06-30 01:25 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/91119660720.shtml)
+- 2026-06-30 01:27 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/30567010.shtml)
+- 2026-06-30 01:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/50814.shtml)
+- 2026-06-30 01:01 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/93150914.shtml)
+- 2026-06-30 01:06 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/760164393.shtml)
+- 2026-06-30 01:16 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/59720975114.shtml)
+- 2026-06-30 01:24 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/29905908.shtml)
+- 2026-06-30 01:21 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/19280491.shtml)
+- 2026-06-30 01:21 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/258982.shtml)
+- 2026-06-30 01:27 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/20902.shtml)
+- 2026-06-30 01:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/639356757138.shtml)
+- 2026-06-30 01:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/4942473456.shtml)
+- 2026-06-30 01:01 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/4640150579.shtml)
+- 2026-06-30 01:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/954864428743.shtml)
+- 2026-06-30 01:12 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/0126742.shtml)

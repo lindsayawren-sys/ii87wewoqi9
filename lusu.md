@@ -1,57 +1,60 @@
-# 银河TT！吉利银河新车确认
+# FTX联合创始人Bankman-Fried正式申请特朗普特赦
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-6月17日，吉利银河官方正式官宣，旗下全新C级AI纯电运动轿车命名为——吉利银河TT。据了解，吉利银河TT的公开征名时间为6月12日，仅5天时间，于今日正式公布高票 “TT” 定为正式车型名。而实际上，这款车型在5月的工信部新车申报中就已经出现，名字正是“TT”。结合申报图以及最新官图来看，作为全新车型，新车外观采用全新设计风格，整体造型颇具运动感和科技感。具体来看，新车前脸采
+加密货币交易所FTX联合创始人Sam Bankman-Fried正式提交了总统特赦申请。两年多前，他因这一盛极一时的加密货币帝国崩盘案而被定罪。 美国司法部特赦律师办公室网站显示，现年34岁的Bankman-Fried已向该办公室递交了申请，请求获得“服刑期满后的特赦”。 Bankman-Fried一直利用社交媒体和接受保守派媒体采访的机会，试图争取特朗普的行政宽大处理。特朗普
 
 ## 正文
 
-6月17日，吉利银河官方正式官宣，旗下全新C级AI纯电运动轿车命名为——吉利银河TT。
+加密货币交易所FTX联合创始人Sam Bankman-Fried正式提交了总统特赦申请。
 
-据了解，吉利银河TT的公开征名时间为6月12日，仅5天时间，于今日正式公布高票 “TT” 定为正式车型名。
+两年多前，他因这一盛极一时的加密货币帝国崩盘案而被定罪。
 
-而实际上，这款车型在5月的工信部新车申报中就已经出现，名字正是“TT”。
+美国司法部特赦律师办公室网站显示，现年34岁的Bankman-Fried已向该办公室递交了申请，请求获得“服刑期满后的特赦”。
 
-结合申报图以及最新官图来看，作为全新车型，新车外观采用全新设计风格，整体造型颇具运动感和科技感。
+Bankman-Fried一直利用社交媒体和接受保守派媒体采访的机会，试图争取特朗普的行政宽大处理。
 
-具体来看，新车前脸采用封闭式格栅搭配两侧造型狭长的大灯组设计，灯组内部采用粗壮的LED日间行车灯组布局，点亮后辨识度较高。
+特朗普在第二任期内频繁行使特赦权令数十名白领犯罪的被告受益。
 
-前包围提供三段式进气口，搭配前舱盖隆起的多条筋线，营造出运动气息。
+不过，他今年1月告诉《纽约时报》称，自己没有特赦Bankman-Fried的计划。
 
-另外，新车车顶带有激光雷达，预计将搭载千里浩瀚辅助驾驶H7方案。
+Bankman-Fried因策划FTX欺诈案、导致贷款方、客户和投资者损失100亿美元而被定罪，并于2024年被判处25年监禁。
 
-车身侧面，新车线条动感，采用溜背轿跑造型设计，搭配半隐藏式车门把手以及双五辐式轮圈，展现出浓郁的轿跑姿态。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 01:11 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 00:58 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 01:10 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 00:54 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 00:59 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 01:03 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 01:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 01:02 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 00:58 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 01:23 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 01:20 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 01:06 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 01:02 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 01:10 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 01:23 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 01:05 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 01:16 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-30 01:29 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 01:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 01:07 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 01:11 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 01:11 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 01:21 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 01:01 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 01:15 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/55686477.shtml)
-- 2026-06-30 01:07 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/6992056573.shtml)
-- 2026-06-30 01:07 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/8544353213.shtml)
-- 2026-06-30 01:14 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/07146701974.shtml)
-- 2026-06-30 01:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/77786.shtml)
-- 2026-06-30 01:19 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/666534862.shtml)
-- 2026-06-30 01:08 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/7116734171.shtml)
-- 2026-06-30 01:07 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/744497.shtml)
-- 2026-06-30 01:03 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/2968453375.shtml)
-- 2026-06-30 01:22 - [恋与深空 日服](https://www.blog.kurohicncr.top/Article/details/0688240358.shtml)
-- 2026-06-30 01:10 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/3159335.shtml)
-- 2026-06-30 01:07 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/0895943.shtml)
-- 2026-06-30 01:16 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/022268.shtml)
-- 2026-06-30 01:21 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/8249088.shtml)
-- 2026-06-30 01:09 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/712245515.shtml)
+- 2026-06-30 01:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/24602.shtml)
+- 2026-06-30 01:11 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/5420238.shtml)
+- 2026-06-30 01:01 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/59353.shtml)
+- 2026-06-30 01:22 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/95305.shtml)
+- 2026-06-30 01:18 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/3741925446.shtml)
+- 2026-06-30 01:07 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/28260182484.shtml)
+- 2026-06-30 01:24 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/871551514603.shtml)
+- 2026-06-30 01:15 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/62570247.shtml)
+- 2026-06-30 01:26 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/93352551.shtml)
+- 2026-06-30 01:11 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/2816664.shtml)
+- 2026-06-30 01:18 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/0862294.shtml)
+- 2026-06-30 01:05 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/0774914.shtml)
+- 2026-06-30 01:14 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/371196.shtml)
+- 2026-06-30 01:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/265412.shtml)
+- 2026-06-30 01:08 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/307890.shtml)

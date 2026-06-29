@@ -1,53 +1,48 @@
-# 美联储货币政策怎么改革？沃什宣布成立五个工作组
+# 韩国暂时收紧对银行外汇头寸的监控
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-以改革者自居的美联储新任主席沃什在其首个新闻发布会上提出了涉及货币政策流程的五大改革领域。 北京时间6月18日凌晨，沃什在议息后的新闻发布会上表示，将围绕货币政策全流程运作的五大核心领域，分别成立专项工作组：第一，美联储对外沟通机制；第二，美联储资产负债表政策；第三，现有数据渠道的运用与依赖体系；第四，产业变革时代下的劳动生产率与就业问题；第五，美联储通胀分析框架。 沃什表示，
+韩国金融监督院（FSS）在一份声明中表示，将暂时加强对主要银行外汇头寸的监控，把审查周期从每月缩短到每周，甚至可能每天。 声明还表示： FSS周二与韩国主要银行及外资银行在当地的分行举行会议，评估当前外汇市场状况，并商讨如何应对外汇市场波动加剧； 敦促银行避免对美元存款进行过度营销； 寻求银行配合，确保离岸NDF交易不会加剧国内外汇市场波动，或造成过度的单边持仓。责任编辑：刘明
 
 ## 正文
 
-以改革者自居的美联储新任主席沃什在其首个新闻发布会上提出了涉及货币政策流程的五大改革领域。
+韩国金融监督院（FSS）在一份声明中表示，将暂时加强对主要银行外汇头寸的监控，把审查周期从每月缩短到每周，甚至可能每天。
 
-北京时间6月18日凌晨，沃什在议息后的新闻发布会上表示，将围绕货币政策全流程运作的五大核心领域，分别成立专项工作组：第一，美联储对外沟通机制；第二，美联储资产负债表政策；第三，现有数据渠道的运用与依赖体系；第四，产业变革时代下的劳动生产率与就业问题；第五，美联储通胀分析框架。
+声明还表示： FSS周二与韩国主要银行及外资银行在当地的分行举行会议，评估当前外汇市场状况，并商讨如何应对外汇市场波动加剧； 敦促银行避免对美元存款进行过度营销； 寻求银行配合，确保离岸NDF交易不会加剧国内外汇市场波动，或造成过度的单边持仓。
 
-沃什表示，各工作组的核心任务包括，回归第一性原理、提出尖锐问题、审查现行运作模式、评估各类替代方案，最终形成改进方案，供政策制定者研讨决策。
-
-责任编辑：郭建
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 00:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 00:57 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 01:03 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 01:03 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 01:22 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 01:06 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 01:19 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 01:23 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 01:14 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 01:17 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 01:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 01:08 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 00:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 00:59 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 01:14 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 01:19 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 01:09 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 01:25 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 01:11 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 01:10 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 01:11 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 01:26 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 01:06 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 01:21 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 01:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 01:29 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 01:14 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/60838740.shtml)
-- 2026-06-30 01:17 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/87034.shtml)
-- 2026-06-30 01:08 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/556436627287.shtml)
-- 2026-06-30 00:57 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/72039420.shtml)
-- 2026-06-30 01:19 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/4360074.shtml)
-- 2026-06-30 01:08 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/1553957.shtml)
-- 2026-06-30 01:06 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/827386032160.shtml)
-- 2026-06-30 01:01 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/39736.shtml)
-- 2026-06-30 01:02 - [美股](http://www.share.kurohicncr.top/Article/details/536653020.shtml)
-- 2026-06-30 00:55 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/32263.shtml)
-- 2026-06-30 01:09 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/05962557247.shtml)
-- 2026-06-30 01:05 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/385693443.shtml)
-- 2026-06-30 00:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/3584852.shtml)
-- 2026-06-30 01:19 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/95110598.shtml)
-- 2026-06-30 00:58 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/7878545.shtml)
+- 2026-06-30 01:08 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/646449391.shtml)
+- 2026-06-30 01:04 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/65632401.shtml)
+- 2026-06-30 01:22 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/01666.shtml)
+- 2026-06-30 01:23 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/996466.shtml)
+- 2026-06-30 01:17 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/451561.shtml)
+- 2026-06-30 01:20 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/53580916406.shtml)
+- 2026-06-30 01:12 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/6532705.shtml)
+- 2026-06-30 01:25 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/217662.shtml)
+- 2026-06-30 01:20 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/92573627.shtml)
+- 2026-06-30 01:19 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/05293552.shtml)
+- 2026-06-30 01:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/688810592.shtml)
+- 2026-06-30 01:21 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/8258125.shtml)
+- 2026-06-30 01:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/954559820.shtml)
+- 2026-06-30 01:19 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/01134838.shtml)
+- 2026-06-30 01:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/134936443.shtml)

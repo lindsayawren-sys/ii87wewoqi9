@@ -1,58 +1,59 @@
-# 我国荒漠化防治取得显著成效
+# 体育联通世界，美国高校青年畅谈中美友谊
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：记者6月17日从国家林业和草原局了解到，“十四五”期间，我国不断加大荒漠化防治力度，取得显著成效。 最新数据显示，“十四五”期间，我国持续加强荒漠化综合防治，累计完成沙化土地治理1.52亿亩、石漠化土地治理2932万亩，全国沙化程度持续减轻，沙区生态状况持续改善。 “三北”地区是我国防沙治沙的主战场，目前，“三北”工程六期已安排建设任务4.63亿亩、完成
+中新网上海6月9日电(记者 缪璐)6月8日，由中国民间组织国际交流促进会、上海市社会组织国际交流促进会(以下简称“沪促会”)主办，上海体育大学承办的“体育联通世界”美国哥伦比亚大学中国行主题交流活动在上海举行。 参加交流的美国哥伦比亚大学中国行代表团一行20人，国籍涵盖美国、澳大利亚、巴西、德国、哥伦比亚、韩国、加拿大、捷克、印度、印度尼西亚、法国等10余个国家。代表团于5月2
 
 ## 正文
 
-央视网消息(新闻联播)：记者6月17日从国家林业和草原局了解到，“十四五”期间，我国不断加大荒漠化防治力度，取得显著成效。
+中新网上海6月9日电(记者 缪璐)6月8日，由中国民间组织国际交流促进会、上海市社会组织国际交流促进会(以下简称“沪促会”)主办，上海体育大学承办的“体育联通世界”美国哥伦比亚大学中国行主题交流活动在上海举行。
 
-最新数据显示，“十四五”期间，我国持续加强荒漠化综合防治，累计完成沙化土地治理1.52亿亩、石漠化土地治理2932万亩，全国沙化程度持续减轻，沙区生态状况持续改善。
+参加交流的美国哥伦比亚大学中国行代表团一行20人，国籍涵盖美国、澳大利亚、巴西、德国、哥伦比亚、韩国、加拿大、捷克、印度、印度尼西亚、法国等10余个国家。
 
-“三北”地区是我国防沙治沙的主战场，目前，“三北”工程六期已安排建设任务4.63亿亩、完成3.55亿亩，基本实现时间过半、任务过半的阶段目标。
+代表团于5月28日至6月10日访华，其中6月7日至10日到访上海。
 
-眼下，“三北”地区正不断强化科技赋能，划分了136个生态治理分区，选育出一批抗旱抗寒耐盐碱林草新品种，工程区良种使用率超75%。
+这趟中国之行行程满满，代表团先后走访北京、重庆、南京、上海4座城市。
 
-截至目前，我国沙化土地面积持续净减少，由上世纪末的年均扩展515万亩转变为目前的年均缩减1000万亩，八大沙漠、四大沙地的土壤风蚀总量较2000年下降约40%，沙区植被平均盖度达21.17%，较10年前上升2.84%。
+不少成员是第一次来中国，大家纷纷表示：“这是一趟大开眼界的旅程。
 
-如今，中国的治沙经验正走出国门，为全球生态治理持续贡献中国力量。
+”以前不了解的中国历史，现在知道了；以前没见过的炫酷基础设施，现在亲眼看到了。
 
-来源：央视网
+他们表示，以后还会再来中国，也要推荐朋友们来玩，“还要尝遍中国各种美食”。
+
+6月8日在上海体育大学举办的活动现场，代表团成员沉浸式体验乒乓球和武术。
 
 ## 相关推荐
 
-- 2026-06-30 01:22 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 00:59 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 00:59 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 01:20 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 01:09 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 01:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 00:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 01:08 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 00:58 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 01:07 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 01:07 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 00:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 00:54 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 01:10 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 01:19 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 01:11 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 01:29 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 01:09 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 01:26 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 01:02 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 01:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 01:24 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-30 01:11 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 01:25 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 01:17 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 01:19 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 01:00 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:57 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/218271033.shtml)
-- 2026-06-30 01:06 - [恋与深空回应争议](https://www.share.minike.top/Article/details/883208443.shtml)
-- 2026-06-30 01:07 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/595262325.shtml)
-- 2026-06-30 01:23 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/75840.shtml)
-- 2026-06-30 01:16 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/2075691183.shtml)
-- 2026-06-30 01:18 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/2187945999.shtml)
-- 2026-06-30 01:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/1873136238.shtml)
-- 2026-06-30 01:09 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/854983735.shtml)
-- 2026-06-30 01:04 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/033170.shtml)
-- 2026-06-30 01:02 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/1596514.shtml)
-- 2026-06-30 01:00 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/38175089924.shtml)
-- 2026-06-30 00:55 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/1701503.shtml)
-- 2026-06-30 01:02 - [流金岁月](https://www.share.kurohicncr.top/Article/details/9732733614.shtml)
-- 2026-06-30 00:59 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/73577454.shtml)
-- 2026-06-30 01:18 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/29706893232.shtml)
+- 2026-06-30 01:24 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/215096437875.shtml)
+- 2026-06-30 01:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/94027544872.shtml)
+- 2026-06-30 01:19 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/918815628.shtml)
+- 2026-06-30 01:10 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/47384.shtml)
+- 2026-06-30 01:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/26870.shtml)
+- 2026-06-30 01:18 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/31132142041.shtml)
+- 2026-06-30 01:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/6961966.shtml)
+- 2026-06-30 01:29 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/804678068225.shtml)
+- 2026-06-30 01:15 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/58298102686.shtml)
+- 2026-06-30 01:25 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/301532076203.shtml)
+- 2026-06-30 01:07 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/705019.shtml)
+- 2026-06-30 01:06 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/103353520.shtml)
+- 2026-06-30 01:04 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/382854377426.shtml)
+- 2026-06-30 01:18 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/257155.shtml)
+- 2026-06-30 01:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/2279126.shtml)

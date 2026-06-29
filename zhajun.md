@@ -1,58 +1,60 @@
-# 长江有色：美联储“鹰声”首秀资金谨慎商家节前轻仓 18日锡价或小跌
+# 酒价内参6月9日价格发布：飞天茅台上涨2元，四连阳后价格升至月内次高位
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 期货市场：美联储鹰派决议落地利率维持不变符合市场预期，隔夜伦锡微涨0.85%；最新收盘报55500美元/吨，上涨470美元，涨幅为0.85%，成交量为373手，持仓量20334万手；国内市场，夜盘沪锡主力合约2607最新收报423800元/吨，上涨880元，涨幅为0.21%。 伦敦金属交易所（LME）6月17日伦锡库存量9025吨，较前一交易日库存量增加315吨
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月9日整体再度明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9895元，较昨日大幅下跌23元，重返9900元下方。市场在前三日连续明显回升后步入回调，终端交投情绪偏谨慎，核心单品的涨跌分化显著。 今日11大白酒单品三涨八跌，输家占据绝对优势。上涨方面，国窖1573涨幅居前，上涨5元/
 
 ## 正文
 
-长江有色金属网 期货市场：美联储鹰派决议落地利率维持不变符合市场预期，隔夜伦锡微涨0.85%；最新收盘报55500美元/吨，上涨470美元，涨幅为0.85%，成交量为373手，持仓量20334万手；国内市场，夜盘沪锡主力合约2607最新收报423800元/吨，上涨880元，涨幅为0.21%。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月9日整体再度明显走弱。
 
-伦敦金属交易所（LME）6月17日伦锡库存量9025吨，较前一交易日库存量增加315吨。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9895元，较昨日大幅下跌23元，重返9900元下方。
 
-长江锡业网讯：今日沪锡期货全线低开为主，主力月2607合约开盘报423200元/吨较前一日收盘上涨280元/吨，9：20分沪锡主力2607合约报421790元/吨，下跌1130元，跌幅为0.27%，沪期锡低开后窄幅震荡运行；宏观面：美联储 6 月利率决议释放超预期鹰派信号，美元走强、美股全线回落的背景下，隔夜伦锡逆势走高。
+市场在前三日连续明显回升后步入回调，终端交投情绪偏谨慎，核心单品的涨跌分化显著。
 
-其核心支撑来自两点：一是 AI 算力建设热度延续，半导体板块走强带动市场对锡长期需求的乐观预期；二是全球锡矿供应扰动持续，低库存格局下资金做多意愿较强。
+今日11大白酒单品三涨八跌，输家占据绝对优势。
 
-今日国内锡价震荡回落，美元强势压制大宗商品整体估值，市场风险偏好回落；叠加锡价前期涨幅显著，高位多头集中获利了结，且电子行业处于传统淡季，下游企业畏高情绪浓厚，采购以刚需为主，现货成交乏力，价格整体承压下行。
+上涨方面，国窖1573涨幅居前，上涨5元/瓶，终结此前五连阴，但价格仍囿于月内次低位；青花郎上涨3元/瓶收获二连涨；飞天茅台上涨2元/瓶，四连阳后价格升至月内次高位。
 
-原料端供需格局与产业链现状 当前全球锡原生矿供应整体偏紧，缅甸雨季制约开采及外运节奏，印尼矿业政策调整推高矿企运营成本，海外主要产区扰动持续。
+下跌方面，五粮液普五八代、古井贡古20与习酒君品均下跌6元/瓶，其中普五八代再度失守810元，古井贡古20回吐前一日全部涨幅，习酒君品连续两日回落，价格快速下探创月内新低，近一个月其价格中枢持续下移；精品茅台下跌5元/瓶，此前三连阳的强劲涨势告终；洋河梦之蓝M6+下跌3元/瓶，平月内次低价位；青花汾20下跌3元/瓶，回落至370元下方；五粮液1618与水晶剑南春均下跌2元/瓶，其中前者创下月内最低价纪录。
 
-再生锡原料供给同步受限，国内锡精矿加工费维持低位，冶炼企业按需排产，精锡整体产出增量有限。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-产业链呈现 “矿紧、炼稳、需求分化” 格局，传统电子、镀锡板需求平淡，AI 服务器与先进封装成为需求核心增长引擎。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-30 01:00 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 00:56 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 01:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 01:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 01:15 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 01:22 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 01:08 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-30 01:13 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 01:11 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 01:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 01:22 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 01:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 01:11 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 01:13 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 01:06 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 01:14 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 01:16 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 01:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 01:14 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 01:25 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 01:00 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 01:23 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 01:15 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 01:12 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 01:28 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 01:00 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:17 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/18418645870.shtml)
-- 2026-06-30 00:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/885217083244.shtml)
-- 2026-06-30 01:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/85609336929.shtml)
-- 2026-06-30 01:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/57202.shtml)
-- 2026-06-30 01:21 - [金牌调解](https://www.share.kurohicncr.top/Article/details/8533592957.shtml)
-- 2026-06-30 00:58 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/2519212508.shtml)
-- 2026-06-30 00:55 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/83290303.shtml)
-- 2026-06-30 01:03 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/556696.shtml)
-- 2026-06-30 01:12 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/5081391526.shtml)
-- 2026-06-30 00:57 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/283745.shtml)
-- 2026-06-30 00:55 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/861275840.shtml)
-- 2026-06-30 01:05 - [恋与深空 日服](https://www.share.minike.top/Article/details/307179555420.shtml)
-- 2026-06-30 01:12 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/29006853825.shtml)
-- 2026-06-30 01:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/067837.shtml)
-- 2026-06-30 01:19 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/98044.shtml)
+- 2026-06-30 01:09 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/060439221189.shtml)
+- 2026-06-30 01:17 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/526165.shtml)
+- 2026-06-30 01:18 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/997149.shtml)
+- 2026-06-30 01:06 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/9145178927.shtml)
+- 2026-06-30 01:04 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/73252471.shtml)
+- 2026-06-30 01:01 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/81900190337.shtml)
+- 2026-06-30 01:14 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/511428705.shtml)
+- 2026-06-30 01:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/9468426.shtml)
+- 2026-06-30 01:22 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/941298263.shtml)
+- 2026-06-30 01:19 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/64544.shtml)
+- 2026-06-30 01:10 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/32166.shtml)
+- 2026-06-30 01:17 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/351533928007.shtml)
+- 2026-06-30 01:02 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/94401.shtml)
+- 2026-06-30 01:23 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/827340.shtml)
+- 2026-06-30 01:00 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/16746499.shtml)

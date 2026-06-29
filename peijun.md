@@ -1,61 +1,59 @@
-# 苏州5月份外贸进出口同比增长近六成
+# AI投资热掀起涨价潮，5月进出口再现两位数增长
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网苏州6月17日电 (记者 钟升)苏州海关17日公布，今年前5个月，苏州外贸进出口达1.48万亿元，同比增长37.5%。其中，出口8900.9亿元，同比增长31%；进口5894.1亿元，同比增长48.7%。5月份，苏州进出口达3572.3亿元，同比增长59.4%，增速刷新2010年2月份以来纪录。今年开始，苏州对“一带一路”共建国家的贸易占比突破五成，前5个月进出口增长64
+记者 王珍继4月之后，5月中国进出口再现大幅增长。海关总署周二发布数据称，以美元计，2026年5月，中国出口金额同比增长19.4%，增速较上月加快5.3个百分点，进口同比增长27.4%，较上月加快2.1个百分点。分析人士指出，全球人工智能（AI）投资热潮进一步升温，芯片、电脑零部件、电子元件价格大幅上涨，对我国出口金额形成强有力的拉动；而出口增长带动国内产能扩张，又会进一步增加
 
 ## 正文
 
-中新网苏州6月17日电 (记者 钟升)苏州海关17日公布，今年前5个月，苏州外贸进出口达1.48万亿元，同比增长37.5%。
+记者 王珍继4月之后，5月中国进出口再现大幅增长。
 
-其中，出口8900.9亿元，同比增长31%；进口5894.1亿元，同比增长48.7%。
+海关总署周二发布数据称，以美元计，2026年5月，中国出口金额同比增长19.4%，增速较上月加快5.3个百分点，进口同比增长27.4%，较上月加快2.1个百分点。
 
-5月份，苏州进出口达3572.3亿元，同比增长59.4%，增速刷新2010年2月份以来纪录。
+分析人士指出，全球人工智能（AI）投资热潮进一步升温，芯片、电脑零部件、电子元件价格大幅上涨，对我国出口金额形成强有力的拉动；而出口增长带动国内产能扩张，又会进一步增加对国外原材料、零部件的进口需求。
 
-今年开始，苏州对“一带一路”共建国家的贸易占比突破五成，前5个月进出口增长64.4%至7788.6亿元，比重进一步扩大至52.6%，较去年同期提升8.6个百分点，5月当月增幅高达90.9%。
+他们预计，短期内偏强的进出口动能有望延续。
 
-同期，苏州对东盟、欧盟进出口分别增长51%、21.4%，占全市外贸的21.1%、11.5%。
+“5月出口增速继续上行，全球经济景气度维持扩张以及AI产业高增、能源冲击下新能源相关产品出口加速、涨价因素均对出口增速带来支撑。
 
-今年前5个月，苏州市的民营企业进出口达4852.3亿元，同比增长20.4%；外商投资企业进出口8777.5亿元，同比增长42.3%；同期，国有企业同比增长109.6%。
+”中国银河证券首席宏观分析师张迪对界面新闻说。
 
-苏州“新三样”产品的出口继续保持快速增长，前5个月，全市锂电池、光伏产品分别出口127.7亿元、42.4亿元，同比增长87.5%、109.6%。
+海关数据显示，5月集成电路（芯片）出口量同比增长2.1%，增速较上月回落1.7个百分点，但出口金额同比增长110.9%，增速较上月加快10.8个百分点，“涨价”效应明显。
 
-同期，电工器材、家用电器、印刷电路出口同比增长26%、14.7%、33.7%；全市进口机电产品4814.8亿元，同比增长65.9%，其中电子元件同比增长107.9%。
+东方金诚研究发展部执行总监冯琳对界面新闻表示，我国成熟制程芯片产能占全球比重近30%，5月芯片出口额为355.5亿美元，在整体出口额中的占比达到9.4%，为第一大类出口商品；当月芯片出口高增对整体出口增速的拉动达到5.9个百分点，且几乎全部为“涨价”因素贡献。
 
 ## 相关推荐
 
-- 2026-06-30 01:11 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 01:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 01:17 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 01:21 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 01:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 01:14 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 01:07 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 01:07 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 01:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 01:20 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 01:18 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 01:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 00:58 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 01:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-30 00:56 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 01:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 01:14 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 01:16 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 01:22 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 01:20 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 01:21 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 01:19 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 01:12 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 01:23 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 01:19 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-30 01:02 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 01:21 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 01:06 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:09 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/58970617.shtml)
-- 2026-06-30 01:11 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/88365963.shtml)
-- 2026-06-30 00:59 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/49067147.shtml)
-- 2026-06-30 01:06 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/03869091069.shtml)
-- 2026-06-30 01:19 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/809932.shtml)
-- 2026-06-30 01:18 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/5171385268.shtml)
-- 2026-06-30 00:56 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/37747360.shtml)
-- 2026-06-30 01:02 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/132699794634.shtml)
-- 2026-06-30 00:55 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/7739144640.shtml)
-- 2026-06-30 00:55 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/52357853.shtml)
-- 2026-06-30 01:07 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/69231.shtml)
-- 2026-06-30 01:18 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/763252270.shtml)
-- 2026-06-30 01:13 - [爱很美味](http://www.share.kurohicncr.top/Article/details/118323946.shtml)
-- 2026-06-30 01:21 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/00045357.shtml)
-- 2026-06-30 01:18 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/8103187.shtml)
+- 2026-06-30 01:08 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/1023713.shtml)
+- 2026-06-30 01:15 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/760093145564.shtml)
+- 2026-06-30 01:21 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/058326.shtml)
+- 2026-06-30 01:25 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/5279324929.shtml)
+- 2026-06-30 01:26 - [恋与深空回应争议](https://www.share.minike.top/Article/details/99796129107.shtml)
+- 2026-06-30 01:21 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/853078.shtml)
+- 2026-06-30 01:15 - [美人鱼](http://www.blog.minike.top/Article/details/303796769187.shtml)
+- 2026-06-30 01:09 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/2358805312.shtml)
+- 2026-06-30 01:20 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/1962364.shtml)
+- 2026-06-30 01:01 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/37144554.shtml)
+- 2026-06-30 01:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/74825976692.shtml)
+- 2026-06-30 01:07 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/899242543856.shtml)
+- 2026-06-30 01:19 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/54392.shtml)
+- 2026-06-30 01:15 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/04812.shtml)
+- 2026-06-30 01:26 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/444593209.shtml)

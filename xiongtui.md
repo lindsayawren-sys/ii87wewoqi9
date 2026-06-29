@@ -1,59 +1,58 @@
-# 宝马发布盈利预警，股价跌至五年新低
+# 中方敦促韩方不向“台独”分裂势力发出错误信号
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 因中国市场需求走弱、伊朗战事引发经营扰动，这家德国车企下调 2026 年盈利预期，宝马股价于周三暴跌至五年多来最低点位，最新跌幅达 6.5%。 宝马在周二上午发布的声明中表示：“尽管欧洲和美国市场的汽车销量实现正向增长，但这仍无法抵消中国及亚太地区的销量下滑。” 宝马补充称，伊朗战事推高能源价格，一方面不断抬升企业运营成本，另一方
+中新社北京6月9日电 (记者 张素)针对韩国跨党派国会议员团日前窜访台湾，中国外交部发言人林剑9日在例行记者会上指出，敦促韩方不被“台独”分子利用，不向“台独”分裂势力发出错误信号。 会上回答韩联社记者提问时，林剑首先指出，台湾是中国的一部分，没有什么“外交部”。 林剑说，中方一贯坚决反对建交国同中国台湾地区进行任何形式的官方往来。1992年中韩建交时双方发表的联合公报明确规定
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 因中国市场需求走弱、伊朗战事引发经营扰动，这家德国车企下调 2026 年盈利预期，宝马股价于周三暴跌至五年多来最低点位，最新跌幅达 6.5%。
+中新社北京6月9日电 (记者 张素)针对韩国跨党派国会议员团日前窜访台湾，中国外交部发言人林剑9日在例行记者会上指出，敦促韩方不被“台独”分子利用，不向“台独”分裂势力发出错误信号。
 
-宝马在周二上午发布的声明中表示：“尽管欧洲和美国市场的汽车销量实现正向增长，但这仍无法抵消中国及亚太地区的销量下滑。
+会上回答韩联社记者提问时，林剑首先指出，台湾是中国的一部分，没有什么“外交部”。
 
-” 宝马补充称，伊朗战事推高能源价格，一方面不断抬升企业运营成本，另一方面也打压了全球各地市场的消费者信心。
+林剑说，中方一贯坚决反对建交国同中国台湾地区进行任何形式的官方往来。
 
-该公司表示，集团本年度税前利润预计将出现大幅下滑。
+1992年中韩建交时双方发表的联合公报明确规定，韩国承认中华人民共和国为代表中国的唯一合法政府，尊重中方只有一个中国、台湾是中国的一部分的立场。
 
-德意志银行分析师在周三发布的研报中表示，宝马本次业绩电话会议 “给出的疑问远多于答案”，公司并未针对组织架构与成本管控发布全面的调整方案，这令市场深感担忧。
+林剑表示，今年以来韩方在多个场合公开重申尊重一个中国的立场没有变化。
 
-受该利空消息影响，花旗分析师将宝马在华销量预期下调超 5 万辆，预计其全年在华总销量将跌破 50 万辆。
+中方已就此事向韩方提出严正交涉。
 
-分析师补充道：“目前宝马缺乏具备吸引力的利好投资逻辑，全年盈利仍面临下行压力，行业长期发展存在结构性利空趋势，加之欧盟持续出台严苛的行业监管政策，且投资欧洲价值型个股的机构投资者数量有限，我们认为宝马股价低估的现状或将持续。
+林剑还表示，敦促韩方从中韩关系大局出发，信守承诺，切实恪守一个中国原则，不同台湾地区开展任何形式的官方往来，不被“台独”分子利用，不向“台独”分裂势力发出错误信号，用实际行动维护双边关系健康稳定发展。
 
-” 承压前行的欧洲车企 本次盈利预警拖累整个欧洲汽车板块，宝马的德国本土竞争对手大众、梅赛德斯 - 奔驰股价同步遭遇下行压力。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:22 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 01:11 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 01:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 00:57 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 01:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 01:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 01:04 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 01:00 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 01:12 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 01:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 00:58 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 01:20 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-30 00:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 01:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 01:21 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 01:15 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 01:22 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 01:14 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 01:26 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 01:21 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 01:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 01:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 01:13 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 01:10 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 01:29 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:19 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/97689.shtml)
-- 2026-06-30 00:59 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/95950099.shtml)
-- 2026-06-30 01:22 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/01792.shtml)
-- 2026-06-30 01:21 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/37346165748.shtml)
-- 2026-06-30 00:59 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/578654.shtml)
-- 2026-06-30 01:23 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/575332.shtml)
-- 2026-06-30 01:01 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/64526402.shtml)
-- 2026-06-30 01:17 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/61311895.shtml)
-- 2026-06-30 01:23 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/438951314.shtml)
-- 2026-06-30 01:04 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/3891495.shtml)
-- 2026-06-30 01:21 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/557898203.shtml)
-- 2026-06-30 01:18 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/464807232.shtml)
-- 2026-06-30 00:55 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/478971893996.shtml)
-- 2026-06-30 01:05 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/19032605.shtml)
-- 2026-06-30 01:21 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/201713365419.shtml)
+- 2026-06-30 01:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/25168351.shtml)
+- 2026-06-30 01:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/2924592.shtml)
+- 2026-06-30 01:10 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/41483371568.shtml)
+- 2026-06-30 01:28 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/1457219.shtml)
+- 2026-06-30 01:14 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/97438.shtml)
+- 2026-06-30 01:21 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/1693017557.shtml)
+- 2026-06-30 01:27 - [恋与深空 巧合](https://www.share.minike.top/Article/details/4436163406.shtml)
+- 2026-06-30 01:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/741701249.shtml)
+- 2026-06-30 01:29 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/8710912.shtml)
+- 2026-06-30 01:01 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/30614268592.shtml)
+- 2026-06-30 01:23 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/21886.shtml)
+- 2026-06-30 01:20 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/438753209.shtml)
+- 2026-06-30 01:04 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/500522765.shtml)
+- 2026-06-30 01:00 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/314932.shtml)
+- 2026-06-30 01:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/713975012.shtml)

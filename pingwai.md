@@ -1,59 +1,61 @@
-# 1.4万余件作品竞逐“挑战杯” 云岭青年以赛为媒链接市场
+# 第六届中国（厦门）国际跨境电商展览会开幕
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月18日电 (时文枝)18日，第十二届“挑战杯”云南省大学生创业计划竞赛闭幕式暨颁奖典礼在昆明举行。本届赛事规模创历届新高，累计征集参赛作品1.4万余件，超11万云岭学子在先进制造、新一代信息技术等八大赛道展开激烈角逐。 其间，省内86所高校的1300余个项目晋级省级复赛，478件优秀作品入围终审答辩。经专家评审，最终产生特等奖80项、一等奖141项、二等奖256项
+中新网厦门6月8日电 (吴冠标)6月8日，第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)在厦门开幕。 本届中跨展为期3天，以“跨境互联 货通全球”为主题，汇聚近千家源头工厂、30多家全球主流跨境电商平台及上百家生态服务商，吸引了来自新加坡、泰国、马来西亚、菲律宾等多个国家和地区的采购商观展采购。 展会现场，主办方聚焦“选品采购”与“产业对接”两大核心需求，设置采购对接专
 
 ## 正文
 
-中新网昆明6月18日电 (时文枝)18日，第十二届“挑战杯”云南省大学生创业计划竞赛闭幕式暨颁奖典礼在昆明举行。
+中新网厦门6月8日电 (吴冠标)6月8日，第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)在厦门开幕。
 
-本届赛事规模创历届新高，累计征集参赛作品1.4万余件，超11万云岭学子在先进制造、新一代信息技术等八大赛道展开激烈角逐。
+本届中跨展为期3天，以“跨境互联 货通全球”为主题，汇聚近千家源头工厂、30多家全球主流跨境电商平台及上百家生态服务商，吸引了来自新加坡、泰国、马来西亚、菲律宾等多个国家和地区的采购商观展采购。
 
-其间，省内86所高校的1300余个项目晋级省级复赛，478件优秀作品入围终审答辩。
+展会现场，主办方聚焦“选品采购”与“产业对接”两大核心需求，设置采购对接专区，为海内外客商精准匹配供需，进一步提升效率，加快实现从“单向出海”向“双向互通”升级。
 
-经专家评审，最终产生特等奖80项、一等奖141项、二等奖256项、三等奖723项，15所高校获评“优秀组织奖”。
+开幕式上，中跨展组委会联合中国12家跨境电商行业协会发布《推动跨境电商高质量发展行业倡议》，倡议聚焦“深化产业协同，共建健康生态”“践行长期主义，严守合规底线”“拥抱数智变革，赋能品牌出海”“强化人才支撑，激发创新动能”四大共识，凝聚行业规范发展、稳健出海的共同期许。
 
-与往届相比，本届大赛搭建从“赛场”到“市场”的直通桥梁。
+亚马逊全球开店深度参与本届展会，以专属论坛、展位小讲堂及一对一咨询等多元形式，为跨境卖家提供全方位出海支持。
 
-赛事期间，多组优秀项目进行集中路演，各团队围绕技术创新、应用场景与商业模式充分展示成果。
+亚马逊中国副总裁邱胜围绕“生而全球”的跨境电商3.0时代趋势发表演讲，分享AI赋能、全球拓展、供应链革新和本地深耕四大战略方向。
 
-评审专家与行业投资人分别从技术壁垒、市场前景与落地路径等维度逐一点评，帮助团队厘清发展思路。
+展会期间，亚马逊将围绕美国、欧洲、拉美等多站点商机洞察、品牌出海路径、B2B企业直采、SPN服务商筛选、物流合规履约等核心议题，为不同阶段的跨境卖家提供从入驻到增长的全链路指导。
 
-赛事特别设置投资合作意向签约仪式，多个优质项目现场签署投资合作与落地转化协议，推动参赛项目从“实验室”走向“大市场”，实现青年创意与现实生产力的有效衔接。
+韩国贸易馆连续六届参展，本届展会携50余家韩国企业、超200款精选单品参展，集中展示美容产品、身材管理产品、化妆品及婴幼儿用品等多元品类。
 
 ## 相关推荐
 
-- 2026-06-30 01:19 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 01:18 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 00:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 01:13 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 01:19 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 00:56 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 01:18 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 00:58 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 01:20 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 01:17 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 01:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 01:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 01:10 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 01:17 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 01:18 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 01:05 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 01:21 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 01:01 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 01:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 01:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 01:27 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 01:05 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 01:21 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 01:09 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 01:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 01:15 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 01:20 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 01:22 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:13 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/658270948.shtml)
-- 2026-06-30 00:59 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/318683411.shtml)
-- 2026-06-30 01:08 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/30631129471.shtml)
-- 2026-06-30 01:24 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/416760.shtml)
-- 2026-06-30 01:05 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/81880546.shtml)
-- 2026-06-30 00:57 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/79244351310.shtml)
-- 2026-06-30 01:08 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/619834402775.shtml)
-- 2026-06-30 01:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/1962840414.shtml)
-- 2026-06-30 01:05 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/7675824.shtml)
-- 2026-06-30 01:03 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/076817928301.shtml)
-- 2026-06-30 01:18 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/02612140.shtml)
-- 2026-06-30 00:54 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/9683872.shtml)
-- 2026-06-30 01:03 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/2577370.shtml)
-- 2026-06-30 01:06 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/007009840130.shtml)
-- 2026-06-30 00:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/431497797407.shtml)
+- 2026-06-30 01:06 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/2436684286.shtml)
+- 2026-06-30 01:12 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/20045181.shtml)
+- 2026-06-30 01:26 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/712432.shtml)
+- 2026-06-30 01:25 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/7723534109.shtml)
+- 2026-06-30 01:15 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/59767901.shtml)
+- 2026-06-30 01:25 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/022310.shtml)
+- 2026-06-30 01:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/24965952.shtml)
+- 2026-06-30 01:21 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/8152628.shtml)
+- 2026-06-30 01:19 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/269637759.shtml)
+- 2026-06-30 01:07 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/917491527.shtml)
+- 2026-06-30 01:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/0586763.shtml)
+- 2026-06-30 01:00 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/0481908.shtml)
+- 2026-06-30 01:02 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/19771269.shtml)
+- 2026-06-30 01:06 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/092317472783.shtml)
+- 2026-06-30 01:05 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/267508.shtml)

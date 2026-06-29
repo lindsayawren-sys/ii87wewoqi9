@@ -1,59 +1,58 @@
-# 帮境外机构解决人民币流动性问题，央行出手了
+# 英特尔获谷歌300万颗AI芯片订单，大涨11%
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。同日，央行发布公告，披露了该工具的操作框架。 潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。 公告指出，该工具操作方式包括买断式
+6月9日消息，据《The Information》周一报道称，谷歌已向英特尔订购超过300万个张量处理器（Tensor Processor，简称TPU），计划于2028年开始生产。 该报道援引了直接了解Alphabet旗下谷歌与英特尔之间谈判情况的人士的话。 据报道，英伟达一直在评估英特尔的技术是否能够制造出将四个图形芯片集成到单个单元中的处理器。这家芯片制造商尚未向英特尔下订
 
 ## 正文
 
-21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。
+6月9日消息，据《The Information》周一报道称，谷歌已向英特尔订购超过300万个张量处理器（Tensor Processor，简称TPU），计划于2028年开始生产。
 
-同日，央行发布公告，披露了该工具的操作框架。
+该报道援引了直接了解Alphabet旗下谷歌与英特尔之间谈判情况的人士的话。
 
-潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。
+据报道，英伟达一直在评估英特尔的技术是否能够制造出将四个图形芯片集成到单个单元中的处理器。
 
-公告指出，该工具操作方式包括买断式逆回购和质押式逆回购，操作期限涵盖7天、1个月、3个月，回购利率在公开市场7天期逆回购操作利率上加点确定。
+这家芯片制造商尚未向英特尔下订单。
 
-境外机构可使用中国国债、央行票据、政策性金融债等高等级人民币债券作为合格抵押品。
+英特尔股价周一交易中上涨超过10%。
 
-换言之，境外央行类机构可凭合格抵押品从中国人民银行融入资金，从而有效便利其人民币流动性管理，增强持有人民币资产的信心。
+特斯拉首席执行官埃隆·马斯克在四月份表示，这家电动汽车制造商计划在其位于奥斯汀的Terafab项目中采用英特尔的下一代14A制造工艺来生产芯片。
 
-‌远东资信研究院副院长张林告诉记者，境外机构持有人民币资产有时会面临短期流动性缺口，该工具有助于解决他们“变现渠道不畅”问题。
+马斯克将该项目描述为一个先进的人工智能芯片制造中心。
 
-此举可以降低境外机构持有人民币资产的流动性风险溢价，从而增强人民币资产对全球配置机构的吸引力。
+（鞭牛士、AI普瑞斯编译）
 
 ## 相关推荐
 
-- 2026-06-30 01:09 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 01:14 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 01:21 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 00:57 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 00:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 01:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 01:02 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 01:02 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 01:17 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 01:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 01:14 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 01:05 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 01:16 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 01:28 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 01:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 01:22 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 01:12 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 01:11 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 01:25 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 01:13 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 01:03 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 01:14 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 01:25 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 01:06 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 01:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/7751349.shtml)
-- 2026-06-30 01:17 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/47198.shtml)
-- 2026-06-30 01:19 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/819454.shtml)
-- 2026-06-30 01:20 - [恋与深空 日服](https://www.share.minike.top/Article/details/720343.shtml)
-- 2026-06-30 01:05 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/606785709.shtml)
-- 2026-06-30 01:17 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/0087669.shtml)
-- 2026-06-30 01:11 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/95575776.shtml)
-- 2026-06-30 01:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/037625.shtml)
-- 2026-06-30 01:19 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/65550855.shtml)
-- 2026-06-30 01:04 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/5757326949.shtml)
-- 2026-06-30 01:21 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/21050322.shtml)
-- 2026-06-30 01:14 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/528648.shtml)
-- 2026-06-30 01:17 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/3307530531.shtml)
-- 2026-06-30 01:10 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/6870261698.shtml)
-- 2026-06-30 01:23 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/095119.shtml)
+- 2026-06-30 01:13 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/104424.shtml)
+- 2026-06-30 01:10 - [一见倾心](https://www.blog.minike.top/Article/details/301177386601.shtml)
+- 2026-06-30 01:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/921316786.shtml)
+- 2026-06-30 01:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/29303.shtml)
+- 2026-06-30 01:23 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/420064278.shtml)
+- 2026-06-30 01:13 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/3169371.shtml)
+- 2026-06-30 01:02 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/374327178870.shtml)
+- 2026-06-30 01:25 - [小娘惹](http://www.share.minike.top/Article/details/24831766237.shtml)
+- 2026-06-30 01:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/263328041695.shtml)
+- 2026-06-30 01:08 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/620755.shtml)
+- 2026-06-30 01:13 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/12647.shtml)
+- 2026-06-30 01:06 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/637956310230.shtml)
+- 2026-06-30 01:27 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/5047986881.shtml)
+- 2026-06-30 01:24 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/3582409.shtml)
+- 2026-06-30 01:04 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/18172456421.shtml)

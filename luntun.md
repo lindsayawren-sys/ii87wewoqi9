@@ -1,60 +1,58 @@
-# 以AI对抗AI！谷澍详解防范大模型应用风险四大做法
+# 瑞贝卡讲起可穿戴新故事，监管阴霾未散，难破连亏老难题
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 张欣 “要‘以AI对抗AI’，建立纵深防御体系，确保攻击可以早发现、快处置、能自愈，不断提升自动化、智能化的风险应对水平。要增强AI对抗能力，部署专门的安全监测模型，持续进行对抗训练，提升系统韧性。” 6月18日，农业银行董事长谷澍在2026陆家嘴论坛——“全体大会五：健全科技金融全生命周期服务
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 6月3日，全球假发龙头企业瑞贝卡（维权）（600439.SH）涨停报收2.62元，次日高开后再封涨停，两天内两度触及涨停板，这家近期股价持续在低位徘徊的上市公司，用两个一字板向市场宣告了自己的存在感。 消息面上，瑞贝近日公告称，拟在原经营范围中新增“可穿戴智能设备制造、可穿戴智能设备销售以及
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 张欣 “要‘以AI对抗AI’，建立纵深防御体系，确保攻击可以早发现、快处置、能自愈，不断提升自动化、智能化的风险应对水平。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-要增强AI对抗能力，部署专门的安全监测模型，持续进行对抗训练，提升系统韧性。
+来源：证券之星 6月3日，全球假发龙头企业瑞贝卡（维权）（600439.SH）涨停报收2.62元，次日高开后再封涨停，两天内两度触及涨停板，这家近期股价持续在低位徘徊的上市公司，用两个一字板向市场宣告了自己的存在感。
 
-” 6月18日，农业银行董事长谷澍在2026陆家嘴论坛——“全体大会五：健全科技金融全生命周期服务体系，服务实体经济高质量”发展上发表题为《控制大模型应用风险的几点做法》演讲时如是表示。
+消息面上，瑞贝近日公告称，拟在原经营范围中新增“可穿戴智能设备制造、可穿戴智能设备销售以及珠宝首饰制造”等业务。
 
-“创新与安全的平衡问题，成为制约大模型深化应用的关键所在。
+市场或许期待看到公司的“第二增长曲线。
 
-”谷澍指出，当前AI已成为科技创新的重要引擎，在银行的应用不断拓展深化，有效助力了金融高质量发展。
+”目前，瑞贝卡主营业务聚焦假发制品，2025年，公司营收继续低个位数增长，归母净利润则已连续两年亏损，加之公司当前仍处于证监会立案调查阶段，2025年年报又被被审计机构出具非标意见，公司能否借助“假发+可穿戴”的业务延伸走出连续亏损与立案调查的阴霾，仍是未知数。
 
-但也要关注大模型的规模化应用带来的新风险挑战。
+01． 收入增速乏力，新增可穿戴谋突围 就在公司股价连续涨停的前一天，瑞贝卡于6月2日晚间发布关于增加公司经营范围及修订《公司章程》的公告，拟增加“可穿戴智能设备制造、可穿戴智能设备销售；智能穿戴应用软件开发、物联网技术研发；电力电子原器件销售、电子产品销售、电子元器件批发；智能穿戴硬件销售；虚拟现实设备制造；珠宝首饰制造；珠宝首饰批发；珠宝首饰零售；艺术品进出口”的经营范围。
 
-在他看来，模型黑箱、模型幻觉、模型自主思考与决策带来的不确定性，是当前金融业大模型应用面临的突出风险。
+而瑞贝卡当前主营业务主要为假发制品的研发、生产和销售，显然公司正计划切入智能穿戴、虚拟现实及珠宝等全新业务领域。
 
-从底层运行机理来看，模型风险是一种客观存在，金融从业者要做的不是追求对风险的绝对消除，而是如何建立与风险共生的治理体系。
+这次经营范围的大幅调整并非完全无迹可寻。
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 01:22 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 01:03 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 01:02 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 00:54 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 01:06 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 00:57 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 01:05 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 01:10 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 01:10 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-30 00:54 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 00:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 01:16 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 01:15 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 01:04 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 01:00 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 01:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 01:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 01:10 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 01:23 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 01:29 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 01:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 01:14 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 01:02 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 01:05 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 01:04 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [恋与深空 日服](https://www.share.minike.top/Article/details/9910846993.shtml)
-- 2026-06-30 01:15 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/3416930739.shtml)
-- 2026-06-30 00:56 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/06343361.shtml)
-- 2026-06-30 00:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/333074337217.shtml)
-- 2026-06-30 01:01 - [第一炉香](https://www.share.kurohicncr.top/Article/details/66131066532.shtml)
-- 2026-06-30 01:05 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/6117286313.shtml)
-- 2026-06-30 01:12 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/4367713543.shtml)
-- 2026-06-30 01:05 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/26071401.shtml)
-- 2026-06-30 00:55 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/0712739.shtml)
-- 2026-06-30 01:07 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/77064949419.shtml)
-- 2026-06-30 01:16 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/691660660.shtml)
-- 2026-06-30 01:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/092573897447.shtml)
-- 2026-06-30 01:15 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/32383568.shtml)
-- 2026-06-30 01:19 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/7921185384.shtml)
-- 2026-06-30 01:08 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/055794005.shtml)
+- 2026-06-30 01:17 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/378999.shtml)
+- 2026-06-30 01:02 - [乔家的儿女](https://www.share.minike.top/Article/details/973197911.shtml)
+- 2026-06-30 01:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/347239.shtml)
+- 2026-06-30 01:10 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/08858922466.shtml)
+- 2026-06-30 01:04 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/318688248767.shtml)
+- 2026-06-30 01:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/745663512.shtml)
+- 2026-06-30 01:01 - [逃狱兄弟](https://www.share.minike.top/Article/details/051610.shtml)
+- 2026-06-30 01:17 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/876204542143.shtml)
+- 2026-06-30 01:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/20685365962.shtml)
+- 2026-06-30 01:03 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/01005.shtml)
+- 2026-06-30 01:05 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/1172236556.shtml)
+- 2026-06-30 01:05 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/182514983.shtml)
+- 2026-06-30 01:21 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/11991109772.shtml)
+- 2026-06-30 01:08 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/32638.shtml)
+- 2026-06-30 01:29 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/3880358.shtml)

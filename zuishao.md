@@ -1,60 +1,59 @@
-# 美团、淘宝闪购、京东外卖，集体发声！
+# 青春华章 丝路逐光丨“请到民勤种棵树”：返乡青年仲麟和三万志愿者的沙漠绿色接力
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-据新华社消息，为规范外卖平台补贴行为，国家市场监督管理总局近日依据反垄断法、反不正当竞争法、价格法、电子商务法、食品安全法等法律法规规定，起草形成《外卖平台补贴行为规范十条（征求意见稿）》，自6月17日起至7月17日公开征求意见。 美团官网发布消息称，美团坚决拥护规范，将认真学习，积极配合，按照要求，推动各项规范要求落地见效。外卖行业长周期大规模补贴等非理性竞争，扰乱了正常的市
+凌晨五点，武威市民勤县，天还没亮。仲麟已经发动了水车，准备出发接水。 两个小时后，他出现在县城集合点，组织来自全国各地的志愿者上车，奔赴沙漠深处的公益林基地。白天，他在种树现场巡查指导，保障安全、规范流程；晚上，还要统计数据、对接安排次日工作。 这样的日子，要一直持续到整个种植季结束。 仲麟是民勤县种林公益发展中心负责人，也是“请到民勤种棵树”活动的重要发起人。今年3月以来，各
 
 ## 正文
 
-据新华社消息，为规范外卖平台补贴行为，国家市场监督管理总局近日依据反垄断法、反不正当竞争法、价格法、电子商务法、食品安全法等法律法规规定，起草形成《外卖平台补贴行为规范十条（征求意见稿）》，自6月17日起至7月17日公开征求意见。
+凌晨五点，武威市民勤县，天还没亮。
 
-美团官网发布消息称，美团坚决拥护规范，将认真学习，积极配合，按照要求，推动各项规范要求落地见效。
+仲麟已经发动了水车，准备出发接水。
 
-外卖行业长周期大规模补贴等非理性竞争，扰乱了正常的市场秩序。
+两个小时后，他出现在县城集合点，组织来自全国各地的志愿者上车，奔赴沙漠深处的公益林基地。
 
-此次《外卖平台补贴行为规范十条（征求意见稿）》的出台，将明确补贴行为的合规边界，有力遏制外卖行业“内卷式”竞争，促进行业规范健康发展。
+白天，他在种树现场巡查指导，保障安全、规范流程；晚上，还要统计数据、对接安排次日工作。
 
-美团将对照《规范十条》各项要求，与行业各平台一道，切实履行平台主体责任，推动外卖行业走向拼品质、拼服务的良性竞争，促进多方共赢。
+这样的日子，要一直持续到整个种植季结束。
 
-“淘宝闪购”微信公众号发文称，健康的行业生态离不开规则的守护，公司坚决支持市场监管总局制定相关规范，促进行业高质量发展。
+仲麟是民勤县种林公益发展中心负责人，也是“请到民勤种棵树”活动的重要发起人。
 
-对于《外卖平台补贴行为规范十条（征求意见稿）》，公司将与行业各方一道，共同维护公平有序的市场竞争环境。
+今年3月以来，各地志愿者跨越山海，奔赴这片被腾格里和巴丹吉林两大沙漠合围的土地，携手筑起绿色生态屏障。
 
-“京东外卖”微信公众号也发文表示，坚决拥护这一规范，高度赞同反内卷，维护市场公平竞争秩序，保障消费者与经营者、骑手合法权益的措施。
+民勤位于武威市，地处河西走廊东北部，东、西、北三面被沙漠包围，是全国防沙治沙重点县。
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 00:58 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 00:58 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 01:09 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 01:21 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 01:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 01:23 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 01:21 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 01:03 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 00:54 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 01:09 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 01:20 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 01:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 01:13 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 01:27 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 01:28 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 01:27 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 01:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 01:26 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 01:11 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 01:02 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 01:04 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 01:26 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 01:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-30 01:26 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 01:19 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 01:00 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/72644559070.shtml)
-- 2026-06-30 00:59 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/0176098350.shtml)
-- 2026-06-30 01:06 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/65186178.shtml)
-- 2026-06-30 01:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/3017964489.shtml)
-- 2026-06-30 01:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/423922404745.shtml)
-- 2026-06-30 00:54 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/85129130356.shtml)
-- 2026-06-30 01:19 - [毒液2](http://www.share.minike.top/Article/details/62967.shtml)
-- 2026-06-30 01:12 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/06494728255.shtml)
-- 2026-06-30 01:21 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/8168069.shtml)
-- 2026-06-30 01:08 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/4550023809.shtml)
-- 2026-06-30 01:23 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/3748298879.shtml)
-- 2026-06-30 01:16 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/856626519.shtml)
-- 2026-06-30 01:08 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/283822795.shtml)
-- 2026-06-30 01:02 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/39327868.shtml)
-- 2026-06-30 01:20 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/93721084492.shtml)
+- 2026-06-30 01:25 - [逃狱兄弟](http://www.blog.minike.top/Article/details/0606726.shtml)
+- 2026-06-30 01:17 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/7807963668.shtml)
+- 2026-06-30 01:06 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/140048039277.shtml)
+- 2026-06-30 01:19 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/02347.shtml)
+- 2026-06-30 01:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/816284.shtml)
+- 2026-06-30 01:06 - [小娘惹](http://www.blog.minike.top/Article/details/17573080.shtml)
+- 2026-06-30 01:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/446454.shtml)
+- 2026-06-30 01:24 - [起风了](https://www.share.kurohicncr.top/Article/details/3314264776.shtml)
+- 2026-06-30 01:28 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/00222.shtml)
+- 2026-06-30 01:13 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/618876.shtml)
+- 2026-06-30 01:13 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/614027592909.shtml)
+- 2026-06-30 01:19 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/1497124.shtml)
+- 2026-06-30 01:15 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/80619733669.shtml)
+- 2026-06-30 01:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/833707733528.shtml)
+- 2026-06-30 01:12 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/17257368.shtml)

@@ -1,61 +1,59 @@
-# “我一定会再来新疆”——“海外智库看新疆”代表团参访新疆侧记
+# 金鹰基金：极端分化待收敛 中期蓄势仍可期
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-石榴云/新疆日报记者 张冬梅 6月10日至17日，来自希腊、埃及、法国、美国、俄罗斯、马来西亚等12个国家16位专家学者，组成“海外智库看新疆”活动代表团到新疆参访。代表团先后走访乌鲁木齐、吐鲁番、塔城三地，见证新疆社会稳定、经济发展、文化繁荣、人民安居乐业的真实状况。 6月11日，代表团首站走进新疆国际会展中心，参观新疆的反恐和去极端化斗争主题展。随后走进乌鲁木齐文化中心展览
+6月8日，今日三大指数均收跌，多数宽基指数回落，两市成交缩量。其中，上证指数下跌1.70%至3959点；创业板指下跌3.69%；港股指数同样回落，截至A股收盘，恒生指数下跌1.64%；两市成交缩量至约2.8万亿。 WIND数据显示，申万31个一级行业中，除银行、煤炭外，均为收跌，个股普跌。其中，银行、煤炭、石化、家电表现靠前，涨跌幅分别为0.60%、0.39%、-0.21%、-
 
 ## 正文
 
-石榴云/新疆日报记者 张冬梅 6月10日至17日，来自希腊、埃及、法国、美国、俄罗斯、马来西亚等12个国家16位专家学者，组成“海外智库看新疆”活动代表团到新疆参访。
+6月8日，今日三大指数均收跌，多数宽基指数回落，两市成交缩量。
 
-代表团先后走访乌鲁木齐、吐鲁番、塔城三地，见证新疆社会稳定、经济发展、文化繁荣、人民安居乐业的真实状况。
+其中，上证指数下跌1.70%至3959点；创业板指下跌3.69%；港股指数同样回落，截至A股收盘，恒生指数下跌1.64%；两市成交缩量至约2.8万亿。
 
-6月11日，代表团首站走进新疆国际会展中心，参观新疆的反恐和去极端化斗争主题展。
+WIND数据显示，申万31个一级行业中，除银行、煤炭外，均为收跌，个股普跌。
 
-随后走进乌鲁木齐文化中心展览馆，参观了新疆维吾尔自治区成立70周年主题成就展。
+其中，银行、煤炭、石化、家电表现靠前，涨跌幅分别为0.60%、0.39%、-0.21%、-0.53%，而有色、电子、军工、电新表现靠后。
 
-来自比利时的艺术家、陶艺家、策展人戴金浦在一组记录新疆旧貌的老照片前驻足良久。
+全市场5300多只股票中有4587只下跌，赚钱效应较差。
 
-他说，这片土地一直在稳步发展，外界应当客观知晓这里真实的情况。
+美国非农数据大超预期，美联储加息预期升温。
 
-在乌鲁木齐市天山区二道桥街道固原巷社区，代表团了解了当地民众生活。
+上周五晚间披露的美国5月非农就业人口数据为新增17.2万人，远超市场预期的8.5万人，创下过去3个月以来最高增长。
 
-“这是一个多民族共同生活的社区，他们在一起生活得非常和谐。
+与此同时，3月和4月就业数据合计上修9.3万人，令过去3个月就业增速创逾2年来最强表现。
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 01:23 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 01:00 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 01:15 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 01:07 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 01:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 01:08 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 01:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 01:00 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 01:00 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 01:16 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 01:15 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 00:57 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 01:15 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 01:22 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 01:28 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 01:14 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 01:06 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-30 01:14 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 01:04 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 01:15 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 01:11 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 01:03 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 01:21 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 01:02 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 01:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 01:08 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 01:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/434483355.shtml)
-- 2026-06-30 00:55 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/188238.shtml)
-- 2026-06-30 01:17 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/81282530.shtml)
-- 2026-06-30 00:57 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/44842589853.shtml)
-- 2026-06-30 00:55 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/41219639265.shtml)
-- 2026-06-30 01:05 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/635834028.shtml)
-- 2026-06-30 01:14 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/990084370.shtml)
-- 2026-06-30 00:56 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/65620.shtml)
-- 2026-06-30 01:16 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/762549312620.shtml)
-- 2026-06-30 01:13 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/17958415265.shtml)
-- 2026-06-30 00:55 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/173049.shtml)
-- 2026-06-30 00:57 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/42094.shtml)
-- 2026-06-30 01:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/74148.shtml)
-- 2026-06-30 00:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/284531415.shtml)
-- 2026-06-30 00:55 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/6182786.shtml)
+- 2026-06-30 01:14 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/434334965238.shtml)
+- 2026-06-30 01:07 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/91371752990.shtml)
+- 2026-06-30 01:20 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/889772418.shtml)
+- 2026-06-30 01:28 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/77413244.shtml)
+- 2026-06-30 01:14 - [美人鱼](https://www.share.minike.top/Article/details/308720.shtml)
+- 2026-06-30 01:24 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/62370167.shtml)
+- 2026-06-30 01:03 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/11073256903.shtml)
+- 2026-06-30 01:13 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/03899211018.shtml)
+- 2026-06-30 01:28 - [恋与深空 日服](http://www.blog.minike.top/Article/details/935596315.shtml)
+- 2026-06-30 01:19 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/722068958.shtml)
+- 2026-06-30 01:18 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/89320746908.shtml)
+- 2026-06-30 01:19 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/15029.shtml)
+- 2026-06-30 01:07 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/77564390.shtml)
+- 2026-06-30 01:15 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/580695893.shtml)
+- 2026-06-30 01:04 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/953716.shtml)

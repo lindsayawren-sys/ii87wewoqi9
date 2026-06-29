@@ -1,59 +1,46 @@
-# 过去五年北京绿电消纳量大幅增长 每用3度电就有1度是绿电
+# 岁月共磨砺，烈火见真金！习近平总书记这样阐述中朝关系
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 (记者 陈杭)17日是“全国低碳日”，今年的主题是“绿色转型 全民同行”。当天，北京主场活动聚焦“绿色低碳 ‘迹’刻行动”主线，通过主旨报告、低碳案例分享、碳足迹圆桌访谈、绿色生活倡导等，共商应对气候变化有效举措，号召全社会共同行动，践行绿色低碳生产生活方式，共创首都绿色低碳高质量发展美好未来。活动由北京市生态环境局、北京经济技术开发区管理委员会联合举办
+6月8日，在赴平壤对朝鲜民主主义人民共和国进行国事访问之际，中共中央总书记、国家主席习近平在朝鲜《劳动新闻》发表题为《继往开来、砥砺同行 续写中朝传统友谊崭新篇章》的署名文章。 总监制丨王涵 监制丨李浙 主编丨王兴栋 蒋安琪 制图丨潘杨 编辑丨谭瑶 高少卓
 
 ## 正文
 
-中新网北京6月17日电 (记者 陈杭)17日是“全国低碳日”，今年的主题是“绿色转型 全民同行”。
+6月8日，在赴平壤对朝鲜民主主义人民共和国进行国事访问之际，中共中央总书记、国家主席习近平在朝鲜《劳动新闻》发表题为《继往开来、砥砺同行 续写中朝传统友谊崭新篇章》的署名文章。
 
-当天，北京主场活动聚焦“绿色低碳 ‘迹’刻行动”主线，通过主旨报告、低碳案例分享、碳足迹圆桌访谈、绿色生活倡导等，共商应对气候变化有效举措，号召全社会共同行动，践行绿色低碳生产生活方式，共创首都绿色低碳高质量发展美好未来。
-
-活动由北京市生态环境局、北京经济技术开发区管理委员会联合举办。
-
-记者从活动上获悉，过去五年，北京市绿电消纳量大幅增长，每用3度电就有1度是绿电。
-
-据介绍，北京坚持首善标准，以美丽北京建设为统领，协同推进降碳、减污、扩绿、增长，走出了一条超大城市的绿色低碳高质量发展之路。
-
-2025年，北京市细颗粒物(PM2.5)年均浓度降至27.0微克/立方米，较2013年累计下降近七成，蓝天成为常态。
-
-北京在“十三五”以来，以年均1.5%的较低能耗增速支撑了年均5.2%的经济增长，能源、产业、建筑、交通等重点领域绿色低碳转型成效显著，碳排放强度累计下降50%左右、保持全国省级地区领先水平，完成了国家下达的“十四五”碳排放强度下降目标，实现了以生态环境高水平保护支撑经济社会高质量发展。
-
-在活动案例分享环节，北京京东乾石科技有限公司、北京市热力集团有限责任公司石景山分公司、北京民海科技有限公司、北京未来科学城置地有限公司等4家优秀低碳项目代表分享了低碳建设经验做法。
+总监制丨王涵 监制丨李浙 主编丨王兴栋 蒋安琪 制图丨潘杨 编辑丨谭瑶 高少卓
 
 ## 相关推荐
 
-- 2026-06-30 01:07 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 01:08 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 01:05 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 01:14 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 01:08 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 00:56 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 01:15 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 01:23 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 00:55 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 01:17 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 01:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 01:01 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 00:56 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 01:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 01:03 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 01:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 01:25 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 01:22 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 01:21 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 01:15 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 01:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 01:12 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 01:13 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 01:07 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 01:10 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:55 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/941559204.shtml)
-- 2026-06-30 00:59 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/56631763.shtml)
-- 2026-06-30 01:11 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/967395173.shtml)
-- 2026-06-30 01:09 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/0889654640.shtml)
-- 2026-06-30 01:21 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/8467437.shtml)
-- 2026-06-30 01:16 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/2069388484.shtml)
-- 2026-06-30 01:01 - [流金岁月](https://www.share.minike.top/Article/details/75169743783.shtml)
-- 2026-06-30 01:05 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/18844117.shtml)
-- 2026-06-30 01:02 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/7050427.shtml)
-- 2026-06-30 01:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/53967488115.shtml)
-- 2026-06-30 01:21 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/807488212.shtml)
-- 2026-06-30 01:18 - [爱很美味](http://www.share.kurohicncr.top/Article/details/88024112983.shtml)
-- 2026-06-30 01:21 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/68226.shtml)
-- 2026-06-30 00:55 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/9732251.shtml)
-- 2026-06-30 00:59 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/256505.shtml)
+- 2026-06-30 01:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/817222744.shtml)
+- 2026-06-30 01:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/6756904.shtml)
+- 2026-06-30 01:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/49644182902.shtml)
+- 2026-06-30 01:03 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/170266.shtml)
+- 2026-06-30 01:17 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/1679771.shtml)
+- 2026-06-30 01:06 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/023522066.shtml)
+- 2026-06-30 01:00 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/036646.shtml)
+- 2026-06-30 01:19 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/699851541065.shtml)
+- 2026-06-30 01:13 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/0882036418.shtml)
+- 2026-06-30 01:23 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/5206496694.shtml)
+- 2026-06-30 01:08 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/00996057413.shtml)
+- 2026-06-30 01:20 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/915765952732.shtml)
+- 2026-06-30 01:20 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/813355149267.shtml)
+- 2026-06-30 01:29 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/983646.shtml)
+- 2026-06-30 01:04 - [沙丘](https://www.blog.minike.top/Article/details/074854537660.shtml)

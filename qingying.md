@@ -1,56 +1,61 @@
-# 广西北部至长江中下游等地有强降雨 东北华北等地多雷阵雨
+# 诺和诺德减肥口服药上市以来处方量已达300万份
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据中央气象台网站消息，昨日，广东、广西、贵州、重庆等地出现暴雨或大暴雨、局地特大暴雨。未来三天，广西、贵州至长江中下游地区有强降雨过程，各地需关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。东北、华北和内蒙古等地多雷阵雨，局地伴有雷暴大风等强对流天气，关注对交通、城市运行等影响。 广西北部至长江中下游等地有强降雨 18至25日，西南
+诺和诺德（Novo Nordisk）表示，其减肥口服药维秀美（Wegovy）自1月初上市以来，处方量已超过300万份。 这家丹麦制药商周日晚间表示，该口服药在美国药店和在线供应商上架12周后，处方量达到100万份，并在随后的10周内又开出了200万份处方。 维秀美口服药超过80%的新处方是开给首次使用GLP-1类药物的患者。该公司表示，这表明新的口服剂型正在扩大肥胖症治疗市场，
 
 ## 正文
 
-中新网6月18日电 据中央气象台网站消息，昨日，广东、广西、贵州、重庆等地出现暴雨或大暴雨、局地特大暴雨。
+诺和诺德（Novo Nordisk）表示，其减肥口服药维秀美（Wegovy）自1月初上市以来，处方量已超过300万份。
 
-未来三天，广西、贵州至长江中下游地区有强降雨过程，各地需关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。
+这家丹麦制药商周日晚间表示，该口服药在美国药店和在线供应商上架12周后，处方量达到100万份，并在随后的10周内又开出了200万份处方。
 
-东北、华北和内蒙古等地多雷阵雨，局地伴有雷暴大风等强对流天气，关注对交通、城市运行等影响。
+维秀美口服药超过80%的新处方是开给首次使用GLP-1类药物的患者。
 
-广西北部至长江中下游等地有强降雨 18至25日，西南地区东部和南部、江汉、江淮、江南、华南西部等地将有大到暴雨，部分地区有大暴雨，局地特大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
+该公司表示，这表明新的口服剂型正在扩大肥胖症治疗市场，而不是取代现有的注射疗法。
 
-6月18日8时至19日8时，河南南部、江淮、江汉、江南北部、西南地区东部、华南中西部等地部分地区有大到暴雨，其中，湖北中部、湖南西部、贵州西南部、广西中北部等地部分地区有大暴雨(100～240毫米)。
+在最初于美国推出维秀美口服药后，诺和诺德上周宣布该药物在阿联酋上市，并表示正准备在今年下半年进行更多地区的上市。
 
-上述部分地区伴有短时强降水(最大小时降雨量30～60毫米，局地可超过90毫米)，局地有雷暴大风等强对流天气。
+该制药商近期还推出了一款更高剂量的维秀美减肥注射剂，并称该药在上市初期也显示出强劲的需求。
 
-中央气象台6月18日6时发布暴雨黄色预警。
+Wegovy HD是一种每周注射一次的针剂，含有7.2毫克的活性成分司美格鲁肽（semaglutide）。
 
-东北华北等地多雷阵雨 未来三天，内蒙古中东部、东北地区、华北、黄淮等地多阵雨或雷阵雨天气，以小到中雨为主，局地大雨或暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气。
+该公司曾表示，这是迄今为止所有维秀美注射剂中减重效果最强的。
 
 ## 相关推荐
 
-- 2026-06-30 01:08 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 01:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 01:05 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 01:21 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 00:56 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 01:02 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 01:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 00:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 01:17 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 01:12 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 01:12 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 01:28 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 01:18 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 01:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 01:12 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 01:00 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 01:19 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 01:11 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 01:02 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 01:17 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 01:28 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 01:03 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 01:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 01:16 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 01:16 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:54 - [明星大侦探第四季](https://www.share.minike.top/Article/details/777223347359.shtml)
-- 2026-06-30 01:08 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/293092.shtml)
-- 2026-06-30 01:15 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/16547175.shtml)
-- 2026-06-30 01:13 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/21283298.shtml)
-- 2026-06-30 01:02 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/421962517.shtml)
-- 2026-06-30 00:55 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/295264185.shtml)
-- 2026-06-30 00:55 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/4125575893.shtml)
-- 2026-06-30 01:18 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/84190.shtml)
-- 2026-06-30 01:01 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/126721786918.shtml)
-- 2026-06-30 00:57 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/42466841029.shtml)
-- 2026-06-30 01:15 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/791905.shtml)
-- 2026-06-30 01:14 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/109883738.shtml)
-- 2026-06-30 00:57 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/524371792.shtml)
-- 2026-06-30 01:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/90634068297.shtml)
-- 2026-06-30 00:57 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/579526857748.shtml)
+- 2026-06-30 01:23 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/803603799393.shtml)
+- 2026-06-30 01:26 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/4970293.shtml)
+- 2026-06-30 01:01 - [一见倾心](http://www.share.minike.top/Article/details/933174.shtml)
+- 2026-06-30 01:28 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/7170495527.shtml)
+- 2026-06-30 01:24 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/2822342969.shtml)
+- 2026-06-30 01:07 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/65091279319.shtml)
+- 2026-06-30 01:14 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/931230242.shtml)
+- 2026-06-30 01:02 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/4810080.shtml)
+- 2026-06-30 01:12 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/2056879979.shtml)
+- 2026-06-30 01:13 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/451407983384.shtml)
+- 2026-06-30 01:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/307861906.shtml)
+- 2026-06-30 01:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/56646838.shtml)
+- 2026-06-30 01:15 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/294490.shtml)
+- 2026-06-30 01:14 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/265509712325.shtml)
+- 2026-06-30 01:21 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/02129.shtml)

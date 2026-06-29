@@ -1,58 +1,54 @@
-# 美联储发布联邦公开市场委员会（FOMC）声明 维持利率不变
+# 苹果改善iOS及macOS 27系统体验，重构照片和邮件App等搜索功能
 
-> 更新时间：2026-06-30 01:24:02 UTC+8
+> 更新时间：2026-06-30 01:30:02 UTC+8
 
 ## 摘要
 
-专题：美联储维持利率不变，精简声明以移除降息偏向 美联储联邦公开市场委员会以12票赞成、0票反对的表决结果，批准发布以下声明： 为支持美联储的双重使命，委员会决定将联邦基金利率的目标区间维持在3.5%至3.75%不变。委员会重申了其在银行体系中维持充足准备金水平的政策。 尽管面临一定程度的不确定性（部分归因于中东冲突），经济活动仍以稳健的步伐扩张。生产率增长和资本投资表现强劲。
+专题：WWDC26苹果开发者大会 新浪科技讯 6月9日凌晨，苹果召开 WWDC26 全球开发者大会。 苹果表示，在更新 iOS / iPadOS / macOS 27后，系统网络切换变得更顺畅，在信息app里发较大的照片或视频文件，也不再会拖慢对话速度，消息有没有发送成功可以直接看到。 搜索方面，苹果表示，从底层重构了聚焦、照片和邮件app中的搜索功能。此外，邮件app也采用了
 
 ## 正文
 
-专题：美联储维持利率不变，精简声明以移除降息偏向 美联储联邦公开市场委员会以12票赞成、0票反对的表决结果，批准发布以下声明： 为支持美联储的双重使命，委员会决定将联邦基金利率的目标区间维持在3.5%至3.75%不变。
+专题：WWDC26苹果开发者大会 新浪科技讯 6月9日凌晨，苹果召开 WWDC26 全球开发者大会。
 
-委员会重申了其在银行体系中维持充足准备金水平的政策。
+苹果表示，在更新 iOS / iPadOS / macOS 27后，系统网络切换变得更顺畅，在信息app里发较大的照片或视频文件，也不再会拖慢对话速度，消息有没有发送成功可以直接看到。
 
-尽管面临一定程度的不确定性（部分归因于中东冲突），经济活动仍以稳健的步伐扩张。
+搜索方面，苹果表示，从底层重构了聚焦、照片和邮件app中的搜索功能。
 
-生产率增长和资本投资表现强劲。
+此外，邮件app也采用了新的排序系统，其会优先显示最重要的内容。
 
-就业增长与劳动力规模保持同步，失业率变动不大。
-
-通胀率仍高于委员会设定的2%目标，部分原因是供给冲击推动了包括能源在内的某些领域的价格上涨。
-
-委员会将致力于实现价格稳定。
-
-责任编辑：李桐
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 00:58 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 01:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 01:10 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 01:14 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-30 00:57 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 00:56 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 01:08 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 01:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 00:59 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 01:18 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 00:59 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-30 01:15 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 01:26 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 01:14 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 01:11 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 01:21 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 01:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 01:24 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 01:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 01:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 01:02 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 01:11 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 01:26 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 01:27 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 01:16 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 01:23 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-30 00:54 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/53251196586.shtml)
-- 2026-06-30 01:00 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/119370634054.shtml)
-- 2026-06-30 01:16 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/353888965.shtml)
-- 2026-06-30 01:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/63642631383.shtml)
-- 2026-06-30 01:16 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/5095450.shtml)
-- 2026-06-30 00:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/339265.shtml)
-- 2026-06-30 01:05 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/715119597.shtml)
-- 2026-06-30 01:07 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/784377.shtml)
-- 2026-06-30 01:10 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/27651447.shtml)
-- 2026-06-30 01:03 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/6126300.shtml)
-- 2026-06-30 01:03 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/661420.shtml)
-- 2026-06-30 01:23 - [请回答王牌2019](http://www.share.minike.top/Article/details/83551.shtml)
-- 2026-06-30 01:15 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/0001838543.shtml)
-- 2026-06-30 00:57 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/479675206256.shtml)
-- 2026-06-30 01:17 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/517912.shtml)
+- 2026-06-30 01:27 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/290893919.shtml)
+- 2026-06-30 01:29 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/941033872.shtml)
+- 2026-06-30 01:08 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/423885689840.shtml)
+- 2026-06-30 01:29 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/743221.shtml)
+- 2026-06-30 01:22 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/249669849.shtml)
+- 2026-06-30 01:03 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/2352000314.shtml)
+- 2026-06-30 01:21 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/54635286.shtml)
+- 2026-06-30 01:08 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/26134223.shtml)
+- 2026-06-30 01:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/33810400332.shtml)
+- 2026-06-30 01:10 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/9374898637.shtml)
+- 2026-06-30 01:29 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/82514451797.shtml)
+- 2026-06-30 01:05 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/796433853.shtml)
+- 2026-06-30 01:01 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/83282713.shtml)
+- 2026-06-30 01:22 - [第一炉香](http://www.share.minike.top/Article/details/18626713.shtml)
+- 2026-06-30 01:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/2155502.shtml)
