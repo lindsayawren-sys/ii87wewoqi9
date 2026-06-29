@@ -1,49 +1,58 @@
-# 爸，我想对您说
+# 瑞安航空CEO：若航空燃油价格居高不下，欧洲多家航空公司或将倒闭
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 09:03 来源：中国新闻网 穿上军装，我才真正读懂父亲。一身戎装，隔了山海；一声父亲，一生牵挂。(作者：张振、闫鹏舸 素材来源：申强伟、范恒嘉、李波、黄浩、程润强、张恒、邓倩、史硕、孙琪霖、冯玉伟） 责任编辑：【魏聪聪】
+廉价航空瑞安航空首席执行官警告称，倘若今夏航空燃油价格持续高位运行，欧洲各大航空公司将面临倒闭风险。 首席执行官迈克尔・奥莱利于周四接受美国消费者新闻与商业频道采访时表示，瑞安航空已锁定80% 燃油对冲，自身经营不受冲击；但他预判，若燃油价格无法回落，其他航司将出现实质性倒闭。 自 2 月 28 日中东战事爆发、关键航道霍尔木兹海峡遭封锁以来，航空燃油价格大幅飙升。 奥莱利在奥
 
 ## 正文
 
-发布时间：2026年06月21日 09:03 来源：中国新闻网 穿上军装，我才真正读懂父亲。
+廉价航空瑞安航空首席执行官警告称，倘若今夏航空燃油价格持续高位运行，欧洲各大航空公司将面临倒闭风险。
 
-一身戎装，隔了山海；一声父亲，一生牵挂。
+首席执行官迈克尔・奥莱利于周四接受美国消费者新闻与商业频道采访时表示，瑞安航空已锁定80% 燃油对冲，自身经营不受冲击；但他预判，若燃油价格无法回落，其他航司将出现实质性倒闭。
 
-(作者：张振、闫鹏舸 素材来源：申强伟、范恒嘉、李波、黄浩、程润强、张恒、邓倩、史硕、孙琪霖、冯玉伟） 责任编辑：【魏聪聪】
+自 2 月 28 日中东战事爆发、关键航道霍尔木兹海峡遭封锁以来，航空燃油价格大幅飙升。
+
+奥莱利在奥斯陆举行的挪威银行投资管理会议上向主持人本・布洛斯透露：“3 月以来油价暴涨。
+
+3 月时，A1 航空燃油价格约每桶 80 美元，如今已飙升至 150 美元。
+
+” 他指出：“如果今夏高价油价长期持续，欧洲一众航空竞争对手将陷入严重财务危机。
+
+” 奥莱利补充道：“倒闭潮或将出现。
+
+若 7、8、9 月油价维持每桶 150 美元，欧洲航司将批量破产；从中期来看，这反而会利好瑞安航空。
 
 ## 相关推荐
 
-- 2026-06-29 13:51 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 13:34 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 13:42 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 13:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 13:35 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 13:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 13:54 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 13:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 13:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 13:34 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 13:50 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 13:45 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 13:38 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 14:03 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 13:55 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 13:37 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 14:03 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 13:42 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 13:58 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 13:40 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 13:56 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 13:42 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 13:51 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 13:50 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 13:46 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.kurohicncr.top/Article/details/84176563344.shtml)
-- 2026-06-29 13:54 - [三都主：淘汰赛我会支持日本](https://www.share.minike.top/Article/details/191818988.shtml)
-- 2026-06-29 13:36 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/7301404301.shtml)
-- 2026-06-29 13:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/011291.shtml)
-- 2026-06-29 13:58 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.minike.top/Article/details/503257.shtml)
-- 2026-06-29 13:43 - [民进党为什么拼命抹黑统战](https://www.blog.minike.top/Article/details/78301573863.shtml)
-- 2026-06-29 13:35 - [周生如故](http://www.blog.minike.top/Article/details/774266015869.shtml)
-- 2026-06-29 13:55 - [小娘惹](http://www.share.kurohicncr.top/Article/details/71772.shtml)
-- 2026-06-29 13:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/699504.shtml)
-- 2026-06-29 13:52 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/889199169.shtml)
-- 2026-06-29 13:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/165964.shtml)
-- 2026-06-29 13:52 - [A股](https://www.share.kurohicncr.top/Article/details/23461866.shtml)
-- 2026-06-29 13:34 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/224813547685.shtml)
-- 2026-06-29 13:59 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/03648196212.shtml)
-- 2026-06-29 13:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/03892680.shtml)
+- 2026-06-29 13:38 - [森保一：日本队要亲手改写历史](http://www.blog.kurohicncr.top/Article/details/45591737.shtml)
+- 2026-06-29 14:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/538784.shtml)
+- 2026-06-29 13:57 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/7003332.shtml)
+- 2026-06-29 13:39 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/62304.shtml)
+- 2026-06-29 13:38 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/68762231616.shtml)
+- 2026-06-29 13:46 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/054001360090.shtml)
+- 2026-06-29 13:36 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/114265.shtml)
+- 2026-06-29 14:04 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/369399217464.shtml)
+- 2026-06-29 13:41 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/882517200878.shtml)
+- 2026-06-29 14:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/7768414507.shtml)
+- 2026-06-29 13:54 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/8076335.shtml)
+- 2026-06-29 13:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/29900775585.shtml)
+- 2026-06-29 14:05 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/01160484.shtml)
+- 2026-06-29 13:41 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/1141372571.shtml)
+- 2026-06-29 13:42 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/31041193.shtml)

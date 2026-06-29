@@ -1,60 +1,57 @@
-# 梅西家族发表声明，抨击侵犯隐私行为
+# 科技向善赋民生 产业向新启新程
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网6月20日电 据“今日美国”18日报道，阿根廷球员梅西的家人近日发表声明，称梅西父亲豪尔赫正面临健康问题，但同时抨击了有关豪尔赫健康状况的不实报道，并要求外界尊重他们的隐私。 声明开头写道：“梅西家族告知，豪尔赫正面临健康状况方面的问题。目前，他正在接受医疗护理，恢复情况良好，病情正在向好的方向发展。” 声明表示，“关于流传的各种说法、谣言和猜测，梅西家族对某些人处理这一
+原标题：【开局之年看中国·遇见不一样的江苏】科技向善赋民生 产业向新启新程 央广网南京4月28日消息(记者王锡斐)“机器人大厨”给您炒菜、做面条，煎饼机娴熟做饼，自动咖啡机给您定制手机图案拉花……近日，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动走进南京，在位于中国(南京)软件谷的南京人工智能生态街区AI餐厅里，记者和未来撞了个满怀！AI主理的餐厅高效、健康，情绪价值拉
 
 ## 正文
 
-中新网6月20日电 据“今日美国”18日报道，阿根廷球员梅西的家人近日发表声明，称梅西父亲豪尔赫正面临健康问题，但同时抨击了有关豪尔赫健康状况的不实报道，并要求外界尊重他们的隐私。
+原标题：【开局之年看中国·遇见不一样的江苏】科技向善赋民生 产业向新启新程 央广网南京4月28日消息(记者王锡斐)“机器人大厨”给您炒菜、做面条，煎饼机娴熟做饼，自动咖啡机给您定制手机图案拉花……近日，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动走进南京，在位于中国(南京)软件谷的南京人工智能生态街区AI餐厅里，记者和未来撞了个满怀！
 
-声明开头写道：“梅西家族告知，豪尔赫正面临健康状况方面的问题。
+AI主理的餐厅高效、健康，情绪价值拉满。
 
-目前，他正在接受医疗护理，恢复情况良好，病情正在向好的方向发展。
+不止于此，就餐前，AI通过面部识别，给您先做个体检，并根据当日餐前体检情况，给出个性化饮食建议…… 这是南京发展“人工智能+”的一隅，也是国家人工智能创新应用先导区先行先试的生动图景。
 
-” 声明表示，“关于流传的各种说法、谣言和猜测，梅西家族对某些人处理这一严格属于私人和家庭事务时缺乏敏感性、尊重和谨慎的态度深表不满。
+随着新一轮科技革命和产业变革加速演进，人工智能已成为引领这一轮科技革命和产业变革的战略性技术，全球竞速AI的当下，南京依托人才“软实力”，铸就创新“硬支撑”，积极抢占人工智能产业应用制高点，破解“创新链”与“产业链”的衔接难题，助力科技创新与产业创新深度融合。
 
-” 声明继续写道：“梅西家族希望澄清，只有其最亲近的家人才能获得关于豪尔赫状况的真实、准确信息。
+一条生态街区照见万亿软件产业的“烟火气” “帮我点一杯咖啡，热的，加奶不加糖。
 
-因此，任何非来自梅西家族及其相应渠道的版本、引述或信息都不应被视为有效或准确。
+”话音刚落，手机程序自动打开外卖软件，一步一步自行有序操作着，不到1分钟，下单完成。
 
-在此刻，我们请求大家保持责任感、谨慎和人道主义精神。
+以往需要人手动一步接着一步点击屏幕按流程操作的点外卖，在南京人工智能生态街区只需要一句话就能完成。
 
-”报道称，阿根廷电视主持人佩尼亚当地时间18日上午在当地一档电视节目中称“梅西的父亲已经去世”。
+工作人员告诉记者：“这句话的背后，是荣耀的AI技术自动在后台识别需求、关联外卖软件、发出需求、敲定目标。
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 13:38 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 13:49 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 13:37 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 13:39 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 13:37 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 13:55 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 13:58 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 13:41 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 13:37 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 13:39 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 13:52 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 13:34 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 13:38 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 13:58 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 13:44 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 14:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 13:40 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 13:36 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 14:03 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 13:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 13:56 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 13:54 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 14:05 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 14:01 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/8180566357.shtml)
-- 2026-06-29 13:30 - [DSpark论文深度解读](https://www.blog.kurohicncr.top/Article/details/11089832.shtml)
-- 2026-06-29 13:55 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/393624569354.shtml)
-- 2026-06-29 13:47 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/266066379446.shtml)
-- 2026-06-29 13:56 - [医护人员观影《四渡》传承长征精神](https://www.share.minike.top/Article/details/9655881.shtml)
-- 2026-06-29 13:58 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.minike.top/Article/details/152709447.shtml)
-- 2026-06-29 13:51 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/997337.shtml)
-- 2026-06-29 13:38 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/5126920.shtml)
-- 2026-06-29 13:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/76767260.shtml)
-- 2026-06-29 13:39 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/4936125591.shtml)
-- 2026-06-29 13:39 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/026446.shtml)
-- 2026-06-29 13:58 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/227998954759.shtml)
-- 2026-06-29 13:31 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/065759033070.shtml)
-- 2026-06-29 13:47 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/720597254.shtml)
-- 2026-06-29 13:37 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/753049771829.shtml)
+- 2026-06-29 13:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/084567356363.shtml)
+- 2026-06-29 13:55 - [女心理师](http://www.blog.kurohicncr.top/Article/details/051979358.shtml)
+- 2026-06-29 13:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/17247410.shtml)
+- 2026-06-29 13:51 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/414877732523.shtml)
+- 2026-06-29 13:49 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/21519324116.shtml)
+- 2026-06-29 13:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/519136.shtml)
+- 2026-06-29 13:51 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.kurohicncr.top/Article/details/7723245.shtml)
+- 2026-06-29 13:46 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/592693.shtml)
+- 2026-06-29 13:50 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/9922192446.shtml)
+- 2026-06-29 14:03 - [扫黑风暴](http://www.share.minike.top/Article/details/7795460.shtml)
+- 2026-06-29 13:55 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/30592937.shtml)
+- 2026-06-29 14:01 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/65695815.shtml)
+- 2026-06-29 13:37 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/2028777.shtml)
+- 2026-06-29 13:36 - [金刚川](https://www.share.kurohicncr.top/Article/details/11643586.shtml)
+- 2026-06-29 13:43 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/81493.shtml)

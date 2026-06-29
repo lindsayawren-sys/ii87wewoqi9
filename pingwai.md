@@ -1,60 +1,53 @@
-# 天津海关出台12条措施 助力“北方会展之都”建设
+# 伊朗德黑兰机场宣布增加航线和航班频次
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网天津6月18日电 (记者 周亚强)天津海关18日召开新闻发布会，发布《天津海关支持促进会展经济发展措施》。天津海关副关长郑德武表示，此次出台的12条措施，聚焦主动靠前服务、精简审批、深化业态联动三大核心环节，旨在以制度创新助力天津建设“北方会展之都”。 措施明确，海关将依据展会类型提供定制化通关指引，对暂时进境展览品实施现场监管，依托信息化系统实现全流程数字化、便利化监管
+据伊朗方面29日消息，位于伊朗首都德黑兰的伊玛目霍梅尼国际机场当天宣布增加航线和航班频次，以应对该机场业务的增加。 伊玛目霍梅尼机场城首席执行官卡谢夫·阿扎尔称，与前几天相比，伊玛目霍梅尼国际机场的空中交通量显著增加。 阿扎尔说，自客运航班日前恢复以来，已完成规划并获得必要许可，开通或即将开通从德黑兰飞往伊斯坦布尔、曼谷、马斯喀特、莫斯科、北京等地的航班。他说，伊玛目霍梅尼国际
 
 ## 正文
 
-中新网天津6月18日电 (记者 周亚强)天津海关18日召开新闻发布会，发布《天津海关支持促进会展经济发展措施》。
+据伊朗方面29日消息，位于伊朗首都德黑兰的伊玛目霍梅尼国际机场当天宣布增加航线和航班频次，以应对该机场业务的增加。
 
-天津海关副关长郑德武表示，此次出台的12条措施，聚焦主动靠前服务、精简审批、深化业态联动三大核心环节，旨在以制度创新助力天津建设“北方会展之都”。
+伊玛目霍梅尼机场城首席执行官卡谢夫·阿扎尔称，与前几天相比，伊玛目霍梅尼国际机场的空中交通量显著增加。
 
-措施明确，海关将依据展会类型提供定制化通关指引，对暂时进境展览品实施现场监管，依托信息化系统实现全流程数字化、便利化监管。
+阿扎尔说，自客运航班日前恢复以来，已完成规划并获得必要许可，开通或即将开通从德黑兰飞往伊斯坦布尔、曼谷、马斯喀特、莫斯科、北京等地的航班。
 
-同时，大幅压缩进境动植物及其产品、特殊物品检疫审批时限，简化进口医疗器械等展品参展备案、注册、核查要求，并丰富税款担保方式，切实缓解企业资金占用压力。
+他说，伊玛目霍梅尼国际机场两个航站楼的出入境通道均严格遵守相关标准，并在安全的环境下运行。
 
-针对展商展后留用展品需求，天津海关隶属西青海关关长王媛说，暂时进境展品原复运出境期限为6个月，难以匹配后续技术交流、巡展展示等实际需求。
+据伊朗方面25日消息，伊玛目霍梅尼国际机场当天恢复运营。
 
-此次措施允许ATA单证册项下展览品申请延长复运出境期限，与单证册有效期保持一致，企业可避免反复进出境产生的物流、时间等成本。
-
-海关将对延期展品实施动态台账管理，确保监管到位。
-
-在业态联动方面，天津海关口岸监管处处长莫鹤群表示，针对澳门美食周、台湾美食节等饮食文化交流活动，对暂时进境预包装食品，可免于收发货人备案及境外生产企业注册，仅供展示的参展预包装食品免于抽样检验。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 13:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 13:42 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 13:36 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 13:48 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 13:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 13:48 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 13:57 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 13:43 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 13:41 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 13:49 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 13:40 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 13:59 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 13:37 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 13:50 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 13:50 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 13:58 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 13:38 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 14:05 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 13:51 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 13:42 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 13:50 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 14:03 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 13:49 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 14:00 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:37 - [T1对战KC](https://www.blog.minike.top/Article/details/96500871263.shtml)
-- 2026-06-29 13:43 - [6月我国降水为何偏多](http://www.share.kurohicncr.top/Article/details/76705944.shtml)
-- 2026-06-29 13:56 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/3831688.shtml)
-- 2026-06-29 13:49 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/0575995555.shtml)
-- 2026-06-29 13:33 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/642226.shtml)
-- 2026-06-29 13:51 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/945806.shtml)
-- 2026-06-29 13:41 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/5912789909.shtml)
-- 2026-06-29 13:53 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/26761.shtml)
-- 2026-06-29 13:35 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.kurohicncr.top/Article/details/7457881832.shtml)
-- 2026-06-29 13:54 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/691448243.shtml)
-- 2026-06-29 13:55 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/92338453.shtml)
-- 2026-06-29 13:46 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/34351.shtml)
-- 2026-06-29 13:33 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/88763.shtml)
-- 2026-06-29 13:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/71155775.shtml)
-- 2026-06-29 13:40 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/704900263.shtml)
+- 2026-06-29 13:52 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/13111815.shtml)
+- 2026-06-29 13:48 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/6010462.shtml)
+- 2026-06-29 13:51 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/994193737.shtml)
+- 2026-06-29 13:51 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/30606.shtml)
+- 2026-06-29 13:36 - [刘仲华院士愿当贺永辉导师](https://www.share.minike.top/Article/details/90859663151.shtml)
+- 2026-06-29 13:49 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/11016246537.shtml)
+- 2026-06-29 13:46 - [韩国拟将部分刑责年龄降至13岁](http://www.share.kurohicncr.top/Article/details/96392.shtml)
+- 2026-06-29 13:43 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.minike.top/Article/details/77324812461.shtml)
+- 2026-06-29 13:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/04993584.shtml)
+- 2026-06-29 14:05 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/19080.shtml)
+- 2026-06-29 14:05 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/319060771.shtml)
+- 2026-06-29 13:37 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/9207054305.shtml)
+- 2026-06-29 13:38 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.minike.top/Article/details/6279215347.shtml)
+- 2026-06-29 13:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/1690570462.shtml)
+- 2026-06-29 13:42 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/49350479.shtml)

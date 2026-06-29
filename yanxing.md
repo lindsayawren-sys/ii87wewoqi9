@@ -1,57 +1,59 @@
-# 千年壁画“走”出展柜 复现北齐晋阳端午古俗
+# 深港澳三地共绘“中华民族一家亲”暖心画卷
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网太原6月19日电 (记者 胡健)千年前壁画中的人物在端午时节“走出”展柜，与民众“射五毒”“闻香识草”，体验端午民俗的同时，再现北朝文化风貌。 19日，位于山西太原的北齐壁画博物馆推出沉浸式壁画守护闯关体验，穿着北齐壁画中人物服饰的NPC(非玩家角色)，复刻北齐宫廷文武官、侍女、贵妇等人物群像，与民众一同体验端午习俗。 展厅里，NPC们穿行在千年壁画之中，与游客互动。博物
+发布时间：2026年04月28日 10:54 来源：中国新闻网 【解说】“当好东道主 喜迎APEC——‘万象中华·潮起福田’多彩民族深港澳春茗荟暨《民族团结进步促进法》宣传活动”，近日在深圳市福田区水围文化广场举办。活动旨在深入宣传贯彻《民族团结进步促进法》，进一步促进粤港澳大湾区各民族交往交流交融，为即将在深圳举办的APEC会议营造良好氛围。 活动融合普法宣传、非遗展示、美食
 
 ## 正文
 
-中新网太原6月19日电 (记者 胡健)千年前壁画中的人物在端午时节“走出”展柜，与民众“射五毒”“闻香识草”，体验端午民俗的同时，再现北朝文化风貌。
+发布时间：2026年04月28日 10:54 来源：中国新闻网 【解说】“当好东道主 喜迎APEC——‘万象中华·潮起福田’多彩民族深港澳春茗荟暨《民族团结进步促进法》宣传活动”，近日在深圳市福田区水围文化广场举办。
 
-19日，位于山西太原的北齐壁画博物馆推出沉浸式壁画守护闯关体验，穿着北齐壁画中人物服饰的NPC(非玩家角色)，复刻北齐宫廷文武官、侍女、贵妇等人物群像，与民众一同体验端午习俗。
+活动旨在深入宣传贯彻《民族团结进步促进法》，进一步促进粤港澳大湾区各民族交往交流交融，为即将在深圳举办的APEC会议营造良好氛围。
 
-展厅里，NPC们穿行在千年壁画之中，与游客互动。
+活动融合普法宣传、非遗展示、美食品鉴、文艺演出与产业交流于一体，成为深港澳三地各族同胞深化情感、增进认同的平台。
 
-博物馆外的北齐驿站，身着武官服饰的演员引导游客“射五毒”，复现北齐晋阳端午射箭驱瘟的古俗。
+【同期】深圳市民族团结发展促进会副会长 孔丽 因为水围有很多港澳的朋友居住在这里，所以我们希望通过这样一个又可以逛又可以看又可以品尝各民族美食，还可以亲手体验各民族手工制作，这么一个热闹的丰富的社区活动，来让大家度过一个很好的周末，也让更多的小朋友，更多的孩子们来这里来体验咱们各民族的非遗，来感受丰富的民族文化。
 
-五大角色NPC分守各闯关点位，每套造型均有对应的馆藏壁画原型。
+【解说】活动开幕式上，一场融合了非遗大鼓、傣族舞、蒙古族民歌、白族山歌、藏族舞蹈、民族童声合唱等多元民族艺术元素的文艺演出接连上演，最终在全体合唱《爱我中华》的激昂歌声中达到高潮，生动展现了中华文化的多彩魅力与各民族的情感共鸣。
 
-本次活动策划赵晓芳介绍，这些NPC造型均参照馆藏北齐壁画原迹复原，按照北朝胡汉交融的审美风格，将静态壁画人物立体呈现在观众面前。
+现场，香港中华民族团结进步协会、中华民族团结促进会(澳门)、深圳市民族团结发展促进会及福田区民族团结进步协会四方，正式结为深港澳“铸牢中华民族共同体意识”友好共建单位。
 
-文官扮演者张东杰对北朝历史颇感兴趣，为复刻文官形象，他还搜集大量北齐历史与端午民俗史料。
+这一举措标志着相关工作从以往单个城市的探索实践，迈向了深港澳三地协同联动、集群发展的新阶段，为粤港澳大湾区深化民族团结、凝聚社会共识提供了新的合作框架。
 
-“北齐是民族大融合的时代，服饰、民俗都兼具多元美感，我们不只是扮演NPC，更是文化讲解员，让大家读懂山西作为北齐霸府的历史底蕴。
+【同期】(澳门)中华民族团结促进会会长 黄永谦 因为这两三年来，得到澳门其他团体朋友的支持，随着他们在深圳福田区多了好多活动，其实由此我们建立到很多桥梁，往后我希望在粤港澳大湾区，特别是今年APEC在这里举办，作为东道主，应该怎么样将国家的民族政策，中华民族文化推向世界推向国际，我觉得三地合作应该持续长久，各展所长，这也是我的期望。
 
 ## 相关推荐
 
-- 2026-06-29 13:58 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 13:42 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 13:41 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 13:46 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 13:43 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 13:46 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 13:31 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 13:54 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 13:45 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 13:42 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 13:44 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 13:46 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 14:04 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 13:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 13:38 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 13:42 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 13:36 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 13:57 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 13:48 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 14:05 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 13:47 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 14:03 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 13:40 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 13:54 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/616546163.shtml)
-- 2026-06-29 13:47 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/12728586970.shtml)
-- 2026-06-29 13:56 - [下飞机后，我做了个很蠢的决定......](https://www.share.minike.top/Article/details/135652975079.shtml)
-- 2026-06-29 13:59 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/450474.shtml)
-- 2026-06-29 13:50 - [腾讯回应做独立支付APP](https://www.blog.minike.top/Article/details/55826929302.shtml)
-- 2026-06-29 13:55 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/339816550571.shtml)
-- 2026-06-29 13:34 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/3011755029.shtml)
-- 2026-06-29 13:38 - [3D打印不是工业革命，它是……](https://www.share.kurohicncr.top/Article/details/523986936.shtml)
-- 2026-06-29 13:52 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/77519830701.shtml)
-- 2026-06-29 13:31 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.minike.top/Article/details/22972083.shtml)
-- 2026-06-29 13:37 - [网约车司机转账15000元后被乘客拉黑](http://www.share.minike.top/Article/details/36679.shtml)
-- 2026-06-29 13:33 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/40307812166.shtml)
-- 2026-06-29 13:42 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/870338413417.shtml)
-- 2026-06-29 13:40 - [AG 钟意](http://www.blog.kurohicncr.top/Article/details/63052.shtml)
-- 2026-06-29 13:51 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/694131.shtml)
+- 2026-06-29 13:47 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/1873153682.shtml)
+- 2026-06-29 14:03 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/3433566.shtml)
+- 2026-06-29 14:03 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/40783.shtml)
+- 2026-06-29 14:03 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/93674640.shtml)
+- 2026-06-29 13:57 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/26681757.shtml)
+- 2026-06-29 13:54 - [我们注定是一撮县城葱姜蒜](https://www.share.minike.top/Article/details/68910342.shtml)
+- 2026-06-29 13:57 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/12849864.shtml)
+- 2026-06-29 13:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/3821538739.shtml)
+- 2026-06-29 13:47 - [美人鱼](https://www.share.minike.top/Article/details/02542.shtml)
+- 2026-06-29 13:56 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/33360413187.shtml)
+- 2026-06-29 13:51 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/49302.shtml)
+- 2026-06-29 13:45 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/8190352.shtml)
+- 2026-06-29 13:40 - [刘仲华院士愿当贺永辉导师](http://www.blog.minike.top/Article/details/8658751742.shtml)
+- 2026-06-29 13:41 - [俄称继续推进 乌称打击俄军设施](http://www.blog.minike.top/Article/details/24704210.shtml)
+- 2026-06-29 14:03 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/6874949.shtml)

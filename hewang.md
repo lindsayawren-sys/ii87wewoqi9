@@ -1,56 +1,59 @@
-# 中医说夏至：养心祛湿有良方
+# 长城基金“科技+”视点：盈利驱动叙事下，关注AI基本面兑现
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-“东边日出西边雨，道是无晴却有晴。”高温高湿、雷雨频发的夏至节气，将于6月21日到来。天地阴阳自此迎来消长转折，人们该如何消解暑湿侵扰、安度盛夏？ 《黄帝内经》提到，“夏至四十五日，阴气微上，阳气微下”。正是在夏至这个阳气的顶点，初生的阴气开始悄然萌动，展现了大自然物极必反、生生不息的奥妙。 时序流转，人体状态亦随之改变。中国中医科学院广安门医院疼痛科副主任医师杨晓忱说，夏至时
+近期公募基金一季报披露完毕，基金经理们的投资思路也“跃然纸上”。从披露情况来看，科技成长方向持续成为关注主线，AI产业链下游应用、卫星通信及商业航天等成长赛道频繁被提及。 市场当前的普遍共识是：这一轮科技革命或将持续较长时间，在短期波折中不改长期向上发展趋势。在此背景下，长城“科技+”领域基金经理们又是如何把握机遇呢？ 陈良栋：关注能源化工等涨价板块 2026年一季度，国内宏观
 
 ## 正文
 
-“东边日出西边雨，道是无晴却有晴。
+近期公募基金一季报披露完毕，基金经理们的投资思路也“跃然纸上”。
 
-”高温高湿、雷雨频发的夏至节气，将于6月21日到来。
+从披露情况来看，科技成长方向持续成为关注主线，AI产业链下游应用、卫星通信及商业航天等成长赛道频繁被提及。
 
-天地阴阳自此迎来消长转折，人们该如何消解暑湿侵扰、安度盛夏？
+市场当前的普遍共识是：这一轮科技革命或将持续较长时间，在短期波折中不改长期向上发展趋势。
 
-《黄帝内经》提到，“夏至四十五日，阴气微上，阳气微下”。
+在此背景下，长城“科技+”领域基金经理们又是如何把握机遇呢？
 
-正是在夏至这个阳气的顶点，初生的阴气开始悄然萌动，展现了大自然物极必反、生生不息的奥妙。
+陈良栋：关注能源化工等涨价板块 2026年一季度，国内宏观经济保持韧性，进出口数据表现超预期，市场流动性整体宽裕，风险偏好处于相对高位，结构性机会较为多元，特别是价格持续上涨的板块表现相对突出，包括有色金属、AI产业链上游材料、新老能源产业链等板块。
 
-时序流转，人体状态亦随之改变。
+与此同时，宏观经济内部分化依然显著，内需复苏节奏整体温和，社会消费品零售总额稳步修复但斜率偏缓，CPI同比处于温和回升区间，PPI同比降幅持续收窄、逐步临近转正关口。
 
-中国中医科学院广安门医院疼痛科副主任医师杨晓忱说，夏至时节气温较高、湿度大，人体大量出汗，阳气外浮，中焦脾胃相对虚寒，容易诱发心脑血管疾病、中暑、胃肠道疾病及皮肤类疾病。
+整体数据反映企业盈利仍处于渐进式修复通道，仍面临一定的需求与价格压力。
 
-把握节气特点、饮食得当，便可安然度夏，为秋冬健康打下坚实基础。
+进入3月，受中东地缘冲突升级、美联储降息预期延后等海外因素影响，A股市场出现较大回调。
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 13:50 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 13:47 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 13:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 13:39 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 13:53 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 13:41 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 13:56 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 13:38 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 13:33 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 13:47 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 14:01 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 13:42 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 13:45 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 13:49 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 13:49 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 13:40 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 13:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 13:46 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 13:51 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 13:55 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:43 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 14:05 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/148687163.shtml)
-- 2026-06-29 13:36 - [亚洲成世界杯最大失意者联盟](https://www.blog.kurohicncr.top/Article/details/55167.shtml)
-- 2026-06-29 13:44 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/925987881.shtml)
-- 2026-06-29 13:37 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/1412132084.shtml)
-- 2026-06-29 13:31 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/891071221.shtml)
-- 2026-06-29 13:54 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/6840214.shtml)
-- 2026-06-29 13:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/29734893.shtml)
-- 2026-06-29 13:51 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/34486.shtml)
-- 2026-06-29 13:48 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.minike.top/Article/details/2059465373.shtml)
-- 2026-06-29 13:30 - [42岁郭碧婷纯素颜状态](https://www.blog.kurohicncr.top/Article/details/03394720.shtml)
-- 2026-06-29 13:53 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/1984192.shtml)
-- 2026-06-29 13:45 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/57577156945.shtml)
-- 2026-06-29 13:32 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/2621086583.shtml)
-- 2026-06-29 13:50 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/190989874.shtml)
-- 2026-06-29 13:45 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/954510290.shtml)
+- 2026-06-29 13:57 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/19389964.shtml)
+- 2026-06-29 14:05 - [严浩翔FIY断层第一](https://www.blog.minike.top/Article/details/177736987.shtml)
+- 2026-06-29 13:41 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/976604543947.shtml)
+- 2026-06-29 13:40 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.minike.top/Article/details/9048864016.shtml)
+- 2026-06-29 13:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/5913975.shtml)
+- 2026-06-29 13:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/37480534821.shtml)
+- 2026-06-29 13:39 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/657392037924.shtml)
+- 2026-06-29 13:45 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/8489326491.shtml)
+- 2026-06-29 13:43 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/046222504.shtml)
+- 2026-06-29 13:59 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/4475614.shtml)
+- 2026-06-29 13:36 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/0802762.shtml)
+- 2026-06-29 13:42 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/26586.shtml)
+- 2026-06-29 14:04 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/533868899.shtml)
+- 2026-06-29 13:50 - [我们注定是一撮县城葱姜蒜](https://www.blog.kurohicncr.top/Article/details/790451682.shtml)
+- 2026-06-29 13:36 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/62131.shtml)

@@ -1,57 +1,56 @@
-# 美国、卡塔尔拟向伊朗解冻数十亿美元冻结资金
+# 盛剑科技一季度亏损2612万元，张伟明质押700万股后，公司“半导体新故事”先撞上订单收缩 | 长三角资本局
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-知情人士透露，美国正与卡塔尔拟定方案，计划向伊朗开放数十亿美元被冻结资金，专供人道主义采购，这是近期签署的停火协议项下又一项先期经济利好举措。 该方案尚未最终敲定，目标是让伊朗动用其全球范围内约1000亿美元冻结资金中的一部分，首批解冻额度为存放在卡塔尔的60亿美元。知情人士表示，根据方案条款，卡塔尔将允许伊朗央行动用这笔遭冻结资产采购粮食、药品及其他人道物资；这批资金主要是伊
+文|新浪财经上海站 十里 盛剑科技的压力，已经从2025年年报延续到2026年一季报。 4月29日，盛剑科技披露2026年第一季度报告。公司一季度实现营业收入1.19亿元，同比下滑63.09%；归属于上市公司股东的净利润亏损2612万元，扣非净利润亏损2716万元。利润总额亏损3449万元，同比降幅超过220%。 这不是一个单纯的季度波动。公司给出的原因是下游市场需求疲软、行业
 
 ## 正文
 
-知情人士透露，美国正与卡塔尔拟定方案，计划向伊朗开放数十亿美元被冻结资金，专供人道主义采购，这是近期签署的停火协议项下又一项先期经济利好举措。
+文|新浪财经上海站 十里 盛剑科技的压力，已经从2025年年报延续到2026年一季报。
 
-该方案尚未最终敲定，目标是让伊朗动用其全球范围内约1000亿美元冻结资金中的一部分，首批解冻额度为存放在卡塔尔的60亿美元。
+4月29日，盛剑科技披露2026年第一季度报告。
 
-知情人士表示，根据方案条款，卡塔尔将允许伊朗央行动用这笔遭冻结资产采购粮食、药品及其他人道物资；这批资金主要是伊朗石油外销收入，受制裁限制长期滞留海外。
+公司一季度实现营业收入1.19亿元，同比下滑63.09%；归属于上市公司股东的净利润亏损2612万元，扣非净利润亏损2716万元。
 
-部分知情人士称，这套资金使用机制或将成为处置全球各地伊朗冻结资金的范本，也将是伊朗迫切要求解冻的240亿美元受限资金的首批释放款项。
+利润总额亏损3449万元，同比降幅超过220%。
 
-伊朗方面仍需认可这套操作机制。
+这不是一个单纯的季度波动。
 
-知情人士称，此前各方达成停火、重开霍尔木兹海峡协议，接下来两个月美伊将举行核谈判，美方预计会把该方案作为多项议题之一提出。
+公司给出的原因是下游市场需求疲软、行业竞争加剧，订单规模收缩，直接拖累营收。
 
-伦敦智库查塔姆研究所中东事务负责人萨南·瓦基尔表示：“即便有限度解冻资产，既能为伊朗提供经济缓冲，也是局势缓和的明确政治信号。
+同时，公司继续加大研发投入，研发费用同比增长14%；此前产能扩张带来的固定资产折旧摊销也在上升，进一步压缩盈利空间。
 
-这是伊朗能与美方敲定的少数实质性利好，有助于稳定本国货币、缓解国内经济压力。
+更能说明问题的是现金流。
 
 ## 相关推荐
 
-- 2026-06-29 13:38 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 13:48 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 13:38 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 13:54 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 13:32 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 13:37 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 13:50 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 13:35 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 14:00 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 13:45 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 13:38 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 13:48 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 13:51 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 14:01 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 13:47 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 13:48 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 13:58 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 13:36 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 13:55 - [曾沛慈夺冠后人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 13:42 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 13:45 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:44 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/42044520.shtml)
-- 2026-06-29 13:55 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/47029897616.shtml)
-- 2026-06-29 13:49 - [海军舰艇编队将赴香港](https://www.share.kurohicncr.top/Article/details/3443160931.shtml)
-- 2026-06-29 13:32 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/92569.shtml)
-- 2026-06-29 13:32 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/907615074.shtml)
-- 2026-06-29 13:44 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/364790529.shtml)
-- 2026-06-29 13:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/2079290286.shtml)
-- 2026-06-29 13:43 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/7175887.shtml)
-- 2026-06-29 13:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/168186.shtml)
-- 2026-06-29 13:38 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/75669850710.shtml)
-- 2026-06-29 13:52 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/75687816929.shtml)
-- 2026-06-29 13:40 - [金牌调解](http://www.share.kurohicncr.top/Article/details/088116009500.shtml)
-- 2026-06-29 13:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/718293.shtml)
-- 2026-06-29 13:58 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/955178256079.shtml)
-- 2026-06-29 13:58 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.kurohicncr.top/Article/details/448792650.shtml)
+- 2026-06-29 13:49 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/0988493.shtml)
+- 2026-06-29 13:41 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/55426.shtml)
+- 2026-06-29 13:39 - [扬名立万](https://www.blog.minike.top/Article/details/24034267.shtml)
+- 2026-06-29 13:53 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/686588.shtml)
+- 2026-06-29 13:56 - [DSpark论文深度解读](http://www.blog.minike.top/Article/details/5747820.shtml)
+- 2026-06-29 13:46 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/338924.shtml)
+- 2026-06-29 14:03 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/0166559435.shtml)
+- 2026-06-29 13:37 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/731558846.shtml)
+- 2026-06-29 14:02 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/268104087.shtml)
+- 2026-06-29 14:04 - [勇敢的心第二部](https://www.share.minike.top/Article/details/092623950461.shtml)
+- 2026-06-29 13:59 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/834350095.shtml)
+- 2026-06-29 13:46 - [叶一茜森碟一起回北京了](https://www.blog.kurohicncr.top/Article/details/95439816324.shtml)
+- 2026-06-29 13:55 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/2167475.shtml)
+- 2026-06-29 13:43 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/0734331.shtml)
+- 2026-06-29 14:04 - [人民日报评“AI脸看腻了”](https://www.share.kurohicncr.top/Article/details/820418.shtml)

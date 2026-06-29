@@ -1,59 +1,52 @@
-# 韩国总统李在明称韩朝所有沟通渠道均已中断
+# 上海合作组织绿色和可持续发展论坛开幕 沈跃跃宣读习近平主席贺信
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新社首尔6月19日电 (记者 金旭)当地时间19日，韩国总统李在明在韩国总统府青瓦台举行七国集团峰会及访问欧洲多国成果吹风会。会上，他表示，目前韩国与朝鲜的所有沟通渠道都已中断。 据韩联社报道，李在明称，目前韩朝之间的紧急热线和通信线路等均已中断。韩朝军事分界线沿线的桥梁和道路也都被阻断，双方“偶尔会发生小规模冲突，局势并不乐观”。 李在明表示，尽管韩国现政府对朝鲜实施缓和政
+4月29日，上海合作组织绿色和可持续发展论坛在浙江宁波开幕。全国政协副主席、上海合作组织睦邻友好合作委员会主席沈跃跃宣读习近平主席贺信并发表主旨讲话。 沈跃跃表示，贺信充分体现习近平主席对深化上合组织国家交流互鉴、加强绿色和可持续发展领域务实合作的高度重视，为共谋全球生态文明建设之路、完善全球治理提供更多中国方案、上合方案。 沈跃跃表示，共促上合组织绿色和可持续发展，是上合组织
 
 ## 正文
 
-中新社首尔6月19日电 (记者 金旭)当地时间19日，韩国总统李在明在韩国总统府青瓦台举行七国集团峰会及访问欧洲多国成果吹风会。
+4月29日，上海合作组织绿色和可持续发展论坛在浙江宁波开幕。
 
-会上，他表示，目前韩国与朝鲜的所有沟通渠道都已中断。
+全国政协副主席、上海合作组织睦邻友好合作委员会主席沈跃跃宣读习近平主席贺信并发表主旨讲话。
 
-据韩联社报道，李在明称，目前韩朝之间的紧急热线和通信线路等均已中断。
+沈跃跃表示，贺信充分体现习近平主席对深化上合组织国家交流互鉴、加强绿色和可持续发展领域务实合作的高度重视，为共谋全球生态文明建设之路、完善全球治理提供更多中国方案、上合方案。
 
-韩朝军事分界线沿线的桥梁和道路也都被阻断，双方“偶尔会发生小规模冲突，局势并不乐观”。
+沈跃跃表示，共促上合组织绿色和可持续发展，是上合组织国家的共同愿望和重点合作领域。
 
-李在明表示，尽管韩国现政府对朝鲜实施缓和政策，但敌对情绪依然存在，谴责和对立言论泛滥，这种情况在今后相当长一段时间内可能仍会持续。
-
-他说，会不断努力缓和敌对情绪，为实现和平共处和共同繁荣创造有利条件。
-
-(完)
+要践行全球治理倡议，凝聚绿色可持续发展共识；加快科技创新，激活绿色发展内生动力；加强产业对接，夯实绿色产业合作基础；守住生态底线，共筑区域生态安全屏障；深化人文交流，汇聚绿色和可持续发展合力。
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 13:40 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 13:33 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 13:34 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 13:58 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 13:55 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 13:32 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 13:32 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 13:59 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 13:51 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 13:54 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 13:52 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 13:44 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 13:44 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 13:36 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 13:53 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 13:57 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 14:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 13:44 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 14:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 14:00 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 13:45 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 13:55 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 13:49 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 13:42 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 13:45 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 13:43 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/4549125.shtml)
-- 2026-06-29 13:45 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/2243639.shtml)
-- 2026-06-29 13:45 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/86443160974.shtml)
-- 2026-06-29 13:36 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/6044013981.shtml)
-- 2026-06-29 13:52 - [C罗关心罗德里戈伤情](http://www.share.kurohicncr.top/Article/details/847872802499.shtml)
-- 2026-06-29 13:39 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/53842244.shtml)
-- 2026-06-29 13:33 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/818728751.shtml)
-- 2026-06-29 13:45 - [绘画区你赢了](https://www.blog.minike.top/Article/details/7358736.shtml)
-- 2026-06-29 13:35 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/9067589.shtml)
-- 2026-06-29 13:41 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/02849.shtml)
-- 2026-06-29 13:37 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/363475.shtml)
-- 2026-06-29 13:58 - [A股限售股解禁一览](https://www.blog.minike.top/Article/details/9017392035.shtml)
-- 2026-06-29 13:33 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/85056477808.shtml)
-- 2026-06-29 13:38 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/5404289886.shtml)
-- 2026-06-29 13:47 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/37957168.shtml)
+- 2026-06-29 13:54 - [啊啊啊](http://www.blog.minike.top/Article/details/29074543952.shtml)
+- 2026-06-29 13:55 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/13213581.shtml)
+- 2026-06-29 14:01 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/319365691.shtml)
+- 2026-06-29 13:53 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/60266.shtml)
+- 2026-06-29 13:36 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/18632.shtml)
+- 2026-06-29 13:49 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.minike.top/Article/details/87189058.shtml)
+- 2026-06-29 13:37 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.minike.top/Article/details/59033786.shtml)
+- 2026-06-29 13:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/1738994.shtml)
+- 2026-06-29 13:54 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/76198955.shtml)
+- 2026-06-29 14:01 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.kurohicncr.top/Article/details/593205.shtml)
+- 2026-06-29 13:41 - [金牌调解](https://www.blog.minike.top/Article/details/094490325622.shtml)
+- 2026-06-29 13:36 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/825172929.shtml)
+- 2026-06-29 13:59 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/9748909.shtml)
+- 2026-06-29 14:03 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/7449238445.shtml)
+- 2026-06-29 13:38 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/38407.shtml)

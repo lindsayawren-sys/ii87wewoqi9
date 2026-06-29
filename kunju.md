@@ -1,46 +1,59 @@
-# 华润燃气于6月18日斥资1214.92万港元回购76.64万股
+# 一季度广东各级消委会为消费者挽回经济损失1.02亿元
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-华润燃气（01193）发布公告，于2026年6月18日斥资1214.92万港元回购76.64万股。责任编辑：卢昱君
+中新网广州4月29日电 (记者 许青青)据广东省消费者委员会28日介绍，今年一季度，广东全省各级消费者委员会共接待消费者来访和咨询3万人次，处理消费者投诉20.70万件，其中受理并调解结案15.28万件，为消费者挽回经济损失1.02亿元。从投诉类别看，商品类投诉呈下降趋势，服务类投诉同比上升。数据显示，一季度广东全省各级消委会收到商品类投诉占投诉总量的38.70%，同比下降11
 
 ## 正文
 
-华润燃气（01193）发布公告，于2026年6月18日斥资1214.92万港元回购76.64万股。
+中新网广州4月29日电 (记者 许青青)据广东省消费者委员会28日介绍，今年一季度，广东全省各级消费者委员会共接待消费者来访和咨询3万人次，处理消费者投诉20.70万件，其中受理并调解结案15.28万件，为消费者挽回经济损失1.02亿元。
 
-责任编辑：卢昱君
+从投诉类别看，商品类投诉呈下降趋势，服务类投诉同比上升。
+
+数据显示，一季度广东全省各级消委会收到商品类投诉占投诉总量的38.70%，同比下降11.92%。
+
+服务类占投诉总量的60.65%，同比增长9.10%。
+
+居服务类投诉前三位的是互联网服务、生活社会服务和教育培训服务，占服务类投诉总量78.26%。
+
+从投诉性质分析，售后服务、合同和质量三类性质投诉量较大，占投诉总量的85.44%。
+
+该三类投诉问题的投诉量长期位居前列。
+
+同比增速最快的为虚假宣传类投诉，同比上涨172.67%。
 
 ## 相关推荐
 
-- 2026-06-29 13:47 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 13:34 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 13:49 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 13:46 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 13:55 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 13:34 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 13:31 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 13:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 13:32 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 13:57 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 13:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:37 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 13:41 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 14:03 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 13:40 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 13:59 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 13:48 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 13:37 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 13:54 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 13:45 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 13:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 13:42 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 13:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 13:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [AG 钟意](http://www.share.kurohicncr.top/Article/details/5311630.shtml)
-- 2026-06-29 13:54 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.kurohicncr.top/Article/details/13925288.shtml)
-- 2026-06-29 13:39 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/926823.shtml)
-- 2026-06-29 13:34 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/4616189038.shtml)
-- 2026-06-29 13:56 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/69914517.shtml)
-- 2026-06-29 13:35 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/777330.shtml)
-- 2026-06-29 13:51 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/831967.shtml)
-- 2026-06-29 13:34 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.minike.top/Article/details/699783323.shtml)
-- 2026-06-29 13:42 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/98158.shtml)
-- 2026-06-29 13:43 - [欧委会总部只给高层开空调](https://www.share.kurohicncr.top/Article/details/95622747.shtml)
-- 2026-06-29 13:49 - [请回答王牌2019](https://www.share.minike.top/Article/details/32403695.shtml)
-- 2026-06-29 13:40 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.share.kurohicncr.top/Article/details/9683012760.shtml)
-- 2026-06-29 13:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/3227115162.shtml)
-- 2026-06-29 13:55 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/8782003.shtml)
-- 2026-06-29 13:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/17900758.shtml)
+- 2026-06-29 13:40 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/414737208.shtml)
+- 2026-06-29 13:59 - [异世界一点都不好玩！](http://www.share.minike.top/Article/details/8324104693.shtml)
+- 2026-06-29 13:46 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/04073095.shtml)
+- 2026-06-29 13:50 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/92326.shtml)
+- 2026-06-29 13:42 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/725414389.shtml)
+- 2026-06-29 13:47 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/96048.shtml)
+- 2026-06-29 14:03 - [一生一世](http://www.share.minike.top/Article/details/49514.shtml)
+- 2026-06-29 13:47 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/65089.shtml)
+- 2026-06-29 13:50 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/01695.shtml)
+- 2026-06-29 13:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/78976.shtml)
+- 2026-06-29 13:52 - [流金岁月](http://www.blog.minike.top/Article/details/19663015.shtml)
+- 2026-06-29 13:55 - [复盘曾沛慈浪姐夺冠之路](https://www.share.kurohicncr.top/Article/details/425331191.shtml)
+- 2026-06-29 14:04 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/369591.shtml)
+- 2026-06-29 13:58 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/9949992329.shtml)
+- 2026-06-29 14:00 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/3804849.shtml)

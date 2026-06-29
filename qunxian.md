@@ -1,61 +1,61 @@
-# 实现科技自主创新和人才自主培养良性互动：如何看，怎么办？
+# 科技赋能文脉传承 多国嘉宾西安共话文旅创新
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-【理响中国】实现科技自主创新和人才自主培养良性互动：如何看，怎么办？ 近期，华为公司正式发表“韬(τ)定律”，为后摩尔时代的半导体行业发展指明了一条创新发展路径。其核心负责人何庭波并非名校海归，而是毕业于北京邮电大学的“本土人才”。不独如此，近年来以DeepSeek为代表的一大批科技创新成果，主要都是我国自主培养的人才完成的。事实证明，实现科技自主创新和人才自主培养良性互动，中
+中新网西安4月29日电 题：科技赋能文脉传承 多国嘉宾西安共话文旅创新 作者 杨英琦 张一辰 党田野 “来到这里，我真切感受到一个王朝的崛起历程与文化的深厚积淀。文明的延续离不开交流与对话，这也是全人类未来发展应当坚守的理念。”走出秦始皇帝陵博物院，阿曼协商委员会成员、马特拉州代表侯赛因·穆罕默德·哈桑·拉瓦提由衷道。 近日，“2026世界市长对话·西安”活动在西安举办，来自埃
 
 ## 正文
 
-【理响中国】实现科技自主创新和人才自主培养良性互动：如何看，怎么办？
+中新网西安4月29日电 题：科技赋能文脉传承 多国嘉宾西安共话文旅创新 作者 杨英琦 张一辰 党田野 “来到这里，我真切感受到一个王朝的崛起历程与文化的深厚积淀。
 
-近期，华为公司正式发表“韬(τ)定律”，为后摩尔时代的半导体行业发展指明了一条创新发展路径。
+文明的延续离不开交流与对话，这也是全人类未来发展应当坚守的理念。
 
-其核心负责人何庭波并非名校海归，而是毕业于北京邮电大学的“本土人才”。
+”走出秦始皇帝陵博物院，阿曼协商委员会成员、马特拉州代表侯赛因·穆罕默德·哈桑·拉瓦提由衷道。
 
-不独如此，近年来以DeepSeek为代表的一大批科技创新成果，主要都是我国自主培养的人才完成的。
+近日，“2026世界市长对话·西安”活动在西安举办，来自埃及、黎巴嫩、新西兰、约旦等多国城市市长及专家先后走进大唐芙蓉园、西安XR电影产业基地、秦始皇帝陵博物院等地，感受数字科技赋能文明传承的实践成果，探寻历史文化名城如何在保护中发展、在传承中创新。
 
-事实证明，实现科技自主创新和人才自主培养良性互动，中国科技发展就能“向上捅破天”。
+侯赛因·穆罕默德·哈桑·拉瓦提表示，西安历史文脉与现代科技深度融合的发展景象，令他深受触动。
 
-在《求是》杂志新近刊发的习近平总书记重要文章《一体推进教育科技人才发展》中，总书记强调“实现科技自主创新和人才自主培养良性互动”，“加强科学教育、工程教育，加强拔尖创新人才自主培养，为解决我国关键核心技术‘卡脖子’问题提供人才支撑”。
+“我了解到，当下西安正运用科技手段贯通历史与未来，收获了极具价值的研究成果。
 
-这是一体推进教育科技人才发展的重要举措。
+依托现代技术，人们还原出文物原本的色彩、古人的面貌，甚至古代官吏等级制度也实现精准考证。
 
-改革开放初期，我国技术进步主要依赖“引进、消化、吸收、再创新”，这种跟随先进国家后面追赶的路径可大幅降低技术路线选择和试错成本，但只能缩小差距，难以实现超越。
+”在他看来，科技既能助力人类探寻历史本貌，更能以历史为基，助力人类奔赴长远未来。
 
 ## 相关推荐
 
-- 2026-06-29 13:58 - [医护人员观影《四渡》传承长征精神](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 13:46 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 13:38 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 13:48 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 13:31 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 13:59 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 13:49 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 13:38 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 13:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 13:38 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 13:47 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 13:53 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 13:35 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 13:34 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 13:48 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 13:41 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 14:04 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 13:43 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 13:57 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 13:39 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 13:58 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 13:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 13:42 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 13:49 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 14:00 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 14:05 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 14:01 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 13:56 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 13:53 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 13:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/8586135297.shtml)
-- 2026-06-29 13:31 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/32521231591.shtml)
-- 2026-06-29 13:52 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/38404354.shtml)
-- 2026-06-29 13:49 - [宜宾5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/4352532028.shtml)
-- 2026-06-29 13:39 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/41468.shtml)
-- 2026-06-29 13:42 - [爸爸当家](https://www.blog.kurohicncr.top/Article/details/175462816706.shtml)
-- 2026-06-29 13:54 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/1229141.shtml)
-- 2026-06-29 13:41 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/59539.shtml)
-- 2026-06-29 13:52 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/3306255.shtml)
-- 2026-06-29 13:46 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/20691.shtml)
-- 2026-06-29 13:40 - [中国战机大片上新](http://www.blog.minike.top/Article/details/64361.shtml)
-- 2026-06-29 13:59 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/847868.shtml)
-- 2026-06-29 13:41 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/865227.shtml)
-- 2026-06-29 13:44 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/89712846.shtml)
-- 2026-06-29 13:31 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/57699.shtml)
+- 2026-06-29 13:47 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/4767522857.shtml)
+- 2026-06-29 13:42 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/24272119506.shtml)
+- 2026-06-29 14:05 - [流金岁月](http://www.share.kurohicncr.top/Article/details/35890843488.shtml)
+- 2026-06-29 13:39 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/265539614661.shtml)
+- 2026-06-29 13:58 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/5786641.shtml)
+- 2026-06-29 13:40 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/51045.shtml)
+- 2026-06-29 13:41 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.minike.top/Article/details/999171946950.shtml)
+- 2026-06-29 14:00 - [金牌调解](http://www.share.minike.top/Article/details/233157848.shtml)
+- 2026-06-29 13:38 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/39897.shtml)
+- 2026-06-29 13:59 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/40584158049.shtml)
+- 2026-06-29 13:41 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/36994.shtml)
+- 2026-06-29 13:54 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/735820760.shtml)
+- 2026-06-29 14:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/038018.shtml)
+- 2026-06-29 13:39 - [恋与深空底线不该被娱乐化](http://www.blog.kurohicncr.top/Article/details/38744.shtml)
+- 2026-06-29 13:49 - [李在明称韩国足协任命了无能之人](https://www.blog.minike.top/Article/details/14646.shtml)

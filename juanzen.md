@@ -1,59 +1,60 @@
-# 端午假期人宠共赴草本养生潮
+# 琴澳携手深耕自然教育阵地 共建绿美湾区
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网南宁6月20日电 题：端午假期人宠共赴草本养生潮 作者 俞靖 陈沿佑 艾草束悬门、香囊随身佩……恰逢端午假期，传统养生习俗催生过节新方式，年轻人扎堆工坊制作艾草文创舒缓身心，宠物中医养生同步走红，人宠共享草木疗愈，成为端午消费新风尚。 在广西南宁泰善草本药香堂，端午手作活动预约爆满，大学生、都市白领成为消费主力，艾草门挂、驱蚊香囊、草本手串、艾叶洗发饼等端午产品备受追捧。
+中新网广州4月28日电 (程景伟 林荫)据广东省林业局28日介绍，近年来，横琴与澳门依托“横琴自然周”与“澳门绿化周”两大品牌活动，以自然教育为纽带，走出了一条“以绿色促融合、以生态连人心”的独特路径。 从红树林里的亲子观鸟，到古树下的自然对话；从横琴湿地公园的澳门学生植树专场，到澳门科学馆里的横琴红树林主题展……每年春季，横琴与澳门几乎同步迎来两场生态盛事。 其中，横琴自然周
 
 ## 正文
 
-中新网南宁6月20日电 题：端午假期人宠共赴草本养生潮 作者 俞靖 陈沿佑 艾草束悬门、香囊随身佩……恰逢端午假期，传统养生习俗催生过节新方式，年轻人扎堆工坊制作艾草文创舒缓身心，宠物中医养生同步走红，人宠共享草木疗愈，成为端午消费新风尚。
+中新网广州4月28日电 (程景伟 林荫)据广东省林业局28日介绍，近年来，横琴与澳门依托“横琴自然周”与“澳门绿化周”两大品牌活动，以自然教育为纽带，走出了一条“以绿色促融合、以生态连人心”的独特路径。
 
-在广西南宁泰善草本药香堂，端午手作活动预约爆满，大学生、都市白领成为消费主力，艾草门挂、驱蚊香囊、草本手串、艾叶洗发饼等端午产品备受追捧。
+从红树林里的亲子观鸟，到古树下的自然对话；从横琴湿地公园的澳门学生植树专场，到澳门科学馆里的横琴红树林主题展……每年春季，横琴与澳门几乎同步迎来两场生态盛事。
 
-该店负责人刘菲介绍，往年顾客大多选购成品，今年超七成消费者选择亲手碾药、制作香囊、捆扎艾草门挂，慢节奏的手工体验，恰好消解快节奏生活带来的浮躁。
+其中，横琴自然周聚焦湿地与森林资源保护，自2023年首届活动创办以来，累计吸引琴澳居民超过15万人次参与，成为琴澳生态交流的重要桥梁。
 
-“刷短视频常常几秒就划走，很少有机会长时间放下手机，花一两个小时制作艾草手作，假期我更愿为舒心平静的情绪价值买单。
+澳门绿化周则已深耕40余载，形成覆盖学校、社团的全民参与格局。
 
-”刚完成艾草手串制作的高考毕业生张昊说。
+横琴自然周期间，澳门居民可报名参与义务植树、红树林导赏活动；澳门绿化周期间，横琴的生态保护成果与碳普惠理念也走进澳门社区。
 
-刘菲表示，为丰富体验形式，端午假期，工坊联动本地中医馆推出联名沙龙，顺势上线草本咖啡、艾草护颈枕、养生药锤等跨界单品，将草本手作与药膳茶饮相结合，覆盖外用、内服两大养生场景。
+在部门联动层面，澳门科学馆与横琴国家湿地公园科普宣教中心建立“馆园联动”机制，2024年双方签署战略合作协议以来，已联合开发多套自然教育课程，组织多场跨境研学活动，覆盖琴澳青少年两千余人次。
 
-“年轻消费者青睐天然草本原料、手工体验以及蕴含时令特色的传统文化内涵，传统养生理念正撕下‘中老年专属’标签，受众覆盖全年龄段人群。
+第四届横琴自然周以“红树林生态保护”为主题，延续七大主题活动设置，今年3月主场活动期间累计开展47场植树专场，吸引琴澳市民1540余人次参与；还首次举办“自然演说家”红树林保护主题演讲比赛和湾区青少年观鸟邀请赛，吸引粤澳22支中小学队伍参赛。
 
-”刘菲说道。
+横琴粤澳深度合作区城市规划和建设局联合澳门教育及青年发展局、澳门科学馆等机构推出的“学生科技教育普及计划”“横琴生态科普亲子营”“学界义工走进横琴交流活动”等活动，已成为琴澳自然教育日常化的核心载体。
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 13:56 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 13:44 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 13:47 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 13:55 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 13:45 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 13:47 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 13:59 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 13:43 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 13:51 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 13:42 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:34 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 13:45 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 13:51 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 13:36 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 13:52 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 13:50 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 13:50 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 13:51 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 13:50 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 13:38 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 13:40 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 14:04 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 13:57 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 14:05 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 13:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 13:37 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/9748789118.shtml)
-- 2026-06-29 13:52 - [张真源解读相思锁](http://www.share.kurohicncr.top/Article/details/0774095110.shtml)
-- 2026-06-29 13:49 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/18345.shtml)
-- 2026-06-29 13:35 - [我们注定是一撮县城葱姜蒜](http://www.share.minike.top/Article/details/93469.shtml)
-- 2026-06-29 13:36 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/101610718353.shtml)
-- 2026-06-29 13:52 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/81348263872.shtml)
-- 2026-06-29 13:38 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/03767137.shtml)
-- 2026-06-29 13:31 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/57968657971.shtml)
-- 2026-06-29 13:39 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/74716781540.shtml)
-- 2026-06-29 13:42 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/196810404.shtml)
-- 2026-06-29 13:36 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/3790457.shtml)
-- 2026-06-29 13:44 - [A股](http://www.share.kurohicncr.top/Article/details/32943.shtml)
-- 2026-06-29 13:47 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/528091532107.shtml)
-- 2026-06-29 13:59 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/09478.shtml)
-- 2026-06-29 13:32 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/1684092625.shtml)
+- 2026-06-29 13:45 - [爱情有烟火你是知道我爱看什么的](http://www.blog.kurohicncr.top/Article/details/84223332.shtml)
+- 2026-06-29 13:48 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/068489.shtml)
+- 2026-06-29 14:00 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/263042412.shtml)
+- 2026-06-29 13:48 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/64664392.shtml)
+- 2026-06-29 13:44 - [为什么6月以来北方频繁降雨](https://www.blog.kurohicncr.top/Article/details/217879884538.shtml)
+- 2026-06-29 13:59 - [乔家的儿女](http://www.blog.minike.top/Article/details/9681802903.shtml)
+- 2026-06-29 13:55 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/2524808.shtml)
+- 2026-06-29 13:38 - [毒液2](http://www.share.kurohicncr.top/Article/details/187396.shtml)
+- 2026-06-29 13:51 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/85044.shtml)
+- 2026-06-29 13:47 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/5017320337.shtml)
+- 2026-06-29 13:43 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/1413368.shtml)
+- 2026-06-29 13:40 - [极限挑战第一季](http://www.share.minike.top/Article/details/10427.shtml)
+- 2026-06-29 13:54 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/127525.shtml)
+- 2026-06-29 13:47 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/93510634238.shtml)
+- 2026-06-29 13:48 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/65721267.shtml)

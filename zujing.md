@@ -1,46 +1,56 @@
-# 驻澳大使肖千会见使馆脸书粉丝：帮助大家更全面、客观地了解中国
+# 如何快速评估咖啡风味特征？国际研发出简便电化学测试新方法
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月19日 17:48 来源：中国新闻网 近日，中国驻澳大利亚大使馆举办使馆脸书账号粉丝见面会，来自澳经贸、科技、文艺等各界粉丝代表参加，并参观了使馆古典建筑、艺术陈设、园林景观，感受中华文化，品尝中国美食。 中国驻澳大利亚大使肖千在见面会上表示，使馆将听取公众意见，提升对外沟通能力，更多介绍中国的真实情况，帮助大家更全面、客观地了解中国。(记者 薄雯雯
+中新网北京4月29日电(记者 孙自法)施普林格·自然旗下学术期刊《自然-通讯》最新发表一篇化学论文称，研究人员开发出一种快速简便的测试方法，用于测量黑咖啡的浓度与烘焙程度。这一电化学测试方法无需复杂的样品制备，便能提供一种快速评估咖啡风味特征的可靠途径。 该论文介绍，现有的咖啡评估方法通常依赖于品鉴小组或间接测量，例如估算样品中溶解物质的含量。然而，这些方法无法区分由烘焙程度或
 
 ## 正文
 
-发布时间：2026年06月19日 17:48 来源：中国新闻网 近日，中国驻澳大利亚大使馆举办使馆脸书账号粉丝见面会，来自澳经贸、科技、文艺等各界粉丝代表参加，并参观了使馆古典建筑、艺术陈设、园林景观，感受中华文化，品尝中国美食。
+中新网北京4月29日电(记者 孙自法)施普林格·自然旗下学术期刊《自然-通讯》最新发表一篇化学论文称，研究人员开发出一种快速简便的测试方法，用于测量黑咖啡的浓度与烘焙程度。
 
-中国驻澳大利亚大使肖千在见面会上表示，使馆将听取公众意见，提升对外沟通能力，更多介绍中国的真实情况，帮助大家更全面、客观地了解中国。
+这一电化学测试方法无需复杂的样品制备，便能提供一种快速评估咖啡风味特征的可靠途径。
 
-(记者 薄雯雯 制作 徐妙巧 视频来源 中国驻澳大利亚大使馆） 责任编辑：【孙静波】
+该论文介绍，现有的咖啡评估方法通常依赖于品鉴小组或间接测量，例如估算样品中溶解物质的含量。
+
+然而，这些方法无法区分由烘焙程度或冲煮方式导致的化学差异。
+
+其他实验室技术虽然能够识别单个分子，但速度慢、成本高，且通常不适合常规使用。
+
+在本项研究中，论文通讯作者、美国俄勒冈大学Christopher H. Hendon和同事及合作者一起，研发出一种利用名为“循环伏安法”的电化学测试，快速评估黑咖啡浓度的方法。
+
+该测试通过施加电压并测量咖啡在电场作用下产生的电流，从而能够区分浓度和烘焙程度的差异。
+
+研究人员观察到饮品浓度与总电荷量之间存在线性关系，且随着样品烘焙程度加深(颜色变深)，这些信号也会变弱。
 
 ## 相关推荐
 
-- 2026-06-29 13:49 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 13:38 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 13:50 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 13:37 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 13:36 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 13:54 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 13:50 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 13:34 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 13:57 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 13:59 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 13:50 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 13:44 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 13:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 13:36 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 13:41 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 13:43 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 13:58 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 13:43 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 13:50 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 13:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:34 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/848616.shtml)
-- 2026-06-29 13:33 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/27545518.shtml)
-- 2026-06-29 13:54 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/596977.shtml)
-- 2026-06-29 13:50 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/634957386709.shtml)
-- 2026-06-29 13:49 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/127018489.shtml)
-- 2026-06-29 13:46 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/32745.shtml)
-- 2026-06-29 13:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/600566664607.shtml)
-- 2026-06-29 13:36 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/60410875955.shtml)
-- 2026-06-29 13:50 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/18261755388.shtml)
-- 2026-06-29 13:38 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/747187256.shtml)
-- 2026-06-29 13:44 - [医药股集体爆发](http://www.share.minike.top/Article/details/565811.shtml)
-- 2026-06-29 13:41 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/90347.shtml)
-- 2026-06-29 13:46 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/729478.shtml)
-- 2026-06-29 13:33 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/65290.shtml)
-- 2026-06-29 13:49 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/202321.shtml)
+- 2026-06-29 13:43 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/33416289.shtml)
+- 2026-06-29 13:49 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/27060554652.shtml)
+- 2026-06-29 13:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/33647220.shtml)
+- 2026-06-29 13:40 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/40004.shtml)
+- 2026-06-29 13:47 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/423694414953.shtml)
+- 2026-06-29 13:59 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/59596283.shtml)
+- 2026-06-29 13:46 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/48622393.shtml)
+- 2026-06-29 13:52 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/334004.shtml)
+- 2026-06-29 13:53 - [绘画区你赢了](http://www.blog.minike.top/Article/details/5931165.shtml)
+- 2026-06-29 13:49 - [扬名立万](https://www.blog.minike.top/Article/details/86095951.shtml)
+- 2026-06-29 14:01 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/34959453.shtml)
+- 2026-06-29 14:00 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/64807935.shtml)
+- 2026-06-29 14:03 - [手游300亿数据或被军事化运用](http://www.share.kurohicncr.top/Article/details/9314744641.shtml)
+- 2026-06-29 13:47 - [中国避暑神器在欧洲卖爆了](https://www.share.minike.top/Article/details/6437098012.shtml)
+- 2026-06-29 13:45 - [美人鱼](http://www.blog.minike.top/Article/details/69899969915.shtml)

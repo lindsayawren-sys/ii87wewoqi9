@@ -1,47 +1,44 @@
-# 翱捷科技：公司会根据Memory以及其他元器件成本对于定价进行综合考虑
+# 赣锋锂业：一季度归母净利润18.37亿元，同比扭亏
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月18日，翱捷科技在互动平台回答投资者提问时表示，公司会根据Memory以及其他元器件成本对于定价进行综合考虑，目前部分产品已经涨价，整体业务保持稳定推进，具体情况请以后续定期报告披露信息为准。（文章来源：证券日报）
+赣锋锂业4月29日公告，2026年第一季度实现营业收入91.96亿元，同比增长143.81%；归属于上市公司股东的净利润18.37亿元，上年同期净亏损3.56亿元；基本每股收益0.88元。
 
 ## 正文
 
-证券日报网讯 6月18日，翱捷科技在互动平台回答投资者提问时表示，公司会根据Memory以及其他元器件成本对于定价进行综合考虑，目前部分产品已经涨价，整体业务保持稳定推进，具体情况请以后续定期报告披露信息为准。
-
-（文章来源：证券日报）
+赣锋锂业4月29日公告，2026年第一季度实现营业收入91.96亿元，同比增长143.81%；归属于上市公司股东的净利润18.37亿元，上年同期净亏损3.56亿元；基本每股收益0.88元。
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 13:44 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 13:52 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 13:46 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 13:54 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 13:42 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 13:57 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 13:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 13:48 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 13:39 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 13:56 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 13:57 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 13:42 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 14:00 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 13:52 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 14:01 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 13:39 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 13:36 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 13:39 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 13:58 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 13:58 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 13:36 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 13:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 13:58 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 13:37 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:44 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/5273916982.shtml)
-- 2026-06-29 13:33 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.blog.kurohicncr.top/Article/details/486743290297.shtml)
-- 2026-06-29 13:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/9537175.shtml)
-- 2026-06-29 13:54 - [唐艺昕女儿接唐艺昕回家](https://www.share.minike.top/Article/details/74895.shtml)
-- 2026-06-29 13:33 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/123189022.shtml)
-- 2026-06-29 13:32 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/615240425.shtml)
-- 2026-06-29 13:42 - [灿如繁星定档](https://www.share.minike.top/Article/details/46232808.shtml)
-- 2026-06-29 13:39 - [腾讯回应做独立支付APP](https://www.blog.kurohicncr.top/Article/details/499955.shtml)
-- 2026-06-29 13:38 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/11771448.shtml)
-- 2026-06-29 13:56 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/4924601621.shtml)
-- 2026-06-29 13:43 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.minike.top/Article/details/916182.shtml)
-- 2026-06-29 13:35 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/39526.shtml)
-- 2026-06-29 13:48 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.minike.top/Article/details/41181.shtml)
-- 2026-06-29 13:37 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/450890038.shtml)
-- 2026-06-29 13:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/52018253254.shtml)
+- 2026-06-29 13:46 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/013608.shtml)
+- 2026-06-29 13:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/646066649.shtml)
+- 2026-06-29 13:56 - [送你一朵小红花](https://www.blog.minike.top/Article/details/6678359.shtml)
+- 2026-06-29 13:46 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/6172168.shtml)
+- 2026-06-29 13:41 - [沙特足协主席发布声明主动请辞](http://www.blog.minike.top/Article/details/1718131.shtml)
+- 2026-06-29 13:53 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/346481.shtml)
+- 2026-06-29 13:47 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.minike.top/Article/details/2718595375.shtml)
+- 2026-06-29 14:04 - [扫黑风暴](https://www.share.minike.top/Article/details/1943019.shtml)
+- 2026-06-29 13:43 - [实习期把公司领导开除了](https://www.share.minike.top/Article/details/20819.shtml)
+- 2026-06-29 13:56 - [【独家】牧神记 第89集 明心](http://www.share.minike.top/Article/details/788531998.shtml)
+- 2026-06-29 13:43 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/232541943.shtml)
+- 2026-06-29 13:36 - [我和我的家乡](http://www.blog.minike.top/Article/details/3584205016.shtml)
+- 2026-06-29 13:56 - [千与千寻](http://www.share.minike.top/Article/details/8574078779.shtml)
+- 2026-06-29 13:55 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/52174147.shtml)
+- 2026-06-29 13:53 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/272559.shtml)

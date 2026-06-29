@@ -1,59 +1,59 @@
-# 香港上演端午龙舟竞渡
+# 我国养老服务业发展迈出新步伐
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！孔子为什么说“温故而知新”？喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要
+聚焦服务业扩能提质丨我国养老服务业发展迈出新步伐 新华社北京4月27日电(记者朱高祥)养老服务业既是涉及亿万群众福祉的民生事业，也是具有巨大发展潜力的朝阳产业。截至2025年底，全国养老机构从业人员达72.2万人，累计建成家庭养老床位49.5万张，服务超2600万人次，我国养老服务业发展迈出新步伐。 中国老年人口规模全球第一。预计到2035年左右，全国60岁及以上老年人口将突破
 
 ## 正文
 
-学者解读中缅“胞波”之情：承载特殊情谊，两国合作可期“Z世代”创客让敦煌壁画融入市井五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
+聚焦服务业扩能提质丨我国养老服务业发展迈出新步伐 新华社北京4月27日电(记者朱高祥)养老服务业既是涉及亿万群众福祉的民生事业，也是具有巨大发展潜力的朝阳产业。
 
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
+截至2025年底，全国养老机构从业人员达72.2万人，累计建成家庭养老床位49.5万张，服务超2600万人次，我国养老服务业发展迈出新步伐。
 
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
+中国老年人口规模全球第一。
 
-孔子为什么说“温故而知新”？
+预计到2035年左右，全国60岁及以上老年人口将突破4亿人，进入重度老龄化阶段。
 
-喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
+推动养老服务业发展提质增效、量增面扩，是更好实现老有所养的必然要求。
 
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
+近年来，从两办印发《关于推进基本养老服务体系建设的意见》制定“国家基本养老服务清单”，到《中共中央 国务院关于深化养老服务改革发展的意见》首次在中央层面对养老服务工作作出体系化制度设计，一系列顶层政策文件密集出台，为加快构建适合我国国情的养老服务体系提供了制度支撑。
 
-十届南博会，一叶清茶何以架起文明对话之桥？
+截至目前，我国面向中度以上失能老年人发放养老服务消费补贴项目累计核销金额达33.93亿元，带动养老服务消费金额162.58亿元，超过138万失能老年人从中受益。
 
-中国沙漠治理经验，如何与世界共享？
+放眼各地，广西发展“养老+旅居+行业”新业态，每年赴桂旅居养老半个月以上的老年人约400万人次；浙江设立省级银发经济产业园，银发经济产值近28亿元……政策驱动引领下，全民共建共治共享的养老服务体系持续健全。
 
 ## 相关推荐
 
-- 2026-06-29 13:38 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 13:48 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 13:30 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 13:51 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 13:36 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 13:46 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 13:58 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 13:37 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 13:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 13:33 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 13:41 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 13:50 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 13:30 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 13:38 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 13:53 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 13:51 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 13:58 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 13:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 13:55 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 13:56 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 13:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 13:51 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 13:56 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 14:03 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 13:48 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 13:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [曾沛慈夺冠后人气](http://www.share.kurohicncr.top/Article/details/89593.shtml)
-- 2026-06-29 13:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/3865614.shtml)
-- 2026-06-29 13:46 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.minike.top/Article/details/03579644124.shtml)
-- 2026-06-29 13:34 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/958085906.shtml)
-- 2026-06-29 13:32 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/265691271643.shtml)
-- 2026-06-29 13:35 - [曾沛慈夺冠后人气](https://www.blog.minike.top/Article/details/4619347932.shtml)
-- 2026-06-29 13:40 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/167048856775.shtml)
-- 2026-06-29 13:39 - [佛得角到底在哪个“角”](http://www.share.minike.top/Article/details/582513130.shtml)
-- 2026-06-29 13:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/12920294.shtml)
-- 2026-06-29 13:33 - [向佑说向佐是一生依靠](http://www.share.kurohicncr.top/Article/details/5781262.shtml)
-- 2026-06-29 13:39 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/096867638498.shtml)
-- 2026-06-29 13:43 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/52982671485.shtml)
-- 2026-06-29 13:45 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/1723708.shtml)
-- 2026-06-29 13:51 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/25133.shtml)
-- 2026-06-29 13:38 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/36252198.shtml)
+- 2026-06-29 13:46 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/0281946494.shtml)
+- 2026-06-29 13:48 - [T1 vs KC MSI](http://www.blog.kurohicncr.top/Article/details/72184.shtml)
+- 2026-06-29 14:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/572943856.shtml)
+- 2026-06-29 13:54 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/401783115.shtml)
+- 2026-06-29 13:43 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/3354795.shtml)
+- 2026-06-29 13:56 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/58423919534.shtml)
+- 2026-06-29 13:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/025704995.shtml)
+- 2026-06-29 13:56 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/8866247641.shtml)
+- 2026-06-29 13:50 - [海军舰艇编队将赴香港](http://www.blog.minike.top/Article/details/66556896401.shtml)
+- 2026-06-29 13:42 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/54934487.shtml)
+- 2026-06-29 13:42 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/548745057522.shtml)
+- 2026-06-29 13:38 - [A股](http://www.blog.minike.top/Article/details/586883415.shtml)
+- 2026-06-29 13:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/680215.shtml)
+- 2026-06-29 13:58 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/18070441.shtml)
+- 2026-06-29 13:47 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/343533.shtml)

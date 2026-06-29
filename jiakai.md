@@ -1,57 +1,60 @@
-# 就在明天！又一只“高中签率”新股展开申购，融资额超200亿元！如果中签，能带来多少回报？
+# 3.3万亿上海银行未来五年将增员5000人！近七成补充至营销条线 董事长顾建忠：反复思考了三天，也很纠结
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-记者|王砚丹 编辑|程鹏 肖芮冬 杜恒峰 校对|张锦河 6月22日（周一），深交所主板新股华润新能源即将开展申购。申购代码是001248，发行价为10.11元/股，发行市盈率为21.99倍，高于申万风力发电行业平均市盈率20.86倍。 华润新能源此次发行股份总数为21.07亿股，初始网上发行3.16亿股，回拨后最大网上发行量6.32亿股。投资者参与网上申购华润新能源，申购股份数
+来源：今日行长 在银行普遍“瘦身”的当下，一家3.3万亿规模城商行一把手刚刚宣布，拟在未来五年增员5000人。 4月27日，上海银行召开2025年度暨2026第一季度业绩说明会，上海银行董事长顾建忠会上坦言，“未来五年，上海银行规划实现净增5000人的人员扩充，整体规模从1.3万人提升至1.8万人。这件事我反复思考了三天，也很纠结。” 纠结的原因不难理解——当前行业大势是人员精
 
 ## 正文
 
-记者|王砚丹 编辑|程鹏 肖芮冬 杜恒峰 校对|张锦河 6月22日（周一），深交所主板新股华润新能源即将开展申购。
+来源：今日行长 在银行普遍“瘦身”的当下，一家3.3万亿规模城商行一把手刚刚宣布，拟在未来五年增员5000人。
 
-申购代码是001248，发行价为10.11元/股，发行市盈率为21.99倍，高于申万风力发电行业平均市盈率20.86倍。
+4月27日，上海银行召开2025年度暨2026第一季度业绩说明会，上海银行董事长顾建忠会上坦言，“未来五年，上海银行规划实现净增5000人的人员扩充，整体规模从1.3万人提升至1.8万人。
 
-华润新能源此次发行股份总数为21.07亿股，初始网上发行3.16亿股，回拨后最大网上发行量6.32亿股。
+这件事我反复思考了三天，也很纠结。
 
-投资者参与网上申购华润新能源，申购股份数量上限为63.20万股，顶格申购需配深市市值632万元。
+” 纠结的原因不难理解——当前行业大势是人员精简、通过AI降本增效，逆势扩招在这样的背景下便显得有些“不合时宜”。
 
-据了解，上一只发行总数超过20亿股的新股是上交所上市的华电新能，其发行股份总数达49.69亿股，最终中签率约为0.56%。
+刚刚过去的2025年，上海银行刚刚减员了：报告期内在职员工14558人（含劳务派遣人员），较上一年减少154人。
 
-相比小盘新股往往只有万分之二左右的中签率，华润新能源最终中签率应大幅高于小盘股。
+其中母公司14053人、子公司505人，分别减少141人、13人。
 
-若超额配售权行使 最终募资总额将接近245亿元 根据华润新能源6月18日披露的正式发行公告，本次发行核心数据全部敲定。
+上海银行做出这样的人员扩充规划目的也很明确。
 
-具体而言，华润新能源发行价格为10.11元/股，对应发行市盈率21.99倍，高于申万风力发电行业平均市盈率20.86倍。
+顾建忠在业绩说明会上指出，人的价值与作用始终不可替代，现阶段上海银行营销人员占比偏低。
 
 ## 相关推荐
 
-- 2026-06-29 13:44 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 13:41 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 13:35 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 13:46 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 13:32 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 13:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 13:30 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 13:49 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 13:48 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 13:52 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 13:45 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 13:40 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 13:37 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 13:45 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 13:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 14:05 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 13:48 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 13:40 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 13:43 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 14:01 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 13:43 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 13:37 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 13:51 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 13:55 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 13:57 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/92961.shtml)
-- 2026-06-29 13:30 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/2356593.shtml)
-- 2026-06-29 13:49 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/47014.shtml)
-- 2026-06-29 13:56 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/24687157.shtml)
-- 2026-06-29 13:47 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/69908887.shtml)
-- 2026-06-29 13:35 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/5038357.shtml)
-- 2026-06-29 13:40 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/212630454.shtml)
-- 2026-06-29 13:52 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/6597755819.shtml)
-- 2026-06-29 13:56 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/0035194894.shtml)
-- 2026-06-29 13:32 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/6968765677.shtml)
-- 2026-06-29 13:56 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/69477148.shtml)
-- 2026-06-29 13:30 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/2102829243.shtml)
-- 2026-06-29 13:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/72304.shtml)
-- 2026-06-29 13:32 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/96760910.shtml)
-- 2026-06-29 13:32 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/6883166906.shtml)
+- 2026-06-29 13:57 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/29319.shtml)
+- 2026-06-29 13:49 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/573685028860.shtml)
+- 2026-06-29 13:54 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.minike.top/Article/details/444930.shtml)
+- 2026-06-29 13:58 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/99799145.shtml)
+- 2026-06-29 13:59 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/4917536998.shtml)
+- 2026-06-29 14:01 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/219323629452.shtml)
+- 2026-06-29 13:48 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/18115.shtml)
+- 2026-06-29 13:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/73120186254.shtml)
+- 2026-06-29 13:58 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.minike.top/Article/details/978658.shtml)
+- 2026-06-29 13:52 - [爱很美味](https://www.share.minike.top/Article/details/27227.shtml)
+- 2026-06-29 13:48 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/88494.shtml)
+- 2026-06-29 13:43 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/7427046024.shtml)
+- 2026-06-29 13:51 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/434732425754.shtml)
+- 2026-06-29 13:58 - [欧洲超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/994941925224.shtml)
+- 2026-06-29 13:55 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/12045.shtml)

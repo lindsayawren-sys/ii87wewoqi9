@@ -1,57 +1,51 @@
-# 菲律宾三佳钢铁厂被扣70名中国公民全部获释
+# 科笛-B获FIDELITY CHINA SPECIAL SITUATIONS PLC增持3.06万股
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网马尼拉6月18日电 中国驻菲律宾大使馆18日消息，菲东米萨米斯省三佳钢铁厂被查扣的70名中国公民全部获释。 中国驻菲使馆表示，该馆高度重视该案，继推动64名中国公民于5月28日获释后，使馆持续敦促菲方加快在押6人的身份核查程序，要求其依法公正快速处理，切实维护中国公民合法权益。 中国驻菲使馆还派员探视在押人员给予关心帮助，并协助安排庭审翻译。5月29日和6月3日又分别有两
+香港联交所最新数据显示，4月23日，FIDELITY CHINA SPECIAL SITUATIONS PLC增持科笛-B（02487）3.06万股，每股作价4.6041港元，总金额约为14.09万港元。增持后最新持股数目约为1826.09万股，最新持股比例为5.01%。责任编辑：卢昱君
 
 ## 正文
 
-中新网马尼拉6月18日电 中国驻菲律宾大使馆18日消息，菲东米萨米斯省三佳钢铁厂被查扣的70名中国公民全部获释。
+香港联交所最新数据显示，4月23日，FIDELITY CHINA SPECIAL SITUATIONS PLC增持科笛-B（02487）3.06万股，每股作价4.6041港元，总金额约为14.09万港元。
 
-中国驻菲使馆表示，该馆高度重视该案，继推动64名中国公民于5月28日获释后，使馆持续敦促菲方加快在押6人的身份核查程序，要求其依法公正快速处理，切实维护中国公民合法权益。
+增持后最新持股数目约为1826.09万股，最新持股比例为5.01%。
 
-中国驻菲使馆还派员探视在押人员给予关心帮助，并协助安排庭审翻译。
-
-5月29日和6月3日又分别有两人获释，最后两人先后于6月15日与17日获释。
-
-至此，该案被扣的70名中国公民已全部恢复自由。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 13:33 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 13:36 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 13:41 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 13:34 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 13:50 - [普京称俄处于命运攸关之际](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 13:44 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 13:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 13:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 13:47 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 13:59 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 13:30 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 13:32 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 13:38 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 13:54 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 13:58 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 13:40 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 14:00 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 13:46 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 13:39 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 13:59 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 13:46 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 13:52 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 13:47 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 13:38 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 13:58 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 13:52 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 14:00 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 13:55 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 13:48 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/688516672274.shtml)
-- 2026-06-29 13:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/9263678919.shtml)
-- 2026-06-29 13:31 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/00979.shtml)
-- 2026-06-29 13:45 - [本周做什么都顺的星座](https://www.blog.minike.top/Article/details/21437935.shtml)
-- 2026-06-29 13:38 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/8076312.shtml)
-- 2026-06-29 13:35 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/02618582380.shtml)
-- 2026-06-29 13:48 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.minike.top/Article/details/38964.shtml)
-- 2026-06-29 13:57 - [王楚钦3比0周启豪](http://www.blog.minike.top/Article/details/93080149978.shtml)
-- 2026-06-29 13:45 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/40359.shtml)
-- 2026-06-29 13:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/4693374036.shtml)
-- 2026-06-29 13:30 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/70919176.shtml)
-- 2026-06-29 13:59 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/2482421960.shtml)
-- 2026-06-29 13:34 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/9651440506.shtml)
-- 2026-06-29 13:55 - [A股](http://www.blog.minike.top/Article/details/339962.shtml)
-- 2026-06-29 13:55 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/458689.shtml)
+- 2026-06-29 14:01 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/113581720.shtml)
+- 2026-06-29 13:51 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/670107418115.shtml)
+- 2026-06-29 13:49 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/769880497.shtml)
+- 2026-06-29 13:47 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/47616083.shtml)
+- 2026-06-29 14:02 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/16273.shtml)
+- 2026-06-29 13:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/75934888.shtml)
+- 2026-06-29 13:39 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/238025524.shtml)
+- 2026-06-29 13:54 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/61670744.shtml)
+- 2026-06-29 13:57 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/8182893493.shtml)
+- 2026-06-29 14:05 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/25185789.shtml)
+- 2026-06-29 13:56 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/636285524945.shtml)
+- 2026-06-29 13:39 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/7341555121.shtml)
+- 2026-06-29 13:57 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/8677591185.shtml)
+- 2026-06-29 14:03 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/25077497387.shtml)
+- 2026-06-29 14:01 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/08626.shtml)

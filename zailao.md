@@ -1,60 +1,55 @@
-# 刘强东谈海外投资：不能想着好的时候赚钱，不好的时候赶紧走人
+# 中央气象台：今日浙江福建广东等地有大雨局地暴雨
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。 京东集团创始人、董事局主席刘强东在论坛上表示，企业在全球的竞争当中推动世界贸易发展，核心是企业做好企业该做的事情。 他介绍，京东集团20多年深耕供应链，跟供应链无关的事情从来不碰，集团所有的业务，100%围绕着供应链进行展开。
+中新网4月29日电 据中央气象台网站消息，昨日，江淮南部、江南、华南、西南地区东部等地部分地区出现大雨或暴雨，其中安徽南部、江西北部、湖南东南部、广东西南部和北部、广西东部等局地出现大暴雨，广东阳江局地特大暴雨(287.6～423.1毫米)；江西九江濂溪区、广西百色田东县等地日雨量突破月极值。 今天，南方强降水范围显著减小，强度明显减弱。但浙江南部、福建北部、广东东南部、台湾岛
 
 ## 正文
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
+中新网4月29日电 据中央气象台网站消息，昨日，江淮南部、江南、华南、西南地区东部等地部分地区出现大雨或暴雨，其中安徽南部、江西北部、湖南东南部、广东西南部和北部、广西东部等局地出现大暴雨，广东阳江局地特大暴雨(287.6～423.1毫米)；江西九江濂溪区、广西百色田东县等地日雨量突破月极值。
 
-京东集团创始人、董事局主席刘强东在论坛上表示，企业在全球的竞争当中推动世界贸易发展，核心是企业做好企业该做的事情。
+今天，南方强降水范围显著减小，强度明显减弱。
 
-他介绍，京东集团20多年深耕供应链，跟供应链无关的事情从来不碰，集团所有的业务，100%围绕着供应链进行展开。
+但浙江南部、福建北部、广东东南部、台湾岛北部等地部分地区仍有暴雨(50～80毫米)，并伴有短时强降水。
 
-京东在国内已经建立了相对比较完备的供应链体系，在中国大陆拥有3600座大型的物流中心，海外我们用5年的时间已经建成200座大型的物流中心，已经覆盖了主要的经济体。
+此外，尤其要关注广东中南部、海南岛西南部等地局地可能出现8级以上雷暴大风或冰雹天气。
 
-他谈到，京东在欧洲现在超过4000名员工，在英国，每天都在思考我们作为一个企业到英国投资，不能想着只是在欧洲，或者在英国如何赚钱，更应该想的是把企业的发展和当地的就业、税收、经济的发展共同连接起来。
+明天，除西藏东部、青海东部等地有明显降雨外，全国大部地区天气晴好，对五一节前出行十分有利，公众可以多关注五一期间天气情况，合理安排出行计划。
 
-在他看来，在企业的发展和当地的就业之间寻找平衡，企业就是踏踏实实的做好企业该做的事情，尊重当地的法律，文化，和当地的经济合二为一，“不能想着好的时候赚钱，不好的时候赶紧走人，不断为当地做贡献”他说。
-
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
-
-责任编辑：李思阳
+五一假期即将来临，气象专家提醒，假日前期江南、华南仍有降雨，公众在外出游玩时要关注天气情况，警惕强降雨或局地强对流天气对交通出行的不利影响，注意出行安全；假日后期全国大部地区天气晴好，公众在外要做好防暑、防晒措施。
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 13:36 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 13:31 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 13:40 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 13:35 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 13:48 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 13:41 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 13:44 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 13:41 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 13:57 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 13:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 13:40 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 13:53 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 13:34 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 13:36 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 13:54 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 13:38 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 13:36 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 13:51 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 13:43 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 13:55 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 13:52 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 14:00 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 13:48 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 13:51 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 13:43 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 13:56 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:49 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/1493572402.shtml)
-- 2026-06-29 13:44 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.kurohicncr.top/Article/details/57086.shtml)
-- 2026-06-29 13:36 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/767601606.shtml)
-- 2026-06-29 13:36 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/649649.shtml)
-- 2026-06-29 13:40 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.minike.top/Article/details/2887866.shtml)
-- 2026-06-29 13:47 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/469059.shtml)
-- 2026-06-29 13:53 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/737869561.shtml)
-- 2026-06-29 13:46 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/22540782392.shtml)
-- 2026-06-29 13:50 - [日本主帅：目标是冠军](https://www.share.minike.top/Article/details/981257.shtml)
-- 2026-06-29 13:31 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/985307681970.shtml)
-- 2026-06-29 13:48 - [四川宜宾地震](https://www.blog.minike.top/Article/details/33946.shtml)
-- 2026-06-29 13:30 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/38045988050.shtml)
-- 2026-06-29 13:31 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/6591858.shtml)
-- 2026-06-29 13:35 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/839963.shtml)
-- 2026-06-29 13:46 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/581164304935.shtml)
+- 2026-06-29 13:52 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/610091440.shtml)
+- 2026-06-29 13:56 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/98522225.shtml)
+- 2026-06-29 13:59 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.minike.top/Article/details/01966438.shtml)
+- 2026-06-29 13:48 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.minike.top/Article/details/53805911113.shtml)
+- 2026-06-29 13:59 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/151031.shtml)
+- 2026-06-29 13:44 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/85432407526.shtml)
+- 2026-06-29 13:54 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/77733379.shtml)
+- 2026-06-29 13:42 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/585010569393.shtml)
+- 2026-06-29 13:52 - [6月我国降水为何偏多](https://www.blog.minike.top/Article/details/961819.shtml)
+- 2026-06-29 13:57 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/50925182446.shtml)
+- 2026-06-29 13:47 - [5万块的威力](http://www.share.minike.top/Article/details/418758.shtml)
+- 2026-06-29 13:38 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/88767852796.shtml)
+- 2026-06-29 13:45 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/185112.shtml)
+- 2026-06-29 13:45 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/841508211162.shtml)
+- 2026-06-29 13:52 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/226049748.shtml)

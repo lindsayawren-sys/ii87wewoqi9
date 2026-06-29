@@ -1,61 +1,59 @@
-# 艺术体操世界挑战杯北京站：中国队夺个人和集体全能双冠
+# 2025年扣除后营业收入超过3亿元，*ST宇顺提交申请撤销退市风险警示
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新社北京6月20日电 (记者 国璇)20日在国家体育馆进行的2026年世界体操联合会艺术体操世界挑战杯(北京站)中，中国队夺得个人全能和集体全能两枚金牌。 个人项目中，在2025年世青赛为中国队收获史上首枚奖牌的小将王淇在球、圈两项资格赛中登场，分别得到27.45分和28.55分，加上前一日在棒、带两项资格赛分别得到27.75分和27.05分，以四项总分110.80分夺得个人
+4月28日盘后，深圳市宇顺电子股份有限公司（股票简称：*ST宇顺，股票代码：002289）发布2025年年报及2026年一季报。随着重大资产重组完成全部股权过户、标的资产正式纳入上市公司体系，公司2025年实现营业收入3.27亿元，同比增加48.64%；归母净利润和扣非净利润分别同比增加16.9%和26.36%，均大幅减亏；经营性现金流净额实现由负转正达到1.22亿元，同比大幅
 
 ## 正文
 
-中新社北京6月20日电 (记者 国璇)20日在国家体育馆进行的2026年世界体操联合会艺术体操世界挑战杯(北京站)中，中国队夺得个人全能和集体全能两枚金牌。
+4月28日盘后，深圳市宇顺电子股份有限公司（股票简称：*ST宇顺，股票代码：002289）发布2025年年报及2026年一季报。
 
-个人项目中，在2025年世青赛为中国队收获史上首枚奖牌的小将王淇在球、圈两项资格赛中登场，分别得到27.45分和28.55分，加上前一日在棒、带两项资格赛分别得到27.75分和27.05分，以四项总分110.80分夺得个人全能冠军。
+随着重大资产重组完成全部股权过户、标的资产正式纳入上市公司体系，公司2025年实现营业收入3.27亿元，同比增加48.64%；归母净利润和扣非净利润分别同比增加16.9%和26.36%，均大幅减亏；经营性现金流净额实现由负转正达到1.22亿元，同比大幅增加404.62%，经营质量与盈利结构持续优化。
 
-赛后王淇说，能和这个项目的高手俄罗斯选手同台竞争并获胜，自己非常高兴，但在器械难度等方面还有瑕疵，需要不断改进。
+进入2026年后经营持续向好，多项财务指标亮眼：*ST宇顺一季度实现营业收入2.65亿元，同比大幅增加480.44%；归母净利润4925.58万元，同比大幅增加4202.23%；扣非净利润4769.52万元，同比大幅增加9382.47%。
 
-对于明天的单项比赛，王淇希望自己以平常心看待。
+2025年，*ST宇顺在巩固原有核心业务的基础上，通过战略并购实现业务版图的重大拓展，切入 IDC 基础服务商赛道，构建起触控显示应用、气体检测仪器仪表、配电设备与数据中心基础设施服务三大业务格局。
 
-“努力发挥训练时的最好水平，不要想太多，该怎么做就怎么做。
+IDC 业务从无到有的突破性落地，是上市公司经营回暖的重要原因。
 
-” 队友王子露在比赛中出现失误，带操和棒操资格赛分获25.65分和25.45分，以四项总分106.20分位列第四。
+在*ST宇顺收购中恩云（北京）数据科技有限公司等三家数据中心标的公司100%股权（以下合称“中恩云”）的过程中，2025年11月执行标的公司过渡期管理措施取得控制权，重组实现实质性落地；2025年12月起，中恩云正式纳入上市公司合并报表范围，并于2026 年4 月完成100%股权过户登记。
 
-在今年欧锦赛夺冠的俄罗斯选手伊尔捷里亚科娃获得亚军，波兰选手莱温斯卡摘铜。
+得益于优质资产的并表，*ST宇顺2025年经营情况显著改善，新增IDC业务收入约8098.76万元，全年实现扣除后营业收入3.25亿元，远超退市相关规则中“扣除后营业收入低于3亿元”的警示红线。
 
-集体全能3圈2棒项目资格赛中，中国队的新成套节目《凛冬之战》以《权力的游戏》为创编灵感，由于出现失误，获得24.95分，在该项目中位列第三。
+由于相关财务指标符合申请对股票交易撤销退市风险警示的条件，4月28日，*ST宇顺向深交所提出对公司股票交易撤销退市风险警示的申请。
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 13:44 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 13:47 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 13:51 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 13:55 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 13:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 13:38 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 13:44 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 13:40 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 13:40 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 13:54 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 13:37 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 13:55 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 13:43 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 13:53 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 13:48 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 13:46 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 14:02 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 13:48 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 14:02 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 13:45 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 13:55 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 13:37 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 13:49 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 13:55 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 13:59 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 13:41 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 13:45 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/32413.shtml)
-- 2026-06-29 13:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/5549095.shtml)
-- 2026-06-29 13:34 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/26499.shtml)
-- 2026-06-29 13:49 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/86682.shtml)
-- 2026-06-29 13:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/82353.shtml)
-- 2026-06-29 13:47 - [三都主：淘汰赛我会支持日本](http://www.share.minike.top/Article/details/61518.shtml)
-- 2026-06-29 13:40 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/647281296601.shtml)
-- 2026-06-29 13:57 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/466347.shtml)
-- 2026-06-29 13:47 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/10121675.shtml)
-- 2026-06-29 13:33 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/21827.shtml)
-- 2026-06-29 13:51 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/96962.shtml)
-- 2026-06-29 13:57 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/600238.shtml)
-- 2026-06-29 13:48 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/56920479.shtml)
-- 2026-06-29 13:47 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/55766753156.shtml)
-- 2026-06-29 13:51 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/37692850.shtml)
+- 2026-06-29 13:39 - [水利部部署南方地区暴雨洪水防御工作](https://www.blog.kurohicncr.top/Article/details/52688047.shtml)
+- 2026-06-29 13:47 - [明星大侦探第四季](http://www.share.minike.top/Article/details/094515393.shtml)
+- 2026-06-29 13:41 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/328215.shtml)
+- 2026-06-29 13:42 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/896014.shtml)
+- 2026-06-29 13:49 - [3D打印不是工业革命，它是……](http://www.blog.kurohicncr.top/Article/details/9928489.shtml)
+- 2026-06-29 13:55 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/2298423.shtml)
+- 2026-06-29 14:03 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/892411442.shtml)
+- 2026-06-29 13:48 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/1204114994.shtml)
+- 2026-06-29 14:04 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.minike.top/Article/details/54481375.shtml)
+- 2026-06-29 14:00 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.kurohicncr.top/Article/details/689921.shtml)
+- 2026-06-29 14:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/190165363248.shtml)
+- 2026-06-29 13:52 - [王佳佳江疏影13年前后同框对比](http://www.blog.kurohicncr.top/Article/details/304666598359.shtml)
+- 2026-06-29 13:56 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/39571.shtml)
+- 2026-06-29 13:36 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/136889.shtml)
+- 2026-06-29 14:06 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/99604.shtml)

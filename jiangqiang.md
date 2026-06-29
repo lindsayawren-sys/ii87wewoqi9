@@ -1,57 +1,57 @@
-# 花旗：中国铝业重申“买入”评级 目标价为17.08港元
+# 山东省累计发放民营企业再贷款403亿元
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-花旗发布研报称，由于投资者担忧能源价格上涨背景下需求走弱，以及投资者资金配置从大宗商品板块转向AI相关科技板块，中国宏桥（01378）和中国铝业（02600）的股价表现均明显跑输铝价走势。与此同时，根据花旗近期与投资者的交流，市场又出现了一些新的担忧，包括印尼项目建设加速、以及担心中国电解铝产能天花板被突破。 对于市场的担忧，花旗表示，对于中国电解铝产能天花板被突破的担忧源于部
+中新网济南4月28日电 (记者 沙见龙)4月28日，中国人民银行山东省分行在济南举行2026年一季度山东省金融统计数据新闻发布会，发布解读山东省金融数据情况及该分行重点工作举措及成效。 中国人民银行山东省分行调查统计处副处长胡杰在介绍中提到，截至今年3月末，该省累计发放民营企业再贷款403亿元(人民币，下同)，带动该省地方法人金融机构一季度新增民营中小微企业贷款507亿元，其中
 
 ## 正文
 
-花旗发布研报称，由于投资者担忧能源价格上涨背景下需求走弱，以及投资者资金配置从大宗商品板块转向AI相关科技板块，中国宏桥（01378）和中国铝业（02600）的股价表现均明显跑输铝价走势。
+中新网济南4月28日电 (记者 沙见龙)4月28日，中国人民银行山东省分行在济南举行2026年一季度山东省金融统计数据新闻发布会，发布解读山东省金融数据情况及该分行重点工作举措及成效。
 
-与此同时，根据花旗近期与投资者的交流，市场又出现了一些新的担忧，包括印尼项目建设加速、以及担心中国电解铝产能天花板被突破。
+中国人民银行山东省分行调查统计处副处长胡杰在介绍中提到，截至今年3月末，该省累计发放民营企业再贷款403亿元(人民币，下同)，带动该省地方法人金融机构一季度新增民营中小微企业贷款507亿元，其中近八成投向制造业、批发零售业。
 
-对于市场的担忧，花旗表示，对于中国电解铝产能天花板被突破的担忧源于部分企业因高盈利水平而出现超产现象。
+今年1月中旬，中国人民银行推出一批货币金融政策，其中设立民营企业再贷款额度1万亿元。
 
-尽管中国有效产能上限已从4550万吨提升至4800万吨，但中国的产能上限不会发生变化。
+就此，山东建立民营企业再贷款落地工作机制，有效引导金融机构提升民营中小微企业金融服务质效。
 
-据该行了解，在中国这并不是普遍现象，因为大多数大型冶炼厂都会避免超出获批产能进行生产。
+据中国人民银行山东省分行货币政策处副处长刘春波介绍，2026年以来，该行深入推进金融支持民营企业发展各项工作。
 
-部分冶炼厂的超产行为本质上属于机会主义行为，从长期来看不可持续。
+民营企业再贷款政策出台以来，该行积极抓好政策落地，建规则、强宣传、优流程、聚合力，引导地方法人金融机构增强对民营中小微企业的支持力度。
 
-关于印尼项目建设加速，花旗指出，印尼项目加速推进将在2026至2027年带来290万吨新增铝产量，这一判断很可能是假设所有项目都能够按照项目业主宣称的计划实现全面达产。
+刘春波说，该行制定山东省民营企业再贷款实施细则，建立基于地方法人金融机构民营中小微企业贷款规模、增速等信贷投放效果的额度分配机制，发挥好政策激励引导作用。
 
-在进行供给预测时，直接按照项目储备规模进行测算通常会导致供应预期被高估。
+同时，指导地方法人金融机构建立健全内部管理制度，优化对民营中小微企业信贷投放的内部激励。
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 13:48 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 13:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 13:45 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 13:33 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 13:44 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 13:59 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 13:51 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 13:42 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 13:38 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 13:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 14:05 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 13:51 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 13:46 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 13:36 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 14:02 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 13:48 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 13:57 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 13:52 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 13:37 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 13:43 - [这位猫咪，请你自重！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 13:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/06005164.shtml)
-- 2026-06-29 13:35 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/51080.shtml)
-- 2026-06-29 13:50 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/03799.shtml)
-- 2026-06-29 13:39 - [俄称继续推进 乌称打击俄军设施](https://www.share.minike.top/Article/details/803975903.shtml)
-- 2026-06-29 13:46 - [天道](https://www.share.kurohicncr.top/Article/details/660108155908.shtml)
-- 2026-06-29 13:45 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/19911783987.shtml)
-- 2026-06-29 13:48 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/12033.shtml)
-- 2026-06-29 13:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/1420949179.shtml)
-- 2026-06-29 13:46 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/3731021.shtml)
-- 2026-06-29 13:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/99444118167.shtml)
-- 2026-06-29 13:31 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/7701787.shtml)
-- 2026-06-29 13:39 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/19959.shtml)
-- 2026-06-29 13:49 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/49201.shtml)
-- 2026-06-29 13:57 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/1808018001.shtml)
-- 2026-06-29 13:49 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/612614.shtml)
+- 2026-06-29 14:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/370598089.shtml)
+- 2026-06-29 13:48 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/41680887.shtml)
+- 2026-06-29 13:49 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/76527521.shtml)
+- 2026-06-29 13:49 - [异世界一点都不好玩！](http://www.blog.minike.top/Article/details/9202511.shtml)
+- 2026-06-29 13:53 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/031899799.shtml)
+- 2026-06-29 14:05 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/2809633.shtml)
+- 2026-06-29 13:51 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/894475842.shtml)
+- 2026-06-29 13:38 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/756247767339.shtml)
+- 2026-06-29 13:49 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/7848786.shtml)
+- 2026-06-29 13:57 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/10702081.shtml)
+- 2026-06-29 13:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/36825.shtml)
+- 2026-06-29 14:01 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/96924132.shtml)
+- 2026-06-29 13:41 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/1939819.shtml)
+- 2026-06-29 13:59 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/89729388.shtml)
+- 2026-06-29 13:47 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/5088220019.shtml)

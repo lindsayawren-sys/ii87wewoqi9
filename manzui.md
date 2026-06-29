@@ -1,50 +1,59 @@
-# 翱捷科技：公司先后为多个国内客户累计完成6颗大型云端芯片的设计与交付工作
+# 珠江流域多举措防御新一轮强降雨
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月18日，翱捷科技在互动平台回答投资者提问时表示，公司2018年起开展ASIC定制业务，先后为多个国内客户累计完成6颗大型云端芯片的设计与交付工作。且作为产品型芯片企业，公司拥有先进制程下超大规模复杂SoC设计能力、成熟的先进制程流片与量产经验、丰富自研IP储备，同时具备完善的量产保障及成本控制能力，能够高效助力客户快速实现产品落地。公司在定制业务承接方面目前并
+中新网广州4月28日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)28日消息，2026年全国防汛抗旱工作视频会议27日召开，全面部署防汛抗旱重点工作。会后，珠江委召开党组会，迅即传达贯彻全国防汛抗旱工作视频会议精神。会上介绍，目前，珠江已全面进入汛期，前期流域经历多轮强降雨过程，造成8条河流发生超警洪水。据预测，27至28日，广西大部、广东西北部等地将有强降雨过程，
 
 ## 正文
 
-证券日报网讯 6月18日，翱捷科技在互动平台回答投资者提问时表示，公司2018年起开展ASIC定制业务，先后为多个国内客户累计完成6颗大型云端芯片的设计与交付工作。
+中新网广州4月28日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)28日消息，2026年全国防汛抗旱工作视频会议27日召开，全面部署防汛抗旱重点工作。
 
-且作为产品型芯片企业，公司拥有先进制程下超大规模复杂SoC设计能力、成熟的先进制程流片与量产经验、丰富自研IP储备，同时具备完善的量产保障及成本控制能力，能够高效助力客户快速实现产品落地。
+会后，珠江委召开党组会，迅即传达贯彻全国防汛抗旱工作视频会议精神。
 
-公司在定制业务承接方面目前并不存在技术能力的瓶颈。
+会上介绍，目前，珠江已全面进入汛期，前期流域经历多轮强降雨过程，造成8条河流发生超警洪水。
 
-（文章来源：证券日报）
+据预测，27至28日，广西大部、广东西北部等地将有强降雨过程，累积降雨量达80至130毫米。
+
+会议要求，当前，广西钦州、北海等地发生局地强降雨，要紧盯流域雨水汛情发展，滚动预测预报和会商研判，突出做好短临降雨预警，科学调度防洪工程体系，切实抓好水库安全度汛，督促指导地方做好山洪灾害和中小河流洪水防御，最大限度减少灾害损失。
+
+会议指出，今年是“十五五”开局之年，做好防汛抗旱工作意义重大、责任重大。
+
+全委上下必须进一步增强责任感、紧迫感，全面落实国家防总、水利部工作要求，坚持人民至上、生命至上，清醒认识流域水旱灾害防御形势，强化组织领导，狠抓工作落实，以实际行动树立和践行正确政绩观。
+
+会议强调，要坚持问题导向、精准发力，体系化推进、系统化提升流域水旱灾害防御能力。
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 13:42 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 13:49 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 13:44 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 13:32 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 13:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 13:52 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 13:55 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 13:40 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 13:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 13:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 13:53 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 14:03 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 14:05 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 13:44 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 13:58 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 14:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 14:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 13:52 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 13:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 14:05 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 13:37 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 13:55 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 13:47 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 13:43 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [F1奥地利大奖赛正赛集锦](http://www.share.minike.top/Article/details/68370.shtml)
-- 2026-06-29 13:43 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/29670093104.shtml)
-- 2026-06-29 13:36 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/632716.shtml)
-- 2026-06-29 13:47 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/883135255855.shtml)
-- 2026-06-29 13:44 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/317083022.shtml)
-- 2026-06-29 13:51 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/9223939006.shtml)
-- 2026-06-29 13:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/217546779.shtml)
-- 2026-06-29 13:37 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/613749393662.shtml)
-- 2026-06-29 13:54 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/04551134.shtml)
-- 2026-06-29 13:41 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/201220827.shtml)
-- 2026-06-29 13:31 - [医护人员观影《四渡》传承长征精神](https://www.share.kurohicncr.top/Article/details/411016.shtml)
-- 2026-06-29 13:46 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/3829144548.shtml)
-- 2026-06-29 13:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/36042014246.shtml)
-- 2026-06-29 13:58 - [记者率先试乘西十高铁](http://www.share.minike.top/Article/details/7901677524.shtml)
-- 2026-06-29 13:48 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.kurohicncr.top/Article/details/9748306934.shtml)
+- 2026-06-29 14:04 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/240040102419.shtml)
+- 2026-06-29 14:03 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/2588785435.shtml)
+- 2026-06-29 13:48 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/3032471589.shtml)
+- 2026-06-29 13:41 - [F1奥地利大奖赛正赛集锦](https://www.blog.minike.top/Article/details/08922.shtml)
+- 2026-06-29 13:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/33245.shtml)
+- 2026-06-29 13:43 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/22646954.shtml)
+- 2026-06-29 14:00 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/01729704.shtml)
+- 2026-06-29 13:43 - [一见倾心](http://www.blog.minike.top/Article/details/359172854939.shtml)
+- 2026-06-29 13:48 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.minike.top/Article/details/54259617.shtml)
+- 2026-06-29 14:05 - [海清白玉兰奖运](https://www.blog.kurohicncr.top/Article/details/1662207.shtml)
+- 2026-06-29 13:39 - [伊朗球员致歉](http://www.share.kurohicncr.top/Article/details/64083153471.shtml)
+- 2026-06-29 13:41 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/506588.shtml)
+- 2026-06-29 13:56 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/737647699.shtml)
+- 2026-06-29 13:48 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/294747.shtml)
+- 2026-06-29 13:56 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/309942016041.shtml)

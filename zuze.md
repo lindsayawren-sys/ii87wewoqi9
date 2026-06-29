@@ -1,56 +1,57 @@
-# 银保AI安全开发应用指导意见出台：精细化准入管理，划定个人信息保护红线
+# 成都多家茶楼食品经营不合规被投诉举报 监管部门责令整改
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 安震 6月18日，国家金融监督管理总局公开发布《关于银行业保险业人工智能安全开发应用的指导意见》（以下简称《指导意见》）。界面新闻注意到，这是2026年首份针对金融行业人工智能安全开发的专项指导文件。 有关司局负责人在答记者问中指出， 该《指导意见》 出台旨在贯彻国家“人工智能+”行动与“十五五”规划纲要，针对部分机构“为新而新、为用而用”的盲目跟风倾向进行纠
+中新网成都4月29日电 (记者 刘忠俊)4月29日，成都市市场监管局就近期该市多家茶楼因“未办食品经营许可证泡茶、售卖零食”等问题遭投诉举报一事作出回应，明确已组织相关区(市)县市场监管部门开展调查处理，并部署专项排查、整改指导等后续工作。近期，成都市部分区(市)县市场监管局陆续收到集中投诉举报，反映当地部分茶楼存在“未取得食品经营许可”从事食品经营活动的情况。接到投诉后，成都
 
 ## 正文
 
-界面新闻记者 | 安震 6月18日，国家金融监督管理总局公开发布《关于银行业保险业人工智能安全开发应用的指导意见》（以下简称《指导意见》）。
+中新网成都4月29日电 (记者 刘忠俊)4月29日，成都市市场监管局就近期该市多家茶楼因“未办食品经营许可证泡茶、售卖零食”等问题遭投诉举报一事作出回应，明确已组织相关区(市)县市场监管部门开展调查处理，并部署专项排查、整改指导等后续工作。
 
-界面新闻注意到，这是2026年首份针对金融行业人工智能安全开发的专项指导文件。
+近期，成都市部分区(市)县市场监管局陆续收到集中投诉举报，反映当地部分茶楼存在“未取得食品经营许可”从事食品经营活动的情况。
 
-有关司局负责人在答记者问中指出， 该《指导意见》 出台旨在贯彻国家“人工智能+”行动与“十五五”规划纲要，针对部分机构“为新而新、为用而用”的盲目跟风倾向进行纠偏，引导金融业AI重回“务实高效”与“业务价值”导向。
+接到投诉后，成都市市场监管局迅速统筹部署，组织相关区(市)县市场监管局开展专项调查处理工作。
 
-精细化高风险应用准入管理 《指导意见》明确，金融机构安全开发应用人工智能应该遵循四大原则： 一是坚持谁使用谁负责，压实金融机构作为金融服务提供方、人工智能技术使用方的主体责任，明确人工智能开发应用各方分工和权责义务； 二是坚持自主可控； 三是坚持务实高效，以提升业务价值为导向，科学规划人工智能开发应用投入，有效平衡成本与效益； 四是坚持安全发展，严格落实国家网络安全和信息化工作要求，遵守网络安全、数据安全各项法律法规制度 此次《指导意见》的核心亮点之一，是首次提出了精细化的高风险应用准入管理，并对“高风险应用场景”进行了清晰的界定。
+根据《中华人民共和国食品安全法》《四川省食品安全条例》相关规定，从事食品生产、食品销售、餐饮服务，应当依法取得许可或者备案。
 
-新规明确，涉及资金交易、资产评估、信贷审批、承保理赔、风险管理，以及直接影响金融合约达成的场景，均被列为“高风险应用”。
+其中，对未按规定备案的商家，责令限期改正；对未取得食品经营许可的初次违法行为，若符合市场监管总局《市场监管行政违法行为首违不罚清单(一)》相关条件，可依法不予处罚。
 
-针对高风险场景，这类场景必须经机构风险管理委员会批准；面向公众或高风险场景使用生成式AI的，必须向金融监管总局或其派出机构报告；在高风险应用关键环节建立人工监督和干预机制，明确紧急停用及模型退出条件。
+目前，成都市市场监管局已责成各区(市)县市场监管局，在全市范围内开展棋牌室、茶楼专项排查工作。
 
-最后，涉及关键决策时，必须设置人工复核节点。
+经查，部分茶楼确实存在未取得食品经营许可或未按规定备案从事食品经营的行为。
 
-一位国有大行软件开发人士对界面新闻表示，《指导意见》总的来说保持了乐观和审慎的态度、“金融机构还是应该以安全为底线，不能完全依赖大模型做出的决策。
+针对此类商家，市场监管部门已依法责令其整改，并逐一指导其补办食品经营许可证或按规定完成备案。
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 13:47 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 13:54 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 13:44 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 13:53 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 13:33 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 13:31 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 13:57 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 13:41 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 13:50 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 13:41 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 14:05 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 13:49 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 13:50 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 13:54 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 14:04 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 13:57 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 13:50 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 14:01 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 13:43 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 13:58 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:31 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/31340153123.shtml)
-- 2026-06-29 13:56 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/85564.shtml)
-- 2026-06-29 13:36 - [美的空调 卡bug](http://www.share.minike.top/Article/details/72792.shtml)
-- 2026-06-29 13:58 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/954886.shtml)
-- 2026-06-29 13:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/87904995555.shtml)
-- 2026-06-29 13:33 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/922221874310.shtml)
-- 2026-06-29 13:49 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/665164692.shtml)
-- 2026-06-29 13:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/2537239289.shtml)
-- 2026-06-29 13:38 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/13471652369.shtml)
-- 2026-06-29 13:33 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.minike.top/Article/details/80664478928.shtml)
-- 2026-06-29 13:58 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/109331983.shtml)
-- 2026-06-29 13:55 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/592854.shtml)
-- 2026-06-29 13:56 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.kurohicncr.top/Article/details/637176.shtml)
-- 2026-06-29 13:41 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.minike.top/Article/details/01957337.shtml)
-- 2026-06-29 13:42 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/292036945058.shtml)
+- 2026-06-29 13:57 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/026198865.shtml)
+- 2026-06-29 13:59 - [强⁶](http://www.blog.kurohicncr.top/Article/details/151432005.shtml)
+- 2026-06-29 13:37 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/9829607.shtml)
+- 2026-06-29 13:48 - [流金岁月](http://www.blog.minike.top/Article/details/5147681332.shtml)
+- 2026-06-29 13:43 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/66503762202.shtml)
+- 2026-06-29 14:03 - [一见倾心](https://www.blog.minike.top/Article/details/628566.shtml)
+- 2026-06-29 13:38 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/38631001014.shtml)
+- 2026-06-29 13:40 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/159254053.shtml)
+- 2026-06-29 13:46 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.minike.top/Article/details/17765990991.shtml)
+- 2026-06-29 13:42 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/59308480.shtml)
+- 2026-06-29 13:47 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.kurohicncr.top/Article/details/63982146.shtml)
+- 2026-06-29 13:55 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.minike.top/Article/details/84562.shtml)
+- 2026-06-29 14:05 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/037637139902.shtml)
+- 2026-06-29 13:48 - [叶一茜森碟一起回北京了](https://www.blog.kurohicncr.top/Article/details/979694716.shtml)
+- 2026-06-29 13:43 - [F1奥地利大奖赛正赛集锦](https://www.share.kurohicncr.top/Article/details/04503.shtml)

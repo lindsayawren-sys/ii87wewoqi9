@@ -1,61 +1,44 @@
-# 中国南方迎来新一轮持续强降雨 多部门会商部署防范应对
+# 联合国：霍尔木兹海峡相关船舶通行量下降95.3%
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新社北京6月18日电 (记者 陈溯)记者18日从中国应急管理部获悉，中国南方多地迎来新一轮持续强降雨过程，多部门会商部署防范应对。 18日，国家防汛抗旱总指挥部办公室、应急管理部组织多部门联合会商，研判近期降雨发展趋势，研究部署重点地区防汛工作。国家防总启动针对湖北、安徽的防汛四级应急响应，将针对广西的防汛三级应急响应降至四级，维持针对浙江、江西、湖南、广东、重庆、贵州、云南
+当地时间4月28日，联合国秘书长发言人迪雅里克在例行记者会上表示，根据联合国贸易和发展会议(UNCTAD)新推出的在线追踪看板，自2月28日以来，与霍尔木兹海峡相关的船舶通行量下降了95.3%，与此同时，全球大宗食品价格上涨了6%，欧洲原油价格上涨了53%。(央视记者 曹健)
 
 ## 正文
 
-中新社北京6月18日电 (记者 陈溯)记者18日从中国应急管理部获悉，中国南方多地迎来新一轮持续强降雨过程，多部门会商部署防范应对。
+当地时间4月28日，联合国秘书长发言人迪雅里克在例行记者会上表示，根据联合国贸易和发展会议(UNCTAD)新推出的在线追踪看板，自2月28日以来，与霍尔木兹海峡相关的船舶通行量下降了95.3%，与此同时，全球大宗食品价格上涨了6%，欧洲原油价格上涨了53%。
 
-18日，国家防汛抗旱总指挥部办公室、应急管理部组织多部门联合会商，研判近期降雨发展趋势，研究部署重点地区防汛工作。
-
-国家防总启动针对湖北、安徽的防汛四级应急响应，将针对广西的防汛三级应急响应降至四级，维持针对浙江、江西、湖南、广东、重庆、贵州、云南的防汛四级应急响应。
-
-会商指出，18日起，随着主雨带北抬，长江、淮河、太湖流域将迎来新一轮持续强降雨过程，降雨范围大、持续时间长且伴有短时强对流天气，此外，珠江流域“龙舟水”也将持续。
-
-会商强调，要抓好人员转移避险，做到应转尽转、应转早转。
-
-落实预警响应闭环，压实预警“叫应”、预警响应联动两项核心机制，严格执行高级别预警必响应刚性要求，各有关部门要加密联合会商，实现信息互通、响应同步、措施协同。
-
-聚焦山洪和地质灾害、中小河流洪水、中小水库度汛、城市内涝等，针对性做好各项防御措施。
-
-各级防汛抗旱指挥部门要高效运转，各级防汛责任人特别是包乡包村干部提前下沉一线，相关部门要加强行业监管和专业指导，确保责任链条无缝衔接。
+(央视记者 曹健)
 
 ## 相关推荐
 
-- 2026-06-29 13:51 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 13:48 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 13:38 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 13:35 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 13:41 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 13:36 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 13:41 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 13:57 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 13:33 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 13:31 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 13:47 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 13:43 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 13:56 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 13:32 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 13:47 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 13:46 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 13:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 13:37 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 13:37 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 13:57 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 13:52 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 14:02 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 14:02 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 13:40 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 14:00 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/45130438669.shtml)
-- 2026-06-29 13:41 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/02760291.shtml)
-- 2026-06-29 13:49 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/89132319.shtml)
-- 2026-06-29 13:54 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/118384.shtml)
-- 2026-06-29 13:48 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/786566986547.shtml)
-- 2026-06-29 13:55 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/136527781418.shtml)
-- 2026-06-29 13:30 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/435240.shtml)
-- 2026-06-29 13:30 - [恋与深空需直面玩家6大疑问](http://www.share.kurohicncr.top/Article/details/845818818.shtml)
-- 2026-06-29 13:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/7611405.shtml)
-- 2026-06-29 13:42 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/176462.shtml)
-- 2026-06-29 13:33 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/94397571.shtml)
-- 2026-06-29 13:50 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/1546351576.shtml)
-- 2026-06-29 13:51 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.kurohicncr.top/Article/details/22130955.shtml)
-- 2026-06-29 13:30 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.kurohicncr.top/Article/details/56846.shtml)
-- 2026-06-29 13:41 - [曾沛慈夺冠后人气](http://www.blog.minike.top/Article/details/123236597.shtml)
+- 2026-06-29 13:54 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/53371581534.shtml)
+- 2026-06-29 14:01 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.kurohicncr.top/Article/details/01511.shtml)
+- 2026-06-29 14:02 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/33351363190.shtml)
+- 2026-06-29 13:48 - [当我回母校教书](https://www.share.minike.top/Article/details/863938858299.shtml)
+- 2026-06-29 13:49 - [我们注定是一撮县城葱姜蒜](http://www.share.minike.top/Article/details/81270.shtml)
+- 2026-06-29 14:04 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/236465484.shtml)
+- 2026-06-29 13:54 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/70972.shtml)
+- 2026-06-29 14:00 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/078741635000.shtml)
+- 2026-06-29 13:36 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/34461491.shtml)
+- 2026-06-29 13:41 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/6132770649.shtml)
+- 2026-06-29 14:02 - [伊朗球员致歉](https://www.blog.minike.top/Article/details/22782171740.shtml)
+- 2026-06-29 13:48 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/993506626.shtml)
+- 2026-06-29 13:59 - [世界杯用球成部分门将噩梦](http://www.share.minike.top/Article/details/083333134324.shtml)
+- 2026-06-29 13:51 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/6884408079.shtml)
+- 2026-06-29 13:46 - [强⁶](https://www.share.minike.top/Article/details/265397641.shtml)

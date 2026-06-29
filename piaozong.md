@@ -1,59 +1,58 @@
-# 美媒：美伊谈判将聚焦核问题和以黎局势
+# 评级展望上调印证中国经济强大韧性
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-新华社华盛顿6月20日电 据美国媒体20日报道，即将在瑞士举行的美伊谈判将聚焦伊朗核问题、以色列和黎巴嫩局势。 美国阿克西奥斯新闻网站20日援引两名地区知情人士的话报道称，美方希望通过首轮谈判促成伊方允许联合国核查人员访问曾遭美国和以色列轰炸的核设施。作为交换，美方将允许伊方动用部分被冻结资金用于购买人道主义物资。 美国哥伦比亚广播公司同日援引一名参与谈判的外交人员的话说，首轮
+“我考察了中国人工智能发展，美国无法赢得这场竞赛。”近日，美国外交关系协会高级研究员马拉比在《纽约时报》发文如此感慨。 而在北京车展期间，中国一家车企巨头高管接受外媒采访时直言：“如今，即使没有美国市场，我们也能生存并取得成功。” 两个真实片段，看似互不相关，实则是当下中国经济活力与韧性的缩影。 这份活力与韧性，有目共睹。4月27日，穆迪国际信用评级公司发布最新报告，明确维持中
 
 ## 正文
 
-新华社华盛顿6月20日电 据美国媒体20日报道，即将在瑞士举行的美伊谈判将聚焦伊朗核问题、以色列和黎巴嫩局势。
+“我考察了中国人工智能发展，美国无法赢得这场竞赛。
 
-美国阿克西奥斯新闻网站20日援引两名地区知情人士的话报道称，美方希望通过首轮谈判促成伊方允许联合国核查人员访问曾遭美国和以色列轰炸的核设施。
+”近日，美国外交关系协会高级研究员马拉比在《纽约时报》发文如此感慨。
 
-作为交换，美方将允许伊方动用部分被冻结资金用于购买人道主义物资。
+而在北京车展期间，中国一家车企巨头高管接受外媒采访时直言：“如今，即使没有美国市场，我们也能生存并取得成功。
 
-美国哥伦比亚广播公司同日援引一名参与谈判的外交人员的话说，首轮谈判议程中已增加了一场关于黎巴嫩真主党与以色列停火问题的紧急会议。
+” 两个真实片段，看似互不相关，实则是当下中国经济活力与韧性的缩影。
 
-美国副总统万斯20日启程前往瑞士出席与伊朗方面的谈判。
+这份活力与韧性，有目共睹。
 
-万斯在出发前对媒体说，他预计在瑞士停留一到两天，希望谈判在伊朗核问题、黎巴嫩战线停火等方面取得进展。
+4月27日，穆迪国际信用评级公司发布最新报告，明确维持中国“A1”主权信用评级不变，并将展望从“负面”上调至“稳定”。
 
-首轮谈判旨在“确立实际架构和谈判机制”，技术专家层面的工作级别磋商可能在首轮高级别谈判结束后继续在瑞士进行。
+调整理由很清晰：中国具备应对国内外挑战的经济和财政实力。
 
-瑞士外交部20日在社交平台上发文欢迎伊朗代表团抵达瑞士。
+对此，中国财政部回应称，这次评级体现了穆迪高度认可中国宏观经济和财政实力在外部冲击下展现出的强大韧性、以及中国经济高质量发展的新动能和新进展。
 
 ## 相关推荐
 
-- 2026-06-29 13:57 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 13:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 13:30 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 13:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 13:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 13:39 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 13:31 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 13:35 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 13:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 13:58 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 13:38 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 13:42 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 13:38 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 13:37 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 14:05 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 13:57 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 13:41 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 14:01 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 14:03 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 13:36 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 13:48 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 13:58 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 13:52 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 13:54 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 14:05 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/7392489635.shtml)
-- 2026-06-29 13:59 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.kurohicncr.top/Article/details/1102281.shtml)
-- 2026-06-29 13:46 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/06760.shtml)
-- 2026-06-29 13:55 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/468662.shtml)
-- 2026-06-29 13:58 - [韩媒破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/68748.shtml)
-- 2026-06-29 13:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/81676629691.shtml)
-- 2026-06-29 13:52 - [DSpark论文深度解读](https://www.share.minike.top/Article/details/302276.shtml)
-- 2026-06-29 13:36 - [AG 钟意](http://www.share.kurohicncr.top/Article/details/572381183791.shtml)
-- 2026-06-29 13:45 - [美媒：空警-3000服役即成全球最强](http://www.blog.kurohicncr.top/Article/details/929702.shtml)
-- 2026-06-29 13:52 - [TOP 无畏契约](https://www.share.kurohicncr.top/Article/details/319637.shtml)
-- 2026-06-29 13:32 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/759116339.shtml)
-- 2026-06-29 13:32 - [Mrbeast的30天不吃饭挑战](https://www.blog.kurohicncr.top/Article/details/69999.shtml)
-- 2026-06-29 13:34 - [2025年人口增长10强城市出炉](http://www.blog.kurohicncr.top/Article/details/88511083.shtml)
-- 2026-06-29 13:46 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/905294210088.shtml)
-- 2026-06-29 13:54 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/43663.shtml)
+- 2026-06-29 14:01 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.kurohicncr.top/Article/details/5759661855.shtml)
+- 2026-06-29 13:47 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/29355.shtml)
+- 2026-06-29 13:51 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/20051170658.shtml)
+- 2026-06-29 14:04 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/430822.shtml)
+- 2026-06-29 13:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/77378310.shtml)
+- 2026-06-29 13:50 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/026537828.shtml)
+- 2026-06-29 14:04 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.share.kurohicncr.top/Article/details/83532025.shtml)
+- 2026-06-29 14:05 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/155482696.shtml)
+- 2026-06-29 13:51 - [AG 钟意](http://www.share.minike.top/Article/details/57834801.shtml)
+- 2026-06-29 14:01 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/7405995.shtml)
+- 2026-06-29 13:55 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/0205185.shtml)
+- 2026-06-29 13:56 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/15024947220.shtml)
+- 2026-06-29 13:36 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/1798820.shtml)
+- 2026-06-29 14:02 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/82959624749.shtml)
+- 2026-06-29 13:51 - [王楚钦周启豪爆分](https://www.share.minike.top/Article/details/651645975.shtml)

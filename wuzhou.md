@@ -1,57 +1,56 @@
-# 卧安机器人根据H股激励计划建议进一步于市场上购买H股
+# 芬兰Kone拟斥资约240亿美元收购TK Elevator
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-卧安机器人（06600）发布公告，内容有关采纳H股激励计划及购买H股。公司已委任受托人管理该计划，并根据该计划规则于市场上不时购买H股，用作日后授出奖励股份。 董事会对集团的经营表现、长期发展前景及H股的投资价值充满信心，认为公司H股估值偏低，目前市价未能充分反映公司的基本面及长期增长潜力，现时乃根据该计划进一步储备奖励股份的适当时机。公司目前预期以不超过五亿港元的总代价进行进
+芬兰Kone同意从私募机构Advent与Cinven牵头的财团手中，以约236.6亿美元价格收购德国竞争对手TK Elevator，该交易落地后，将打造全球营收规模第一的电梯制造商。 根据交易协议，Kone将向财团支付约50亿欧元现金，外加至多2.7亿欧元的Kone新发股份，Kone当前总市值约152亿欧元。 若纳入债务计算，本次交易对TK Elevator的整体估值约294亿
 
 ## 正文
 
-卧安机器人（06600）发布公告，内容有关采纳H股激励计划及购买H股。
+芬兰Kone同意从私募机构Advent与Cinven牵头的财团手中，以约236.6亿美元价格收购德国竞争对手TK Elevator，该交易落地后，将打造全球营收规模第一的电梯制造商。
 
-公司已委任受托人管理该计划，并根据该计划规则于市场上不时购买H股，用作日后授出奖励股份。
+根据交易协议，Kone将向财团支付约50亿欧元现金，外加至多2.7亿欧元的Kone新发股份，Kone当前总市值约152亿欧元。
 
-董事会对集团的经营表现、长期发展前景及H股的投资价值充满信心，认为公司H股估值偏低，目前市价未能充分反映公司的基本面及长期增长潜力，现时乃根据该计划进一步储备奖励股份的适当时机。
+若纳入债务计算，本次交易对TK Elevator的整体估值约294亿欧元。
 
-公司目前预期以不超过五亿港元的总代价进行进一步股份购买。
+Kone表示，合并后的集团总部仍设在芬兰，年销售额约205亿欧元，员工总数超10万人。
 
-如未来公司股价依然被低估，公司可在考虑所有有关情况后，进一步拨付额外资金进行股份购买以支持未来计划的实施。
+2025年，电梯企业Otis Worldwide营收达144亿美元，Schindler Holding收为139亿美元。
 
-责任编辑：卢昱君
+此次并购预计每年可产生7亿欧元协同收益。
+
+Kone首席执行官Philippe Delorme表示：“在行业快速变革的环境下，本次合并将大幅提升我们的能力，更好满足客户对于可靠、可持续解决方案与服务的增长需求。
+
+” “同时还将加速我们向服务与设备现代化业务的战略转型，增强企业抗风险能力。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 13:47 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 13:48 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 13:58 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 13:36 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 13:43 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 13:40 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 13:47 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 13:46 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 13:36 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 13:59 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 13:47 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 13:52 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 13:32 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 13:38 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 13:46 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 14:04 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 13:36 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 13:53 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 13:56 - [T1对战KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 13:45 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 13:43 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 13:36 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 14:04 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 13:56 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:33 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/4582238291.shtml)
-- 2026-06-29 13:52 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/474412.shtml)
-- 2026-06-29 13:31 - [一见倾心](http://www.share.minike.top/Article/details/4112445005.shtml)
-- 2026-06-29 13:40 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/14781.shtml)
-- 2026-06-29 13:52 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/51492369683.shtml)
-- 2026-06-29 13:59 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/83330435.shtml)
-- 2026-06-29 13:55 - [中国战机大片上新](https://www.blog.minike.top/Article/details/16470678010.shtml)
-- 2026-06-29 13:54 - [5万块的威力](http://www.blog.minike.top/Article/details/350987795023.shtml)
-- 2026-06-29 13:43 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/666488.shtml)
-- 2026-06-29 13:37 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/2503789890.shtml)
-- 2026-06-29 13:40 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/471704.shtml)
-- 2026-06-29 13:59 - [T1零封KC MSI](https://www.share.minike.top/Article/details/7542505023.shtml)
-- 2026-06-29 13:35 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/50300403.shtml)
-- 2026-06-29 13:41 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/089102509643.shtml)
-- 2026-06-29 13:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/555768.shtml)
+- 2026-06-29 13:36 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/520835114747.shtml)
+- 2026-06-29 14:02 - [A股](http://www.share.kurohicncr.top/Article/details/14888730626.shtml)
+- 2026-06-29 14:03 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/50531.shtml)
+- 2026-06-29 13:56 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/8104547901.shtml)
+- 2026-06-29 13:59 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/704974731.shtml)
+- 2026-06-29 13:46 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/6555296.shtml)
+- 2026-06-29 13:39 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/295189851.shtml)
+- 2026-06-29 13:47 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/5746183.shtml)
+- 2026-06-29 13:38 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/893829017660.shtml)
+- 2026-06-29 13:44 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/643964.shtml)
+- 2026-06-29 14:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/48920.shtml)
+- 2026-06-29 13:49 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/65316983.shtml)
+- 2026-06-29 13:47 - [多只A股发布股价异动公告](http://www.share.kurohicncr.top/Article/details/798508463.shtml)
+- 2026-06-29 13:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/5383591.shtml)
+- 2026-06-29 13:41 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/28479.shtml)

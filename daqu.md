@@ -1,47 +1,46 @@
-# 湖南凤凰古城上演端午“抢鸭子大战” 吸引中外游客齐上阵
+# 农达案在美国最高法院审理
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月20日 13:48 来源：中国新闻网 6月19日，湖南湘西，端午佳节，湘西凤凰古城举办端午传统抢鸭子活动，本地居民与海内外游客纷纷跳入河中，争抢从吊脚楼上抛下的500只活鸭。这项端午活动源自农耕文化，也是当地标志性文旅活动。(肖昕翔 侯一帆 制作 李盈) 责任编辑：【罗攀】
+美国最高法院就联邦法律是否优先于各州就Roundup草甘膦提起的“未发出警告”诉讼听取了辩论，这对面临数千起索赔的拜耳来说是一个关键案件。责任编辑：张俊 SF065
 
 ## 正文
 
-发布时间：2026年06月20日 13:48 来源：中国新闻网 6月19日，湖南湘西，端午佳节，湘西凤凰古城举办端午传统抢鸭子活动，本地居民与海内外游客纷纷跳入河中，争抢从吊脚楼上抛下的500只活鸭。
+美国最高法院就联邦法律是否优先于各州就Roundup草甘膦提起的“未发出警告”诉讼听取了辩论，这对面临数千起索赔的拜耳来说是一个关键案件。
 
-这项端午活动源自农耕文化，也是当地标志性文旅活动。
-
-(肖昕翔 侯一帆 制作 李盈) 责任编辑：【罗攀】
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 13:54 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 13:42 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 13:52 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 13:43 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 13:46 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 13:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 13:50 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 13:53 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 13:41 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 13:50 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 13:35 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 13:56 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 13:50 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 13:55 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 13:57 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 13:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 13:46 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 13:36 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 13:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 13:40 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 13:59 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 13:49 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 13:58 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/13370.shtml)
-- 2026-06-29 13:30 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/327266.shtml)
-- 2026-06-29 13:54 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/4146538355.shtml)
-- 2026-06-29 13:38 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/6109232.shtml)
-- 2026-06-29 13:45 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/1507868.shtml)
-- 2026-06-29 13:45 - [A股](https://www.share.minike.top/Article/details/10737.shtml)
-- 2026-06-29 13:42 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/45974.shtml)
-- 2026-06-29 13:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/64471167.shtml)
-- 2026-06-29 13:53 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/0024332069.shtml)
-- 2026-06-29 13:38 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/4543395934.shtml)
-- 2026-06-29 13:49 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/46289615091.shtml)
-- 2026-06-29 13:32 - [急先锋](https://www.blog.kurohicncr.top/Article/details/1837310363.shtml)
-- 2026-06-29 13:56 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.kurohicncr.top/Article/details/310195566901.shtml)
-- 2026-06-29 13:31 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/73155451189.shtml)
-- 2026-06-29 13:31 - [沙丘](https://www.share.minike.top/Article/details/374069363.shtml)
+- 2026-06-29 13:37 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/027081536.shtml)
+- 2026-06-29 13:38 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/17970750393.shtml)
+- 2026-06-29 13:48 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/5602995013.shtml)
+- 2026-06-29 14:00 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/252034347075.shtml)
+- 2026-06-29 14:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/41331910.shtml)
+- 2026-06-29 14:05 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/21116593.shtml)
+- 2026-06-29 13:36 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/86047526.shtml)
+- 2026-06-29 13:56 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/268102535.shtml)
+- 2026-06-29 13:54 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/76318297964.shtml)
+- 2026-06-29 13:42 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/8429331.shtml)
+- 2026-06-29 13:55 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/79901708.shtml)
+- 2026-06-29 13:50 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/725747669.shtml)
+- 2026-06-29 13:51 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/7819768082.shtml)
+- 2026-06-29 14:05 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/98929067558.shtml)
+- 2026-06-29 13:56 - [市民骑哈啰单车79分钟付30元](https://www.share.kurohicncr.top/Article/details/52893420903.shtml)

@@ -1,49 +1,52 @@
-# “东北超”首场“辽宁德比”开赛
+# 阿迪达斯一季度营业利润增长16%，超预期
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 12:58 来源：中国新闻网 6月20日，2026东北地区城市足球联赛第三轮焦点战—大连队主场迎战沈阳队的“辽宁德比”开赛。这是”东北超“成立以来首次上演同省双城对决，吸引全国各地逾6万名球迷观赛。 (王翕瞳 杨毅 李雪飞 王涵) 责任编辑：【李季】
+德国体育用品巨头阿迪达斯周三公布第一季度营业利润超出预期，得益于强劲的需求，尽管该公司CEO比约恩·古尔登称零售环境“波动剧烈且折扣力度很大”，尤其是在运动鞋领域。 阿迪达斯表示，尽管受中东地区冲突的影响，部分国家的销售额出现下滑，但集团净销售额按固定汇率计算仍增长了14%，达到66亿欧元（77亿美元）。 阿迪达斯表示，公司正在严格控制向零售商的销售量，以避免运动鞋不得不打折出
 
 ## 正文
 
-发布时间：2026年06月21日 12:58 来源：中国新闻网 6月20日，2026东北地区城市足球联赛第三轮焦点战—大连队主场迎战沈阳队的“辽宁德比”开赛。
+德国体育用品巨头阿迪达斯周三公布第一季度营业利润超出预期，得益于强劲的需求，尽管该公司CEO比约恩·古尔登称零售环境“波动剧烈且折扣力度很大”，尤其是在运动鞋领域。
 
-这是”东北超“成立以来首次上演同省双城对决，吸引全国各地逾6万名球迷观赛。
+阿迪达斯表示，尽管受中东地区冲突的影响，部分国家的销售额出现下滑，但集团净销售额按固定汇率计算仍增长了14%，达到66亿欧元（77亿美元）。
 
-(王翕瞳 杨毅 李雪飞 王涵) 责任编辑：【李季】
+阿迪达斯表示，公司正在严格控制向零售商的销售量，以避免运动鞋不得不打折出售。
+
+其美国竞争对手耐克本月早些时候表示，公司正在“积极”降价促销，以清理未售出的库存。
+
+阿迪达斯第一季度的营业利润增长16%，达到7.05亿欧元，高于公司委托进行的分析师调查预测的6.47亿欧元，也高于上年同期的6.1亿欧元。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 13:35 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 13:38 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 13:58 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 13:31 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 13:52 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 13:54 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 13:32 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 13:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 13:49 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 13:51 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 13:45 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 13:42 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 13:40 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 14:00 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 13:55 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 13:39 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 13:50 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 14:00 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 13:57 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 13:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 13:38 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 13:44 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 14:04 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.kurohicncr.top/Article/details/0103286904.shtml)
-- 2026-06-29 13:45 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/1021781.shtml)
-- 2026-06-29 13:57 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.minike.top/Article/details/203620.shtml)
-- 2026-06-29 13:55 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/39159374451.shtml)
-- 2026-06-29 13:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/21950.shtml)
-- 2026-06-29 13:50 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/225218222.shtml)
-- 2026-06-29 13:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/497102613293.shtml)
-- 2026-06-29 13:30 - [王楚钦3-0周启豪 晋级32强](http://www.blog.minike.top/Article/details/936141717513.shtml)
-- 2026-06-29 13:52 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/8538199.shtml)
-- 2026-06-29 13:39 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/76241515.shtml)
-- 2026-06-29 13:42 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.minike.top/Article/details/07244234008.shtml)
-- 2026-06-29 13:31 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/59948277442.shtml)
-- 2026-06-29 13:31 - [韩国政府将对世界杯出局追责](http://www.share.kurohicncr.top/Article/details/638916477.shtml)
-- 2026-06-29 13:32 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/1260574860.shtml)
-- 2026-06-29 13:54 - [王佳佳江疏影13年前后同框对比](https://www.blog.minike.top/Article/details/2125137953.shtml)
+- 2026-06-29 13:52 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.kurohicncr.top/Article/details/101612964161.shtml)
+- 2026-06-29 13:46 - [灿如繁星定档](http://www.share.minike.top/Article/details/617042822.shtml)
+- 2026-06-29 13:53 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.kurohicncr.top/Article/details/12154.shtml)
+- 2026-06-29 13:52 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.kurohicncr.top/Article/details/028435584.shtml)
+- 2026-06-29 14:01 - [实习期把公司领导开除了](https://www.share.minike.top/Article/details/94338377428.shtml)
+- 2026-06-29 13:40 - [T1对战KC](http://www.blog.minike.top/Article/details/6040609274.shtml)
+- 2026-06-29 13:44 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/846680382749.shtml)
+- 2026-06-29 13:41 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/325730063.shtml)
+- 2026-06-29 13:48 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/374027.shtml)
+- 2026-06-29 13:56 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/012441387508.shtml)
+- 2026-06-29 13:44 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/61981062306.shtml)
+- 2026-06-29 14:03 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/204766533784.shtml)
+- 2026-06-29 13:54 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/669666898.shtml)
+- 2026-06-29 13:38 - [记者暗访贵州和云南多个养老机构](http://www.share.minike.top/Article/details/612020876958.shtml)
+- 2026-06-29 13:41 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/81536.shtml)

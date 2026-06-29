@@ -1,61 +1,61 @@
-# 再涨3%！近1年跑赢科创50的“宽基”科技ETF继续新高！光纤概念引爆AI算力，长飞光纤强势涨停
+# 英国智库预警：战争致经济大幅放缓 高通胀或将持续至2028年
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-6月22日，截至9时40分，科技龙头强者恒强，国内首只*科技龙头先锋——科技ETF华宝（515000）场内涨超3%，日线五连阳再创上市近7年新高！ 成份股方面，AI算力方向继续强势，光纤龙头长飞光纤强势涨停，存储龙头协创数据涨超10%，半导体龙头士兰微、华润微涨超8%，中天科技、烽火同i性能、扬杰科技、中微公司、兆易创新等多股涨超5%。 中信建投表示，在全球AI算力产业蓬勃发展
+新华财经北京4月29日电 英国知名智库国家经济与社会研究所（NIESR）发布最新经济预测，为英国经济前景蒙上了一层阴影。报告指出，受战争引发的中东冲突影响，英国今明两年的经济增长将大幅放缓，且高通胀问题将长期化。 NIESR在周三发布的报告中表示，中东冲突引发的油气价格暴涨，将直接推高英国物价水平。预计英国通胀率将从当前的3.3%进一步攀升，至2027年初达到4.1%的峰值。更
 
 ## 正文
 
-6月22日，截至9时40分，科技龙头强者恒强，国内首只*科技龙头先锋——科技ETF华宝（515000）场内涨超3%，日线五连阳再创上市近7年新高！
+新华财经北京4月29日电 英国知名智库国家经济与社会研究所（NIESR）发布最新经济预测，为英国经济前景蒙上了一层阴影。
 
-成份股方面，AI算力方向继续强势，光纤龙头长飞光纤强势涨停，存储龙头协创数据涨超10%，半导体龙头士兰微、华润微涨超8%，中天科技、烽火同i性能、扬杰科技、中微公司、兆易创新等多股涨超5%。
+报告指出，受战争引发的中东冲突影响，英国今明两年的经济增长将大幅放缓，且高通胀问题将长期化。
 
-中信建投表示，在全球AI算力产业蓬勃发展，泛AI行业和传统产业景气分化加剧的当下，我们继续看好AI算力作为本轮牛市中长期核心主线的后续表现。
+NIESR在周三发布的报告中表示，中东冲突引发的油气价格暴涨，将直接推高英国物价水平。
 
-从短期来看，陆家嘴金融论坛等国内政策红利有望继续推动双创板块上涨，美联储加息预期也未阻挡全球科技股上行，预计创业板和科创板将继续保持强势。
+预计英国通胀率将从当前的3.3%进一步攀升，至2027年初达到4.1%的峰值。
 
-中泰证券也认为，就后续市场风格而言，我们认为科技行情或将持续，价值反转不具备条件。
+更为严峻的是，该机构预测，过去四年在发达经济体中持续高企的英国通胀率，直至2028年才能回落至英国央行设定的2%目标水平。
 
-我们预计即将召开的会议仍将围绕新质生产力与科技创新展开部署，政策重心短期内不会偏移。
+受能源成本冲击影响，NIESR大幅下调了对英国经济增长的预期。
 
-就后续而言，长鑫科技上市在即或构成新一轮上涨催化。
+报告预计，英国2026年的经济增速仅为0.9%，2027年为1%。
 
-科技牛，买龙头！
+这一数据大幅低于该智库今年2月作出的预测（当时预估今明两年增速分别为1.4%与1.3%）。
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 13:50 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 13:32 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 13:37 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 13:59 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 13:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 13:46 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 13:52 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 13:39 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 13:48 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 13:40 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 13:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 13:53 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 13:51 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 13:51 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 13:50 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 13:50 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 13:56 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 13:38 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 14:06 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 13:37 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 13:58 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 13:52 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 14:05 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 13:55 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 13:38 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 14:00 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 13:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 13:47 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 13:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:30 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/50324.shtml)
-- 2026-06-29 13:32 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/1941849662.shtml)
-- 2026-06-29 13:55 - [小娘惹](http://www.share.kurohicncr.top/Article/details/094604859306.shtml)
-- 2026-06-29 13:32 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/179034699490.shtml)
-- 2026-06-29 13:48 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.minike.top/Article/details/8910882.shtml)
-- 2026-06-29 13:58 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/8047227396.shtml)
-- 2026-06-29 13:31 - [2025年人口增长10强城市出炉](https://www.blog.minike.top/Article/details/950503.shtml)
-- 2026-06-29 13:31 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/743814439.shtml)
-- 2026-06-29 13:55 - [毒液2](http://www.share.kurohicncr.top/Article/details/1654024415.shtml)
-- 2026-06-29 13:31 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/89893.shtml)
-- 2026-06-29 13:46 - [高考志愿今起开始填报](https://www.share.minike.top/Article/details/4950003772.shtml)
-- 2026-06-29 13:47 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/5941539424.shtml)
-- 2026-06-29 13:52 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/80445563.shtml)
-- 2026-06-29 13:59 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/5675553956.shtml)
-- 2026-06-29 13:47 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/330889215143.shtml)
+- 2026-06-29 13:39 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/803549473018.shtml)
+- 2026-06-29 13:54 - [海清白玉兰奖运](https://www.blog.kurohicncr.top/Article/details/6725924.shtml)
+- 2026-06-29 13:59 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/3170045868.shtml)
+- 2026-06-29 13:56 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/87961059176.shtml)
+- 2026-06-29 13:51 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/22876365694.shtml)
+- 2026-06-29 13:58 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/7241319.shtml)
+- 2026-06-29 13:52 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.minike.top/Article/details/238062399.shtml)
+- 2026-06-29 13:40 - [一见倾心](https://www.blog.minike.top/Article/details/46588254752.shtml)
+- 2026-06-29 13:56 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/262212282.shtml)
+- 2026-06-29 13:57 - [T1对战KC](https://www.blog.minike.top/Article/details/72041.shtml)
+- 2026-06-29 13:45 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.kurohicncr.top/Article/details/642906600.shtml)
+- 2026-06-29 13:36 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/835924129.shtml)
+- 2026-06-29 13:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/3137966754.shtml)
+- 2026-06-29 13:41 - [三都主：淘汰赛我会支持日本](http://www.share.minike.top/Article/details/5846181792.shtml)
+- 2026-06-29 13:37 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/73283608.shtml)

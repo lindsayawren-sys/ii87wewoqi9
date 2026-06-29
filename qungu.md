@@ -1,57 +1,60 @@
-# 香港国际机场黄金劫案7人被捕 约700万港元金条尚未寻回
+# ATFX:阿联酋退出欧佩克 会不会引发连锁反应
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新社香港6月20日电 香港特区政府警务处(简称“香港警方”)20日通报，已拘捕18日凌晨于香港国际机场发生的黄金抢劫案中的7名涉案人员。该案涉及6根总重6公斤的金条、总价值约700万港元。警方已寻获接应劫匪的车辆和涉案刀具，但尚未寻回金条。警方相信此案为有预谋作案，明显有“内鬼”通风报信，或是熟人所为。香港警方当天召开记者会介绍该案最新进展。据介绍，18日0时23分，警方接获
+专题：ATFX外汇专栏投稿 4月29日，ATFX：欧佩克组织1960年成立，阿布扎比在1967年加入该组织，1971年阿联酋成立之后延续成员国身份。虽然阿联酋不算是欧佩克的创始成员国，但其也是最早加入欧佩克的成员国之一。 3月份受到美国和伊朗的冲突导致霍尔木兹海峡全面封锁的影响，欧佩克石油产量日均仅2079万桶，相比2月份大幅下降788万桶，降幅近三成。即便没有霍尔木兹海峡封锁
 
 ## 正文
 
-中新社香港6月20日电 香港特区政府警务处(简称“香港警方”)20日通报，已拘捕18日凌晨于香港国际机场发生的黄金抢劫案中的7名涉案人员。
+专题：ATFX外汇专栏投稿 4月29日，ATFX：欧佩克组织1960年成立，阿布扎比在1967年加入该组织，1971年阿联酋成立之后延续成员国身份。
 
-该案涉及6根总重6公斤的金条、总价值约700万港元。
+虽然阿联酋不算是欧佩克的创始成员国，但其也是最早加入欧佩克的成员国之一。
 
-警方已寻获接应劫匪的车辆和涉案刀具，但尚未寻回金条。
+3月份受到美国和伊朗的冲突导致霍尔木兹海峡全面封锁的影响，欧佩克石油产量日均仅2079万桶，相比2月份大幅下降788万桶，降幅近三成。
 
-警方相信此案为有预谋作案，明显有“内鬼”通风报信，或是熟人所为。
+即便没有霍尔木兹海峡封锁因素的影响，欧佩克也在执行减产政策，这对于原油出口依赖程度较高的阿联酋来说，是不愿意看到的。
 
-香港警方当天召开记者会介绍该案最新进展。
+昨日晚间8：20左右，阿联酋官方通讯社报道称阿联酋决定自5月1日起退出欧佩克和欧佩克加，并且会逐步提高石油产量。
 
-据介绍，18日0时23分，警方接获报案，一名受雇于内地商人的36岁香港本地男子，从印度尼西亚独自运送金条回港，他在香港国际机场三号停车场准备上车时，被3名蒙面男子持刀伏击，大腿及左臂受伤，6根金条被抢。
+退出的原因是想要增强应对市场动态的灵活性。
 
-劫匪得手后登上接应车辆逃走；受伤男子被送往医院接受治疗，目前情况稳定。
+▲ATFX 消息发布的第一时间，国际油价就有了反应。
 
-香港警方指出，7名涉案人员为4男3女，年龄在20岁至39岁之间，均为香港本地居民。
+消息发布后的一分钟，美原油WTI从最高点98.46下跌至最低点96.11，跌幅2.35美金。
 
 ## 相关推荐
 
-- 2026-06-29 13:55 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 13:39 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 13:46 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 13:51 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 13:46 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 13:59 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 13:47 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 13:52 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 13:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:35 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 13:49 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 13:50 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 13:50 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 13:47 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 14:04 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 14:04 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 14:03 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 14:04 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 14:01 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 14:03 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 13:53 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 13:57 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 13:43 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 14:00 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 13:46 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:44 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/35633017324.shtml)
-- 2026-06-29 13:33 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/86105396.shtml)
-- 2026-06-29 13:40 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.kurohicncr.top/Article/details/5929364.shtml)
-- 2026-06-29 13:52 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/425299704456.shtml)
-- 2026-06-29 13:39 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/26915465735.shtml)
-- 2026-06-29 13:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/7374752.shtml)
-- 2026-06-29 13:59 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/252428.shtml)
-- 2026-06-29 13:53 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/96546516852.shtml)
-- 2026-06-29 13:59 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.minike.top/Article/details/771509747.shtml)
-- 2026-06-29 13:56 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/4913560.shtml)
-- 2026-06-29 13:30 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/23965486.shtml)
-- 2026-06-29 13:52 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/4923386661.shtml)
-- 2026-06-29 13:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/47162.shtml)
-- 2026-06-29 13:50 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/950911.shtml)
-- 2026-06-29 13:42 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/292378906.shtml)
+- 2026-06-29 13:36 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/7904330.shtml)
+- 2026-06-29 13:37 - [105年初心滚烫](http://www.share.minike.top/Article/details/679504.shtml)
+- 2026-06-29 14:03 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/286015232.shtml)
+- 2026-06-29 13:59 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/0180687117.shtml)
+- 2026-06-29 13:38 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.kurohicncr.top/Article/details/37530.shtml)
+- 2026-06-29 13:40 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/3649211167.shtml)
+- 2026-06-29 14:05 - [下飞机后，我做了个很蠢的决定......](https://www.share.minike.top/Article/details/688447751.shtml)
+- 2026-06-29 14:01 - [李在明称韩国足协任命了无能之人](https://www.blog.kurohicncr.top/Article/details/015646033.shtml)
+- 2026-06-29 14:04 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/380417.shtml)
+- 2026-06-29 13:45 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/2466091283.shtml)
+- 2026-06-29 13:42 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/9327125057.shtml)
+- 2026-06-29 13:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/954945203909.shtml)
+- 2026-06-29 13:55 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/36797.shtml)
+- 2026-06-29 14:00 - [一生一世](https://www.blog.kurohicncr.top/Article/details/69494359.shtml)
+- 2026-06-29 13:47 - [日媒称韩国史诗级上上签终成噩梦](http://www.blog.kurohicncr.top/Article/details/8593904.shtml)

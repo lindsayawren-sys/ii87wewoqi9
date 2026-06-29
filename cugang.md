@@ -1,56 +1,57 @@
-# AI短剧人才培养，职业院校寻突破
+# 操盘必读：影响股市利好或利空消息_2026年4月29日_财经新闻
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-来源：中国青年报 在广东科学技术职业学院的一间教室里，师生用两节课时间用AI生成了一部校园短片；在浙江经贸职业技术学院，教室直接被搬到了与学校合作的短剧生产企业。 过去，制作一部微短剧，绕不开传统影视工业的基本流程：找演员、租场景、准备道具，拍摄、剪辑、后期，一个环节都不能少。但现在，AI正在改写这套生产逻辑。 AI短剧狂飙，中国网络视听协会发布的2026年第一季度《微短剧创作
+登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。中共中央总书记习近平主持会议。会议指出，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等规划建设。会议强调，深入整治“内卷式”竞争，全面实施“人工智能+”行动。会议还指出，努力稳定房地产市场，稳定和增强资本市场
 
 ## 正文
 
-来源：中国青年报 在广东科学技术职业学院的一间教室里，师生用两节课时间用AI生成了一部校园短片；在浙江经贸职业技术学院，教室直接被搬到了与学校合作的短剧生产企业。
+登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、中共中央政治局4月28日召开会议，分析研究当前经济形势和经济工作。
 
-过去，制作一部微短剧，绕不开传统影视工业的基本流程：找演员、租场景、准备道具，拍摄、剪辑、后期，一个环节都不能少。
+中共中央总书记习近平主持会议。
 
-但现在，AI正在改写这套生产逻辑。
+会议指出，加强水网、新型电网、算力网、新一代通信网、城市地下管网、物流网等规划建设。
 
-AI短剧狂飙，中国网络视听协会发布的2026年第一季度《微短剧创作指引》显示，今年第一季度全行业上线微短剧约12.8万部，其中AI短剧超过12.2万部，占比超95%。
+会议强调，深入整治“内卷式”竞争，全面实施“人工智能+”行动。
 
-产业的变革必然引发教育的变革，以产教融合为办学定位的职业院校，其人才培养正在发生变革。
+会议还指出，努力稳定房地产市场，稳定和增强资本市场信心。
 
-中青报·中青网记者采访多所高职院校后发现，AI正在重构院校影视、创意等相关专业的人才培养。
+2、国务院关税税则委员会发布公告，自2026年5月1日至2028年4月30日，对同中国建交的20个不属于最不发达国家的非洲国家以特惠税率形式实施零关税。
 
-广东科学技术职业学院计算机工程技术学院（人工智能学院）办公室副主任杨玲正在教学生制作AI短剧的技巧。
+对于同中国建交的33个非洲最不发达国家，中方已自2024年12月1日起对其100%税目产品实施零关税。
 
-广东科学技术职业学院供图 把教室搬进企业里 当学校的人才培养跟不上AI短剧的迭代速度时，一些教师决定把课堂搬到企业里去。
+此次进一步对其余20个非洲建交国实施零关税，体现了中国扩大高水平对外开放的积极姿态，对加强中非经贸合作纽带、推动共筑新时代全天候中非命运共同体将发挥重要作用。
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 13:49 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 13:43 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 13:45 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 13:57 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 13:57 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 13:47 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 13:38 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 13:57 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 13:32 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 13:47 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 13:46 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 14:02 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 14:00 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 13:55 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 13:58 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 13:58 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 13:46 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 13:39 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 13:55 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 13:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:43 - [市民骑哈啰单车79分钟付30元](https://www.blog.kurohicncr.top/Article/details/157785.shtml)
-- 2026-06-29 13:42 - [逃狱兄弟](https://www.blog.minike.top/Article/details/410763522.shtml)
-- 2026-06-29 13:42 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/20773.shtml)
-- 2026-06-29 13:51 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/80824361339.shtml)
-- 2026-06-29 13:54 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/84785122584.shtml)
-- 2026-06-29 13:54 - [急先锋](http://www.share.kurohicncr.top/Article/details/10757.shtml)
-- 2026-06-29 13:36 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/95266.shtml)
-- 2026-06-29 13:46 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/5768082948.shtml)
-- 2026-06-29 13:51 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/5354644097.shtml)
-- 2026-06-29 13:48 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/4865004189.shtml)
-- 2026-06-29 13:50 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.kurohicncr.top/Article/details/33227.shtml)
-- 2026-06-29 13:54 - [双高胎](https://www.share.minike.top/Article/details/02838818.shtml)
-- 2026-06-29 13:36 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/507287.shtml)
-- 2026-06-29 13:50 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.kurohicncr.top/Article/details/4942519.shtml)
-- 2026-06-29 13:56 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/9368295.shtml)
+- 2026-06-29 13:37 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/822936.shtml)
+- 2026-06-29 13:43 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/4050718180.shtml)
+- 2026-06-29 13:43 - [腾讯回应做独立支付APP](https://www.share.kurohicncr.top/Article/details/672870225480.shtml)
+- 2026-06-29 13:59 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/5278331238.shtml)
+- 2026-06-29 13:56 - [锐评浪姐7总决赛](http://www.share.minike.top/Article/details/48450.shtml)
+- 2026-06-29 13:38 - [时光音乐会](https://www.share.minike.top/Article/details/01294818.shtml)
+- 2026-06-29 13:54 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/16353488998.shtml)
+- 2026-06-29 13:45 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.kurohicncr.top/Article/details/947653.shtml)
+- 2026-06-29 13:59 - [实习期把公司领导开除了](https://www.share.kurohicncr.top/Article/details/87542025338.shtml)
+- 2026-06-29 13:42 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/05194144535.shtml)
+- 2026-06-29 14:00 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/257984.shtml)
+- 2026-06-29 13:51 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/64820826.shtml)
+- 2026-06-29 14:06 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/0831692.shtml)
+- 2026-06-29 13:49 - [手游300亿数据或被军事化运用](https://www.blog.minike.top/Article/details/257662.shtml)
+- 2026-06-29 13:44 - [双高胎](https://www.share.kurohicncr.top/Article/details/488899.shtml)

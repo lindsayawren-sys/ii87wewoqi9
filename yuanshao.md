@@ -1,60 +1,57 @@
-# 长三角地区进出口连续15个月保持增长
+# 欧洲债市：欧债下跌 市场上调对欧洲央行加息押注
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：作为我国经济发展最活跃、开放程度最高的区域之一，长三角地区今年前5个月进出口规模创历史同期新高，连续15个月保持增长，展现出我国经济强劲的韧性和活力。 据海关统计，今年前5个月，长三角地区进出口总值达7.82万亿元，同比增长16.2%，规模创历史同期新高，占全国进出口总值的37.8%。其中，出口4.92万亿元，占全国出口总额的41.3%。船舶、集成电路、
+随着美伊谈判又一天未取得实质性进展，欧洲政府债券收益率继续稳步回升，接近战争期间的高点。 收益率曲线熊市趋平，德国、法国和意大利两年期国债收益率均上涨7个基点。 欧元区一年期消费者通胀预期达4%，远超预估水平，市场上调了对欧洲央行加息的押注。 互换合约显示，欧洲央行年底前加息幅度为71个基点；市场仍认为周四利率决议中有10%的可能性加息。 英国国债收益率上涨，但涨幅小于欧洲同类
 
 ## 正文
 
-央视网消息(新闻联播)：作为我国经济发展最活跃、开放程度最高的区域之一，长三角地区今年前5个月进出口规模创历史同期新高，连续15个月保持增长，展现出我国经济强劲的韧性和活力。
+随着美伊谈判又一天未取得实质性进展，欧洲政府债券收益率继续稳步回升，接近战争期间的高点。
 
-据海关统计，今年前5个月，长三角地区进出口总值达7.82万亿元，同比增长16.2%，规模创历史同期新高，占全国进出口总值的37.8%。
+收益率曲线熊市趋平，德国、法国和意大利两年期国债收益率均上涨7个基点。
 
-其中，出口4.92万亿元，占全国出口总额的41.3%。
+欧元区一年期消费者通胀预期达4%，远超预估水平，市场上调了对欧洲央行加息的押注。
 
-船舶、集成电路、机器人等高端制造产品出口均实现两位数高速增长。
+互换合约显示，欧洲央行年底前加息幅度为71个基点；市场仍认为周四利率决议中有10%的可能性加息。
 
-前5个月，进口2.9万亿元。
+英国国债收益率上涨，但涨幅小于欧洲同类债券。
 
-工业生产所需原材料、高端元器件需求持续加大，支撑区域先进制造业稳定投产。
+市场： 德国国债收益率上涨3个基点至3.06%； 德国国债期货跌22.00点至125.13%； 意大利10年期国债收益率上涨4个基点至3.87%； 意大利-德国国债利差扩大1个基点至81个基点； 法国10年期国债收益率上涨3个基点至3.71%； 10年期英国国债收益率上涨3个基点至5.00%。
 
-外贸主体活力持续释放。
-
-民营企业前5个月进出口4.22万亿元，占长三角外贸总值的54%。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 13:44 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 13:56 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-29 13:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 13:40 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 13:50 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 13:39 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 13:33 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 13:52 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 13:46 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 13:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 13:34 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 13:58 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 14:00 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 13:39 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 13:51 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 14:01 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 13:42 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 13:49 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 13:53 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 14:00 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 13:47 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 13:55 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 13:40 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 13:43 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 13:42 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 14:02 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 13:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:39 - [韩媒破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/231703.shtml)
-- 2026-06-29 13:59 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/2359850556.shtml)
-- 2026-06-29 13:53 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.kurohicncr.top/Article/details/61401.shtml)
-- 2026-06-29 13:37 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/5045438387.shtml)
-- 2026-06-29 13:59 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/535246786.shtml)
-- 2026-06-29 13:34 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/153638549.shtml)
-- 2026-06-29 13:45 - [F1奥地利大奖赛正赛集锦](http://www.share.minike.top/Article/details/299857.shtml)
-- 2026-06-29 13:49 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/32799.shtml)
-- 2026-06-29 13:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/98455251598.shtml)
-- 2026-06-29 13:53 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/2789444176.shtml)
-- 2026-06-29 13:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/664159757.shtml)
-- 2026-06-29 13:48 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/392785110.shtml)
-- 2026-06-29 13:52 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/22553555.shtml)
-- 2026-06-29 13:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/233546547.shtml)
-- 2026-06-29 13:37 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/40171.shtml)
+- 2026-06-29 13:56 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/58355433759.shtml)
+- 2026-06-29 13:46 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/010326844446.shtml)
+- 2026-06-29 13:53 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.minike.top/Article/details/381872282734.shtml)
+- 2026-06-29 13:52 - [周生如故](https://www.blog.kurohicncr.top/Article/details/441231526067.shtml)
+- 2026-06-29 14:02 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/102473.shtml)
+- 2026-06-29 14:05 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/42451.shtml)
+- 2026-06-29 14:05 - [女心理师](http://www.share.minike.top/Article/details/1158659034.shtml)
+- 2026-06-29 13:38 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/381633004362.shtml)
+- 2026-06-29 13:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/22712.shtml)
+- 2026-06-29 13:53 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/91042323.shtml)
+- 2026-06-29 14:03 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/94401223115.shtml)
+- 2026-06-29 13:59 - [行程万里不忘初心](https://www.share.minike.top/Article/details/621788469.shtml)
+- 2026-06-29 13:41 - [四川宜宾地震](http://www.share.minike.top/Article/details/278559.shtml)
+- 2026-06-29 13:37 - [水利部部署南方地区暴雨洪水防御工作](http://www.blog.minike.top/Article/details/1004835.shtml)
+- 2026-06-29 13:39 - [委内瑞拉地震已致1450死3150伤](https://www.share.minike.top/Article/details/020548.shtml)

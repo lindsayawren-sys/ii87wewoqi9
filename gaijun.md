@@ -1,56 +1,52 @@
-# “中华同根·水墨情深”海峡两岸书画名家作品展亮相甘肃天水
+# 国台办回应“金门考察团遭刻意审查卡关”
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新社兰州6月19日电 (记者 冯志军 李亚龙)“中华同根·水墨情深”海峡两岸书画名家作品展19日在甘肃天水市开展。百余幅展览作品涵盖书法、国画等多种艺术形式，题材丰富、风格各异，展现了两岸书画家的精湛技艺、文化造诣、笔墨功夫和家国情怀。 由中国国民党革命委员会甘肃省委员会、甘肃省政府台湾事务办公室、甘肃省文学艺术界联合会、甘肃省黄埔军校同学会共同举办的此次展览，旨在为两岸书画
+发布时间：2026年04月29日 13:15 来源：中国新闻网 4月29日，国台办举行例行新闻发布会。国台办发言人陈斌华就“金门考察团遭刻意审查卡关”表示，推动福建沿海地区在具备条件情况下同金门、马祖通水、通电、通气、通桥，支持金门共用厦门新机场，是我们回应金马乡亲期盼，增进两地民众利益福祉、促进金马地区发展的积极举措。金门赴厦考察团遭到刻意审查卡关，充分暴露了民进党当局以政治
 
 ## 正文
 
-中新社兰州6月19日电 (记者 冯志军 李亚龙)“中华同根·水墨情深”海峡两岸书画名家作品展19日在甘肃天水市开展。
+发布时间：2026年04月29日 13:15 来源：中国新闻网 4月29日，国台办举行例行新闻发布会。
 
-百余幅展览作品涵盖书法、国画等多种艺术形式，题材丰富、风格各异，展现了两岸书画家的精湛技艺、文化造诣、笔墨功夫和家国情怀。
+国台办发言人陈斌华就“金门考察团遭刻意审查卡关”表示，推动福建沿海地区在具备条件情况下同金门、马祖通水、通电、通气、通桥，支持金门共用厦门新机场，是我们回应金马乡亲期盼，增进两地民众利益福祉、促进金马地区发展的积极举措。
 
-由中国国民党革命委员会甘肃省委员会、甘肃省政府台湾事务办公室、甘肃省文学艺术界联合会、甘肃省黄埔军校同学会共同举办的此次展览，旨在为两岸书画艺术家搭建文化艺术互学互鉴平台，共赏笔墨之美、共品文化之韵。
+金门赴厦考察团遭到刻意审查卡关，充分暴露了民进党当局以政治私利凌驾民生福祉的本来面目。
 
-台湾中华传统文化推广协会理事长沈致中说，此次台湾及甘肃两地参展的作品非常精彩，甘肃书画家的作品深得西北山川的滋养，笔墨间既有大漠孤烟的雄浑与苍茫，又隐含着伏羲文化的包容与大气，展现出极具震撼力的风骨与格局。
+其做法违背民意、不得人心，已遭到金马民众的强烈反对和台湾舆论的普遍批评。
 
-台湾的11位书画家将宝岛的山海灵秀与人文温情融于笔墨。
-
-“水墨，是我们共同的文化基因。
-
-笔墨虽有不同风格，但笔锋下流淌的文化情谊，却是生生不息、无法割断的。
-
-”沈致中表示，不论是台湾的阿里山水、还是大陆的陇上风光，在宣纸与毛笔的交融中，运用的是相同的线条、相同的皴法，抒发的更是同一个民族对大自然的敬畏，以及对美好生活的向往。
+(记者 刘子衿 制作 刘鹏） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 13:48 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 13:48 - [恋与深空需直面玩家6大疑问](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 13:33 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 13:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 13:35 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 13:45 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 13:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 13:57 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 13:51 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 13:55 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 13:43 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 13:52 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 14:02 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 14:02 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 13:56 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 14:01 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 14:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 13:46 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 14:05 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 13:39 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 13:55 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 13:39 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/1002582476.shtml)
-- 2026-06-29 13:54 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.minike.top/Article/details/40344267082.shtml)
-- 2026-06-29 13:57 - [本周做什么都顺的星座](http://www.blog.minike.top/Article/details/561045423535.shtml)
-- 2026-06-29 13:57 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/704504912719.shtml)
-- 2026-06-29 13:32 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/9729590995.shtml)
-- 2026-06-29 13:46 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/482257.shtml)
-- 2026-06-29 13:49 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.minike.top/Article/details/28305894.shtml)
-- 2026-06-29 13:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/174301059113.shtml)
-- 2026-06-29 13:34 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/990696039.shtml)
-- 2026-06-29 13:42 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/306253730.shtml)
-- 2026-06-29 13:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/86779846.shtml)
-- 2026-06-29 13:50 - [小娘惹](http://www.share.minike.top/Article/details/2417999.shtml)
-- 2026-06-29 13:53 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/50524873.shtml)
-- 2026-06-29 13:54 - [美的空调 卡bug](http://www.share.minike.top/Article/details/1317575007.shtml)
-- 2026-06-29 13:30 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/45458692586.shtml)
+- 2026-06-29 13:53 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/66345543901.shtml)
+- 2026-06-29 13:55 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/602505052821.shtml)
+- 2026-06-29 13:40 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.kurohicncr.top/Article/details/0072751580.shtml)
+- 2026-06-29 14:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/416399660465.shtml)
+- 2026-06-29 13:55 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/25784596.shtml)
+- 2026-06-29 13:43 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/3198232918.shtml)
+- 2026-06-29 14:03 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/53856.shtml)
+- 2026-06-29 13:53 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/7153910.shtml)
+- 2026-06-29 14:01 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/911582348.shtml)
+- 2026-06-29 13:39 - [斛珠夫人](http://www.share.minike.top/Article/details/4104994.shtml)
+- 2026-06-29 13:54 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/977085526965.shtml)
+- 2026-06-29 13:41 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/586308326268.shtml)
+- 2026-06-29 13:40 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/097863329817.shtml)
+- 2026-06-29 14:00 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/939467290645.shtml)
+- 2026-06-29 13:55 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/518448004.shtml)

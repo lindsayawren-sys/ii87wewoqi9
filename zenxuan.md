@@ -1,60 +1,56 @@
-# 2030年法国阿尔卑斯冬奥会会徽揭晓
+# 国台办：和平统一是台湾经济发展的空前良机和最大底气
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-2030年法国阿尔卑斯冬奥组委当地时间18日发布了两款会徽，它们以“光芒映照下显现的山峰”为共同意象，将分别作为2030年冬奥会和冬残奥会的标志性视觉符号。 组委会主席埃德加·格罗斯皮龙在发布仪式上表示：“同一座山峰将在2030年连接冬奥会与冬残奥会。这也是为什么我们的两款会徽被构思为同一愿景下相互呼应的表达。它们共同体现了我们的目标——给予奥林匹克和残奥运动同样的位置、力量和
+4月29日，国务院台办举行例行新闻发布会。有记者问，国务院台办发言人在之前发布会上已分别阐释了和平统一后台湾“七个更好”中的三个“更好”，受到两岸舆论高度关注。请问发言人对“和平统一后，有强大祖国做后盾，台湾经济发展会更好”有何阐释？发言人陈斌华答问表示，“十四五”时期大陆经济总量实现新跃升，国内生产总值跃上140万亿元新台阶，年均增长5.4%， 在全球主要经济当中位居前列。科
 
 ## 正文
 
-2030年法国阿尔卑斯冬奥组委当地时间18日发布了两款会徽，它们以“光芒映照下显现的山峰”为共同意象，将分别作为2030年冬奥会和冬残奥会的标志性视觉符号。
+4月29日，国务院台办举行例行新闻发布会。
 
-组委会主席埃德加·格罗斯皮龙在发布仪式上表示：“同一座山峰将在2030年连接冬奥会与冬残奥会。
+有记者问，国务院台办发言人在之前发布会上已分别阐释了和平统一后台湾“七个更好”中的三个“更好”，受到两岸舆论高度关注。
 
-这也是为什么我们的两款会徽被构思为同一愿景下相互呼应的表达。
+请问发言人对“和平统一后，有强大祖国做后盾，台湾经济发展会更好”有何阐释？
 
-它们共同体现了我们的目标——给予奥林匹克和残奥运动同样的位置、力量和可见度。
+发言人陈斌华答问表示，“十四五”时期大陆经济总量实现新跃升，国内生产总值跃上140万亿元新台阶，年均增长5.4%， 在全球主要经济当中位居前列。
 
-” 格罗斯皮龙还强调了法国深厚的奥运举办传统，并提到1924年霞慕尼冬奥会、1968年格勒诺布尔冬奥会、1992年阿尔贝维尔冬奥会，以及最近的2024年巴黎奥运会，都是法国举办世界级赛事能力的有力证明。
+科技和产业创新取得新突破，改革开放迈出新步伐，民生福祉达到新水平。
 
-会徽设计围绕三大核心元素展开：光芒勾勒山脉轮廓，打开全新视角，象征清晰、温暖与希望；山峰体现高山运动的竞技场域，承载挑战、原始之美与突破极限的壮丽景象；光线交汇之处形成汇聚点，山峰随之显现，寓意团结与相聚。
+“十五五”规划纲要为建设现代化产业体系、加快高水平科技自立自强、建设强大国内市场、加快构建高水平社会主义市场经济体制、扩大高水平对外开放等方面作出战略部署。
 
-色彩方面，会徽从“光与冰”的自然元素中汲取灵感。
+今年是“十五五”开局之年，尽管外部环境更加复杂严峻，一季度大陆经济开局良好，国内生产总值增长5%，在全球主要经济体中继续名列前茅，主要宏观指标增速提升，新动能快速成长，新质生产力稳步发展。
 
-午夜蓝与天蓝色代表高海拔的深邃、稳定与遥远地平线，而被称为“高山辉光”的红色与粉色渐变，则捕捉了阳光洒落山巅、温暖峰峦的刹那，传递出赛事的激情与生命活力。
+大陆经济发展具有强劲动能和充沛活力，稳中向好、长期向好的基本面没有变，也不会变。
 
 ## 相关推荐
 
-- 2026-06-29 13:44 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 13:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 13:41 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 13:45 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 13:33 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 13:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 13:41 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 13:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 13:42 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 13:30 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 13:35 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 13:41 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 13:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 13:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 13:49 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 13:42 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 14:03 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 13:50 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 13:59 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 13:53 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 13:53 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 13:42 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 13:59 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 13:56 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:40 - [T1对战KC](http://www.blog.minike.top/Article/details/99720.shtml)
-- 2026-06-29 13:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/14451864.shtml)
-- 2026-06-29 13:59 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/558208.shtml)
-- 2026-06-29 13:30 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/886101959.shtml)
-- 2026-06-29 13:31 - [扬名立万](http://www.share.minike.top/Article/details/38149.shtml)
-- 2026-06-29 13:51 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/2732392256.shtml)
-- 2026-06-29 13:46 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/119114891.shtml)
-- 2026-06-29 13:36 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/339846613.shtml)
-- 2026-06-29 13:40 - [《贺子珍》](https://www.share.minike.top/Article/details/95221288886.shtml)
-- 2026-06-29 13:53 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/966041.shtml)
-- 2026-06-29 13:44 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/19425.shtml)
-- 2026-06-29 13:31 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.kurohicncr.top/Article/details/70005.shtml)
-- 2026-06-29 13:43 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/61230487088.shtml)
-- 2026-06-29 13:47 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/02164.shtml)
-- 2026-06-29 13:39 - [扫黑风暴](http://www.share.minike.top/Article/details/466694140007.shtml)
+- 2026-06-29 13:59 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/1299163.shtml)
+- 2026-06-29 14:05 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/27515946.shtml)
+- 2026-06-29 13:43 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/150599.shtml)
+- 2026-06-29 13:58 - [海清白玉兰奖运](https://www.share.kurohicncr.top/Article/details/18183284507.shtml)
+- 2026-06-29 14:00 - [绘画区你赢了](http://www.share.minike.top/Article/details/31239317494.shtml)
+- 2026-06-29 14:05 - [水利部部署南方地区暴雨洪水防御工作](http://www.blog.minike.top/Article/details/62366571092.shtml)
+- 2026-06-29 13:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/5758261879.shtml)
+- 2026-06-29 13:42 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/06663.shtml)
+- 2026-06-29 13:41 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/805112616.shtml)
+- 2026-06-29 13:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/86616.shtml)
+- 2026-06-29 13:59 - [斗破苍穹](https://www.blog.minike.top/Article/details/31563.shtml)
+- 2026-06-29 13:39 - [沙丘](http://www.blog.minike.top/Article/details/85745866.shtml)
+- 2026-06-29 14:01 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/8730729842.shtml)
+- 2026-06-29 13:43 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/456735044992.shtml)
+- 2026-06-29 13:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/16681835051.shtml)

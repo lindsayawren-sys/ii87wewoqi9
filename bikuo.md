@@ -1,58 +1,60 @@
-# 端午拾趣重庆百年古镇：泥鳅灯“游”出水岸 豆豉香“漫”过老街
+# OpenAI未达成营收目标，甲骨文及多只芯片个股集体下跌
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网重庆6月19日电 题：端午拾趣重庆百年古镇：泥鳅灯“游”出水岸 豆豉香“漫”过老街 作者 张霁雯 “咱们板桥人世代临水而居，勤恳务实，就像这溪间的泥鳅，踏实肯干、默默耕耘。每逢端午佳节，点亮泥鳅灯，巡游柳溪河两岸，早已成了板桥刻在烟火里的老民俗、老传承。快看，他们来了……” 6月19日，重庆永川区板桥镇的老街河道上，几只竹筏缓缓撑开水面。竹筏之上，悠扬的古筝、笛声随波荡漾
+有报道称 OpenAI 未达成内部增长预期，受此影响，人工智能基建相关企业股价于周二大幅下挫，市场再度质疑整个 AI 行业的高额开支模式能否持续。 与 OpenAI 签订为期五年、价值 3000 亿美元算力供应合作的甲骨文，股价大跌超 6%。 英伟达、博通、超威半导体等芯片厂商跌幅普遍介于 3% 至 5% 之间。 高通回落 3.5%；此前有消息称其正与 OpenAI 合作研发手
 
 ## 正文
 
-中新网重庆6月19日电 题：端午拾趣重庆百年古镇：泥鳅灯“游”出水岸 豆豉香“漫”过老街 作者 张霁雯 “咱们板桥人世代临水而居，勤恳务实，就像这溪间的泥鳅，踏实肯干、默默耕耘。
+有报道称 OpenAI 未达成内部增长预期，受此影响，人工智能基建相关企业股价于周二大幅下挫，市场再度质疑整个 AI 行业的高额开支模式能否持续。
 
-每逢端午佳节，点亮泥鳅灯，巡游柳溪河两岸，早已成了板桥刻在烟火里的老民俗、老传承。
+与 OpenAI 签订为期五年、价值 3000 亿美元算力供应合作的甲骨文，股价大跌超 6%。
 
-快看，他们来了……” 6月19日，重庆永川区板桥镇的老街河道上，几只竹筏缓缓撑开水面。
+英伟达、博通、超威半导体等芯片厂商跌幅普遍介于 3% 至 5% 之间。
 
-竹筏之上，悠扬的古筝、笛声随波荡漾，演员临水起舞，沉浸式演绎情景剧《板桥记忆·泥鳅灯》，生动再现本土民俗民间故事。
+高通回落 3.5%；此前有消息称其正与 OpenAI 合作研发手机端芯片、落地硬件战略，该消息曾在周一小幅提振其股价。
 
-当日，“豆豉飘香·和美板桥——镇园融合共话端午”主题系列活动在板桥镇启幕。
+杠杆式新兴云计算企业 CoreWeave 大跌 7%。
 
-锣鼓起、竹筏行、灯影动，一场融合巡游展演、产业体验与民众互动的端午盛宴，在老街水岸间铺展开来。
+亚洲市场方面，OpenAI 核心投资方之一软银集团暴跌约 10%。
 
-与传统舞台演出不同，这场演绎把古镇河道、吊桥、滨河步道变成了天然剧场。
+《华尔街曰报》报道指出，OpenAI 近期用户增长、营收两项核心指标均未达到内部预期。
 
-表演以板桥本土泥鳅灯文化为底色，将民间传说、端午祈福、水岸歌舞和竹筏对歌串联起来。
+业绩不及预期引发内部担忧：公司能否持续承担数据中心扩建、长期算力储备所需的巨额资金投入。
 
 ## 相关推荐
 
-- 2026-06-29 13:50 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 13:53 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 13:44 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 13:59 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 13:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 13:54 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 13:42 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 13:55 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 13:34 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 13:44 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 13:50 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 13:37 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 14:03 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 13:53 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 13:58 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 13:50 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 13:58 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 14:02 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 13:50 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 13:45 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 13:37 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 13:48 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 13:36 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 13:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 14:00 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 14:01 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/251624.shtml)
-- 2026-06-29 13:53 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/35936697.shtml)
-- 2026-06-29 13:55 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/40653055.shtml)
-- 2026-06-29 13:39 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/740165658427.shtml)
-- 2026-06-29 13:58 - [一生一世](https://www.blog.kurohicncr.top/Article/details/716555.shtml)
-- 2026-06-29 13:36 - [速度与激情9](https://www.blog.minike.top/Article/details/621949470.shtml)
-- 2026-06-29 13:44 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/511815196.shtml)
-- 2026-06-29 13:40 - [退休化学教授帮医药研发人员制毒](http://www.blog.kurohicncr.top/Article/details/55764.shtml)
-- 2026-06-29 13:56 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.minike.top/Article/details/670514.shtml)
-- 2026-06-29 13:54 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/28082236988.shtml)
-- 2026-06-29 13:51 - [爱很美味](http://www.share.kurohicncr.top/Article/details/6755502.shtml)
-- 2026-06-29 13:42 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/646749334.shtml)
-- 2026-06-29 13:59 - [爱情有烟火你是知道我爱看什么的](http://www.blog.kurohicncr.top/Article/details/9495182654.shtml)
-- 2026-06-29 13:48 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/2015870.shtml)
-- 2026-06-29 13:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/87958.shtml)
+- 2026-06-29 13:45 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/79754159198.shtml)
+- 2026-06-29 13:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/5901807034.shtml)
+- 2026-06-29 13:39 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/97114001.shtml)
+- 2026-06-29 13:57 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/212362.shtml)
+- 2026-06-29 13:44 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/5840651.shtml)
+- 2026-06-29 14:03 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/61399593.shtml)
+- 2026-06-29 13:39 - [这位天才台湾人第一次来大陆，开智了](http://www.share.minike.top/Article/details/72173.shtml)
+- 2026-06-29 13:36 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/33213147.shtml)
+- 2026-06-29 13:54 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/920970399.shtml)
+- 2026-06-29 13:51 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/37313897.shtml)
+- 2026-06-29 13:53 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/486215.shtml)
+- 2026-06-29 13:52 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.minike.top/Article/details/996680279.shtml)
+- 2026-06-29 13:44 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.minike.top/Article/details/3153966920.shtml)
+- 2026-06-29 14:05 - [6月我国降水为何偏多](http://www.blog.minike.top/Article/details/049379496.shtml)
+- 2026-06-29 13:38 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/464887.shtml)

@@ -1,60 +1,45 @@
-# 李迅雷专栏(第162期)｜从M2视角看中国经济驱动力的变化
+# 2026年思茅海关部门预算公开
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-改革开放以来，中国经济持续高增长，GDP占全球的份额从90年代初的2%左右，提升到如今17%左右，成为全球第二大经济体。比GDP增速更快的是广义货币M2的增速，2006年M2与GDP之比为155%，到2025年末，占比为242.7%，在全球主要经济体中一骑绝尘。本文透过M2高增长背后的驱动因素，来分析中国经济改革开放以来经济驱动力的变化。头图来源：摄图为何中国M2会超常扩长？到
+2026年思茅海关部门预算公开.pdf
 
 ## 正文
 
-改革开放以来，中国经济持续高增长，GDP占全球的份额从90年代初的2%左右，提升到如今17%左右，成为全球第二大经济体。
-
-比GDP增速更快的是广义货币M2的增速，2006年M2与GDP之比为155%，到2025年末，占比为242.7%，在全球主要经济体中一骑绝尘。
-
-本文透过M2高增长背后的驱动因素，来分析中国经济改革开放以来经济驱动力的变化。
-
-头图来源：摄图为何中国M2会超常扩长？
-
-到今年4月份，中国的广义货币M2的规模已经达到353万亿元了。
-
-把时间拉长看，M2的增速虽有所回落，但规模增长的拐点从未显现过。
-
-从与欧美比较看，20年前的2005年，中国的M2规模大约只有美国M2规模的一半多一点，截至2025年末，按2025年人民币兑美元平均汇率，中国M2余额已经达到48.69万亿美元，相比之下，美国为22.35万亿美元，欧元区为18.97万亿美元，中国超过美国与欧元区之和（41.32万亿美元），且几乎接近美国、欧元区和日本三大经济体之和（49.52万亿美元）了。
-
-如果按目前的M2增速，估计到2026年末，中国的M2就会超过美、欧、日三大经济体之和。
+2026年思茅海关部门预算公开.pdf
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 13:45 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 13:32 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 13:58 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 13:49 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 13:32 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 13:53 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 13:55 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 13:39 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 13:51 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 13:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 13:33 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 13:51 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 13:51 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 14:05 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 13:36 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 14:03 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 13:53 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 13:52 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 13:52 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 13:41 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 13:41 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 13:45 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 13:55 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 13:39 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 14:05 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 13:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/962891105.shtml)
-- 2026-06-29 13:42 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/103883203031.shtml)
-- 2026-06-29 13:56 - [爱很美味](http://www.share.kurohicncr.top/Article/details/903073.shtml)
-- 2026-06-29 13:52 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/031099864.shtml)
-- 2026-06-29 13:32 - [女心理师](https://www.share.minike.top/Article/details/00866.shtml)
-- 2026-06-29 13:45 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/26678121.shtml)
-- 2026-06-29 13:31 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/6083914.shtml)
-- 2026-06-29 13:36 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/968598811.shtml)
-- 2026-06-29 13:45 - [欧洲超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/22312436.shtml)
-- 2026-06-29 13:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/56492060366.shtml)
-- 2026-06-29 13:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/5858158.shtml)
-- 2026-06-29 13:46 - [F1奥地利大奖赛正赛集锦](https://www.share.kurohicncr.top/Article/details/909825868.shtml)
-- 2026-06-29 13:44 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/956098.shtml)
-- 2026-06-29 13:40 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/76712.shtml)
-- 2026-06-29 13:52 - [中国战机大片上新](https://www.share.minike.top/Article/details/48956549.shtml)
+- 2026-06-29 13:53 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/4282476477.shtml)
+- 2026-06-29 13:45 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/3285216.shtml)
+- 2026-06-29 13:52 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/394745925518.shtml)
+- 2026-06-29 13:59 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/025053083.shtml)
+- 2026-06-29 13:51 - [多只A股发布股价异动公告](https://www.share.minike.top/Article/details/51905805.shtml)
+- 2026-06-29 14:03 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/3974594.shtml)
+- 2026-06-29 13:43 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/660017958.shtml)
+- 2026-06-29 13:43 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/8485569354.shtml)
+- 2026-06-29 14:03 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/43184781.shtml)
+- 2026-06-29 14:04 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/928525909251.shtml)
+- 2026-06-29 14:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/208334525.shtml)
+- 2026-06-29 14:05 - [医药股集体爆发](http://www.blog.minike.top/Article/details/9416055.shtml)
+- 2026-06-29 13:54 - [爱情有烟火你是知道我爱看什么的](http://www.share.minike.top/Article/details/4286503479.shtml)
+- 2026-06-29 13:38 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/963242.shtml)
+- 2026-06-29 13:56 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/698724.shtml)

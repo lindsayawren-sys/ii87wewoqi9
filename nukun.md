@@ -1,54 +1,53 @@
-# 零成本环保攻略 从源头减少生活垃圾
+# 国台办：民进党当局把牺牲民众生命健康作为献媚美国的“投名状”
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 18:42 来源：中国新闻网 2026年6月15日至21日是第36个全国节能宣传周，主题为“节能新起点 低碳向未来”。日常买菜、点外卖，哪些小习惯能实实在在减少垃圾、保护环境？普通人收入有限，低成本甚至零成本的环保做法有哪些？《能源对话》栏目第一期，中新社国是直通车采访清华大学环境学院教授、固体废物控制与资源化教研所所长刘建国，进行解答。(汪俐
+中新网4月29日电 4月29日，国务院台办举行例行新闻发布会。有记者问：台媒报道，所谓“美台对等贸易协议”(ART)签署后，台湾对美国马铃薯进口降低检验检疫标准，发芽马铃薯将可输台，引发岛内民众食安疑虑和恐慌。请问对此有何评论？ 发言人陈斌华表示，我们注意到有关报道，高度关切台湾同胞的身体健康。面对美国借所谓“美台对等贸易协议”进行经济霸凌、产品倾销，民进党当局违背台湾民众意愿
 
 ## 正文
 
-发布时间：2026年06月18日 18:42 来源：中国新闻网 2026年6月15日至21日是第36个全国节能宣传周，主题为“节能新起点 低碳向未来”。
+中新网4月29日电 4月29日，国务院台办举行例行新闻发布会。
 
-日常买菜、点外卖，哪些小习惯能实实在在减少垃圾、保护环境？
+有记者问：台媒报道，所谓“美台对等贸易协议”(ART)签署后，台湾对美国马铃薯进口降低检验检疫标准，发芽马铃薯将可输台，引发岛内民众食安疑虑和恐慌。
 
-普通人收入有限，低成本甚至零成本的环保做法有哪些？
+请问对此有何评论？
 
-《能源对话》栏目第一期，中新社国是直通车采访清华大学环境学院教授、固体废物控制与资源化教研所所长刘建国，进行解答。
+发言人陈斌华表示，我们注意到有关报道，高度关切台湾同胞的身体健康。
 
-(汪俐辰） 责任编辑：【李季】
+面对美国借所谓“美台对等贸易协议”进行经济霸凌、产品倾销，民进党当局违背台湾民众意愿一意孤行，公然弃守食品安全底线，继开放莱猪后，又将“毒马铃薯”端上台湾老百姓的餐桌，再一次把牺牲民众的生命健康作为献媚美国的“投名状”，以换取外部势力对其谋“独”行径的支持，祸台殃民，必遭反对。
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 13:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 13:55 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 13:41 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 13:55 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 13:30 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 13:34 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 13:45 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 13:44 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 13:46 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 13:35 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 13:55 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 13:51 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 13:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 14:04 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 13:36 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 14:01 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 13:51 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 14:01 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 14:00 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 13:59 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 14:00 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 13:58 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 13:57 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 13:56 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 13:54 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 14:02 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/71585.shtml)
-- 2026-06-29 13:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/569075988.shtml)
-- 2026-06-29 13:34 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/2216246.shtml)
-- 2026-06-29 13:49 - [四川宜宾地震](https://www.share.kurohicncr.top/Article/details/21836.shtml)
-- 2026-06-29 13:51 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/697246477.shtml)
-- 2026-06-29 13:49 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/33382089207.shtml)
-- 2026-06-29 13:51 - [中国战机大片上新](http://www.share.minike.top/Article/details/369707573.shtml)
-- 2026-06-29 13:30 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/9022608044.shtml)
-- 2026-06-29 13:59 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/0390585132.shtml)
-- 2026-06-29 13:47 - [我们注定是一撮县城葱姜蒜](https://www.share.minike.top/Article/details/393840.shtml)
-- 2026-06-29 13:38 - [A股限售股解禁一览](http://www.blog.minike.top/Article/details/495417152135.shtml)
-- 2026-06-29 13:56 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/868787675837.shtml)
-- 2026-06-29 13:50 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/983561630575.shtml)
-- 2026-06-29 13:41 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/55613.shtml)
-- 2026-06-29 13:34 - [这位猫咪，请你自重！](https://www.blog.kurohicncr.top/Article/details/1606803.shtml)
+- 2026-06-29 14:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/532738.shtml)
+- 2026-06-29 13:42 - [爸爸当家](http://www.blog.minike.top/Article/details/851472324199.shtml)
+- 2026-06-29 13:55 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.minike.top/Article/details/1359924804.shtml)
+- 2026-06-29 13:43 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/96519165.shtml)
+- 2026-06-29 13:49 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.minike.top/Article/details/7409423536.shtml)
+- 2026-06-29 13:43 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/40680.shtml)
+- 2026-06-29 13:41 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/698388.shtml)
+- 2026-06-29 13:54 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/0927601.shtml)
+- 2026-06-29 13:59 - [曾沛慈夺冠后人气](https://www.share.kurohicncr.top/Article/details/2597927.shtml)
+- 2026-06-29 13:43 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/413130197.shtml)
+- 2026-06-29 13:37 - [爱情有烟火你是知道我爱看什么的](http://www.blog.kurohicncr.top/Article/details/9781726.shtml)
+- 2026-06-29 14:02 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/5627603.shtml)
+- 2026-06-29 13:51 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/4942611992.shtml)
+- 2026-06-29 14:03 - [双高胎](http://www.share.minike.top/Article/details/387950.shtml)
+- 2026-06-29 14:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/66728407.shtml)

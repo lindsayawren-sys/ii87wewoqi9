@@ -1,58 +1,57 @@
-# 蒋成华：希望亚太工商界主动维护亚太和国际经贸秩序，携手应对经贸挑战
+# 上海致公党闵行区委赴毕节开展定点帮扶活动
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。 中国商务部国际贸易谈判副代表蒋成华在致辞中表示，当前亚太和全球经贸体系正面临深刻变化，挑战和机遇并存，世界银行发布的地区经济报告显示，全球经济增长整体放缓，地缘冲突、债务高企，生产力低迷，贸易碎片化成为主要约束。报告同时指出，
+沪黔同心育桃李 教育帮扶促振兴——致公党闵行区委赴毕节开展定点帮扶活动 为了更好地助力乡村振兴与教育帮扶战略部署，贯彻落实统一战线“地域+领域”组团式帮扶毕节方案，积极开展社会服务工作，4月22日至25日，致公党闵行区委赴贵州省毕节市七星关区，开展以教育扶贫为核心、多领域协同助力的定点帮扶活动。致公党上海市委会副主委张文明，闵行区政协副主席、致公党闵行区委主委何曙光，致公党中央
 
 ## 正文
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
+沪黔同心育桃李 教育帮扶促振兴——致公党闵行区委赴毕节开展定点帮扶活动 为了更好地助力乡村振兴与教育帮扶战略部署，贯彻落实统一战线“地域+领域”组团式帮扶毕节方案，积极开展社会服务工作，4月22日至25日，致公党闵行区委赴贵州省毕节市七星关区，开展以教育扶贫为核心、多领域协同助力的定点帮扶活动。
 
-中国商务部国际贸易谈判副代表蒋成华在致辞中表示，当前亚太和全球经贸体系正面临深刻变化，挑战和机遇并存，世界银行发布的地区经济报告显示，全球经济增长整体放缓，地缘冲突、债务高企，生产力低迷，贸易碎片化成为主要约束。
+致公党上海市委会副主委张文明，闵行区政协副主席、致公党闵行区委主委何曙光，致公党中央组织部二级调研员、七星关区委常委、副区长(挂职)杨华，致公党毕节市工委专职副主委孙潋及七星关区相关人员出席相关活动。
 
-报告同时指出，东亚和太平洋地区经济增长仍然高于全球平均水平，人工智能更高科技产业正面临新的发展机遇。
+教育是阻断贫困代际传递的根本之策。
 
-他指出，工商界与中国经济共同成长，在参与中国式现代化进程中实现了互利共赢。
+本次帮扶聚焦教育扶智、精准助学、长效赋能，把优质教育资源送到基层一线。
 
-外商在华投资已覆盖20个行业门类，115个行业大类，累计设立企业已达124万家，投资额近3万亿美元。
+23日，致公党闵行区委一行先后调研上海师范大学附属七星关区致公实验学校、柏杨林街道中心校，详细了解办学条件、师资建设与学生发展情况。
 
-外资企业贡献了中国1/3的进出口，1/4的工业增加值和1/7的税收，创造了3000多万个就业岗位。
+在座谈会上，致公闵行区委“致公圆梦”基金正式成立并授牌，致公党闵行区委捐赠科普实验仪器一台价值1万元，以长效帮扶机制为山区学子保驾护航，用实际行动夯实教育根基、点亮求学梦想，彰显教育扶贫的温度与力度。
 
-同时，外资企业在华投资收益保持平稳，2025年规模以上外资企业营收利润率达到6.8%，高于中国本土同类企业平均利润率1.5个百分点。
+张文明指出，要坚持以教育扶贫助力乡村振兴，把沪黔协作落到实处、落到细处。
 
-中国古语讲“投我以木桃，报之以琼瑶”，外资企业参与中国改革开放和创新创造并获得了丰厚的回报，这正是互利共赢的最好体现。
+要持续深化校校合作、教研联动，不断完善帮扶机制，拓宽帮扶渠道，真正让优质教育惠及更多孩子，以教育振兴助推乡村全面振兴，以实际行动彰显民主党派的责任与担当。
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 13:58 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 13:56 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 13:36 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 13:44 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 13:53 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 13:46 - [毕业寄几百斤快递回家女生发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 13:51 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 13:31 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 13:52 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 13:41 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 13:58 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 13:44 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 13:43 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 13:40 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 14:01 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 13:49 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 13:38 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 13:39 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 13:44 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 13:46 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 14:03 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 13:40 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:49 - [美的空调 卡bug](http://www.share.minike.top/Article/details/03332.shtml)
-- 2026-06-29 13:39 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/62535.shtml)
-- 2026-06-29 13:54 - [三都主：淘汰赛我会支持日本](http://www.blog.kurohicncr.top/Article/details/77718319.shtml)
-- 2026-06-29 13:34 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/544531.shtml)
-- 2026-06-29 13:37 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/9757733090.shtml)
-- 2026-06-29 13:49 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/15982.shtml)
-- 2026-06-29 13:40 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/608674.shtml)
-- 2026-06-29 13:44 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/708831915.shtml)
-- 2026-06-29 13:52 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/733174894525.shtml)
-- 2026-06-29 13:37 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/1657292.shtml)
-- 2026-06-29 13:30 - [赵今麦客串电影版开端](http://www.share.minike.top/Article/details/62482201702.shtml)
-- 2026-06-29 13:52 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/03970735102.shtml)
-- 2026-06-29 13:54 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/4923615845.shtml)
-- 2026-06-29 13:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/802745.shtml)
-- 2026-06-29 13:51 - [向佑说向佐是一生依靠](http://www.share.kurohicncr.top/Article/details/327052033.shtml)
+- 2026-06-29 13:52 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/151625.shtml)
+- 2026-06-29 13:51 - [请回答王牌2019](https://www.share.minike.top/Article/details/645328637.shtml)
+- 2026-06-29 13:59 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/314022541540.shtml)
+- 2026-06-29 14:00 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/1572285.shtml)
+- 2026-06-29 14:06 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.minike.top/Article/details/4292400332.shtml)
+- 2026-06-29 13:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/79695310.shtml)
+- 2026-06-29 13:52 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/571264079.shtml)
+- 2026-06-29 14:04 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/37241858.shtml)
+- 2026-06-29 13:39 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/90554584.shtml)
+- 2026-06-29 13:52 - [伊朗球员致歉](http://www.blog.kurohicncr.top/Article/details/67381.shtml)
+- 2026-06-29 13:54 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/14189.shtml)
+- 2026-06-29 13:41 - [逃狱兄弟](https://www.blog.minike.top/Article/details/81127.shtml)
+- 2026-06-29 14:03 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/39421.shtml)
+- 2026-06-29 13:56 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/424325.shtml)
+- 2026-06-29 13:39 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.kurohicncr.top/Article/details/543985.shtml)

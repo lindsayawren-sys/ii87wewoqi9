@@ -1,61 +1,61 @@
-# 报告锚定净零关键节点 专家建言AI推动实现ESG目标
+# 光大期货：4月28日金融日报
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网北京6月19日电 (记者 张素)近日发布的一份报告锚定净零关键节点，聚焦以人工智能赋能可持续发展。 2026《我们的影响力计划》报告近日发布。毕马威中国主席邹俊在发布会上指出，以“人工智能+”为核心的新质生产力，正成为驱动高质量发展的关键动力。 据介绍，《我们的影响力计划》涵盖治理原则、以人为本、关爱地球、实现繁荣四个领域共16项重要性议题。其中在科技与创新部分，包括人工
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指多数收涨，纳斯达克和日经225指数均创历史新高，Wind全A上涨0.43%，成交额2.6万亿元。中证1000指数上涨0.42%，中证500指数上涨0.62%，沪深300指数上涨0.03%，上证50指数下跌0.2%。中国一季度经济数据公布，GDP同比增长5.0%，处于增速目标上沿，
 
 ## 正文
 
-中新网北京6月19日电 (记者 张素)近日发布的一份报告锚定净零关键节点，聚焦以人工智能赋能可持续发展。
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指多数收涨，纳斯达克和日经225指数均创历史新高，Wind全A上涨0.43%，成交额2.6万亿元。
 
-2026《我们的影响力计划》报告近日发布。
+中证1000指数上涨0.42%，中证500指数上涨0.62%，沪深300指数上涨0.03%，上证50指数下跌0.2%。
 
-毕马威中国主席邹俊在发布会上指出，以“人工智能+”为核心的新质生产力，正成为驱动高质量发展的关键动力。
+中国一季度经济数据公布，GDP同比增长5.0%，处于增速目标上沿，固定资产投资由负转正，进出口增速创近五年最高。
 
-据介绍，《我们的影响力计划》涵盖治理原则、以人为本、关爱地球、实现繁荣四个领域共16项重要性议题。
+一季度经济数据表现良好，全球经济复苏的大背景下海外需求回暖，带动国内出口增长，同时国内新质生产力投资端发力，基建增速加快。
 
-其中在科技与创新部分，包括人工智能、具有影响力的社会举措等内容。
+海外方面，美伊谈判陷入停滞后市场不确定性重新升高，但主流观点倾向认为美伊后续谈判会相向而行。
 
-有观察认为，可持续发展从来不是单一企业的孤军奋战，跨界协作才能凝聚起长效力量。
+短期来看，资产价格高波动仍是常态，不宜过分押注地缘冲突的影响完全消散。
 
-政企、校企、企社等应深化联动，不断拓展绿色转型、AI向善、乡村帮扶、青年赋能等落地项目，与各方共创更包容、绿色、稳健的产业与社会未来。
+能源价格中枢上涨到来的通胀压力被广泛关注，市场预期年内美联储可能不降息，日本、欧洲等地可能进入加息周期，资本市场流动性仍需关注。
 
-报告显示，人工智能转型办公室成立，有效赋能内外部合作与创新。
+在宏观不确定性的背景下，科技行业的确定性越发明显。
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 13:44 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 13:55 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 13:30 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 13:38 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 13:37 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 13:48 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 13:59 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 13:43 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 13:49 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 13:32 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 13:55 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 13:58 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 13:44 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 13:36 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 14:00 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 13:54 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 14:01 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 13:48 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 14:02 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 13:52 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 13:58 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 14:02 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 13:52 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 14:04 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 13:55 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 14:00 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 13:57 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 14:03 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 14:00 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:30 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/6416834.shtml)
-- 2026-06-29 13:55 - [张一山说杨紫早该拿奖了](https://www.share.kurohicncr.top/Article/details/360492762.shtml)
-- 2026-06-29 13:49 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/201795331.shtml)
-- 2026-06-29 13:31 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/8723145.shtml)
-- 2026-06-29 13:49 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/3501406.shtml)
-- 2026-06-29 13:51 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/32158.shtml)
-- 2026-06-29 13:57 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.minike.top/Article/details/90506844644.shtml)
-- 2026-06-29 13:53 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/00776482.shtml)
-- 2026-06-29 13:40 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/11240.shtml)
-- 2026-06-29 13:45 - [C罗关心罗德里戈伤情](http://www.blog.minike.top/Article/details/1417396.shtml)
-- 2026-06-29 13:35 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/991578922.shtml)
-- 2026-06-29 13:52 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/11103.shtml)
-- 2026-06-29 13:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/0966887.shtml)
-- 2026-06-29 13:34 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.minike.top/Article/details/581201861.shtml)
-- 2026-06-29 13:53 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/14403995.shtml)
+- 2026-06-29 14:00 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/837309217082.shtml)
+- 2026-06-29 13:39 - [恋与深空需直面玩家6大疑问](http://www.share.minike.top/Article/details/560332508089.shtml)
+- 2026-06-29 14:05 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/9837439783.shtml)
+- 2026-06-29 13:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/096691810.shtml)
+- 2026-06-29 13:44 - [伊朗球员致歉](http://www.blog.kurohicncr.top/Article/details/41234852045.shtml)
+- 2026-06-29 13:51 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/0188151.shtml)
+- 2026-06-29 13:41 - [三都主：淘汰赛我会支持日本](http://www.share.kurohicncr.top/Article/details/963866050883.shtml)
+- 2026-06-29 13:59 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/54277.shtml)
+- 2026-06-29 13:52 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/83064217.shtml)
+- 2026-06-29 14:00 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/62690164.shtml)
+- 2026-06-29 13:43 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.minike.top/Article/details/870992591481.shtml)
+- 2026-06-29 13:49 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/14395620021.shtml)
+- 2026-06-29 14:04 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/35821.shtml)
+- 2026-06-29 13:50 - [吴磊爱上回收了](http://www.share.kurohicncr.top/Article/details/698434.shtml)
+- 2026-06-29 14:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/27836.shtml)

@@ -1,61 +1,57 @@
-# 天津海事法院发布审判白皮书 海事行政案件连续三年下降
+# 早盘：美股走低 纳指下跌逾200点
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网天津6月18日电 (薛淳月 江莹)天津海事法院17日召开新闻发布会，天津海事法院党组成员、副院长石福新在发布会上介绍，2025年天津海事法院通过加强与涉海行政机关协作，推动行政纠纷多元化解，近三年海事行政案件连续下降，降幅均在30%以上。 天津海事法院当日还发布中英文双语《天津海事法院2025年审判工作白皮书》(下称《白皮书》)及7起2025年在船员民生保障、异地巡回审判
+北京时间4月28日晚，美股周二早盘走低，纳指下跌逾200点。油价上涨以及OpenAI发布的疲软报告令科技股承压。阿联酋宣布退出OPEC。 道指跌73.03点，跌幅为0.15%，报49094.76点；纳指跌202.39点，跌幅为0.81%，报24684.71点；标普500指数跌36.66点，跌幅为0.51%，报7137.25点。 据报道，OpenAI近期营收和新用户增长均低于其内
 
 ## 正文
 
-中新网天津6月18日电 (薛淳月 江莹)天津海事法院17日召开新闻发布会，天津海事法院党组成员、副院长石福新在发布会上介绍，2025年天津海事法院通过加强与涉海行政机关协作，推动行政纠纷多元化解，近三年海事行政案件连续下降，降幅均在30%以上。
+北京时间4月28日晚，美股周二早盘走低，纳指下跌逾200点。
 
-天津海事法院当日还发布中英文双语《天津海事法院2025年审判工作白皮书》(下称《白皮书》)及7起2025年在船员民生保障、异地巡回审判、跨域司法协作等领域具有典型意义的案例。
+油价上涨以及OpenAI发布的疲软报告令科技股承压。
 
-《白皮书》显示，该院重点质效指标持续攀升，新收各类案件2571件，审执结2461件。
+阿联酋宣布退出OPEC。
 
-超12个月未结案件比、平均结案时间连续下降，法定审限内结案率持续增加，三项执行指标全部优于合理区间，法定审限内结案率、平均结案时间等指标位居全国海事法院前列。
+道指跌73.03点，跌幅为0.15%，报49094.76点；纳指跌202.39点，跌幅为0.81%，报24684.71点；标普500指数跌36.66点，跌幅为0.51%，报7137.25点。
 
-石福新介绍，2025年天津海事法院审执结诉讼主体涉外(含港澳台)案件161件，同比增加5.23%，其中上诉案件5件，同比下降50%；平均结案时间172.86天，同比下降15.9%，涉外海事纠纷高效、实质性化解成效持续提升。
+据报道，OpenAI近期营收和新用户增长均低于其内部目标。
 
-在海事行政审判方面，自2016年海事行政案件正式纳入海事法院受理案件范围以来，天津海事法院依法审理海事行政案件179件，有效监督了行政机关依法履职。
+报道称，首席财务官萨拉-弗里尔已向领导层表达担忧，若收入增长不够快，OpenAI未来可能无力支付算力合同。
 
-天津海事法院表示，该院牢牢把握海事审判跨地域、专业化、涉外性等特点，稳步提升审判执行工作质效，为服务京津冀协同发展、共建“一带一路”、海洋强国等重大国家战略实施提供司法保障。
+这一消息拖累科技股走低。
 
-(完)
+英伟达下跌逾2%，博通下跌逾4%，AMD和英特尔分别下跌近6%和4%，甲骨文下跌逾7%。
 
 ## 相关推荐
 
-- 2026-06-29 13:48 - [毕业寄几百斤快递回家女生发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 13:52 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 13:38 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 13:32 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 13:35 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 13:44 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 13:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 13:45 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 13:43 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 13:49 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 13:39 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 13:36 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 13:55 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 13:48 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 13:51 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 13:46 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 13:48 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 13:49 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 13:56 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 14:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 13:47 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 13:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 13:56 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 13:58 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 13:41 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 13:54 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:45 - [千与千寻](https://www.share.minike.top/Article/details/01597745.shtml)
-- 2026-06-29 13:43 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/7329835.shtml)
-- 2026-06-29 13:51 - [媒体评恋与深空争议](http://www.share.kurohicncr.top/Article/details/3541014243.shtml)
-- 2026-06-29 13:33 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/141192.shtml)
-- 2026-06-29 13:48 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/7776856992.shtml)
-- 2026-06-29 13:38 - [吴昕要助理买的药6年前已停产](https://www.share.minike.top/Article/details/63403244491.shtml)
-- 2026-06-29 13:33 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/42241965955.shtml)
-- 2026-06-29 13:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/188715199431.shtml)
-- 2026-06-29 13:34 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/60766.shtml)
-- 2026-06-29 13:48 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/845197655.shtml)
-- 2026-06-29 13:38 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/6783114246.shtml)
-- 2026-06-29 13:33 - [赵今麦客串电影版开端](http://www.share.minike.top/Article/details/51219516.shtml)
-- 2026-06-29 13:53 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/03364856129.shtml)
-- 2026-06-29 13:47 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/43439308860.shtml)
-- 2026-06-29 13:57 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/087587090.shtml)
+- 2026-06-29 13:59 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/4665855.shtml)
+- 2026-06-29 13:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/453702.shtml)
+- 2026-06-29 13:44 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/9774843648.shtml)
+- 2026-06-29 13:49 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/6378872.shtml)
+- 2026-06-29 13:54 - [记者暗访贵州和云南多个养老机构](https://www.blog.minike.top/Article/details/53802348.shtml)
+- 2026-06-29 14:05 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/0352724846.shtml)
+- 2026-06-29 13:57 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/669501400965.shtml)
+- 2026-06-29 13:57 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/820506818641.shtml)
+- 2026-06-29 13:43 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/84434649094.shtml)
+- 2026-06-29 13:47 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/9869624679.shtml)
+- 2026-06-29 13:54 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/09335377505.shtml)
+- 2026-06-29 13:39 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/27484735698.shtml)
+- 2026-06-29 13:49 - [媒体评恋与深空争议](https://www.blog.kurohicncr.top/Article/details/4267375269.shtml)
+- 2026-06-29 13:51 - [王楚钦周启豪爆分](https://www.share.kurohicncr.top/Article/details/5723450.shtml)
+- 2026-06-29 13:52 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/58152267.shtml)

@@ -1,57 +1,53 @@
-# 20寸行李箱不能免费登机了？部分差异化航司标准有所区别
+# 香港“粤车南下”政策推出至今运作顺畅反应良好
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-假期出行，不少旅客反映乘坐飞机时，20寸的行李箱无法免费登机，并且各家航空公司执行标准也并不相同，这是怎么回事呢？ 在国内航空公司中，全服务航司与差异化航司执行两套标准，政策差异源于服务定价和票价模式。国航、东航、南航等全服务航司允许符合尺寸、重量要求的20寸及以下的行李箱免费随身携带上飞机。但是部分差异化航司如春秋、祥鹏等航空公司，考虑经济成本、运营需求等原因，不允许普通经济
+中新社香港4月29日电 香港特区政府运输及物流局局长陈美宝29日指出，“粤车南下”入境香港市区自2025年12月9日起接受符合资格的广东私家车申请，截至2026年3月底，特区政府运输署共接获约6300宗申请，累计发出逾5000张许可证，预约出行到港的粤车数量超过3500辆次。2025年11月15日，“粤车南下”第一阶段开始实施，获批车辆可驶入港珠澳大桥香港口岸停车场；当年12月
 
 ## 正文
 
-假期出行，不少旅客反映乘坐飞机时，20寸的行李箱无法免费登机，并且各家航空公司执行标准也并不相同，这是怎么回事呢？
+中新社香港4月29日电 香港特区政府运输及物流局局长陈美宝29日指出，“粤车南下”入境香港市区自2025年12月9日起接受符合资格的广东私家车申请，截至2026年3月底，特区政府运输署共接获约6300宗申请，累计发出逾5000张许可证，预约出行到港的粤车数量超过3500辆次。
 
-在国内航空公司中，全服务航司与差异化航司执行两套标准，政策差异源于服务定价和票价模式。
+2025年11月15日，“粤车南下”第一阶段开始实施，获批车辆可驶入港珠澳大桥香港口岸停车场；当年12月第二阶段政策实施，获准的广东私家车车主可在预约后经港珠澳大桥珠海公路口岸驶入香港市区。
 
-国航、东航、南航等全服务航司允许符合尺寸、重量要求的20寸及以下的行李箱免费随身携带上飞机。
+当天，陈美宝在书面回复特区立法会议员质询时表示，“粤车南下”政策推出至今整体运作有序畅顺，反应良好，香港市民普遍欢迎粤车来港。
 
-但是部分差异化航司如春秋、祥鹏等航空公司，考虑经济成本、运营需求等原因，不允许普通经济舱旅客免费携带。
+陈美宝提到，特区政府会坚持确保安全、有效分流、完备配套和简便申请的策略，与粤方持续检视和商讨有序增加名额，并计划逐步将政策由目前覆盖的广州、珠海、江门、中山拓展至广东省其他城市。
 
-目前部分低成本、差异化航空公司仅允许14寸以内迷你登机箱，部分航司允许旅客付费携带20寸行李箱上机。
+“粤车南下”入境香港市区为内地旅客提供更多便捷灵活的出行选择，让香港居民和百业受惠，亦为粤港企业合作开辟新机会，带动香港经济增长。
 
-航司和售票平台会将差异化的规则在旅客购票界面说明，很多旅客购票时未留意行李条款，到机场才发现规则不符，误以为“20寸箱全面禁带”。
-
-除了尺寸，随身行李还有重量要求，国内航司随身行李单件重量大多限制在5kg—8kg以内。
-
-不少旅客把衣物、化妆品、重物塞满箱子，整体重量超标，同样会被要求办理托运。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 13:38 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 13:41 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 13:52 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 13:54 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 13:38 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 13:53 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 13:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 13:52 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 13:44 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 13:41 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 14:01 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 13:43 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 13:49 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 13:40 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 13:42 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 14:04 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 13:45 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 13:36 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 13:39 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 14:03 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 14:06 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/19431.shtml)
-- 2026-06-29 13:53 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/0630987.shtml)
-- 2026-06-29 13:50 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.minike.top/Article/details/324905838478.shtml)
-- 2026-06-29 13:42 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/1540698.shtml)
-- 2026-06-29 13:54 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/020417518771.shtml)
-- 2026-06-29 13:36 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/778900385315.shtml)
-- 2026-06-29 13:50 - [曾沛慈夺冠后人气](https://www.share.kurohicncr.top/Article/details/31243792066.shtml)
-- 2026-06-29 13:55 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/240547858.shtml)
-- 2026-06-29 13:42 - [女心理师](http://www.share.minike.top/Article/details/7078448420.shtml)
-- 2026-06-29 13:56 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/46541.shtml)
-- 2026-06-29 13:43 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/30031208166.shtml)
-- 2026-06-29 13:41 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/1585961931.shtml)
-- 2026-06-29 13:32 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/5129410.shtml)
-- 2026-06-29 13:51 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/979314.shtml)
-- 2026-06-29 13:55 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/059360.shtml)
+- 2026-06-29 13:53 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/076906798.shtml)
+- 2026-06-29 13:45 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/012422691.shtml)
+- 2026-06-29 13:52 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/335485881.shtml)
+- 2026-06-29 13:50 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/419440751.shtml)
+- 2026-06-29 13:50 - [扫黑风暴](https://www.share.minike.top/Article/details/1649216.shtml)
+- 2026-06-29 13:38 - [恋与深空失控领地](http://www.share.minike.top/Article/details/598054179.shtml)
+- 2026-06-29 13:47 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/1472348803.shtml)
+- 2026-06-29 14:00 - [沉睡花园](https://www.blog.minike.top/Article/details/886182750.shtml)
+- 2026-06-29 13:42 - [比亚迪为什么卖得越多市值越低](https://www.share.minike.top/Article/details/47245.shtml)
+- 2026-06-29 14:05 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/93652.shtml)
+- 2026-06-29 13:44 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/0141236247.shtml)
+- 2026-06-29 13:36 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/0246586.shtml)
+- 2026-06-29 13:46 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/475842380.shtml)
+- 2026-06-29 13:41 - [起风了](http://www.share.minike.top/Article/details/33619.shtml)
+- 2026-06-29 13:46 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/381113.shtml)

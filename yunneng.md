@@ -1,58 +1,56 @@
-# 嘉兴—布达佩斯全货机航线启航 加速链接中东欧市场
+# 银发族“上学记”：浙江探索“老有所学”进阶路
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网嘉兴6月20日电(奚金燕 罗超 赵若瑄)6月20日凌晨1时21分，圆通YG9025航班搭载50吨货物从浙江嘉兴南湖机场飞往布达佩斯，标志着嘉兴—布达佩斯全货机航线正式启航。这是嘉兴机场继达卡航线后开通的第二条国际货运航线，标志着该机场航空货运网络从亚洲拓展至欧洲。 该航线计划每周执飞3班，去程直飞航程约14小时。相比以往的运输路径，从嘉兴“始发直达”模式预计可为周边企业节
+中新网杭州4月29日电(张煜欢)社区学堂里，老人戴着老花镜跟着老师学习拍摄短视频，并学着用AI工具剪辑；绿水青山间，老年研学团触摸诗画浙江中的人文底蕴；文化礼堂内，“银龄弦歌”艺术团的排练声此起彼伏……在浙江，如此场景每天都在上演。 当银发浪潮悄然涌来，如何让老年人实现“老有所学、老有所乐、老有所为”？作为人口老龄化程度较高的省份之一，浙江用一张覆盖城乡的老年教育网络，给出自己
 
 ## 正文
 
-中新网嘉兴6月20日电(奚金燕 罗超 赵若瑄)6月20日凌晨1时21分，圆通YG9025航班搭载50吨货物从浙江嘉兴南湖机场飞往布达佩斯，标志着嘉兴—布达佩斯全货机航线正式启航。
+中新网杭州4月29日电(张煜欢)社区学堂里，老人戴着老花镜跟着老师学习拍摄短视频，并学着用AI工具剪辑；绿水青山间，老年研学团触摸诗画浙江中的人文底蕴；文化礼堂内，“银龄弦歌”艺术团的排练声此起彼伏……在浙江，如此场景每天都在上演。
 
-这是嘉兴机场继达卡航线后开通的第二条国际货运航线，标志着该机场航空货运网络从亚洲拓展至欧洲。
+当银发浪潮悄然涌来，如何让老年人实现“老有所学、老有所乐、老有所为”？
 
-该航线计划每周执飞3班，去程直飞航程约14小时。
+作为人口老龄化程度较高的省份之一，浙江用一张覆盖城乡的老年教育网络，给出自己的答案。
 
-相比以往的运输路径，从嘉兴“始发直达”模式预计可为周边企业节省至少1.5小时的中转运输时间，让“中国制造”以更快速度触达中东欧市场。
+从“有学上”到“上好学”，浙江正以法治保障筑牢根基，探索一条老年教育的“进阶之路”。
 
-“本次航班货物结构中，跨境电商货物占比约90%，也是航线开通初期的核心货源。
+15分钟，打造“家门口”的幸福学堂 走进浙江宁波镇海招宝山街道的新三宝服务社老年学堂，不时传来一阵阵悠扬的乐曲声。
 
-普通货物约占10%，主要来自周边地区的纺织品。
+老年学堂电吹管班的学员正为即将到来的文艺汇演进行最后排练。
 
-两者互补既丰富了货源结构，也有效提升了航班载运率和运营效率。
+“老年学堂开课以来，每次报名都很火爆，我们针对部分热门课程进行了扩班。
 
-”浙江省机场集团物流公司直属嘉兴物流公司主要负责人介绍。
+”新三宝服务社党支部书记黄冠冠说。
 
 ## 相关推荐
 
-- 2026-06-29 13:55 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 13:53 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 13:59 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 13:55 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 13:57 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:54 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 13:32 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 13:53 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 13:35 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 13:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 13:31 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 13:51 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 14:04 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 13:49 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 14:04 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 13:43 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 13:40 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 13:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 13:38 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 13:51 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 13:59 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 14:02 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:50 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.minike.top/Article/details/441893817827.shtml)
-- 2026-06-29 13:39 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/9206241.shtml)
-- 2026-06-29 13:45 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/60789.shtml)
-- 2026-06-29 13:34 - [恋与深空需直面玩家6大疑问](https://www.share.kurohicncr.top/Article/details/767442.shtml)
-- 2026-06-29 13:38 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/3507735.shtml)
-- 2026-06-29 13:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/62598.shtml)
-- 2026-06-29 13:54 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/48121.shtml)
-- 2026-06-29 13:54 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/23815735.shtml)
-- 2026-06-29 13:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/4764663523.shtml)
-- 2026-06-29 13:41 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.minike.top/Article/details/323164412371.shtml)
-- 2026-06-29 13:57 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/989356.shtml)
-- 2026-06-29 13:34 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/270049.shtml)
-- 2026-06-29 13:52 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/74768333410.shtml)
-- 2026-06-29 13:36 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/67205772669.shtml)
-- 2026-06-29 13:35 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/2823438245.shtml)
+- 2026-06-29 13:46 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/676329525544.shtml)
+- 2026-06-29 13:44 - [爱很美味](https://www.blog.minike.top/Article/details/93195823319.shtml)
+- 2026-06-29 13:51 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/8988159258.shtml)
+- 2026-06-29 14:01 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/55634.shtml)
+- 2026-06-29 13:55 - [急先锋](https://www.share.kurohicncr.top/Article/details/760535185675.shtml)
+- 2026-06-29 13:36 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/31638067.shtml)
+- 2026-06-29 13:50 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/834083067092.shtml)
+- 2026-06-29 13:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/26621859107.shtml)
+- 2026-06-29 13:48 - [中国战机大片上新](http://www.blog.kurohicncr.top/Article/details/19136942.shtml)
+- 2026-06-29 13:49 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/6143362101.shtml)
+- 2026-06-29 13:39 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/265799048.shtml)
+- 2026-06-29 13:49 - [84岁英国教授成中国网红](https://www.share.kurohicncr.top/Article/details/9655831.shtml)
+- 2026-06-29 14:06 - [世界杯用球成部分门将噩梦](http://www.blog.kurohicncr.top/Article/details/97004393753.shtml)
+- 2026-06-29 13:45 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/5790805256.shtml)
+- 2026-06-29 13:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/0995162.shtml)

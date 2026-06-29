@@ -1,59 +1,61 @@
-# 英媒称英外交大臣要求首相斯塔默辞职
+# 韩国预计5月份石脑油供应量将达到伊朗冲突前水平的90%
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社伦敦6月21日电（记者于艾岑）据英国天空新闻频道21日报道，英国外交大臣库珀已于本周末私下要求首相斯塔默辞职。 英国商业贸易大臣彼得·凯尔21日早间接受英国天空新闻频道采访时说，他认为斯塔默正在“反思他所面临的政治现实、挑战和机遇”。 此前有英媒报道称，英国交通大臣海迪·亚历山大19日敦促斯塔默制定离
+韩国产业通商资源部周二表示，预计5月份韩国将锁定伊朗冲突前石脑油供应量的90%，并补充说，主要石化企业正在根据进口供应情况扩大工厂产能。 据韩国产业通商资源部的数据，此前因石脑油短缺而宣布部分产品遭遇不可抗力的丽川NCC公司，其工厂开工率已从4月1日的55%提高到上周五的65%。 同期，韩国石化工业公司的开工率也从62%提高到72%。 石脑油是一种重要的工业原料，广泛应用于石化
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+韩国产业通商资源部周二表示，预计5月份韩国将锁定伊朗冲突前石脑油供应量的90%，并补充说，主要石化企业正在根据进口供应情况扩大工厂产能。
 
-新华社伦敦6月21日电（记者于艾岑）据英国天空新闻频道21日报道，英国外交大臣库珀已于本周末私下要求首相斯塔默辞职。
+据韩国产业通商资源部的数据，此前因石脑油短缺而宣布部分产品遭遇不可抗力的丽川NCC公司，其工厂开工率已从4月1日的55%提高到上周五的65%。
 
-英国商业贸易大臣彼得·凯尔21日早间接受英国天空新闻频道采访时说，他认为斯塔默正在“反思他所面临的政治现实、挑战和机遇”。
+同期，韩国石化工业公司的开工率也从62%提高到72%。
 
-此前有英媒报道称，英国交通大臣海迪·亚历山大19日敦促斯塔默制定离任时间表，内政大臣谢巴娜·马哈茂德也曾呼吁斯塔默确定离任日期。
+石脑油是一种重要的工业原料，广泛应用于石化及其他多个行业。
 
-19日凌晨，英国大曼彻斯特市长安迪·伯纳姆赢得马克菲尔德选区下院议员补选，将重返议会下院，从而具备参与工党党首竞争、进而角逐首相职位的条件。
+下个月石脑油的稳定供应，正值政府努力确保替代供应并帮助降低国内企业进口该原料的成本之际。
 
-伯纳姆被广泛视作斯塔默工党党首地位的有力竞争者，他曾在该选区一场补选候选人辩论中表示，如果他获胜，将寻求加入任何挑战斯塔默党首之位的活动。
+韩国已从包括阿曼和沙特在内的四个中东国家确保在今年年底前获得210万吨石脑油。
 
-斯塔默19日对英国媒体表示，如果发生党首竞选，他将会参选，并重申自己不会“一走了之”。
+这一数量相当于去年需求量约一个月的供应量。
 
-（完）责任编辑：宋雅芳
+关于政府的原油互换机制，韩国产业通商资源部表示，主要炼油厂已申请本月和下月总额约3100万桶的互换协议。
 
 ## 相关推荐
 
-- 2026-06-29 13:59 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 13:45 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 13:59 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 13:32 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 13:44 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 13:52 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 13:52 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 13:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 13:50 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 13:49 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 13:33 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 13:43 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 13:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 13:49 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 14:05 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 13:42 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 14:00 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 14:03 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 13:46 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 13:50 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 13:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 13:57 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 14:01 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 13:37 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 13:57 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 13:59 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 13:42 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 13:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/027042988.shtml)
-- 2026-06-29 13:50 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/846848658.shtml)
-- 2026-06-29 13:35 - [AG 钟意](https://www.blog.minike.top/Article/details/5831199087.shtml)
-- 2026-06-29 13:44 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/55726.shtml)
-- 2026-06-29 13:56 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/4427279.shtml)
-- 2026-06-29 13:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/9010554.shtml)
-- 2026-06-29 13:56 - [亚洲成世界杯最大失意者联盟](https://www.share.kurohicncr.top/Article/details/088797604785.shtml)
-- 2026-06-29 13:54 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/029982942848.shtml)
-- 2026-06-29 13:51 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/88212.shtml)
-- 2026-06-29 13:53 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/87089178335.shtml)
-- 2026-06-29 13:52 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/399919.shtml)
-- 2026-06-29 13:55 - [明星大侦探第四季](https://www.share.minike.top/Article/details/516129.shtml)
-- 2026-06-29 13:31 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/26662091761.shtml)
-- 2026-06-29 13:45 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/1769307.shtml)
-- 2026-06-29 13:51 - [强⁶](https://www.blog.kurohicncr.top/Article/details/97830126.shtml)
+- 2026-06-29 13:53 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/361479.shtml)
+- 2026-06-29 13:57 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/645189611.shtml)
+- 2026-06-29 14:03 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/598256328.shtml)
+- 2026-06-29 13:49 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/069482642630.shtml)
+- 2026-06-29 13:47 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/84482543526.shtml)
+- 2026-06-29 13:58 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/533156039322.shtml)
+- 2026-06-29 13:52 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.minike.top/Article/details/088423.shtml)
+- 2026-06-29 14:02 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/0144942433.shtml)
+- 2026-06-29 13:55 - [媒体：高考后消费应量力而行适度有度](https://www.share.kurohicncr.top/Article/details/666366732162.shtml)
+- 2026-06-29 13:49 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/420603748.shtml)
+- 2026-06-29 13:44 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/4383931.shtml)
+- 2026-06-29 13:51 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/750673584.shtml)
+- 2026-06-29 13:45 - [恋与深空失控领地](http://www.share.minike.top/Article/details/50988.shtml)
+- 2026-06-29 13:53 - [这位天才台湾人第一次来大陆，开智了](https://www.share.minike.top/Article/details/2162409.shtml)
+- 2026-06-29 13:40 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/88528.shtml)

@@ -1,52 +1,61 @@
-# 休市提醒：今日美股因六月节休市一日
+# 阿联酋ADNOC拟斥资数百亿美元进军美国天然气市场
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-今日美股因六月节休市一日。六月节，芝商所旗下贵金属、美国原油、外汇、股指、美债期货合约交易提前于北京时间20日01：00结束。洲际交易所（ICE）旗下布伦特原油期货合约交易提前于北京时间20日01：30结束。沪深及北交所、国内期货交易所因端午节休市一日，中国台湾证券交易所因端午节休市一日。中国香港交易所因端午节休市一日，南、北向交易关闭。责任编辑：王永生
+阿布扎比国家石油公司正计划在美国投资数百亿美元，建立覆盖全产业链的天然气业务。在中东地缘冲突持续的背景下，此举被视为该公司实现能源资产多元化、对冲地区风险的关键战略布局。 全产业链布局：从上游开采到下游发电 ADNOC旗下国际投资子公司XRG正在评估29笔潜在交易，目标是在美国建立垂直整合的天然气业务。XRG首席投资官表示，公司的野心覆盖天然气价值链的每一个环节，包括上游开采、
 
 ## 正文
 
-今日美股因六月节休市一日。
+阿布扎比国家石油公司正计划在美国投资数百亿美元，建立覆盖全产业链的天然气业务。
 
-六月节，芝商所旗下贵金属、美国原油、外汇、股指、美债期货合约交易提前于北京时间20日01：00结束。
+在中东地缘冲突持续的背景下，此举被视为该公司实现能源资产多元化、对冲地区风险的关键战略布局。
 
-洲际交易所（ICE）旗下布伦特原油期货合约交易提前于北京时间20日01：30结束。
+全产业链布局：从上游开采到下游发电 ADNOC旗下国际投资子公司XRG正在评估29笔潜在交易，目标是在美国建立垂直整合的天然气业务。
 
-沪深及北交所、国内期货交易所因端午节休市一日，中国台湾证券交易所因端午节休市一日。
+XRG首席投资官表示，公司的野心覆盖天然气价值链的每一个环节，包括上游开采、管道运输、加工厂、液化设施，甚至包括在目的地国家的再气化设施和直供终端用户的输气网络。
 
-中国香港交易所因端午节休市一日，南、北向交易关闭。
+该计划不仅着眼于全球液化天然气市场的增长，还瞄准了美国国内因数据中心扩张而日益增长的天然气发电需求。
 
-责任编辑：王永生
+战略背景：对冲中东地缘风险 分析人士指出，ADNOC此次大举进军美国市场，与伊朗战争导致霍尔木兹海峡油气运输受阻密切相关。
+
+这场冲突已使海湾国家承受了数百亿美元的收入损失，阿联酋亟需将资产重新配置到政治稳定、法律透明的司法管辖区，以对冲地区风险。
+
+XRG首席执行官强调，尽管面临与伊朗战争相关的经济挑战，公司向美国能源价值链投入数百亿美元的计划“坚定不移”。
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 13:52 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 13:45 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 13:57 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 13:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 13:36 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 13:32 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 13:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 13:30 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 13:48 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 13:38 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 13:39 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 13:37 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 13:46 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 13:41 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 14:03 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 14:01 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 13:52 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 13:53 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 13:45 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 13:47 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 13:52 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 14:00 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 13:41 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 13:41 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:49 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/07295.shtml)
-- 2026-06-29 13:36 - [速度与激情9](http://www.share.minike.top/Article/details/91572671.shtml)
-- 2026-06-29 13:40 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/9182949946.shtml)
-- 2026-06-29 13:39 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/729966114544.shtml)
-- 2026-06-29 13:48 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/65638237060.shtml)
-- 2026-06-29 13:40 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/41255.shtml)
-- 2026-06-29 13:37 - [亚洲成世界杯最大失意者联盟](http://www.blog.minike.top/Article/details/404717861218.shtml)
-- 2026-06-29 13:43 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.kurohicncr.top/Article/details/35627.shtml)
-- 2026-06-29 13:59 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/13590582913.shtml)
-- 2026-06-29 13:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/411466.shtml)
-- 2026-06-29 13:54 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/076663.shtml)
-- 2026-06-29 13:33 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/6159640.shtml)
-- 2026-06-29 13:51 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/472418762961.shtml)
-- 2026-06-29 13:33 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.kurohicncr.top/Article/details/721790838860.shtml)
-- 2026-06-29 13:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/89417.shtml)
+- 2026-06-29 14:02 - [各路“神仙”扎堆洛阳乘地铁](http://www.share.minike.top/Article/details/93449841.shtml)
+- 2026-06-29 14:00 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/2106601650.shtml)
+- 2026-06-29 13:59 - [一见倾心](http://www.share.minike.top/Article/details/1328236009.shtml)
+- 2026-06-29 14:03 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/205093922.shtml)
+- 2026-06-29 13:56 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.share.kurohicncr.top/Article/details/431959.shtml)
+- 2026-06-29 13:39 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/85939018178.shtml)
+- 2026-06-29 13:55 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/43882.shtml)
+- 2026-06-29 14:02 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/713263537.shtml)
+- 2026-06-29 13:52 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/2114069.shtml)
+- 2026-06-29 13:38 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/005254961593.shtml)
+- 2026-06-29 13:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/086984.shtml)
+- 2026-06-29 14:01 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/07672.shtml)
+- 2026-06-29 13:44 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/47875473914.shtml)
+- 2026-06-29 13:46 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/8832388.shtml)
+- 2026-06-29 13:52 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/8333250445.shtml)

@@ -1,48 +1,61 @@
-# 央行、证监会：支持香港于近期正式推出5年期人民币国债期货产品
+# OpenAI在冲刺IPO关键期未达营收和用户目标
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据中国人民银行微信公众号消息，6月18日，香港证监会宣布将于近期启动5年期人民币国债期货上市交易。 对此，中国人民银行、中国证监会有关部门负责人表示，中国人民银行、中国证监会支持香港于近期正式推出5年期人民币国债期货产品，此举有利于进一步丰富国际投资者风险管理工具，提升人民币资产吸引力，巩固提升香港离岸人民币枢纽地位，增强长期配置型投资者投资中国的意愿和信心
+OpenAI最近未能实现其设定的新用户和营收目标，这一挫折已在公司部分领导层中引发担忧，他们担心该公司能否支撑起在数据中心上的巨额开销。 据知情人士透露，首席财务官萨拉．弗莱尔（Sarah Friar）已告知公司其他领导者，她担心如果营收增长不够快，公司可能无法支付未来的算力合同。 这些知情人士称，近几个月来，董事们也更密切地审视了OpenAI的数据中心交易，并对首席执行官山姆
 
 ## 正文
 
-中新网6月18日电 据中国人民银行微信公众号消息，6月18日，香港证监会宣布将于近期启动5年期人民币国债期货上市交易。
+OpenAI最近未能实现其设定的新用户和营收目标，这一挫折已在公司部分领导层中引发担忧，他们担心该公司能否支撑起在数据中心上的巨额开销。
 
-对此，中国人民银行、中国证监会有关部门负责人表示，中国人民银行、中国证监会支持香港于近期正式推出5年期人民币国债期货产品，此举有利于进一步丰富国际投资者风险管理工具，提升人民币资产吸引力，巩固提升香港离岸人民币枢纽地位，增强长期配置型投资者投资中国的意愿和信心。
+据知情人士透露，首席财务官萨拉．弗莱尔（Sarah Friar）已告知公司其他领导者，她担心如果营收增长不够快，公司可能无法支付未来的算力合同。
 
-下一步，中国人民银行、中国证监会将按照防风险、强监管、促高质量发展的工作要求，会同香港方面加强市场监测分析、数据信息共享和跨境监管合作，共同维护两地市场平稳有序运行。
+这些知情人士称，近几个月来，董事们也更密切地审视了OpenAI的数据中心交易，并对首席执行官山姆．阿尔特曼（Sam Altman）在业务放缓的情况下仍努力确保获得更多算力的做法提出了质疑。
+
+在该公司可能于年底前进行IPO之际，这种对支出的审视正在制约阿尔特曼一度无边的雄心。
+
+据知情人士称，弗莱尔和其他高管现在正寻求控制成本，并加强业务运营的纪律性，这有时会让他们与首席执行官产生分歧。
+
+阿尔特曼和弗莱尔在一份联合声明中表示：“我们的共识非常明确：必须倾尽全力获取算力，并为此并肩作战。
+
+”他们说，任何关于两人存在分歧或在确保新计算资源方面有所退缩的说法都是“荒谬的”。
+
+多年来，阿尔特曼一直试图锁定尽可能多的数据中心算力，他认为算力短缺是OpenAI增长的最大制约因素。
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 13:36 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 13:33 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 13:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 13:45 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 13:31 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 13:55 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 13:30 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 13:34 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 13:32 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 13:55 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 13:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 13:52 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 13:50 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 13:54 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 13:54 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 14:05 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 13:41 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 13:51 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 13:52 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 14:02 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 13:44 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 13:46 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 13:42 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 13:41 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 13:40 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 13:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/586190.shtml)
-- 2026-06-29 13:32 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.minike.top/Article/details/918335800131.shtml)
-- 2026-06-29 13:30 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/051274.shtml)
-- 2026-06-29 13:33 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/2489023.shtml)
-- 2026-06-29 13:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/13888810065.shtml)
-- 2026-06-29 13:49 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/74317153.shtml)
-- 2026-06-29 13:34 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/61585090.shtml)
-- 2026-06-29 13:44 - [金刚川](https://www.blog.kurohicncr.top/Article/details/7637049338.shtml)
-- 2026-06-29 13:45 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/62224.shtml)
-- 2026-06-29 13:55 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/537725509.shtml)
-- 2026-06-29 13:36 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/95603.shtml)
-- 2026-06-29 13:45 - [请回答王牌2019](http://www.share.minike.top/Article/details/369164.shtml)
-- 2026-06-29 13:46 - [腾讯回应做独立支付APP](http://www.blog.kurohicncr.top/Article/details/5031808653.shtml)
-- 2026-06-29 13:40 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/672100.shtml)
-- 2026-06-29 13:46 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/252004906561.shtml)
+- 2026-06-29 13:59 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/7293128.shtml)
+- 2026-06-29 13:49 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/11668.shtml)
+- 2026-06-29 13:39 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/4889672.shtml)
+- 2026-06-29 13:38 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/1647631.shtml)
+- 2026-06-29 13:50 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/5456039.shtml)
+- 2026-06-29 13:39 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/478912992.shtml)
+- 2026-06-29 13:45 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/96800.shtml)
+- 2026-06-29 13:37 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/73584.shtml)
+- 2026-06-29 13:51 - [青春环游记第三季](https://www.share.minike.top/Article/details/179542176.shtml)
+- 2026-06-29 14:00 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/50911469.shtml)
+- 2026-06-29 13:37 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/105695392.shtml)
+- 2026-06-29 13:36 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/192858760117.shtml)
+- 2026-06-29 13:55 - [5万块的威力](http://www.blog.minike.top/Article/details/65153331.shtml)
+- 2026-06-29 13:54 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/5654893.shtml)
+- 2026-06-29 13:52 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/30966.shtml)

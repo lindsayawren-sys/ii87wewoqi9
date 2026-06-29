@@ -1,61 +1,59 @@
-# 专访古凡“掌门人”：“轻、快、灵”走出民营乐团“破圈”之路
+# 新增一个董事又罢免一个副总，振芯科技控股股东与前管理层内斗继续
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网上海6月21日电 题：专访古凡“掌门人”：“轻、快、灵”走出民营乐团“破圈”之路 中新网记者 王笈 2026年的黄浦江畔迎来多场世界名团的精彩演出——4月，克罗地亚坦布里察乐团巡演至上海，于弦上演绎克罗地亚的诗与远方；5月底，德国慕尼黑之声童声合唱团访沪，中德两国孩子们同台唱响中国歌曲……这些演出的引进方，都有“古凡”的身影。 作为一家两次获得国家艺术基金项目资助的民营乐
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|胥帅 每经编辑|魏文艺 近期，振芯科技（SZ300101，股价19.58元，市值111.20亿元）披露2025年年度报告和2026年第一季度报告，召开董事会审议财报等相关议案。 4月28日晚间，振芯科技披露了第七届董事会第四次临时会议决议公告，决定解聘公司副总经理周蕙。独立董事李毅投下反对票，认为
 
 ## 正文
 
-中新网上海6月21日电 题：专访古凡“掌门人”：“轻、快、灵”走出民营乐团“破圈”之路 中新网记者 王笈 2026年的黄浦江畔迎来多场世界名团的精彩演出——4月，克罗地亚坦布里察乐团巡演至上海，于弦上演绎克罗地亚的诗与远方；5月底，德国慕尼黑之声童声合唱团访沪，中德两国孩子们同台唱响中国歌曲……这些演出的引进方，都有“古凡”的身影。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-作为一家两次获得国家艺术基金项目资助的民营乐团，上海古凡交响乐团成立十余年来，在国际文化交流的赛道上走出了一条独特路径。
+每经记者|胥帅 每经编辑|魏文艺 近期，振芯科技（SZ300101，股价19.58元，市值111.20亿元）披露2025年年度报告和2026年第一季度报告，召开董事会审议财报等相关议案。
 
-“我们是大浪里的搏击者。
+4月28日晚间，振芯科技披露了第七届董事会第四次临时会议决议公告，决定解聘公司副总经理周蕙。
 
-”上海古凡交响乐团团长、古凡机构创始人钱立近日接受中新网记者专访时表示，中国音乐那么美，中国市场那么大，除了体制内院团，民营乐团也能“生长”出不一样的风景，“轻、快、灵，贴近时代、贴近观众，同时追求一定的自我风格，是古凡的生存之道和价值所在”。
+独立董事李毅投下反对票，认为解聘程序存在瑕疵。
 
-从《红楼梦》出发，为东西方文化交流“摆渡” 2015年夏天，“成团”仅一年的上海古凡交响乐团在维也纳美泉宫皇家剧院奏响《红楼梦音乐传奇》，成为首登该剧院的中国乐团。
+《每日经济新闻》记者（以下简称“每经记者”）注意到，在振芯科技董事会上，财务类议案全数全票通过，控股股东与原管理层罕见达成共识；但在人事任免议题上，双方分歧持续显现。
 
-“剧院里坐满了奥地利观众，谢幕时全场响起热烈掌声。
+高管解聘议案闯关董事会，独董质疑审议程序存在疏漏 根据公告，在第七届董事会第四次临时会议上，《关于解聘公司副总经理周蕙的议案》以5票同意、3票反对获得通过。
 
-”作为整场活动的策划人，钱立至今难忘当时的轰动场景，“我们还在美泉宫展出《红楼梦》的英文版、德文版书籍，以及画家戴敦邦创作的‘梦游太虚幻境’等艺术家作品，那些观众觉得中国文化太博大精深了”。
+董事谢俊、杨章投反对票，理由为“本着公司经营团队稳定、审慎、公正的原则，反对本议案”。
 
-此后十年，从意大利到津巴布韦，古凡的足迹走过全球十余个国家，与50多个国际艺术院团保持深度合作。
+独立董事李毅亦投下反对票，理由指向议案的程序与事实认定。
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 13:40 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 13:49 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 13:56 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 13:33 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 13:32 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 13:31 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 13:37 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 13:46 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 13:37 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 13:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 13:32 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 13:43 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 13:53 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 13:34 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 14:03 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 13:57 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 13:37 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 13:42 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 13:41 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 14:00 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 13:48 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 13:38 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 13:36 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 13:56 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 13:59 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 13:41 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 13:42 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/99617.shtml)
-- 2026-06-29 13:43 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/342354.shtml)
-- 2026-06-29 13:46 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/06609.shtml)
-- 2026-06-29 13:32 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/69506359.shtml)
-- 2026-06-29 13:54 - [赵露思爸爸拍vlog翻车了](http://www.share.minike.top/Article/details/31658775.shtml)
-- 2026-06-29 13:30 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/1016024.shtml)
-- 2026-06-29 13:42 - [广州某高校辟谣禁止小米汽车入校](http://www.share.minike.top/Article/details/12261.shtml)
-- 2026-06-29 13:56 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/74733.shtml)
-- 2026-06-29 13:37 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/3889982.shtml)
-- 2026-06-29 13:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/510636570.shtml)
-- 2026-06-29 13:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/7197943.shtml)
-- 2026-06-29 13:52 - [高考公平需要延伸到志愿填报这一环](https://www.share.minike.top/Article/details/109505743877.shtml)
-- 2026-06-29 13:45 - [亚洲成世界杯最大失意者联盟](https://www.share.kurohicncr.top/Article/details/1834688799.shtml)
-- 2026-06-29 13:34 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.kurohicncr.top/Article/details/8320115.shtml)
-- 2026-06-29 13:58 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/45144479040.shtml)
+- 2026-06-29 14:03 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/24202380.shtml)
+- 2026-06-29 14:03 - [逃狱兄弟](http://www.blog.minike.top/Article/details/6222097431.shtml)
+- 2026-06-29 13:53 - [为什么欧洲人不装空调](https://www.share.minike.top/Article/details/514501054.shtml)
+- 2026-06-29 13:38 - [王佳佳江疏影13年前后同框对比](https://www.blog.minike.top/Article/details/767878893724.shtml)
+- 2026-06-29 13:41 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/3502573684.shtml)
+- 2026-06-29 14:04 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/192216440.shtml)
+- 2026-06-29 13:40 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/2597800316.shtml)
+- 2026-06-29 13:45 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/339529797.shtml)
+- 2026-06-29 13:58 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/814777037475.shtml)
+- 2026-06-29 13:58 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/207823864.shtml)
+- 2026-06-29 13:42 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/71654.shtml)
+- 2026-06-29 13:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/1913621707.shtml)
+- 2026-06-29 13:46 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/13817.shtml)
+- 2026-06-29 14:01 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/038844744855.shtml)
+- 2026-06-29 14:02 - [韩体育部长回应李在明痛批](https://www.blog.minike.top/Article/details/90611187537.shtml)

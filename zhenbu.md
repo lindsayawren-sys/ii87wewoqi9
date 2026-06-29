@@ -1,60 +1,44 @@
-# 2026中俄跨境10公里大桥跑完赛
+# PCB概念股午前涨幅居前 胜宏科技涨近8%建滔积层板涨近6%
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网黑河6月20日电 (记者 王琳)6月20日，2026中俄跨境10公里大桥跑在黑龙江大桥完赛。近300名中俄跑者齐聚界江之畔，共同完成了这场跨越中俄两国的独特奔跑体验。 13时，随着发令枪响，选手们从俄罗斯卡尼库尔干公路口岸正式起跑。赛道沿黑龙江大桥向中国方向延伸，经中方桥头(折返)、俄方桥头(折返)，最终抵达中国黑河公路口岸。 全程10公里的赛道悬于浩荡的界江之上，选手脚
+PCB概念股午前涨幅居前，截至发稿，胜宏科技（02476）上涨7.87%，报323.60港元；建滔积层板（01888）上涨5.67%，报37.64港元；建滔集团（00148）上涨3.84%，报47.58港元；广合科技（01989）上涨2.93%，报179.40港元；大族数控（03200）上涨0.145%，报137.90港元。责任编辑：卢昱君
 
 ## 正文
 
-中新网黑河6月20日电 (记者 王琳)6月20日，2026中俄跨境10公里大桥跑在黑龙江大桥完赛。
+PCB概念股午前涨幅居前，截至发稿，胜宏科技（02476）上涨7.87%，报323.60港元；建滔积层板（01888）上涨5.67%，报37.64港元；建滔集团（00148）上涨3.84%，报47.58港元；广合科技（01989）上涨2.93%，报179.40港元；大族数控（03200）上涨0.145%，报137.90港元。
 
-近300名中俄跑者齐聚界江之畔，共同完成了这场跨越中俄两国的独特奔跑体验。
-
-13时，随着发令枪响，选手们从俄罗斯卡尼库尔干公路口岸正式起跑。
-
-赛道沿黑龙江大桥向中国方向延伸，经中方桥头(折返)、俄方桥头(折返)，最终抵达中国黑河公路口岸。
-
-全程10公里的赛道悬于浩荡的界江之上，选手脚下是奔流不息的黑龙江水。
-
-赛事结束后，选手们抵达瑷珲·腾冲中国人口地理分界线主题公园，参加中俄美食品鉴活动，在美食交流中增进两国民众互动。
-
-此次2026中俄跨境10公里大桥跑，依托黑龙江大桥独特的跨境地理优势，打造了中俄边境特色体育，以体育赛事赋能边境文旅产业升级。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:50 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 13:38 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 13:56 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 13:37 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 13:32 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 13:38 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 13:55 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 13:46 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 13:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 13:42 - [白玉兰最佳女主角提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 13:35 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 13:54 - [Mrbeast的30天不吃饭挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 13:37 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 13:30 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 13:50 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 13:48 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 13:46 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 13:59 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 13:52 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 14:04 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 13:55 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 13:43 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 13:53 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 13:56 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:33 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/671152704.shtml)
-- 2026-06-29 13:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/02363.shtml)
-- 2026-06-29 13:42 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/2228741037.shtml)
-- 2026-06-29 13:43 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/7976790427.shtml)
-- 2026-06-29 13:51 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.kurohicncr.top/Article/details/0642879298.shtml)
-- 2026-06-29 13:39 - [千与千寻](https://www.share.minike.top/Article/details/63315588.shtml)
-- 2026-06-29 13:31 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/8744039772.shtml)
-- 2026-06-29 13:52 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/178574.shtml)
-- 2026-06-29 13:48 - [腾讯回应做独立支付APP](https://www.blog.kurohicncr.top/Article/details/56034.shtml)
-- 2026-06-29 13:54 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/5969362.shtml)
-- 2026-06-29 13:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/268510449.shtml)
-- 2026-06-29 13:58 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/1587105741.shtml)
-- 2026-06-29 13:55 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.minike.top/Article/details/220865767863.shtml)
-- 2026-06-29 13:42 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/04885730675.shtml)
-- 2026-06-29 13:36 - [韩国政府将对世界杯出局追责](http://www.share.kurohicncr.top/Article/details/81482175661.shtml)
+- 2026-06-29 13:49 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/090649695510.shtml)
+- 2026-06-29 13:47 - [周生如故](https://www.share.minike.top/Article/details/9980803389.shtml)
+- 2026-06-29 13:58 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.kurohicncr.top/Article/details/928762987.shtml)
+- 2026-06-29 14:00 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/685597.shtml)
+- 2026-06-29 13:52 - [李连杰回应网传不管前妻俩女儿](http://www.share.minike.top/Article/details/50330.shtml)
+- 2026-06-29 13:49 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/816143.shtml)
+- 2026-06-29 13:56 - [久坐小心“死臀综合征”](http://www.share.kurohicncr.top/Article/details/0130487573.shtml)
+- 2026-06-29 13:59 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/0590646.shtml)
+- 2026-06-29 13:54 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/0671284143.shtml)
+- 2026-06-29 13:54 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/33927779.shtml)
+- 2026-06-29 13:41 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/7387188001.shtml)
+- 2026-06-29 14:02 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/9459606.shtml)
+- 2026-06-29 13:38 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/287014801.shtml)
+- 2026-06-29 13:44 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/2453971384.shtml)
+- 2026-06-29 13:44 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/85398.shtml)

@@ -1,60 +1,61 @@
-# 习言道丨习近平亲自命名的村庄，从“干沙滩”变成“金沙滩”
+# CCG创始人王辉耀：始终致力于搭建跨越国家与文化沟通桥梁，推动互利共赢国际合作
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网6月19日电 题：习近平亲自命名的村庄，从“干沙滩”变成“金沙滩” “兄弟仨只有一条裤子，谁要出门给谁穿”“扶贫下拨的珍珠种鸡被偷抓，吃得只剩下最后一只”……这是电视剧《山海情》里的场景，故事发生在20世纪90年代的宁夏西海固地区。 “有水赛江南，无水泪亦干”，宁夏曾被这样形容，而西海固地区便是后者，这里曾被联合国世界粮食计划署认定为“不适宜人类生存的地区之一”。 199
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。中国与全球化智库创始人兼会长、前国务院参事王辉耀出席并致辞。 王辉耀谈到，当前，世界充满不确定性，比以往任何时候都更需要坦诚、建设性的国际对话。 面对全球化逆风，他指出，中国正处于 “十五五” 规划实施的关键阶段，深化高水平对外开放、推进高质量发展、积极参与
 
 ## 正文
 
-中新网6月19日电 题：习近平亲自命名的村庄，从“干沙滩”变成“金沙滩” “兄弟仨只有一条裤子，谁要出门给谁穿”“扶贫下拨的珍珠种鸡被偷抓，吃得只剩下最后一只”……这是电视剧《山海情》里的场景，故事发生在20世纪90年代的宁夏西海固地区。
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
 
-“有水赛江南，无水泪亦干”，宁夏曾被这样形容，而西海固地区便是后者，这里曾被联合国世界粮食计划署认定为“不适宜人类生存的地区之一”。
+中国与全球化智库创始人兼会长、前国务院参事王辉耀出席并致辞。
 
-1996年，党中央作出东西部扶贫协作战略部署，其中确定福建与宁夏结对帮扶。
+王辉耀谈到，当前，世界充满不确定性，比以往任何时候都更需要坦诚、建设性的国际对话。
 
-1997年4月，时任福建省委副书记的习近平率团来到宁夏，深入西海固地区考察，六天走了五县，翻山越沟，访贫问苦，一幕幕贫困的场景牵动着他的心。
+面对全球化逆风，他指出，中国正处于 “十五五” 规划实施的关键阶段，深化高水平对外开放、推进高质量发展、积极参与全球治理，是我们肩负的重要战略使命。
 
-他后来回忆说，自己真正体会到什么叫家徒四壁，“一家子既没有桌椅板凳，也没有铺盖。
+“这一使命也让我们在动荡时期，更加坚定寻求合作方案、弥合国际分歧的决心。
 
-家里唯一的‘财产’是挂在房梁上的一撮发菜，就靠卖这么一点发菜来买油盐酱醋”。
+” 王辉耀介绍到，中国与全球化智库（CCG）位列全球百强智库，是中国唯一拥有联合国特别咨商地位的民间智库，连续五年被宾夕法尼亚大学评为全球顶尖智库。
 
-那次西海固之行，让习近平同志下定决心推动对宁夏的对口帮扶。
+“我们始终致力于推动包容的全球对话，搭建跨越国家与文化的沟通桥梁，为全球治理提供重要参考，为中国决策层提供政策建议，最终推动互利共赢的国际合作。
 
-帮扶的突破口在哪里？
+”他说。
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 13:44 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 13:46 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 13:41 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 13:37 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 13:41 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 13:48 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 13:54 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 13:31 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 13:30 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 13:48 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 13:37 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 13:44 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 13:33 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 14:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 14:01 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 13:52 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 13:36 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 13:53 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 13:59 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 13:49 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 13:46 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 14:00 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 13:55 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 13:40 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 13:44 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 14:04 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 13:50 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 13:38 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:34 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/929912145.shtml)
-- 2026-06-29 13:35 - [四川宜宾地震](http://www.share.minike.top/Article/details/37786.shtml)
-- 2026-06-29 13:40 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.minike.top/Article/details/386813.shtml)
-- 2026-06-29 13:47 - [T1对战KC](http://www.blog.kurohicncr.top/Article/details/42525.shtml)
-- 2026-06-29 13:37 - [亚洲成世界杯最大失意者联盟](https://www.blog.minike.top/Article/details/782756441797.shtml)
-- 2026-06-29 13:38 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/4739381.shtml)
-- 2026-06-29 13:43 - [本周做什么都顺的星座](https://www.blog.minike.top/Article/details/044057454162.shtml)
-- 2026-06-29 13:53 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/24690897389.shtml)
-- 2026-06-29 13:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/7461668553.shtml)
-- 2026-06-29 13:36 - [F1奥地利正赛战报](https://www.blog.kurohicncr.top/Article/details/8521525.shtml)
-- 2026-06-29 13:37 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/8557620840.shtml)
-- 2026-06-29 13:42 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/36484922.shtml)
-- 2026-06-29 13:54 - [周生如故](https://www.blog.kurohicncr.top/Article/details/21623734.shtml)
-- 2026-06-29 13:53 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/412702302.shtml)
-- 2026-06-29 13:42 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/37532091216.shtml)
+- 2026-06-29 13:47 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.minike.top/Article/details/87690741346.shtml)
+- 2026-06-29 14:00 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/543272724.shtml)
+- 2026-06-29 13:59 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/566700617.shtml)
+- 2026-06-29 14:05 - [金牌调解](http://www.share.minike.top/Article/details/848799853.shtml)
+- 2026-06-29 13:44 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/22752807.shtml)
+- 2026-06-29 13:55 - [明星大侦探第一季](https://www.share.minike.top/Article/details/61571.shtml)
+- 2026-06-29 13:41 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/6366817646.shtml)
+- 2026-06-29 13:39 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/5709173.shtml)
+- 2026-06-29 13:48 - [汪东城回应45岁婚约](https://www.share.minike.top/Article/details/867688.shtml)
+- 2026-06-29 13:53 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/0078246499.shtml)
+- 2026-06-29 13:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/3670369.shtml)
+- 2026-06-29 13:42 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/66994.shtml)
+- 2026-06-29 13:50 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/9287617.shtml)
+- 2026-06-29 13:37 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/194516085864.shtml)
+- 2026-06-29 13:51 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/18482178136.shtml)

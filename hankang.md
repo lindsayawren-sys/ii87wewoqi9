@@ -1,56 +1,56 @@
-# 专访香港中乐团艺术总监：文化自信方能迈向世界
+# 一季度中国规上文化企业营收超3.5万亿元 同比增6.4%
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月19日 18:33 来源：中国新闻网 香港中乐团第50乐季暨国际笙簧节发布会6月18日在广州举行。这是香港中乐团首次将乐季发布会移师粤港澳大湾区内地城市，标志着其在区域文化融合进程中迈出关键一步。 发布会上，香港中乐团公布了第50乐季的详细规划。其中开幕音乐会“千簧一宇”，将于9月19日至20日在香港文化中心上演，将汇聚世界各地著名笙演奏家，展现从晋北
+中新社北京4月29日电 (记者 王恩博)中国国家统计局29日公布，一季度，全国规模以上文化及相关产业企业(简称“文化企业”)实现营业收入35569亿元(人民币，下同)，比上年同期增长6.4%。 分领域看，文化核心领域实现营业收入25193亿元，比上年同期增长9.2%，其中，创意设计服务、内容创作生产、新闻信息服务等3个行业大类营业收入实现两位数增长，增速分别为12.0%、10.
 
 ## 正文
 
-发布时间：2026年06月19日 18:33 来源：中国新闻网 香港中乐团第50乐季暨国际笙簧节发布会6月18日在广州举行。
+中新社北京4月29日电 (记者 王恩博)中国国家统计局29日公布，一季度，全国规模以上文化及相关产业企业(简称“文化企业”)实现营业收入35569亿元(人民币，下同)，比上年同期增长6.4%。
 
-这是香港中乐团首次将乐季发布会移师粤港澳大湾区内地城市，标志着其在区域文化融合进程中迈出关键一步。
+分领域看，文化核心领域实现营业收入25193亿元，比上年同期增长9.2%，其中，创意设计服务、内容创作生产、新闻信息服务等3个行业大类营业收入实现两位数增长，增速分别为12.0%、10.7%和10.3%。
 
-发布会上，香港中乐团公布了第50乐季的详细规划。
+国家统计局社科文司统计师潘旭华表示，一季度，文化新业态特征较为明显的16个行业小类实现营业收入16782亿元，比上年同期增长11.2%，快于规模以上文化企业4.8个百分点。
 
-其中开幕音乐会“千簧一宇”，将于9月19日至20日在香港文化中心上演，将汇聚世界各地著名笙演奏家，展现从晋北声腔、唐笙遗制、黔桂芦笙到欧洲管风琴的簧属乐器完整谱系。
+文化新业态行业对规模以上文化企业营业收入增长的贡献率为79.0%，拉动规模以上文化企业营业收入增长5.1个百分点。
 
-现场来自香港中乐团的乐手们也为广州市民带来了精彩的演绎，并向大家介绍这一古老又相对小众的传统乐器。
+其中，娱乐用智能无人飞行器制造、数字出版、互联网广告服务、其他文化数字内容服务、多媒体游戏动漫和数字出版软件开发、互联网其他信息服务等6个行业小类营业收入实现两位数增长。
 
-香港中乐团艺术总监兼终身指挥阎惠昌介绍，笙是中华三千年礼乐文明的活化石，本次国际笙簧节将推动中西簧片乐器交融合奏，借此连接全球乐手与大众，彰显中国传统音乐的文化感染力。
+文化服务表现突出，一季度实现营业收入20715亿元，比上年同期增长9.9%。
 
-记者 王庆然 广州报道 责任编辑：【孙静波】
+文化服务业企业营业收入占规模以上文化企业的比重为58.2%，比上年同期提高1.8个百分点。
+
+文化服务业企业对规模以上文化企业营业收入增长的贡献率为86.6%，拉动规模以上文化企业营业收入增长5.6个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 13:53 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 13:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 13:45 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 13:55 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 13:49 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 13:38 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 13:55 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 13:55 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 13:45 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 13:32 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 13:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 13:45 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 13:55 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-29 13:43 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 13:54 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 13:58 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 13:51 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 13:48 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 14:04 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 13:46 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 13:59 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:41 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/7325121927.shtml)
-- 2026-06-29 13:33 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.minike.top/Article/details/92108904.shtml)
-- 2026-06-29 13:55 - [扫黑风暴](http://www.blog.minike.top/Article/details/95951991.shtml)
-- 2026-06-29 13:52 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/63190732999.shtml)
-- 2026-06-29 13:44 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/90428946.shtml)
-- 2026-06-29 13:31 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/24485860.shtml)
-- 2026-06-29 13:55 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.minike.top/Article/details/67211631464.shtml)
-- 2026-06-29 13:55 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/47559542769.shtml)
-- 2026-06-29 13:42 - [当我回母校教书](https://www.blog.minike.top/Article/details/2631823.shtml)
-- 2026-06-29 13:52 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/079169.shtml)
-- 2026-06-29 13:45 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/4171140539.shtml)
-- 2026-06-29 13:44 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/562345.shtml)
-- 2026-06-29 13:55 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/36528477.shtml)
-- 2026-06-29 13:53 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/24716264.shtml)
-- 2026-06-29 13:35 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/37719753848.shtml)
+- 2026-06-29 14:01 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/8043173011.shtml)
+- 2026-06-29 13:42 - [F1奥地利大奖赛正赛集锦](https://www.share.minike.top/Article/details/68967676.shtml)
+- 2026-06-29 13:44 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/58810975.shtml)
+- 2026-06-29 13:50 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.minike.top/Article/details/695049695.shtml)
+- 2026-06-29 13:51 - [F1奥地利正赛战报](https://www.share.minike.top/Article/details/9827232011.shtml)
+- 2026-06-29 14:02 - [TOP 无畏契约](https://www.share.minike.top/Article/details/393059847.shtml)
+- 2026-06-29 13:59 - [当我回母校教书](http://www.share.minike.top/Article/details/40531385.shtml)
+- 2026-06-29 13:51 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/8838779.shtml)
+- 2026-06-29 13:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/403835418.shtml)
+- 2026-06-29 13:57 - [我们注定是一撮县城葱姜蒜](http://www.share.minike.top/Article/details/122165125.shtml)
+- 2026-06-29 13:45 - [A股](http://www.share.kurohicncr.top/Article/details/3272874856.shtml)
+- 2026-06-29 13:53 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/491685850.shtml)
+- 2026-06-29 13:46 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/785584.shtml)
+- 2026-06-29 14:02 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/80027.shtml)
+- 2026-06-29 14:03 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.kurohicncr.top/Article/details/457011691.shtml)

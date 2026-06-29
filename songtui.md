@@ -1,58 +1,54 @@
-# 洲际船务附属拟3750万美元出售一艘船舶
+# 中国贸促会：澳大利亚将担任第四届链博会主宾国
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-洲际船务（02409）发布公告，于2026年6月19日（联交所交易时段后），卖方Seacon Hamburg Ltd（公司的间接全资附属公司）与买方Belle Shipping Co．订立协议，据此，卖方同意出售而买方同意购买船舶，代价为3750万美元。 船舶目前根据光船租赁，由拥有人租赁予卖方。卖方意图于交付日期之前，根据光船租赁的条款，按购买选择权价格行使购买选择权以收购船
+发布时间：2026年04月29日 17:46 来源：中国新闻网 4月29日，中国贸促会举行例行新闻发布会。新闻发言人王冠男在会上介绍，第四届链博会各项筹备工作进展顺利。截至目前，已在境内外举办61场路演推介活动，相关国际组织、外国政商界嘉宾和专业观众，以及广大中外企业参展参会情况超出预期，充分反映各国特别是国际工商界搭乘中国“十五五”经济发展快车和推动国际产业链供应链合作的强烈
 
 ## 正文
 
-洲际船务（02409）发布公告，于2026年6月19日（联交所交易时段后），卖方Seacon Hamburg Ltd（公司的间接全资附属公司）与买方Belle Shipping Co．订立协议，据此，卖方同意出售而买方同意购买船舶，代价为3750万美元。
+发布时间：2026年04月29日 17:46 来源：中国新闻网 4月29日，中国贸促会举行例行新闻发布会。
 
-船舶目前根据光船租赁，由拥有人租赁予卖方。
+新闻发言人王冠男在会上介绍，第四届链博会各项筹备工作进展顺利。
 
-卖方意图于交付日期之前，根据光船租赁的条款，按购买选择权价格行使购买选择权以收购船舶。
+截至目前，已在境内外举办61场路演推介活动，相关国际组织、外国政商界嘉宾和专业观众，以及广大中外企业参展参会情况超出预期，充分反映各国特别是国际工商界搭乘中国“十五五”经济发展快车和推动国际产业链供应链合作的强烈意愿。
 
-卖方透过行使购买选择权收购的船舶，将根据协议进一步交付予买方。
+王冠男提到，近日，澳大利亚政府正式确认，将担任第四届链博会主宾国，这是澳大利亚首次以官方国家级身份正式参与链博会，将由澳大利亚贸易投资委员会牵头组织设立澳大利亚国家馆和组织相关活动。
 
-船舶，即Seacon Hamburg，一艘于2023年建造的总吨位为48，785吨的散货船。
-
-出售事项以及行使购买选择权符合集团的持续战略，即维持船队组合均衡，以优化其船队。
-
-董事认为，出售事项为以合理价格出售船舶的机会，这将使集团能够改善其营运资金状况，进一步加强其流动性，并为收购新船舶提供资金，以优化集团的船队组合。
-
-公司将持续注视航运业的现行市场状况，并监察及适时调整集团的船队组合。
+(记者 迟瀚宇) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 13:30 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 13:30 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 13:42 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 13:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 13:53 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 13:33 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 13:46 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 13:37 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 13:40 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 13:54 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 13:59 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 13:30 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 13:55 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 13:45 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 13:36 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 13:50 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 13:38 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 13:50 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 13:49 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 13:43 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 13:39 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 13:51 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 14:00 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 13:50 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 13:57 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 13:41 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:42 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/659216709.shtml)
-- 2026-06-29 13:58 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/028481.shtml)
-- 2026-06-29 13:42 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/47414720027.shtml)
-- 2026-06-29 13:39 - [一见倾心](http://www.share.minike.top/Article/details/92388897698.shtml)
-- 2026-06-29 13:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/5039976018.shtml)
-- 2026-06-29 13:53 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/107266779489.shtml)
-- 2026-06-29 13:50 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/038722102.shtml)
-- 2026-06-29 13:49 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/87412.shtml)
-- 2026-06-29 13:57 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/4742564675.shtml)
-- 2026-06-29 13:30 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/79951.shtml)
-- 2026-06-29 13:58 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/548904.shtml)
-- 2026-06-29 13:42 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.share.kurohicncr.top/Article/details/2386546588.shtml)
-- 2026-06-29 13:31 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/740454538359.shtml)
-- 2026-06-29 13:50 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/658501.shtml)
-- 2026-06-29 13:32 - [强⁶](https://www.blog.kurohicncr.top/Article/details/90209500.shtml)
+- 2026-06-29 14:05 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/10227974.shtml)
+- 2026-06-29 13:52 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/634347647.shtml)
+- 2026-06-29 14:02 - [周生如故](https://www.blog.minike.top/Article/details/5465148966.shtml)
+- 2026-06-29 13:45 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/90154.shtml)
+- 2026-06-29 14:02 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/534594129355.shtml)
+- 2026-06-29 13:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/6633502726.shtml)
+- 2026-06-29 13:45 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/663020579870.shtml)
+- 2026-06-29 13:49 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/722743.shtml)
+- 2026-06-29 13:50 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/5960208994.shtml)
+- 2026-06-29 14:01 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/7056646310.shtml)
+- 2026-06-29 13:39 - [锐评浪姐7总决赛](http://www.share.kurohicncr.top/Article/details/0318476238.shtml)
+- 2026-06-29 13:43 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/039607202802.shtml)
+- 2026-06-29 13:45 - [NBA交易](https://www.blog.minike.top/Article/details/5470231010.shtml)
+- 2026-06-29 14:04 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/0149293332.shtml)
+- 2026-06-29 14:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/422020.shtml)

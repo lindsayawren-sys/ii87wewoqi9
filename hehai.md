@@ -1,58 +1,57 @@
-# 江苏扬州守护大运河文脉：让市民从运河“倾听者”变为“参与者”
+# 梅赛德斯-奔驰营收利润下滑 但对全年业绩持乐观态度
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网扬州6月20日电 (徐珊珊 杨家华 陈娟)20日，在6·22中国大运河申遗成功纪念日前夕，由扬州世界文化遗产保护管理办公室主办，扬州大运河保护志愿服务总队、扬州职业技术大学联合开展“运河伙伴·守护文脉”2026扬州运河志愿服务主题活动。活动旨在将运河文化传播、非遗活化、生态保护有机融合，既让广大民众读懂运河遗产价值，更推动市民游客从运河文化“倾听者”转变为遗产保护“参与者
+梅赛德斯-奔驰表示，尽管今年年初收入和盈利能力下滑，但该公司有信心实现营业利润复苏。这家德国豪华汽车制造商周三表示，今年前三个月实现息税前利润19亿欧元（22.3亿美元），较去年同期下降17%。营收同比下降4.9%，至316.0亿欧元，而核心的汽车业务经调整后营业利润率从之前的7.3%降至4.1%。集团净利润同比下降17%，至14.3亿欧元。尽管如此，梅赛德斯-奔驰表示，仍有信
 
 ## 正文
 
-中新网扬州6月20日电 (徐珊珊 杨家华 陈娟)20日，在6·22中国大运河申遗成功纪念日前夕，由扬州世界文化遗产保护管理办公室主办，扬州大运河保护志愿服务总队、扬州职业技术大学联合开展“运河伙伴·守护文脉”2026扬州运河志愿服务主题活动。
+梅赛德斯-奔驰表示，尽管今年年初收入和盈利能力下滑，但该公司有信心实现营业利润复苏。
 
-活动旨在将运河文化传播、非遗活化、生态保护有机融合，既让广大民众读懂运河遗产价值，更推动市民游客从运河文化“倾听者”转变为遗产保护“参与者”。
+这家德国豪华汽车制造商周三表示，今年前三个月实现息税前利润19亿欧元（22.3亿美元），较去年同期下降17%。
 
-扬州是中国大运河原点城市、中国大运河申遗牵头城市，也是全国唯一全域划入大运河文化保护传承利用规划核心区的地级市。
+营收同比下降4.9%，至316.0亿欧元，而核心的汽车业务经调整后营业利润率从之前的7.3%降至4.1%。
 
-2014年6月，扬州牵头中国大运河申遗成功，使得这一线性活态的巨型文化遗产为世界瞩目。
+集团净利润同比下降17%，至14.3亿欧元。
 
-当日，本次活动在中国大运河申遗展示馆、东关街、古运河沿线举办，通过公益宣讲、非遗科创市集、河道净滩护绿三类志愿服务形式，凝聚社会各界志愿力量，推进大运河遗产保护与文化宣传。
+尽管如此，梅赛德斯-奔驰表示，仍有信心2026年营业利润将“远高于“去年水平。
 
-在大运河申遗展示馆，一场文脉溯源·展馆公益讲解正在开展。
+该公司表示，这“主要反映了上一财年发生的重组费用“。
 
-“运河伙伴”志愿者依托大运河申遗展示馆展陈体系，为观众提供精细化讲解服务，让运河遗产价值可看、可听、可感。
+营收预计将大致持平。
 
-志愿者以互动科普、情景宣讲的方式，系统梳理大运河千年发展脉络、申遗奋斗历程，细致解读世界文化遗产保护标准，重点阐释扬州作为运河原点城市的独特区位价值与历史担当，生动展示运河生态治理、活化利用的丰硕成果。
+该集团表示，正在关注中东冲突对消费者信心的潜在影响。
 
 ## 相关推荐
 
-- 2026-06-29 13:59 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 13:31 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 13:47 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 13:40 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 13:33 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 13:45 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 13:51 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 13:30 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 13:40 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 13:47 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 13:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 13:42 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 13:42 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 13:40 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 14:03 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 14:05 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 13:42 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 13:55 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 13:48 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 13:39 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 14:02 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 13:48 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 13:54 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/142331763.shtml)
-- 2026-06-29 13:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/05690.shtml)
-- 2026-06-29 13:36 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.minike.top/Article/details/1112943876.shtml)
-- 2026-06-29 13:43 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/721139416.shtml)
-- 2026-06-29 13:52 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/13783040064.shtml)
-- 2026-06-29 13:43 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/7413708082.shtml)
-- 2026-06-29 13:58 - [四川宜宾地震](https://www.blog.minike.top/Article/details/5789885.shtml)
-- 2026-06-29 13:41 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/14386168.shtml)
-- 2026-06-29 13:52 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/003916.shtml)
-- 2026-06-29 13:51 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/371663107.shtml)
-- 2026-06-29 13:45 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/075991.shtml)
-- 2026-06-29 13:31 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/57281.shtml)
-- 2026-06-29 13:56 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/88894508888.shtml)
-- 2026-06-29 13:46 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/4296955.shtml)
-- 2026-06-29 13:49 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/61579540098.shtml)
+- 2026-06-29 13:55 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/44314.shtml)
+- 2026-06-29 13:58 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/448927937.shtml)
+- 2026-06-29 13:39 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.minike.top/Article/details/8391396099.shtml)
+- 2026-06-29 13:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/93044685216.shtml)
+- 2026-06-29 13:37 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/122716513811.shtml)
+- 2026-06-29 13:39 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.minike.top/Article/details/04426.shtml)
+- 2026-06-29 13:47 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/488174071581.shtml)
+- 2026-06-29 13:48 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/59867240920.shtml)
+- 2026-06-29 13:49 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/3928577.shtml)
+- 2026-06-29 13:51 - [媒体：高考后消费应量力而行适度有度](http://www.blog.minike.top/Article/details/380925402785.shtml)
+- 2026-06-29 13:41 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/76848.shtml)
+- 2026-06-29 14:00 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/566459412.shtml)
+- 2026-06-29 13:38 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.minike.top/Article/details/76058.shtml)
+- 2026-06-29 13:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/310517171287.shtml)
+- 2026-06-29 13:44 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/8509269.shtml)

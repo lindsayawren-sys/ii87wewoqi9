@@ -1,57 +1,59 @@
-# 2026年5月全国自然灾害情况发布 主要呈现四个特点
+# 景顺长城基金创业板：他们说要带着“光”，驯服每一头怪兽
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据应急管理部微信公众号消息，近日，国家防灾减灾救灾委员会办公室、应急管理部会同有关成员单位，对2026年5月全国自然灾害情况进行了会商分析。5月份，我国自然灾害以洪涝和地质灾害、风雹灾害、地震灾害为主，干旱灾害、低温雨雪冰冻和雪灾等也有不同程度发生。据初步统计，各种自然灾害共造成全国660.9万人次不同程度受灾，死亡失踪95人，紧急转移安置和需紧急生活救助3
+景顺长城基金 新能源和光通信两大龙头超预期的一季报业绩披露后，创业板在基本面向好的支撑中持续上行，不仅创业板指创下了近11年新高，创业板50也再现“反弹急先锋”本色，创下历史新高。（数据来源：Wind，截至2026.04.17，创业板指和创业板50的收盘价分别为3678.29、3933.45） 面对如此凶猛的涨幅，已经在车上的投资者很纠结：“要不要趁反弹赶紧卖了？”；不在车上的
 
 ## 正文
 
-中新网6月18日电 据应急管理部微信公众号消息，近日，国家防灾减灾救灾委员会办公室、应急管理部会同有关成员单位，对2026年5月全国自然灾害情况进行了会商分析。
+景顺长城基金 新能源和光通信两大龙头超预期的一季报业绩披露后，创业板在基本面向好的支撑中持续上行，不仅创业板指创下了近11年新高，创业板50也再现“反弹急先锋”本色，创下历史新高。
 
-5月份，我国自然灾害以洪涝和地质灾害、风雹灾害、地震灾害为主，干旱灾害、低温雨雪冰冻和雪灾等也有不同程度发生。
+（数据来源：Wind，截至2026.04.17，创业板指和创业板50的收盘价分别为3678.29、3933.45） 面对如此凶猛的涨幅，已经在车上的投资者很纠结：“要不要趁反弹赶紧卖了？
 
-据初步统计，各种自然灾害共造成全国660.9万人次不同程度受灾，死亡失踪95人，紧急转移安置和需紧急生活救助33.5万人次，倒塌房屋620余户近2000间，损坏房屋1.5万户3.4万间，农作物受灾面积586千公顷，直接经济损失200.8亿元。
+”；不在车上的投资者更纠结：“行情还能持续吗？
 
-5月份全国自然灾害主要特点有： 一、全国降雨总量较同期偏多、南方降雨极端性强，西南华中地区洪涝和地质灾害灾情突出 5月份，全国平均降水量76.5毫米，较常年同期偏多8.8%；共发生4次区域暴雨过程，南方降雨分布极其不均，大部分地区降雨偏少，但广东、湖北、广西等局地降水量突破历史极值，整体呈现“点强面弱、单点极值”的特征，其中5月15日至20日为特强暴雨过程，极端性显著。
+现在入场好像有点晚了？
 
-全国主要江河径流总量与常年同期偏多近1成，18省(自治区、直辖市)146条河流发生超警以上洪水，其中23条超保、1条发生有实测资料以来最大洪水。
+”。
 
-强降水天气在湖南、重庆、贵州、广东、广西等地引发洪涝和地质灾害，局地灾情较重。
+是什么在推动创业板持续上涨？
 
-其中，湖南石门和重庆永川各20人死亡失踪，贵州贵定、麻江等7个县19人死亡失踪。
+想知道行情是否能够持续，我们得先搞清楚创业板能有这波行情的原因。
 
-洪涝和地质灾害共造成576.5万人次不同程度受灾，死亡失踪82人，倒塌房屋近1700间，损坏房屋2.1万间，农作物受灾面积509.9千公顷，直接经济损失192.6亿元。
+在创业板的行业构成中，新能源和算力是绝对核心，以创业板指为例，电力设备、通信、电子和计算机的权重合计高达74.9%，意味着指数的表现受上述行业涨幅的影响较大。
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 13:49 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 13:34 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 13:42 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 13:33 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 13:41 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 13:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 13:31 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 13:36 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 13:37 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 13:57 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 14:00 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 13:51 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 13:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 14:03 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 14:02 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 13:52 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 13:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 14:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 13:56 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 13:36 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 13:48 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 13:56 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 13:48 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/01040.shtml)
-- 2026-06-29 13:48 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/786290448824.shtml)
-- 2026-06-29 13:36 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/788870.shtml)
-- 2026-06-29 13:32 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/04725.shtml)
-- 2026-06-29 13:48 - [本周做什么都顺的星座](http://www.share.kurohicncr.top/Article/details/425801803900.shtml)
-- 2026-06-29 13:40 - [吴建豪老婆](http://www.share.minike.top/Article/details/06497446847.shtml)
-- 2026-06-29 13:33 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/222549038.shtml)
-- 2026-06-29 13:41 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/71950198372.shtml)
-- 2026-06-29 13:50 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/037114367804.shtml)
-- 2026-06-29 13:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/241707.shtml)
-- 2026-06-29 13:59 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/941684627.shtml)
-- 2026-06-29 13:43 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/760813.shtml)
-- 2026-06-29 13:56 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/028805651407.shtml)
-- 2026-06-29 13:33 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/4285816.shtml)
-- 2026-06-29 13:41 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/306274742853.shtml)
+- 2026-06-29 13:59 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/08480.shtml)
+- 2026-06-29 13:38 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.kurohicncr.top/Article/details/820032563733.shtml)
+- 2026-06-29 13:57 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/103121.shtml)
+- 2026-06-29 13:53 - [欧洲超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/11662835.shtml)
+- 2026-06-29 13:46 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/982256067248.shtml)
+- 2026-06-29 13:36 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/45492595319.shtml)
+- 2026-06-29 13:56 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/43937.shtml)
+- 2026-06-29 14:02 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/779601108372.shtml)
+- 2026-06-29 14:05 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/34644791.shtml)
+- 2026-06-29 13:55 - [我们注定是一撮县城葱姜蒜](https://www.blog.minike.top/Article/details/22685720875.shtml)
+- 2026-06-29 13:55 - [医药股集体爆发](https://www.blog.minike.top/Article/details/364990.shtml)
+- 2026-06-29 13:38 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/389496227554.shtml)
+- 2026-06-29 14:00 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/654604192.shtml)
+- 2026-06-29 14:03 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/05773631.shtml)
+- 2026-06-29 14:00 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/6151392.shtml)

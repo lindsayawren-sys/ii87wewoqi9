@@ -1,58 +1,55 @@
-# 2026海淀石刻艺术周发布国家植物园（北园）石刻文化地图
+# 大美边疆看我家丨云南建水：夏意渐浓 凤凰花初绽
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网北京6月19日电 (记者 应妮)由海淀区文化发展促进中心联合国家植物园(北园)主办的2026海淀石刻艺术周正在国家植物园(北园)曹雪芹纪念馆举行。艺术周以“石上记忆——从《石头记》到海淀石刻艺术周”为主题，依托国家植物园(北园)丰富的石刻遗存，包括主题碑拓展、国家植物园(北园)石刻文化地图发布、石刻文化沙龙等多个活动。 作为2026海淀石刻艺术周的重要活动，国家植物园(北
+发布时间：2026年04月29日 14:49 来源：中国新闻网 彩云之南，红河之畔，千年建水古韵悠长。4月28日，云南建水，初夏时节，凤凰花悄然绽放，火红的花簇跃上枝头，热烈明艳，与古城街巷相映成景。一树繁花，满城诗意，既藏着边疆小城的温婉静谧，又尽显滇南大地的蓬勃生机。大美边疆，一花一景皆是动人画卷。作者：陈维娇 责任编辑：【魏聪聪】
 
 ## 正文
 
-中新网北京6月19日电 (记者 应妮)由海淀区文化发展促进中心联合国家植物园(北园)主办的2026海淀石刻艺术周正在国家植物园(北园)曹雪芹纪念馆举行。
+发布时间：2026年04月29日 14:49 来源：中国新闻网 彩云之南，红河之畔，千年建水古韵悠长。
 
-艺术周以“石上记忆——从《石头记》到海淀石刻艺术周”为主题，依托国家植物园(北园)丰富的石刻遗存，包括主题碑拓展、国家植物园(北园)石刻文化地图发布、石刻文化沙龙等多个活动。
+4月28日，云南建水，初夏时节，凤凰花悄然绽放，火红的花簇跃上枝头，热烈明艳，与古城街巷相映成景。
 
-作为2026海淀石刻艺术周的重要活动，国家植物园(北园)石刻文化地图18日正式发布。
+一树繁花，满城诗意，既藏着边疆小城的温婉静谧，又尽显滇南大地的蓬勃生机。
 
-园内保存了大量从明代至民国时期的珍贵石刻，是研究北京西部历史变迁与文化交融的重要实物档案。
+大美边疆，一花一景皆是动人画卷。
 
-这份地图清晰梳理了园内石刻遗存分布脉络，是海淀石刻艺术周服务公众的落地成果。
-
-国家植物园(北园)党委副书记董亚力表示，这张石刻文化地图将园内散落的碑刻、摩崖等石刻遗存系统梳理、直观呈现，一方面推动文化资源的“活态保护”与公众参与，另一方面也践行了“以文塑旅、以旅彰文”的文旅融合思路。
-
-“石上记忆——北京西山碑志撷英”拓片展从6月16日开放，将持续至7月26日。
-
-展览内容全部来自国家植物园(北园)石刻，共展出44件珍贵碑石拓本，分为万物和谐、卧游胜迹、贞珉萃英、朴石成器四大板块，形成对京西石刻历史脉络的系统梳理。
+作者：陈维娇 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 13:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 13:30 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 13:47 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 13:47 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 13:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 13:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 13:47 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 13:37 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 13:39 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 13:47 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 13:34 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 13:38 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 13:45 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 13:55 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 13:48 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 13:36 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 13:46 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 13:51 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 13:43 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 14:04 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 13:37 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 13:54 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 13:58 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 13:45 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 13:42 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 14:04 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:58 - [伊朗球员致歉](https://www.share.minike.top/Article/details/3425173.shtml)
-- 2026-06-29 13:33 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/11486.shtml)
-- 2026-06-29 13:56 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/967977362.shtml)
-- 2026-06-29 13:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/33329.shtml)
-- 2026-06-29 13:52 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/604379071925.shtml)
-- 2026-06-29 13:52 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/960872.shtml)
-- 2026-06-29 13:31 - [天道](https://www.blog.minike.top/Article/details/901503229476.shtml)
-- 2026-06-29 13:40 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.kurohicncr.top/Article/details/87575.shtml)
-- 2026-06-29 13:32 - [一见倾心](https://www.share.minike.top/Article/details/6582085.shtml)
-- 2026-06-29 13:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/411042384.shtml)
-- 2026-06-29 13:53 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.minike.top/Article/details/63972.shtml)
-- 2026-06-29 13:51 - [TOP 无畏契约](http://www.share.minike.top/Article/details/58847319.shtml)
-- 2026-06-29 13:38 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/16338980309.shtml)
-- 2026-06-29 13:56 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/498411997.shtml)
-- 2026-06-29 13:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/3569281860.shtml)
+- 2026-06-29 13:49 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/719312563834.shtml)
+- 2026-06-29 13:37 - [吴建豪老婆](http://www.blog.minike.top/Article/details/6074645.shtml)
+- 2026-06-29 13:46 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/758337085077.shtml)
+- 2026-06-29 14:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/422465112.shtml)
+- 2026-06-29 13:44 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/38861098.shtml)
+- 2026-06-29 13:38 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/932864302185.shtml)
+- 2026-06-29 13:57 - [这位猫咪，请你自重！](http://www.share.kurohicncr.top/Article/details/49502597.shtml)
+- 2026-06-29 13:46 - [送你一朵小红花](http://www.share.minike.top/Article/details/7014956.shtml)
+- 2026-06-29 14:00 - [比亚迪市值为何蒸发8000亿](https://www.share.kurohicncr.top/Article/details/443245.shtml)
+- 2026-06-29 14:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/9881152880.shtml)
+- 2026-06-29 13:48 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/0765680280.shtml)
+- 2026-06-29 13:45 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/497467.shtml)
+- 2026-06-29 13:48 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/7691847.shtml)
+- 2026-06-29 13:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/953573182457.shtml)
+- 2026-06-29 13:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/751872511.shtml)

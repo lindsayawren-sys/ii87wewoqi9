@@ -1,48 +1,56 @@
-# 传音控股发布公告 已重新提交H股上市申请并披露相关资料
+# 三亚亚沙会：中国选手赵一程打破男子速度攀岩世界纪录
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-6月21日，传音控股（688036.SH）发布公告称，公司已于2026年6月18日向香港联交所重新提交本次H股发行上市的申请，并于同日在香港联交所网站刊登申请资料。本次发行尚需取得证监会备案、香港证监会及香港联交所等批准，存在不确定性。（文章来源：央广财经）
+中新社三亚4月28日电 (周昕)第六届亚洲沙滩运动会攀岩项目28日在海南三亚开赛。在男子速度攀岩预赛上，中国选手赵一程以4秒58的成绩创造该项目世界纪录。 本届亚沙会攀岩项目设置男子和女子速度赛，下设个人标准速度赛和速度接力赛共计4个小项。中国队派出8人参赛，包括巴黎奥运会速度攀岩奖牌得主伍鹏、邓丽娟。 预赛分两轮进行，以每位选手两轮中的最快时间为最终成绩。小将赵一程在第一轮便
 
 ## 正文
 
-6月21日，传音控股（688036.SH）发布公告称，公司已于2026年6月18日向香港联交所重新提交本次H股发行上市的申请，并于同日在香港联交所网站刊登申请资料。
+中新社三亚4月28日电 (周昕)第六届亚洲沙滩运动会攀岩项目28日在海南三亚开赛。
 
-本次发行尚需取得证监会备案、香港证监会及香港联交所等批准，存在不确定性。
+在男子速度攀岩预赛上，中国选手赵一程以4秒58的成绩创造该项目世界纪录。
 
-（文章来源：央广财经）
+本届亚沙会攀岩项目设置男子和女子速度赛，下设个人标准速度赛和速度接力赛共计4个小项。
+
+中国队派出8人参赛，包括巴黎奥运会速度攀岩奖牌得主伍鹏、邓丽娟。
+
+预赛分两轮进行，以每位选手两轮中的最快时间为最终成绩。
+
+小将赵一程在第一轮便以4秒73秒的成绩追平了印度尼西亚选手拉哈贾蒂·努尔萨姆萨保持的亚洲纪录。
+
+第二轮比赛，赵一程以4秒58的成绩创造该项目世界纪录，顺利晋级。
+
+原纪录是由美国选手沃森在2025年攀岩世界杯巴厘岛站中创造的4秒64。
 
 ## 相关推荐
 
-- 2026-06-29 13:45 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 13:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 13:41 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 13:32 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 13:54 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 13:43 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 13:39 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 13:55 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 13:50 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 13:40 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 13:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 13:49 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 14:04 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 13:51 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 13:37 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 13:55 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 13:54 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 13:36 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 13:45 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 13:47 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 14:03 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 13:44 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:31 - [吴昕要助理买的药6年前已停产](http://www.blog.kurohicncr.top/Article/details/88476349.shtml)
-- 2026-06-29 13:58 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/87742.shtml)
-- 2026-06-29 13:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/3559937365.shtml)
-- 2026-06-29 13:55 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/338251208.shtml)
-- 2026-06-29 13:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/844691.shtml)
-- 2026-06-29 13:35 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/937576281.shtml)
-- 2026-06-29 13:49 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/382137478.shtml)
-- 2026-06-29 13:57 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/67625598850.shtml)
-- 2026-06-29 13:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/224028.shtml)
-- 2026-06-29 13:48 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/855174244746.shtml)
-- 2026-06-29 13:37 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/81568783.shtml)
-- 2026-06-29 13:52 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/737531855.shtml)
-- 2026-06-29 13:48 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/019429144176.shtml)
-- 2026-06-29 13:41 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/30612860.shtml)
-- 2026-06-29 13:58 - [航空运输旅客服务质量国标将实施](https://www.blog.kurohicncr.top/Article/details/047124.shtml)
+- 2026-06-29 13:57 - [斗破苍穹](http://www.share.minike.top/Article/details/8599867.shtml)
+- 2026-06-29 13:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/47939.shtml)
+- 2026-06-29 13:36 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/069964.shtml)
+- 2026-06-29 13:40 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/4129389303.shtml)
+- 2026-06-29 13:39 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/33004774.shtml)
+- 2026-06-29 14:00 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/945587668.shtml)
+- 2026-06-29 13:56 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/356723.shtml)
+- 2026-06-29 13:45 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/61380.shtml)
+- 2026-06-29 14:05 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/54961869889.shtml)
+- 2026-06-29 13:36 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.minike.top/Article/details/33322.shtml)
+- 2026-06-29 13:45 - [强⁶](http://www.blog.minike.top/Article/details/222535448.shtml)
+- 2026-06-29 13:57 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/64500.shtml)
+- 2026-06-29 14:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/730408905759.shtml)
+- 2026-06-29 13:51 - [天道](https://www.blog.minike.top/Article/details/668642377299.shtml)
+- 2026-06-29 14:00 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/53503264744.shtml)

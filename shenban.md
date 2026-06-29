@@ -1,61 +1,50 @@
-# 报告：智能物流将成推动京津冀协同新引擎
+# 交银国际：凯莱英目标价上调至136.6港元 维持“买入”评级
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网北京6月18日电 (陈杭 韩莹莹 祁琪)18日在北京发布的《京津冀蓝皮书：京津冀物流协同发展报告(2025)》提出，智能物流将成为推动京津冀协同的新引擎。人工智能、大数据、物联网等新一代信息技术将深入应用于仓储调度、运输路径优化、冷链监控及供应链管理，实现物流全过程的智能感知与决策。三地计划共建“京津冀数智物流协同平台”，有利于推动信息系统互联互通与数据资源共享，提升区域
+交银国际发布研报称，将凯莱英H股目标价调高至136.6港元，A 股为159.2元人民币，维持“买入”的投资评级。基于首财季的超预期业绩表现，交银国际上调凯莱英2026-28年经调整净利润预测2-14%。 该行指，尽管面临汇率波动和小份子业务高基数的影响，该公司在2026年首财季录得强劲且超预期的利润增长，反映出新兴业务订单需求的持续高涨和经营效率的提升。公司在高景气度赛道的后期
 
 ## 正文
 
-中新网北京6月18日电 (陈杭 韩莹莹 祁琪)18日在北京发布的《京津冀蓝皮书：京津冀物流协同发展报告(2025)》提出，智能物流将成为推动京津冀协同的新引擎。
+交银国际发布研报称，将凯莱英H股目标价调高至136.6港元，A 股为159.2元人民币，维持“买入”的投资评级。
 
-人工智能、大数据、物联网等新一代信息技术将深入应用于仓储调度、运输路径优化、冷链监控及供应链管理，实现物流全过程的智能感知与决策。
+基于首财季的超预期业绩表现，交银国际上调凯莱英2026-28年经调整净利润预测2-14%。
 
-三地计划共建“京津冀数智物流协同平台”，有利于推动信息系统互联互通与数据资源共享，提升区域物流网络运行的整体效率与安全性。
+该行指，尽管面临汇率波动和小份子业务高基数的影响，该公司在2026年首财季录得强劲且超预期的利润增长，反映出新兴业务订单需求的持续高涨和经营效率的提升。
 
-报告由北京物资学院北京现代物流研究基地组织编写。
+公司在高景气度赛道的后期订单规模扩大和前瞻性投入，可望带来较强的长期高增长确定性。
 
-根据报告，京津冀物流一体化进入以“质量提升、协同深化、绿色转型”为特征的新阶段，区域一体化体系和数智化基础初步形成，协同效应逐步显现。
-
-报告指出，展望未来，京津冀物流协同将继续朝“数智化、绿色化、一体化、高质量”四大发展方向推进。
-
-未来三地将依托既有的交通网络和产业布局，进一步推进跨区域物流基础设施互联互通。
-
-通过统一的区域规划，形成港口、空港、铁路、公路、内陆港及物流园区的协同网络，构建覆盖全区域的高效物流通道体系。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:59 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 13:42 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 13:35 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 13:48 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 13:35 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 13:48 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 13:35 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 13:39 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 13:36 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 13:33 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 13:46 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 13:55 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 13:53 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 13:51 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 13:52 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 13:52 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 13:36 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 13:49 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 13:49 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 14:03 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 13:44 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 13:56 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 14:05 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 13:44 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 13:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:40 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/3398087067.shtml)
-- 2026-06-29 13:59 - [时光音乐会](http://www.share.minike.top/Article/details/97930255178.shtml)
-- 2026-06-29 13:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/0437786.shtml)
-- 2026-06-29 13:38 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/05925294.shtml)
-- 2026-06-29 13:59 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/54303590.shtml)
-- 2026-06-29 13:31 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.kurohicncr.top/Article/details/04849.shtml)
-- 2026-06-29 13:50 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/76564642.shtml)
-- 2026-06-29 13:30 - [韩国拟将部分刑责年龄降至13岁](http://www.share.kurohicncr.top/Article/details/576734.shtml)
-- 2026-06-29 13:38 - [王佳佳江疏影13年前后同框对比](http://www.share.minike.top/Article/details/5438447494.shtml)
-- 2026-06-29 13:35 - [光与夜之恋](https://www.blog.minike.top/Article/details/569258522.shtml)
-- 2026-06-29 13:34 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/7029355.shtml)
-- 2026-06-29 13:38 - [广州某高校辟谣禁止小米汽车入校](https://www.blog.minike.top/Article/details/48940455647.shtml)
-- 2026-06-29 13:45 - [和阿根廷球员家属一起看球](http://www.share.minike.top/Article/details/87905858.shtml)
-- 2026-06-29 13:46 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/97894.shtml)
-- 2026-06-29 13:46 - [向佑说向佐是一生依靠](https://www.share.minike.top/Article/details/8146693.shtml)
+- 2026-06-29 13:48 - [沙丘](http://www.share.kurohicncr.top/Article/details/078030535817.shtml)
+- 2026-06-29 13:59 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/65337256830.shtml)
+- 2026-06-29 13:45 - [委内瑞拉地震死亡人数升至1450人](http://www.share.minike.top/Article/details/7096001056.shtml)
+- 2026-06-29 13:48 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/1924137713.shtml)
+- 2026-06-29 13:49 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/0467351.shtml)
+- 2026-06-29 13:46 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/84202872.shtml)
+- 2026-06-29 13:46 - [流金岁月](http://www.share.kurohicncr.top/Article/details/152571.shtml)
+- 2026-06-29 13:38 - [人民日报评“AI脸看腻了”](http://www.share.kurohicncr.top/Article/details/9660913.shtml)
+- 2026-06-29 13:47 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/37555.shtml)
+- 2026-06-29 13:57 - [三都主：淘汰赛我会支持日本](http://www.blog.minike.top/Article/details/187825.shtml)
+- 2026-06-29 14:01 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/529521698167.shtml)
+- 2026-06-29 13:57 - [周生如故](http://www.share.minike.top/Article/details/93125.shtml)
+- 2026-06-29 14:03 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/16527420.shtml)
+- 2026-06-29 13:56 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.kurohicncr.top/Article/details/8255846886.shtml)
+- 2026-06-29 13:57 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/8265514.shtml)

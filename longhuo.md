@@ -1,57 +1,56 @@
-# 浙江绍兴首次发现密封马头骨 还原越国高等级祭祀礼制
+# AI 世纪对决开庭，马斯克在OpenAI审判中出庭作证
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网绍兴6月19日电(项菁)据浙江省绍兴市文物考古研究所18日消息，近日，绍兴塔山和畅坊遗址首次发现印纹硬陶坛内放置马头骨，这为研究越国高等级祭祀礼制提供了重要实证。 绍兴塔山和畅坊遗址位于绍兴古城南部，此前已经发现的越国高等级祭祀遗迹，与《越绝书》记载的越王勾践于龟山“炤龟”祭祀活动高度吻合。 据悉，此次出土的马头骨为上颌骨，实测尺寸接近30厘米，牙齿特征明显，保存较为完整
+本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。 马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构
 
 ## 正文
 
-中新网绍兴6月19日电(项菁)据浙江省绍兴市文物考古研究所18日消息，近日，绍兴塔山和畅坊遗址首次发现印纹硬陶坛内放置马头骨，这为研究越国高等级祭祀礼制提供了重要实证。
+本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。
 
-绍兴塔山和畅坊遗址位于绍兴古城南部，此前已经发现的越国高等级祭祀遗迹，与《越绝书》记载的越王勾践于龟山“炤龟”祭祀活动高度吻合。
+马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。
 
-据悉，此次出土的马头骨为上颌骨，实测尺寸接近30厘米，牙齿特征明显，保存较为完整。
+目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构，并罢免奥尔特曼与布罗克曼的董事职务。
 
-其安置在遗址中部一处祭祀坑的印纹硬陶坛里。
+自身拥有人工智能企业的马斯克在奥克兰法庭的证人席上坦言：“我对人工智能抱有极度担忧。
 
-该祭祀坑规制严谨，坑底铺设了垫石、垫木以承托陶坛，祭品放置完毕后，上方覆盖了大面积的竹编、树皮等进行密封存放。
+” 他表示，人工智能既能让全人类走向繁荣，也可能给人类带来毁灭性后果。
 
-绍兴市文物考古研究所副所长罗鹏受访时表示，马是越国时期十分珍贵的动物，而将马头盛放于陶坛中用于祭品，足以说明当时祭祀对象和礼制等级较高。
+“我们绝不希望迎来《终结者》式的悲剧结局。
 
-这也与清华简《越公其事》所记载的“割白马而为牺，指九天而为证”实现相互印证。
+” 马斯克说道。
 
-“此前该遗址出土的越国马骨多发现于祭祀沟内或祭祀坑中单独放置，密封马头骨尚属首次发现，这不仅清晰还原了越国高等级祭祀礼仪，也为研究越国祭祀的用牲制度与礼仪规范提供了重要考古实证。
+OpenAI 计划最早于今年上市，而本次诉讼或将重创这家全球顶尖 AI 企业，同时也是马斯克旗下 AI 业务最大的竞争对手。
 
 ## 相关推荐
 
-- 2026-06-29 13:49 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 13:56 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 13:53 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 13:57 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 13:54 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 13:54 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 13:41 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 13:57 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 13:42 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 13:49 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 13:48 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 13:48 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 13:37 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 13:39 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 13:44 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 14:01 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 14:00 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 14:05 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 13:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 14:01 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 13:39 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:40 - [比亚迪为什么卖得越多市值越低](http://www.blog.kurohicncr.top/Article/details/5516269616.shtml)
-- 2026-06-29 13:39 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/6813294.shtml)
-- 2026-06-29 13:53 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/15641946040.shtml)
-- 2026-06-29 13:46 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/239127.shtml)
-- 2026-06-29 13:52 - [爱情有烟火你是知道我爱看什么的](https://www.share.kurohicncr.top/Article/details/3317415301.shtml)
-- 2026-06-29 13:35 - [恋与深空需直面玩家6大疑问](http://www.blog.kurohicncr.top/Article/details/355624371.shtml)
-- 2026-06-29 13:39 - [金刚川](http://www.blog.kurohicncr.top/Article/details/024926051043.shtml)
-- 2026-06-29 13:45 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/7691595.shtml)
-- 2026-06-29 13:43 - [王佳佳江疏影13年前后同框对比](http://www.share.kurohicncr.top/Article/details/24640602858.shtml)
-- 2026-06-29 13:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/7524729834.shtml)
-- 2026-06-29 13:54 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/881176439778.shtml)
-- 2026-06-29 13:37 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/5858033791.shtml)
-- 2026-06-29 13:53 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/87970.shtml)
-- 2026-06-29 13:57 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/74179140434.shtml)
-- 2026-06-29 13:59 - [游戏数据竟被用于军事目的](http://www.share.kurohicncr.top/Article/details/5192479.shtml)
+- 2026-06-29 13:49 - [一见倾心](http://www.share.minike.top/Article/details/4376629.shtml)
+- 2026-06-29 13:46 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/309547.shtml)
+- 2026-06-29 13:49 - [速度与激情9](https://www.blog.minike.top/Article/details/2089540.shtml)
+- 2026-06-29 13:49 - [我们注定是一撮县城葱姜蒜](https://www.share.minike.top/Article/details/92930.shtml)
+- 2026-06-29 13:59 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/385600948104.shtml)
+- 2026-06-29 14:05 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/8341002.shtml)
+- 2026-06-29 14:05 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/48017942.shtml)
+- 2026-06-29 14:00 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/526647.shtml)
+- 2026-06-29 14:02 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/555607084844.shtml)
+- 2026-06-29 13:59 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/549296196.shtml)
+- 2026-06-29 13:47 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/53583801.shtml)
+- 2026-06-29 13:47 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/31473969.shtml)
+- 2026-06-29 13:50 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/304587.shtml)
+- 2026-06-29 13:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/446203.shtml)
+- 2026-06-29 13:41 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/842308003283.shtml)

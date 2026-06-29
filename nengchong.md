@@ -1,58 +1,56 @@
-# 知名基金经理最新调仓显现，医药分歧扩大，硬科技、电网获增持
+# 美国7年期国债中标收益率略高于发行前交易水平
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-转自：财联社 财联社6月21日讯（记者 封其娟）借由上市公司回购公告的披露，公募基金二季度以来调仓操作逐步显现，基金经理们在医药、科技制造、消费交运三大板块的操作思路也出现了分化。 知名基金经理的调仓操作向来备受市场关注。二季度以来，易方达张坤减持惠泰医疗，新进广深铁路十大流通股东；同为物流股，中欧基金退出周蔚文嘉友国际十大流通股东，再度新进危化品运输龙头密尔克卫十大流通股东；
+美国财政部发行440亿美元7年期国债中标收益率4.175%，美东时间下午1点投标截止时间的发行前交易水平为4.170%。投标截止时发行前交易收益率当日上升大约3个基点。市场对投标结果反应平淡，2年/10年期和5年/30年收益率利差仍接近当日低点，当日分别收窄2.5个基点和3.5个基点。 一级交易商获配11.6%，低于之前一次；直接投标人获配增至30%，间接投标人获配降至58.4
 
 ## 正文
 
-转自：财联社 财联社6月21日讯（记者 封其娟）借由上市公司回购公告的披露，公募基金二季度以来调仓操作逐步显现，基金经理们在医药、科技制造、消费交运三大板块的操作思路也出现了分化。
+美国财政部发行440亿美元7年期国债中标收益率4.175%，美东时间下午1点投标截止时间的发行前交易水平为4.170%。
 
-知名基金经理的调仓操作向来备受市场关注。
+投标截止时发行前交易收益率当日上升大约3个基点。
 
-二季度以来，易方达张坤减持惠泰医疗，新进广深铁路十大流通股东；同为物流股，中欧基金退出周蔚文嘉友国际十大流通股东，再度新进危化品运输龙头密尔克卫十大流通股东；半导体行业，华夏基金钟帅增持了封装测试股汇成股份，永赢基金任桀新进芯片股力源信息十大流通股东；此外，大成基金徐彦二季度诸多调仓也浮出水面，较大幅度增持晨光股份，减持普洛药业、广深铁路等。
+市场对投标结果反应平淡，2年/10年期和5年/30年收益率利差仍接近当日低点，当日分别收窄2.5个基点和3.5个基点。
 
-梳理发现，医药行业的调仓分歧愈发显著。
+一级交易商获配11.6%，低于之前一次；直接投标人获配增至30%，间接投标人获配降至58.4%。
 
-从表面看，多位头部医药基金经理减持医药赛道标的。
+投标倍数2.51倍，此前六次同期限国债拍卖的平均倍数为2.47倍。
 
-深究发现，他们实际减持的是以仿制药业务为核心、创新转型进度有限的原料药及代工企业，同时持续加仓具备自主原研管线、长期成长确定性突出的创新药企，以及周期底部具备成本优势的特色原料药龙头。
-
-二季度以来，中欧基金葛兰旗下产品连续3个季度减持信立泰，此前2个季度连续减持后，已退出九洲药业十大流通股东。
-
-同时减持信立泰的还有工银瑞信赵蓓在管产品，减持力度更大；以及上述提及的徐彦减持普洛药业。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 13:30 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 13:50 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 13:58 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 13:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:43 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 13:36 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 13:54 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 13:32 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 13:58 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 13:39 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 13:30 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 13:59 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 13:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 13:50 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 13:51 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 13:41 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 13:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 13:46 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 14:02 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 13:48 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 13:51 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 13:53 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 14:01 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 13:54 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 13:38 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:38 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/970512821237.shtml)
-- 2026-06-29 13:34 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/853904.shtml)
-- 2026-06-29 13:35 - [AG冠军五人组轮换](http://www.blog.minike.top/Article/details/111472664659.shtml)
-- 2026-06-29 13:39 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/020311962.shtml)
-- 2026-06-29 13:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/7734158517.shtml)
-- 2026-06-29 13:58 - [时光音乐会](https://www.share.minike.top/Article/details/4239720.shtml)
-- 2026-06-29 13:42 - [5万块的威力](http://www.blog.minike.top/Article/details/35432.shtml)
-- 2026-06-29 13:35 - [急先锋](http://www.blog.kurohicncr.top/Article/details/725083746.shtml)
-- 2026-06-29 13:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/46914961745.shtml)
-- 2026-06-29 13:32 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/859873.shtml)
-- 2026-06-29 13:47 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.share.minike.top/Article/details/62387990.shtml)
-- 2026-06-29 13:45 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/41919.shtml)
-- 2026-06-29 13:46 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/850098.shtml)
-- 2026-06-29 13:53 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/083511971051.shtml)
-- 2026-06-29 13:32 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/4887508582.shtml)
+- 2026-06-29 13:41 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/98478767.shtml)
+- 2026-06-29 13:46 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/487634.shtml)
+- 2026-06-29 13:50 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/0299012.shtml)
+- 2026-06-29 13:59 - [张真源解读相思锁](http://www.blog.kurohicncr.top/Article/details/95365.shtml)
+- 2026-06-29 13:58 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/986773801203.shtml)
+- 2026-06-29 13:41 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/65017393.shtml)
+- 2026-06-29 13:59 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/4967194.shtml)
+- 2026-06-29 13:59 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/6877349.shtml)
+- 2026-06-29 13:53 - [F1奥地利大奖赛正赛集锦](http://www.share.kurohicncr.top/Article/details/06876133.shtml)
+- 2026-06-29 13:39 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/24030.shtml)
+- 2026-06-29 13:45 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/792741.shtml)
+- 2026-06-29 13:48 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/928099021.shtml)
+- 2026-06-29 14:06 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/10918.shtml)
+- 2026-06-29 13:47 - [多家银行收紧个人贵金属业务](http://www.blog.minike.top/Article/details/502153.shtml)
+- 2026-06-29 13:39 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/6384616.shtml)

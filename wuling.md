@@ -1,61 +1,59 @@
-# 油价大跌，冲击不再？【国盛宏观|高频半月观】
+# 环卫工人因工身亡多年后家属才知有30万意外险，平安养老以“超两年时效”拒赔，法院判了
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-国盛证券首席经济学家，熊园 博士国盛证券宏观分析师，薛舒宁每半月，我们基于“供给、需求、价格、库存、交通物流、流动性”6大维度，跟踪最新高频变化，本期为近半月（6.8—6.21）综述。核心结论：近半月高频变化有四：一是美伊达成谅解备忘录，布伦特原油价格一度跌至76.4美元/桶，之后黎以开火致伊朗封锁海峡，油价再度震荡小升；二是6月上中旬地产销售小幅走弱，新房销售同比降至-0.6
+原标题：环卫工人因工身亡多年后家属才知有30万意外险，保险公司以“超两年时效”拒赔，法院判了 山东滨州一名环卫工人2021年因工身故，因用人单位未履行保险告知义务，家属直到2024年才知晓有30万元团体意外险，2025年才确认承保保险公司，随后申请理赔，却被保险公司以超出两年理赔时效为由拒绝赔付。 近日，山东省滨州市中级人民法院终审判决：时效从家属知晓保单起算，保险公司向环卫工
 
 ## 正文
 
-国盛证券首席经济学家，熊园 博士国盛证券宏观分析师，薛舒宁每半月，我们基于“供给、需求、价格、库存、交通物流、流动性”6大维度，跟踪最新高频变化，本期为近半月（6.8—6.21）综述。
+原标题：环卫工人因工身亡多年后家属才知有30万意外险，保险公司以“超两年时效”拒赔，法院判了 山东滨州一名环卫工人2021年因工身故，因用人单位未履行保险告知义务，家属直到2024年才知晓有30万元团体意外险，2025年才确认承保保险公司，随后申请理赔，却被保险公司以超出两年理赔时效为由拒绝赔付。
 
-核心结论：近半月高频变化有四：一是美伊达成谅解备忘录，布伦特原油价格一度跌至76.4美元/桶，之后黎以开火致伊朗封锁海峡，油价再度震荡小升；二是6月上中旬地产销售小幅走弱，新房销售同比降至-0.6%（5月同比增0%），二手房销售同比降至10.6%（5月同比增16.6%）；三是近半月钢铁、水泥、沥青、焦煤、汽车开工率环比回落，地产链、基建实物工作量仍弱；四是国内货币市场利率时隔两月重回政策利率上方，资金面整体偏紧；美联储加息预期再升温，美元上行。
+近日，山东省滨州市中级人民法院终审判决：时效从家属知晓保单起算，保险公司向环卫工人王某某的三位法定继承人支付30万元意外身故保险金，并承担诉讼费。
 
-1、继续提示：近期美伊局势波动反复、正朝着签署最后协议的方向发展，不过考虑到高油价已持续三个多月，滞后影响尚未全面显现：对经济，下游利润将被进一步挤压；对通胀，CPI和PPI同比读数有望延续回升趋势、但幅度应会放缓；对政策，短期重心是“用好用足”既定政策，后续增量政策可期、节奏“边走边看”。
+据了解，2021年2月8日，王某某在路面清洁作业时被机动车碰撞，经抢救无效死亡。
 
-2、具体看，近半月（6.8—6.21）高频表现如下：>供给：高油价冲击显现，上下游开工多数回落；>需求：地产销售小幅走弱，生产复工多数回落；>价格：油价回落，上下游价格走势分化；>库存：美国石油库存降至22年来最低；>交通物流：航班执飞回升，地铁客运人数回落；>流动性：国内资金利率回升，美元指数上行。
+交警认定肇事方负全部责任，人社部门也认定其为工亡。
 
-报告摘要：一、热点追踪：美伊有望达成协议，油价出现明显回落。
+涉案团体意外险由滨州创洁保洁服务有限公司统一为员工投保，但公司既未告知王某某及其家属保险相关信息，也未交付保险凭证、告知理赔权益，家属长期对此不知情，直至2024年才获悉保单存在，2025年查清承保机构。
 
->尽管美伊达成谅解备忘录，但霍尔木兹海峡尚未解除封锁，通航量仍处低位。
+家属主张，诉讼时效应从知晓保险合同及自身理赔权利之日起算，并未超期，要求保险公司赔付30万元保险金。
 
-美伊于6月17日达成《美利坚合众国与伊朗伊斯兰共和国之间的伊斯兰堡谅解备忘录》，并于德黑兰时间18日完成远程签署，开启为期60天的谈判窗口以解决核问题等分歧，布伦特原油价格一度跌至76.4美元/桶。
+平安养老保险股份有限公司山东分公司一、二审均以事故发生距今已超4年，远超法定诉讼时效为由进行抗辩。
 
-6月19日以色列向黎巴嫩开火，20日伊朗宣称将关闭霍尔木兹海峡。
+滨州经济技术开发区人民法院一审认为，用人单位投保的团体意外险存在信息隐蔽性，家属无从知晓保单情况，没有怠于维权的过错，诉讼时效应从知晓保险合同和理赔权利时起算，判决保险公司赔付30万元保险金。
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 13:56 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 13:46 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 13:30 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 13:39 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 13:32 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 13:50 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 13:42 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 13:57 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 13:56 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 13:59 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 13:39 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 13:35 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 13:49 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 13:49 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 13:55 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 13:37 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 13:46 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 13:48 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 13:43 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 13:47 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 13:59 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 13:41 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 13:39 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 13:55 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 14:04 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 13:50 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 13:49 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:37 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/25732.shtml)
-- 2026-06-29 13:41 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/08520730.shtml)
-- 2026-06-29 13:44 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/50798.shtml)
-- 2026-06-29 13:55 - [毒液2](http://www.blog.kurohicncr.top/Article/details/287260106605.shtml)
-- 2026-06-29 13:30 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/82301394.shtml)
-- 2026-06-29 13:49 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/94156.shtml)
-- 2026-06-29 13:49 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/60736964.shtml)
-- 2026-06-29 13:43 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/63070789081.shtml)
-- 2026-06-29 13:43 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/559486.shtml)
-- 2026-06-29 13:32 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.minike.top/Article/details/69912948919.shtml)
-- 2026-06-29 13:31 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/87738731661.shtml)
-- 2026-06-29 13:52 - [异世界一点都不好玩！](https://www.share.minike.top/Article/details/322846.shtml)
-- 2026-06-29 13:43 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.minike.top/Article/details/14360896930.shtml)
-- 2026-06-29 13:55 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/460273.shtml)
-- 2026-06-29 13:32 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/304147344.shtml)
+- 2026-06-29 13:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/814148499432.shtml)
+- 2026-06-29 13:47 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/7211768.shtml)
+- 2026-06-29 13:42 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/7287532150.shtml)
+- 2026-06-29 13:37 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/72665.shtml)
+- 2026-06-29 13:39 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/89855.shtml)
+- 2026-06-29 13:42 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/83956093.shtml)
+- 2026-06-29 14:04 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/93506027.shtml)
+- 2026-06-29 14:05 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/01019392.shtml)
+- 2026-06-29 14:02 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/09297781553.shtml)
+- 2026-06-29 14:03 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/4952316498.shtml)
+- 2026-06-29 14:02 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/6719199973.shtml)
+- 2026-06-29 13:45 - [久坐小心“死臀综合征”](http://www.share.kurohicncr.top/Article/details/521990603680.shtml)
+- 2026-06-29 13:57 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/448351911333.shtml)
+- 2026-06-29 13:53 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/06101051081.shtml)
+- 2026-06-29 13:58 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/06739431694.shtml)

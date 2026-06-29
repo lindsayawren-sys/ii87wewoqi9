@@ -1,56 +1,42 @@
-# 培育“农创客”，助力乡村振兴
+# 尹锡悦涉嫌妨碍逮捕案二审被判有期徒刑7年
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-【光明时评】培育“农创客”，助力乡村振兴 作者：孙瑞婷(北京联合大学马克思主义学院副教授) 在上海松江小昆山镇，95后女青年陈瑜斌扎根乡土，打造了一座融合文创、美食、研学与田园体验于一体的乡村户外综合体，用青年创意为乡村文旅发展注入新动能；深耕文旅行业17年的周斌，因一次宣传片拍摄与浙江丽水龙泉市住龙镇结缘，其运营的水陆一体研学乐园，带动村集体增收50余万元、群众增收100余万
+新华社快讯：韩国前总统尹锡悦涉嫌妨碍逮捕案二审被判有期徒刑7年。
 
 ## 正文
 
-【光明时评】培育“农创客”，助力乡村振兴 作者：孙瑞婷(北京联合大学马克思主义学院副教授) 在上海松江小昆山镇，95后女青年陈瑜斌扎根乡土，打造了一座融合文创、美食、研学与田园体验于一体的乡村户外综合体，用青年创意为乡村文旅发展注入新动能；深耕文旅行业17年的周斌，因一次宣传片拍摄与浙江丽水龙泉市住龙镇结缘，其运营的水陆一体研学乐园，带动村集体增收50余万元、群众增收100余万元。
-
-当前，越来越多掌握先进技术、富有创造活力的“农创客”不断涌现。
-
-他们敏锐抓住发展机遇，敢于改变传统发展模式，为乡村发展装上“新引擎”。
-
-日前，国务院印发《加快农业农村现代化“十五五”规划》，强调“激励各类人才下乡服务和创业就业，因地制宜培育农创客”；2026年中央一号文件也首次将“农创客”一词纳入国家政策视野，明确提出“加强乡村产业带头人和乡村治理人才培育，因地制宜培育农创客”。
-
-所谓“农创客”，即在乡村建设、发展中创业创新的青年人才。
-
-无论是运用物联网、大数据、生物育种等技术发展智慧农业，还是打通电商运营、直播带货、社群营销等数字渠道，打破农产品传统销售的地域限制……他们凭借多元领域的知识储备、市场化的思维方式与敢闯敢试的进取精神，为乡村全域发展注入生机活力。
-
-青年创新创业人才是盘活乡村资源、发展乡村产业、赋能基层治理的新生力量，是农业农村高质量发展的重要支撑。
-
-近年来，我国高度重视乡村人才队伍建设，各地各部门聚焦创新人才引育留用全链条，在系统化培育本土人才、完善多元激励机制、强化兜底服务保障等环节精准发力、综合施策，在创新人才队伍培育方面取得了明显成效。
+新华社快讯：韩国前总统尹锡悦涉嫌妨碍逮捕案二审被判有期徒刑7年。
 
 ## 相关推荐
 
-- 2026-06-29 13:31 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 13:34 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 13:47 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 13:56 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 13:48 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 13:35 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 13:53 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 13:53 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 13:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 13:38 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 13:44 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 13:49 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 13:47 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 14:03 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 13:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 14:00 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 14:00 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 13:44 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 13:50 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 13:40 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.kurohicncr.top/Article/details/5693972101.shtml)
-- 2026-06-29 13:31 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/117983.shtml)
-- 2026-06-29 13:57 - [四川宜宾地震](http://www.blog.minike.top/Article/details/2381255.shtml)
-- 2026-06-29 13:59 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/9393995.shtml)
-- 2026-06-29 13:46 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/0248595520.shtml)
-- 2026-06-29 13:56 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/78691.shtml)
-- 2026-06-29 13:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/2503851.shtml)
-- 2026-06-29 13:45 - [乔家的儿女](https://www.share.minike.top/Article/details/0924391.shtml)
-- 2026-06-29 13:41 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/26540023084.shtml)
-- 2026-06-29 13:47 - [张一山说杨紫早该拿奖了](http://www.blog.minike.top/Article/details/723025367.shtml)
-- 2026-06-29 13:51 - [韩体育部长回应李在明痛批](http://www.blog.kurohicncr.top/Article/details/791473138.shtml)
-- 2026-06-29 13:43 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/537094.shtml)
-- 2026-06-29 13:35 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/779540252.shtml)
-- 2026-06-29 13:41 - [一见倾心](https://www.share.kurohicncr.top/Article/details/090681432.shtml)
-- 2026-06-29 13:55 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/3123146636.shtml)
+- 2026-06-29 13:57 - [唐艺昕女儿接唐艺昕回家](http://www.blog.kurohicncr.top/Article/details/990124172731.shtml)
+- 2026-06-29 13:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/508308864812.shtml)
+- 2026-06-29 13:52 - [发反科学内容为何会有200万粉丝](https://www.share.minike.top/Article/details/624543483.shtml)
+- 2026-06-29 14:03 - [周杰伦演唱会真的好多人啊](https://www.share.minike.top/Article/details/82941.shtml)
+- 2026-06-29 14:02 - [爸爸当家](https://www.blog.kurohicncr.top/Article/details/70910615.shtml)
+- 2026-06-29 13:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/11206799.shtml)
+- 2026-06-29 13:47 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/952902486.shtml)
+- 2026-06-29 14:04 - [AG冠军五人组轮换](https://www.blog.kurohicncr.top/Article/details/99468.shtml)
+- 2026-06-29 13:47 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/06306.shtml)
+- 2026-06-29 14:04 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/97787976.shtml)
+- 2026-06-29 13:40 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/079816490164.shtml)
+- 2026-06-29 13:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/46881.shtml)
+- 2026-06-29 13:53 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/2903599834.shtml)
+- 2026-06-29 14:05 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/8554542793.shtml)
+- 2026-06-29 13:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.kurohicncr.top/Article/details/796981891687.shtml)

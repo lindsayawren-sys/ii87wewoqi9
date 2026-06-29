@@ -1,56 +1,57 @@
-# 中俄狂舞大赛启幕 舞步点燃跨越国界的夏日狂欢
+# 辽宁通信行业出台多项举措助力打造“营商环境最佳口碑省”
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 16:22 来源：中国新闻网 6月20日，“世界的黑河·狂舞大赛—2026紫金之夜”亚欧巡回赛首场赛事在黑河开赛。中俄两国12支舞团同台竞技，以舞为媒，为市民和游客奉献了一场跨越国界的夏日文化盛宴。 在“舞蹈作品展示”环节，来自中国内蒙古的《欢腾的鲁日格勒》尽显民族风情，俄罗斯斯沃博德内市的《狂热》则迸发着现代舞的张力，12支队伍轮番登场，带来
+中新网沈阳4月28日电 (李晛)据辽宁省政府新闻办4月28日召开的发布会消息，辽宁省出台《辽宁省通信行业优化营商环境十条举措(2026版)》，部署“便企服务提档升级”“暖心服务提质升级”两个专项行动，以高质量通信服务助力打造“营商环境最佳口碑省”。 一是“便企服务提档升级”专项行动。通过全面提升企业用网“线上受理”服务能力，满足企业“不用跑”需求；全面公开承诺“服务标准、违约赔
 
 ## 正文
 
-发布时间：2026年06月21日 16:22 来源：中国新闻网 6月20日，“世界的黑河·狂舞大赛—2026紫金之夜”亚欧巡回赛首场赛事在黑河开赛。
+中新网沈阳4月28日电 (李晛)据辽宁省政府新闻办4月28日召开的发布会消息，辽宁省出台《辽宁省通信行业优化营商环境十条举措(2026版)》，部署“便企服务提档升级”“暖心服务提质升级”两个专项行动，以高质量通信服务助力打造“营商环境最佳口碑省”。
 
-中俄两国12支舞团同台竞技，以舞为媒，为市民和游客奉献了一场跨越国界的夏日文化盛宴。
+一是“便企服务提档升级”专项行动。
 
-在“舞蹈作品展示”环节，来自中国内蒙古的《欢腾的鲁日格勒》尽显民族风情，俄罗斯斯沃博德内市的《狂热》则迸发着现代舞的张力，12支队伍轮番登场，带来《延安腰鼓》《英舞鹤鸣踏和风》《形体艺术》等不同表演，中俄两国多元文化在舞台上激情碰撞。
+通过全面提升企业用网“线上受理”服务能力，满足企业“不用跑”需求；全面公开承诺“服务标准、违约赔付”，满足企业“放心用”需求；全面提升服务能力精准匹配，满足企业“触网升级”需求三方面重点工作的落实，让全省的企业用户进一步感受到网络服务“时时在线”“处处便捷”。
 
-据悉，本次大赛不仅是一场舞蹈竞技，更是深化中俄两国交流的文旅品牌。
+其中，联通、移动、电信、广电四家电信企业同步升级客服热线，设立统一的“企业服务专席”，企业“一个电话办理网络报装”，提升了报装效率。
 
-赛事启动以来，共吸引68支队伍、1300余名中外舞者报名参与，辐射中俄两国多地。
+企业还可以登录电信企业门户网站“政企服务专区”，了解服务内容、办理流程、资费套餐，让业务办理全面实现从“线下跑”到“线上办”。
 
-(孟莉莉 敬斌 制作 赵宇航 视频来源 黑河市融媒体中心） 责任编辑：【李季】
+同时，四家电信企业同步建立健全服务标准公开承诺制度，向社会公开企业用网服务的办理时限、服务标准、故障响应机制，主动接受社会监督。
+
+二是“暖心服务提质升级”专项行动。
+
+包括深入开展“我为群众办实事”实践活动，全面提升服务能力，全面优化服务保障，便捷外籍人员办理电信业务，积极培育消费新业态，赋能数智新生活。
 
 ## 相关推荐
 
-- 2026-06-29 13:55 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 13:43 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 13:41 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 13:39 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 13:32 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 13:31 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 13:51 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 13:36 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 13:36 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 13:46 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 13:58 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 13:36 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 13:34 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 13:46 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 14:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 14:02 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 13:40 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 13:40 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 13:56 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 13:52 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 13:58 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 13:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 14:05 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 13:50 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 13:40 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:51 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/2141899.shtml)
-- 2026-06-29 13:52 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.kurohicncr.top/Article/details/1605138.shtml)
-- 2026-06-29 13:31 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/68553.shtml)
-- 2026-06-29 13:33 - [游戏数据竟被用于军事目的](https://www.share.minike.top/Article/details/90912039775.shtml)
-- 2026-06-29 13:39 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.kurohicncr.top/Article/details/63795.shtml)
-- 2026-06-29 13:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/4602082.shtml)
-- 2026-06-29 13:59 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/2878492024.shtml)
-- 2026-06-29 13:58 - [金牌调解](http://www.share.minike.top/Article/details/674673120.shtml)
-- 2026-06-29 13:59 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/841595497.shtml)
-- 2026-06-29 13:56 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/624724.shtml)
-- 2026-06-29 13:35 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/616050343555.shtml)
-- 2026-06-29 13:32 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/791798.shtml)
-- 2026-06-29 13:34 - [6月我国降水为何偏多](https://www.share.kurohicncr.top/Article/details/80540857952.shtml)
-- 2026-06-29 13:43 - [恋与深空需直面玩家6大疑问](https://www.share.kurohicncr.top/Article/details/2770686.shtml)
-- 2026-06-29 13:32 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/62501964300.shtml)
+- 2026-06-29 13:45 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/05951.shtml)
+- 2026-06-29 13:52 - [吴海燕兰西雅漫步复兴岛](http://www.share.minike.top/Article/details/62210982.shtml)
+- 2026-06-29 13:49 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/759507351733.shtml)
+- 2026-06-29 13:58 - [三都主：淘汰赛我会支持日本](http://www.share.kurohicncr.top/Article/details/42705038816.shtml)
+- 2026-06-29 13:44 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/52207478035.shtml)
+- 2026-06-29 13:50 - [多只A股发布股价异动公告](http://www.share.kurohicncr.top/Article/details/68506951710.shtml)
+- 2026-06-29 13:56 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/759966312086.shtml)
+- 2026-06-29 13:57 - [欧洲超1300例超额死亡与高温有关](https://www.share.kurohicncr.top/Article/details/1591598769.shtml)
+- 2026-06-29 13:36 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/0888427.shtml)
+- 2026-06-29 13:50 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/53146.shtml)
+- 2026-06-29 13:39 - [急先锋](https://www.blog.minike.top/Article/details/25061169991.shtml)
+- 2026-06-29 14:02 - [多只A股发布股价异动公告](https://www.share.kurohicncr.top/Article/details/000316695.shtml)
+- 2026-06-29 13:46 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/412964024.shtml)
+- 2026-06-29 13:36 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/823131.shtml)
+- 2026-06-29 14:05 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/9917243647.shtml)

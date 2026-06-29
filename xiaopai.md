@@ -1,54 +1,50 @@
-# 驻香港部队举办开放活动 香港市民争睹军队风采
+# 日本一制药厂发生“储罐爆炸”事故 已致5人受伤
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月20日 23:12 来源：中国新闻网 6月20日，中国人民解放军驻香港部队2026年度军营开放活动正式开启。在昂船洲军营开放活动现场，驻港部队组织升国旗仪式、军乐列队表演、枪械仪仗表演、格斗技术等动态展示，以及装备展示、舰艇参观、模拟射击、体验信号旗语等静态展示与互动学习，供市民体验。本次开放活动还将陆续开放石岗军营、新围军营。据悉，进驻香港以来，驻港
+中新网4月28日电 据日本共同社报道，当地时间28日11时35分左右，日本广岛县三次市有关部门接到报警电话称，一家制药厂发生“储罐爆炸”事故。消防部门表示，5人在事故中受伤送医，其中2人伤势较重。 日本广播协会(NHK)报道称，消防部门已出动8辆消防车进行灭火。现场画面显示，工厂内有多个疑似储罐的设施，其中两处冒出明火。 报道称，目前火势已被扑灭，事故原因正在调查中。
 
 ## 正文
 
-发布时间：2026年06月20日 23:12 来源：中国新闻网 6月20日，中国人民解放军驻香港部队2026年度军营开放活动正式开启。
+中新网4月28日电 据日本共同社报道，当地时间28日11时35分左右，日本广岛县三次市有关部门接到报警电话称，一家制药厂发生“储罐爆炸”事故。
 
-在昂船洲军营开放活动现场，驻港部队组织升国旗仪式、军乐列队表演、枪械仪仗表演、格斗技术等动态展示，以及装备展示、舰艇参观、模拟射击、体验信号旗语等静态展示与互动学习，供市民体验。
+消防部门表示，5人在事故中受伤送医，其中2人伤势较重。
 
-本次开放活动还将陆续开放石岗军营、新围军营。
+日本广播协会(NHK)报道称，消防部门已出动8辆消防车进行灭火。
 
-据悉，进驻香港以来，驻港部队已先后组织了35次军营开放活动，累计接待观众93万人次。
+现场画面显示，工厂内有多个疑似储罐的设施，其中两处冒出明火。
 
-(记者 邱兆翔 制作 侯诗蕊) 责任编辑：【曲克】
+报道称，目前火势已被扑灭，事故原因正在调查中。
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 13:34 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 13:52 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 13:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 13:50 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 13:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 13:31 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 13:45 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 13:43 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 13:56 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 13:32 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 13:30 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 13:57 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 13:56 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 13:53 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 13:51 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 13:47 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 13:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 13:47 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 13:46 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 13:47 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 14:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 14:00 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 13:55 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:32 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/72237475.shtml)
-- 2026-06-29 13:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/164164166030.shtml)
-- 2026-06-29 13:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/4740472.shtml)
-- 2026-06-29 13:52 - [手游300亿数据或被军事化运用](http://www.share.kurohicncr.top/Article/details/00876725208.shtml)
-- 2026-06-29 13:36 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.minike.top/Article/details/068046.shtml)
-- 2026-06-29 13:49 - [2025年人口增长10强城市出炉](https://www.share.kurohicncr.top/Article/details/09541918.shtml)
-- 2026-06-29 13:49 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/5645900.shtml)
-- 2026-06-29 13:35 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/20927109845.shtml)
-- 2026-06-29 13:43 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/35189979054.shtml)
-- 2026-06-29 13:30 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.blog.minike.top/Article/details/97506137.shtml)
-- 2026-06-29 13:53 - [为什么欧洲人不装空调](http://www.blog.minike.top/Article/details/916019.shtml)
-- 2026-06-29 13:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/4162764120.shtml)
-- 2026-06-29 13:30 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/52091015793.shtml)
-- 2026-06-29 13:58 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/54104275.shtml)
-- 2026-06-29 13:50 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/5418938.shtml)
+- 2026-06-29 13:51 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/32646276906.shtml)
+- 2026-06-29 13:39 - [在委侨团负责人：家乡的帮助很及时](https://www.share.minike.top/Article/details/071597665159.shtml)
+- 2026-06-29 13:48 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/88819.shtml)
+- 2026-06-29 13:40 - [王楚钦周启豪爆分](https://www.share.minike.top/Article/details/664325.shtml)
+- 2026-06-29 13:51 - [腾讯回应做独立支付APP](https://www.share.minike.top/Article/details/850681954496.shtml)
+- 2026-06-29 14:02 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/945034615535.shtml)
+- 2026-06-29 13:57 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/59106.shtml)
+- 2026-06-29 13:52 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/62930127144.shtml)
+- 2026-06-29 13:46 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/923601658.shtml)
+- 2026-06-29 13:59 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/13333098.shtml)
+- 2026-06-29 13:48 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/947160685773.shtml)
+- 2026-06-29 13:43 - [起风了](http://www.blog.minike.top/Article/details/62636.shtml)
+- 2026-06-29 13:58 - [斛珠夫人](https://www.share.minike.top/Article/details/22156.shtml)
+- 2026-06-29 14:03 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/36891757920.shtml)
+- 2026-06-29 13:38 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/033264.shtml)

@@ -1,52 +1,58 @@
-# 商务部：将10家美国实体列入出口管制管控名单
+# 上海论坛2026分论坛“中美欧关系的重构及影响” 举行
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-专题：成长主导但谨慎追高 配置上关注三条线索 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！根据《中华人民共和国出口管制法》和《中华人民共和国两用物项出口管制条例》等法律法规有关规定，为维护国家安全和利益，履行防扩散等国际义务，决定将艾维奥克斯公司等10家美国实体列入出口管制管控名单（见附件），并采取以下措施： 一、禁止出口经营者对上述10家实体出口两
+专题：上海论坛2026 2026年4月24日下午，上海论坛2026分论坛“中美欧关系的重构及影响”在世界会客厅观澜厅举行。本次分论坛由复旦大学国际问题研究院与西班牙IE大学政治、经济与全球事务学院联合承办，复旦大学国际问题研究院院长吴心伯与IE大学政治、经济与全球事务学院院长、意大利前总理恩里科·莱塔（Enrico Letta）共同担任主席。来自中国、美国、欧洲多国的知名专家学
 
 ## 正文
 
-专题：成长主导但谨慎追高 配置上关注三条线索 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：上海论坛2026 2026年4月24日下午，上海论坛2026分论坛“中美欧关系的重构及影响”在世界会客厅观澜厅举行。
 
-根据《中华人民共和国出口管制法》和《中华人民共和国两用物项出口管制条例》等法律法规有关规定，为维护国家安全和利益，履行防扩散等国际义务，决定将艾维奥克斯公司等10家美国实体列入出口管制管控名单（见附件），并采取以下措施： 一、禁止出口经营者对上述10家实体出口两用物项，禁止任何国家和地区的组织和个人将原产于中国的两用物项转移或提供给上述实体；正在开展的相关出口活动应当立即停止。
+本次分论坛由复旦大学国际问题研究院与西班牙IE大学政治、经济与全球事务学院联合承办，复旦大学国际问题研究院院长吴心伯与IE大学政治、经济与全球事务学院院长、意大利前总理恩里科·莱塔（Enrico Letta）共同担任主席。
 
-二、特殊情况下确需出口的，出口经营者应当向商务部提出申请。
+来自中国、美国、欧洲多国的知名专家学者围绕相关议题开展深入交流与充分研讨。
 
-本公告自公布之日起正式实施。
+来自企业界代表、科研学术从业者及驻沪领馆外事官员，以及复旦大学、上海交通大学、上海财经大学等多所国内重点高校师生的一百多名观众参与此次论坛，并就相关议题与嘉宾进行交流。
 
-附件：出口管制管控名单（2026年6月22日） 商务部 2026年6月22日 附件 出口管制管控名单 （2026年6月22日） 1． 艾维奥克斯公司（Aveox， Inc．） 地 址：2265A Ward Ave．， Simi Valley， CA， USA 邮 编：93065 常用名称：AVEOX 2． 红猫控股公司（Red Cat Holdings， Inc．） 地 址：2800 S West Temple St．， Unite 2， South Salt Lake， UT， USA 邮 编：84115 常用名称：Red Cat 3． 蒂尔无人机公司（Teal Drones， Inc．） 地 址：2800 S West Temple St．， Unite 2， South Salt Lake， UT， USA 邮 编：84115 常用名称：Tea
+论坛伊始，吴心伯在开幕致辞中指出，在当前地缘政治格局深刻调整的背景下，围绕中美欧关系展开讨论正当其时。
+
+在全球格局深刻调整背景下，传统以中美关系为核心的议题已难以充分解释现实变化，“中美欧”三边关系正成为理解国际体系重构的关键框架：欧洲战略自主性上升，使其不再只是中美博弈的被动变量；跨大西洋关系、对华政策及全球治理议题相互交织，推动三方互动更加制度化与复杂化。
+
+因此，将研究视角由“中美”拓展至“中美欧”，既回应地缘政治现实变化，也为分析大国关系提供更具解释力的分析框架。
+
+论坛上半场由复旦大学国际关系与公共事务学院副院长张骥主持。
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 13:39 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 13:55 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 13:41 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 13:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 13:38 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 13:46 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 13:52 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 13:40 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 13:35 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 13:43 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 13:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 13:41 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 13:38 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 13:49 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 13:46 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 13:41 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 13:40 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 13:56 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 13:39 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 14:00 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 14:00 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 13:47 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 13:37 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/8206005422.shtml)
-- 2026-06-29 13:56 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/66826.shtml)
-- 2026-06-29 13:51 - [高考志愿今起开始填报](https://www.blog.minike.top/Article/details/790655642616.shtml)
-- 2026-06-29 13:42 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/070617075.shtml)
-- 2026-06-29 13:37 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/735416792.shtml)
-- 2026-06-29 13:47 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/8481310756.shtml)
-- 2026-06-29 13:40 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/48748881933.shtml)
-- 2026-06-29 13:37 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/572212.shtml)
-- 2026-06-29 13:40 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/17932.shtml)
-- 2026-06-29 13:47 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/443715018152.shtml)
-- 2026-06-29 13:53 - [腾讯回应做独立支付APP](http://www.blog.minike.top/Article/details/41760274.shtml)
-- 2026-06-29 13:47 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/824194609966.shtml)
-- 2026-06-29 13:54 - [比亚迪为什么卖得越多市值越低](http://www.blog.minike.top/Article/details/036851281.shtml)
-- 2026-06-29 13:52 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/093052345983.shtml)
-- 2026-06-29 13:39 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/398015203181.shtml)
+- 2026-06-29 13:41 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/168515575624.shtml)
+- 2026-06-29 13:47 - [人民日报评“AI脸看腻了”](http://www.share.kurohicncr.top/Article/details/1707930.shtml)
+- 2026-06-29 13:52 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/863166.shtml)
+- 2026-06-29 13:45 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/3604088854.shtml)
+- 2026-06-29 14:05 - [亚洲成世界杯最大失意者联盟](http://www.blog.kurohicncr.top/Article/details/217402.shtml)
+- 2026-06-29 13:39 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/37221490379.shtml)
+- 2026-06-29 13:56 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/962492.shtml)
+- 2026-06-29 13:39 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/345533.shtml)
+- 2026-06-29 13:49 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/576697.shtml)
+- 2026-06-29 13:44 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/7544255.shtml)
+- 2026-06-29 13:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/765057001.shtml)
+- 2026-06-29 13:38 - [张真源解读相思锁](http://www.share.minike.top/Article/details/2393972509.shtml)
+- 2026-06-29 13:36 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/3364636763.shtml)
+- 2026-06-29 14:01 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/79215391.shtml)
+- 2026-06-29 13:58 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/377931.shtml)

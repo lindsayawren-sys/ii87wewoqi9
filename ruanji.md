@@ -1,60 +1,56 @@
-# 赏民俗技艺、探石刻艺术 北京五塔寺端午文化嘉年华举办
+# 经济热点快评丨大力发展工业设计，更好赋能中国制造
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-中新网北京6月19日电 (记者 徐婧)看古彩戏法、着汉服游园、打卡通关文牒……北京博物馆季之第十三届“五色五香——五塔寺端午文化嘉年华”主题活动19日在北京石刻艺术博物馆(五塔寺)举办，邀请市民观众漫步古刹赏民俗、观展览、品古韵。 本次活动由北京市文物局主办，北京石刻艺术博物馆承办。当天，多项非遗展演轮番登场、热闹纷呈。舞狮灵动喜庆，京剧韵味悠长，京韵大鼓铿锵婉转，古彩戏法精妙
+日前印发的《关于推进服务业扩能提质的意见》提出“培育工业设计领军企业，提高专业性、国际化水平”。 什么是工业设计？ 其实，大到飞机、高铁、汽车，小到潮玩、水杯、衣架，工业设计在日常生活中无处不在。 以手机为例，华为凭借领先的工业设计，打造出的折叠屏产品，独具辨识度和实用性，助力其在高端智能手机市场占据一席之地。再往前看，近20年前，苹果将触控屏幕引入手机，不仅彻底革新了人机交互
 
 ## 正文
 
-中新网北京6月19日电 (记者 徐婧)看古彩戏法、着汉服游园、打卡通关文牒……北京博物馆季之第十三届“五色五香——五塔寺端午文化嘉年华”主题活动19日在北京石刻艺术博物馆(五塔寺)举办，邀请市民观众漫步古刹赏民俗、观展览、品古韵。
+日前印发的《关于推进服务业扩能提质的意见》提出“培育工业设计领军企业，提高专业性、国际化水平”。
 
-本次活动由北京市文物局主办，北京石刻艺术博物馆承办。
+什么是工业设计？
 
-当天，多项非遗展演轮番登场、热闹纷呈。
+其实，大到飞机、高铁、汽车，小到潮玩、水杯、衣架，工业设计在日常生活中无处不在。
 
-舞狮灵动喜庆，京剧韵味悠长，京韵大鼓铿锵婉转，古彩戏法精妙绝伦，多样民俗技艺精彩呈现，让观众近距离感受传统文化的深厚底蕴与鲜活生命力。
+以手机为例，华为凭借领先的工业设计，打造出的折叠屏产品，独具辨识度和实用性，助力其在高端智能手机市场占据一席之地。
 
-互动体验项目融合传统与趣味。
+再往前看，近20年前，苹果将触控屏幕引入手机，不仅彻底革新了人机交互方式，还引领了移动互联网的发展潮流。
 
-博物馆内设置“射五毒”“投好运”等端午民俗小游戏，开展汉服体验、通关文牒集章打卡兑奖等活动，观众可身着汉服游园打卡，集章赢取特色礼品。
+作为连接创新与市场的“桥梁”，工业设计深度嵌入研发、生产、营销全链条：既能通过用户洞察挖掘需求，又能凭借结构优化降本增效，还靠品牌设计提升溢价。
 
-现场展示端午手工艺品与文创产品，兼具实用性与文化性。
+推动工业设计高质量发展，智能化、绿色化是主要方向。
 
-活动期间还开展即兴相声、魔术、快板等快闪演出和演员巡游，打造移步换景的游园体验，让各年龄段观众都能乐在其中。
+当前人工智能技术正以前所未有的速度和深度赋能千行百业，工业设计也不例外。
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 13:37 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 13:47 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 13:54 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 13:32 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 13:46 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 13:52 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 13:50 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 14:00 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 13:31 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 13:33 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 13:33 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:50 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 13:30 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 13:46 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 13:42 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 13:57 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 13:56 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 13:49 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 13:38 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 13:39 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 13:41 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 13:36 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 13:59 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/958575119.shtml)
-- 2026-06-29 13:51 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.minike.top/Article/details/34292736006.shtml)
-- 2026-06-29 13:30 - [小娘惹](https://www.share.minike.top/Article/details/71281805.shtml)
-- 2026-06-29 13:44 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/76348618.shtml)
-- 2026-06-29 13:53 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/442278132.shtml)
-- 2026-06-29 13:52 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/67259974.shtml)
-- 2026-06-29 13:58 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/7044382218.shtml)
-- 2026-06-29 13:31 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/9168391.shtml)
-- 2026-06-29 13:44 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.kurohicncr.top/Article/details/54234825385.shtml)
-- 2026-06-29 13:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/49114508.shtml)
-- 2026-06-29 13:41 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/7945643567.shtml)
-- 2026-06-29 13:51 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/97749.shtml)
-- 2026-06-29 13:31 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/346995.shtml)
-- 2026-06-29 13:40 - [森保一：日本队要亲手改写历史](http://www.share.kurohicncr.top/Article/details/6790751931.shtml)
-- 2026-06-29 13:45 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/938398.shtml)
+- 2026-06-29 13:42 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/34404.shtml)
+- 2026-06-29 13:39 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/099198.shtml)
+- 2026-06-29 13:38 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/674884560.shtml)
+- 2026-06-29 13:40 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/4701894.shtml)
+- 2026-06-29 13:58 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/6689281437.shtml)
+- 2026-06-29 13:40 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/0421131930.shtml)
+- 2026-06-29 13:36 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/421471930204.shtml)
+- 2026-06-29 13:42 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/430414.shtml)
+- 2026-06-29 13:51 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/53081.shtml)
+- 2026-06-29 13:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/192841308439.shtml)
+- 2026-06-29 13:46 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/93360.shtml)
+- 2026-06-29 13:58 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/03744495259.shtml)
+- 2026-06-29 13:56 - [周生如故](http://www.share.minike.top/Article/details/6177924545.shtml)
+- 2026-06-29 13:51 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/87492482575.shtml)
+- 2026-06-29 13:56 - [A股限售股解禁一览](http://www.share.minike.top/Article/details/837004396.shtml)

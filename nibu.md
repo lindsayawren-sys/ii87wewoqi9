@@ -1,58 +1,46 @@
-# 金饰价格半年跌近450元，记者探访黄金卖场：消费者围满柜台
+# 五矿发展：一季度归母净利润1699.93万元，同比下降74.67%
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-近期，国际金价持续走弱，国内终端金饰价格同步大幅下调，主流品牌足金饰品克价全线跌破1300元整数关口。 端午假期，记者来到北京菜百黄金卖场进行实地探访，店内黄金饰品区挑选金饰的人围满了柜台。当日足金零售价1260元/克，而今年年初金饰价格曾冲高至1700元上下，短短半年每克下跌近450元，跌幅超25%。金价显著回落已让部分消费者动心。 同样火热的还有以旧换新的服务柜台，随着金价
+五矿发展4月29日公告，2026年第一季度实现营业收入105.88亿元，同比下降14.32%；归属于上市公司股东的净利润1699.93万元，同比下降74.67%；基本每股收益0.0014元。
 
 ## 正文
 
-近期，国际金价持续走弱，国内终端金饰价格同步大幅下调，主流品牌足金饰品克价全线跌破1300元整数关口。
-
-端午假期，记者来到北京菜百黄金卖场进行实地探访，店内黄金饰品区挑选金饰的人围满了柜台。
-
-当日足金零售价1260元/克，而今年年初金饰价格曾冲高至1700元上下，短短半年每克下跌近450元，跌幅超25%。
-
-金价显著回落已让部分消费者动心。
-
-同样火热的还有以旧换新的服务柜台，随着金价下跌，换购时添金部分成本下降，不少消费者选择这个时候更换一下手上的旧款金饰。
-
-在投资金条的区域，也有不少人咨询购买。
-
-记者在现场了解到，目前市场投资氛围趋于理性，多数投资者选择分批小额配置。
+五矿发展4月29日公告，2026年第一季度实现营业收入105.88亿元，同比下降14.32%；归属于上市公司股东的净利润1699.93万元，同比下降74.67%；基本每股收益0.0014元。
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 13:37 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 13:39 - [王佳佳江疏影13年前后同框对比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 13:47 - [加拿大92分钟绝杀南非](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 13:44 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 13:45 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 13:40 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 13:34 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 13:47 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 13:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 13:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 13:58 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 13:33 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 13:38 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 13:52 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 13:43 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 13:49 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 13:39 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 13:52 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 13:59 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 13:52 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 13:54 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 13:39 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 14:04 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 14:05 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 13:52 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 13:48 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 13:50 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/312716.shtml)
-- 2026-06-29 13:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/45270503.shtml)
-- 2026-06-29 13:58 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/450719650447.shtml)
-- 2026-06-29 13:38 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/57053947.shtml)
-- 2026-06-29 13:56 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/0997035.shtml)
-- 2026-06-29 13:41 - [千与千寻](http://www.share.minike.top/Article/details/9264665.shtml)
-- 2026-06-29 13:35 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/7314554.shtml)
-- 2026-06-29 13:52 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/86710699279.shtml)
-- 2026-06-29 13:56 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/12807679392.shtml)
-- 2026-06-29 13:58 - [网友偶遇胡军和李乃文](http://www.share.kurohicncr.top/Article/details/005226940.shtml)
-- 2026-06-29 13:39 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/6824169106.shtml)
-- 2026-06-29 13:35 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/8932856192.shtml)
-- 2026-06-29 13:52 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/73501.shtml)
-- 2026-06-29 13:54 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/7688305.shtml)
-- 2026-06-29 13:59 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.kurohicncr.top/Article/details/66719519.shtml)
+- 2026-06-29 13:48 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/25724.shtml)
+- 2026-06-29 14:04 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/46596.shtml)
+- 2026-06-29 14:00 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/57703.shtml)
+- 2026-06-29 13:43 - [王楚钦3比0周启豪](http://www.share.minike.top/Article/details/2523801.shtml)
+- 2026-06-29 13:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/3982380802.shtml)
+- 2026-06-29 14:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/8126207.shtml)
+- 2026-06-29 14:01 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.minike.top/Article/details/3017191191.shtml)
+- 2026-06-29 14:04 - [千与千寻](http://www.share.minike.top/Article/details/505235826.shtml)
+- 2026-06-29 13:43 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/238001250699.shtml)
+- 2026-06-29 14:00 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/12479177.shtml)
+- 2026-06-29 13:36 - [三都主：淘汰赛我会支持日本](http://www.blog.minike.top/Article/details/4841062.shtml)
+- 2026-06-29 13:52 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/4454352649.shtml)
+- 2026-06-29 13:44 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/74997615.shtml)
+- 2026-06-29 13:53 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/48602633.shtml)
+- 2026-06-29 13:55 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/8282886762.shtml)

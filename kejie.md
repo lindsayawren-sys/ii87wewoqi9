@@ -1,50 +1,58 @@
-# “经”彩开局·发展之路丨新动能加快成长 5月份我国经济发展向新向优
+# 沪指重回4100点！红利低波ETF华泰柏瑞（512890）半日成交6.05亿领跑同类 机构：高股息逻辑仍成立
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-5月份主要经济指标已发布。数据显示，5月份，我国生产供给平稳增长，新动能加快成长，就业民生保障有力，国民经济延续总体平稳、向新向优的发展态势。 策划：赵艳艳 制作：实习生 李蔓蔓 作者：尚俊杰 王淑 来源：光明网
+4月29日，三大指数低开高走，沪指重回4100点上方，创业板指涨超2%。在此带动下，红利低波ETF华泰柏瑞（512890）涨0.25%，报1.195元，换手率1.97%，半日成交额6.05亿元，居同类标的ETF首位。 最新定期报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股今日涨跌不一。包括上海银行、南京银行、平安银行、沪农商行、华润江中、中国海油、中国石油、民生银行
 
 ## 正文
 
-5月份主要经济指标已发布。
+4月29日，三大指数低开高走，沪指重回4100点上方，创业板指涨超2%。
 
-数据显示，5月份，我国生产供给平稳增长，新动能加快成长，就业民生保障有力，国民经济延续总体平稳、向新向优的发展态势。
+在此带动下，红利低波ETF华泰柏瑞（512890）涨0.25%，报1.195元，换手率1.97%，半日成交额6.05亿元，居同类标的ETF首位。
 
-策划：赵艳艳 制作：实习生 李蔓蔓 作者：尚俊杰 王淑 来源：光明网
+最新定期报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股今日涨跌不一。
+
+包括上海银行、南京银行、平安银行、沪农商行、华润江中、中国海油、中国石油、民生银行、陕鼓动力、成都银行，持仓占比如下。
+
+规模方面，截止4月28日，红利低波ETF华泰柏瑞（512890）最新份额为256.88亿份，最新规模为306.46亿元。
+
+该基金今年以来份额增加12.77%，规模增加14.54%。
+
+流动性方面，截止4月29日，红利低波ETF华泰柏瑞（512890）近20个交易日累计成交金额135.89亿元，日均成交金额6.79亿元。
+
+消息面上，回顾历史数据，A股市场历来有节前资金落袋为安的传统。
 
 ## 相关推荐
 
-- 2026-06-29 13:30 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 13:55 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 13:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 13:42 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 13:44 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 13:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 13:41 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 13:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 13:49 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 13:42 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 13:32 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 13:44 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 13:59 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 13:54 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 14:01 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 13:53 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 14:03 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 13:55 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 13:58 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 13:56 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 13:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 13:41 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 13:38 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 13:58 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 13:56 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 13:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/259749519424.shtml)
-- 2026-06-29 13:33 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/9500127.shtml)
-- 2026-06-29 13:55 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/4432858.shtml)
-- 2026-06-29 13:52 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/60612.shtml)
-- 2026-06-29 13:44 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/547093215107.shtml)
-- 2026-06-29 13:33 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/513549560756.shtml)
-- 2026-06-29 13:34 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/7153191.shtml)
-- 2026-06-29 13:56 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/9071102.shtml)
-- 2026-06-29 13:50 - [Mrbeast的30天不吃饭挑战](https://www.blog.kurohicncr.top/Article/details/91870536180.shtml)
-- 2026-06-29 13:55 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/9650328.shtml)
-- 2026-06-29 13:57 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/74188735545.shtml)
-- 2026-06-29 13:57 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/753993.shtml)
-- 2026-06-29 13:59 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/364860748.shtml)
-- 2026-06-29 13:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/4574723.shtml)
-- 2026-06-29 13:57 - [严浩翔FIY断层第一](http://www.blog.kurohicncr.top/Article/details/360245923.shtml)
+- 2026-06-29 13:54 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/704440635.shtml)
+- 2026-06-29 13:38 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/31870679598.shtml)
+- 2026-06-29 13:38 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.kurohicncr.top/Article/details/561374.shtml)
+- 2026-06-29 13:56 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/23081459248.shtml)
+- 2026-06-29 13:53 - [双高胎](http://www.share.minike.top/Article/details/41938780121.shtml)
+- 2026-06-29 14:04 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/515148279504.shtml)
+- 2026-06-29 13:50 - [梅朗雄主张法国退出北约](https://www.share.kurohicncr.top/Article/details/1162433.shtml)
+- 2026-06-29 13:52 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/282872749.shtml)
+- 2026-06-29 13:44 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/278309960.shtml)
+- 2026-06-29 13:54 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/605017.shtml)
+- 2026-06-29 13:55 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/685476745.shtml)
+- 2026-06-29 14:00 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/56935.shtml)
+- 2026-06-29 13:55 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/204043.shtml)
+- 2026-06-29 13:41 - [爱情有烟火你是知道我爱看什么的](http://www.share.kurohicncr.top/Article/details/81296391.shtml)
+- 2026-06-29 13:38 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/20991445870.shtml)

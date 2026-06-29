@@ -1,59 +1,55 @@
-# 韩国资管行业一季度总利润增长近一倍
+# 高盛：中兴通讯维持“中性”评级 目标价降至37.5港元
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-周一公布的数据显示，受佣金收入增长的推动，韩国资产管理公司第一季度总利润环比增长近一倍。 根据韩国金融监督院（FSS）的初步数据，今年1月至3月，韩国资产管理公司的总净利润为1.47万亿韩元（约合9.59亿美元），高于三个月前的7670亿韩元。 这一增长主要归功于佣金收入的增加。 韩国资产管理公司第一季度的合并营业利润为1.35万亿韩元，较前一季度增加4740亿韩元，增幅达54
+高盛发布研报称，因应首季业绩，下调中兴通讯（00763）2026至28年各年盈利预测各8%、7%及6%，主要反映毛利率下调。港股目标价由40.4港元下调7%至37.5港元，基于预测2027年市盈率18.2倍不变； A股目标价由62.6元人民币下调至58.2元人民币，维持对中兴H股及A股的“中性”评级。 中兴通讯首季收入同比增长6%至350亿元人民币，符合该行预期。计算相关业务收
 
 ## 正文
 
-周一公布的数据显示，受佣金收入增长的推动，韩国资产管理公司第一季度总利润环比增长近一倍。
+高盛发布研报称，因应首季业绩，下调中兴通讯（00763）2026至28年各年盈利预测各8%、7%及6%，主要反映毛利率下调。
 
-根据韩国金融监督院（FSS）的初步数据，今年1月至3月，韩国资产管理公司的总净利润为1.47万亿韩元（约合9.59亿美元），高于三个月前的7670亿韩元。
+港股目标价由40.4港元下调7%至37.5港元，基于预测2027年市盈率18.2倍不变； A股目标价由62.6元人民币下调至58.2元人民币，维持对中兴H股及A股的“中性”评级。
 
-这一增长主要归功于佣金收入的增加。
+中兴通讯首季收入同比增长6%至350亿元人民币，符合该行预期。
 
-韩国资产管理公司第一季度的合并营业利润为1.35万亿韩元，较前一季度增加4740亿韩元，增幅达54%。
+计算相关业务收入占总收入比例提升至27%，高于2025全年的24.6%。
 
-佣金收入环比增长9.5%，达到1.89万亿韩元。
+然而，毛利率由去年第四季的29.4%及首季的34.3%，降至28.3%，管理层归因于国内电讯资本开支下降，导致国内网络产品收入贡献减少。
 
-截至3月底，韩国资产管理公司的股本回报率（衡量盈利能力的重要指标）为31%，较上年同期增长13.9个百分点。
-
-最新数据显示，截至3月底，韩国资产管理公司总资产规模为2355.7万亿韩元，高于上年同期的2189.1万亿韩元。
-
-韩国金融监督院（FSS）表示，截至3月底，韩国共有511家资产管理公司。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 13:47 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 13:31 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 13:33 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 13:34 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 13:57 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 13:49 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 13:58 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 13:41 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 13:56 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 13:35 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 13:49 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 13:40 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 13:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 14:04 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 13:44 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 13:44 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 13:39 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 13:59 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 14:01 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 14:01 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 13:55 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 14:02 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 13:38 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 13:36 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [中国避暑神器在欧洲卖爆了](https://www.share.kurohicncr.top/Article/details/43047.shtml)
-- 2026-06-29 13:50 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/403445.shtml)
-- 2026-06-29 13:44 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/889394073.shtml)
-- 2026-06-29 13:49 - [急先锋](https://www.blog.minike.top/Article/details/9676176328.shtml)
-- 2026-06-29 13:47 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/7413446.shtml)
-- 2026-06-29 13:38 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/636449.shtml)
-- 2026-06-29 13:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/02088.shtml)
-- 2026-06-29 13:41 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/0280760043.shtml)
-- 2026-06-29 13:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/61417176.shtml)
-- 2026-06-29 13:42 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/07639.shtml)
-- 2026-06-29 13:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/3794825764.shtml)
-- 2026-06-29 13:32 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/446674900.shtml)
-- 2026-06-29 13:48 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/09820796.shtml)
-- 2026-06-29 13:58 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/349765155193.shtml)
-- 2026-06-29 13:52 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/034110530.shtml)
+- 2026-06-29 13:54 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/60205987.shtml)
+- 2026-06-29 13:50 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/544566.shtml)
+- 2026-06-29 13:54 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/056426114.shtml)
+- 2026-06-29 13:58 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/76983.shtml)
+- 2026-06-29 13:52 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/40835.shtml)
+- 2026-06-29 13:49 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.minike.top/Article/details/853530.shtml)
+- 2026-06-29 13:44 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/827209.shtml)
+- 2026-06-29 13:43 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/9284345.shtml)
+- 2026-06-29 14:00 - [6月我国降水为何偏多](https://www.share.kurohicncr.top/Article/details/512211660.shtml)
+- 2026-06-29 14:01 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/3687896079.shtml)
+- 2026-06-29 13:57 - [送你一朵小红花](http://www.share.minike.top/Article/details/54967604.shtml)
+- 2026-06-29 13:44 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.minike.top/Article/details/27264985064.shtml)
+- 2026-06-29 13:50 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/67319.shtml)
+- 2026-06-29 13:54 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/06102.shtml)
+- 2026-06-29 13:57 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/28508898326.shtml)

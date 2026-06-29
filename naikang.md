@@ -1,60 +1,53 @@
-# 外国所持美国国债4月上升 日本增幅居首
+# 中金公司牵头保荐曦智科技完成港股上市
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-外国持有的美国国债规模4月上升，主要由日本和英国带动。 美国财政部周四公布的数据显示，4月，海外持有的美国国债规模较前月小幅增加39亿美元，此前3月减少逾1，380亿美元。这些数据既包含净卖出和净买入，也包含估值变化。 彭博美国国债指数4月基本持平，此前3月录得2024年以来最大单月跌幅，因市场担心伊朗战争会推高通胀。美国财政部数据显示，外国投资者4月所持长期美国国债出现约39
+上证报中国证券网讯（记者 闫刘梦）上海曦智科技股份有限公司（以下简称“曦智科技”）4月28日正式在香港联交所主板上市。本次上市绿鞋前发行规模约3.23亿美元，绿鞋后发行规模约3.71亿美元（假设绿鞋全部行使）。中金公司担任本项目的牵头保荐人、整体协调人、联席全球协调人、联席账簿管理人、联席牵头经办人、后市稳定商及结算代理人。作为本项目的牵头保荐人，中金公司全程紧密把控项目时间表
 
 ## 正文
 
-外国持有的美国国债规模4月上升，主要由日本和英国带动。
+上证报中国证券网讯（记者 闫刘梦）上海曦智科技股份有限公司（以下简称“曦智科技”）4月28日正式在香港联交所主板上市。
 
-美国财政部周四公布的数据显示，4月，海外持有的美国国债规模较前月小幅增加39亿美元，此前3月减少逾1，380亿美元。
+本次上市绿鞋前发行规模约3.23亿美元，绿鞋后发行规模约3.71亿美元（假设绿鞋全部行使）。
 
-这些数据既包含净卖出和净买入，也包含估值变化。
+中金公司担任本项目的牵头保荐人、整体协调人、联席全球协调人、联席账簿管理人、联席牵头经办人、后市稳定商及结算代理人。
 
-彭博美国国债指数4月基本持平，此前3月录得2024年以来最大单月跌幅，因市场担心伊朗战争会推高通胀。
+作为本项目的牵头保荐人，中金公司全程紧密把控项目时间表，协助曦智科技解决项目执行中的技术要点，确保各关键节点精准落地，为项目的顺利完成夯实基础。
 
-美国财政部数据显示，外国投资者4月所持长期美国国债出现约390亿美元的估值损失。
-
-数据显示，从净交易易来看，外国投资者卖出136亿美元国库券，同时净买入505亿美元长期美国国债。
-
-作为美国国债最大的海外持有方，日本持仓增加183亿美元，至1.21万亿美元，但仍低于2月水平。
-
-今年春季包括4月下旬在内的一段时间，日本当局一直在干预汇市，卖出美元、买入日元，以支撑本币。
+在市场推介及发行阶段，中金公司凭借对全球光电混合算力及AI基础设施行业的洞察，协助曦智科技挖掘独特的投资价值，面向全球顶级投资机构进行高质量推介，协助引入绝大部分基石投资者，并在启动发行后进一步转化更多顶级投资人的订单需求，助力实现理想定价。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 13:41 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 13:51 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 13:55 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 13:55 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 13:58 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 13:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 13:52 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 13:45 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 13:50 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 13:57 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 13:38 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 13:43 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 13:45 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 13:37 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 13:45 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 13:50 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 13:49 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 14:04 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 13:53 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 14:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 14:00 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 14:00 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 13:38 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 13:46 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 13:57 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 13:43 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [【独家】牧神记 第89集 明心](http://www.share.kurohicncr.top/Article/details/151851.shtml)
-- 2026-06-29 13:35 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/57773.shtml)
-- 2026-06-29 13:54 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/2632507.shtml)
-- 2026-06-29 13:42 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/6175127190.shtml)
-- 2026-06-29 13:53 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/03949.shtml)
-- 2026-06-29 13:39 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/004554672802.shtml)
-- 2026-06-29 13:58 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/97128230.shtml)
-- 2026-06-29 13:42 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/32419114.shtml)
-- 2026-06-29 13:45 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/7164970.shtml)
-- 2026-06-29 13:31 - [TOP 无畏契约](https://www.blog.kurohicncr.top/Article/details/64793024.shtml)
-- 2026-06-29 13:54 - [加拿大92分钟绝杀成世界杯首个16强](http://www.blog.minike.top/Article/details/290904409.shtml)
-- 2026-06-29 13:48 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/2508952.shtml)
-- 2026-06-29 13:38 - [为什么欧洲人不装空调](https://www.share.kurohicncr.top/Article/details/154861953.shtml)
-- 2026-06-29 13:55 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/86041091.shtml)
-- 2026-06-29 13:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/008758057217.shtml)
+- 2026-06-29 14:04 - [C罗关心罗德里戈伤情](http://www.share.minike.top/Article/details/955686.shtml)
+- 2026-06-29 13:49 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/70202719.shtml)
+- 2026-06-29 13:49 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/196194.shtml)
+- 2026-06-29 13:54 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/795979483077.shtml)
+- 2026-06-29 13:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/064579688.shtml)
+- 2026-06-29 14:05 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/61879.shtml)
+- 2026-06-29 13:51 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/995702.shtml)
+- 2026-06-29 14:01 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/561888019.shtml)
+- 2026-06-29 13:48 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/455991.shtml)
+- 2026-06-29 13:40 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/42897218730.shtml)
+- 2026-06-29 13:47 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/8197321756.shtml)
+- 2026-06-29 13:48 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/4418366.shtml)
+- 2026-06-29 13:54 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/05818.shtml)
+- 2026-06-29 13:39 - [Agent带来token消耗爆炸](https://www.blog.minike.top/Article/details/06743083.shtml)
+- 2026-06-29 13:56 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/297172260587.shtml)

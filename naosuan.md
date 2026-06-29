@@ -1,60 +1,61 @@
-# 25岁的年龄52岁的血管 查血脂别只盯“箭头”
+# 报告称中国成为全球人工智能专利最大拥有国
 
-> 更新时间：2026-06-29 14:00:02 UTC+8
+> 更新时间：2026-06-29 14:06:03 UTC+8
 
 ## 摘要
 
-拿到入职体检报告时，25岁的刘晨看着“总胆固醇”和“低密度脂蛋白胆固醇”后面两个红色上升箭头，有点不可思议。“医生说我是25岁的年龄52岁的血管。”刘晨感到很无奈，自己平时偶尔熬夜吃点夜宵，身体也没什么不舒服，“从来没想过血脂问题会找上我”。刘晨不知道的是，这正是高脂血症最危险的地方——它几乎没有症状。高血压、高血糖、高脂血症常被称为“三高”，一度被认为是四五十岁后的常见病。如
+中新社福州4月29日电 (叶秋云)中国国家数据局29日在福州发布的《数字中国发展报告(2025年)》显示，中国成为全球人工智能专利最大拥有国，占比达60%。AI应用向智能体升级，带动词元(Token)消耗快速攀升。 当天，第九届数字中国建设峰会在福州开幕，该报告在主论坛上发布，并同步发布2025年数字中国发展指数。据国家数据发展研究院牵头测算，2025年数字中国发展指数达到17
 
 ## 正文
 
-拿到入职体检报告时，25岁的刘晨看着“总胆固醇”和“低密度脂蛋白胆固醇”后面两个红色上升箭头，有点不可思议。
+中新社福州4月29日电 (叶秋云)中国国家数据局29日在福州发布的《数字中国发展报告(2025年)》显示，中国成为全球人工智能专利最大拥有国，占比达60%。
 
-“医生说我是25岁的年龄52岁的血管。
+AI应用向智能体升级，带动词元(Token)消耗快速攀升。
 
-”刘晨感到很无奈，自己平时偶尔熬夜吃点夜宵，身体也没什么不舒服，“从来没想过血脂问题会找上我”。
+当天，第九届数字中国建设峰会在福州开幕，该报告在主论坛上发布，并同步发布2025年数字中国发展指数。
 
-刘晨不知道的是，这正是高脂血症最危险的地方——它几乎没有症状。
+据国家数据发展研究院牵头测算，2025年数字中国发展指数达到170.1，同比增长12.99%。
 
-高血压、高血糖、高脂血症常被称为“三高”，一度被认为是四五十岁后的常见病。
+报告显示，2025年，一批数据集应用新场景加快拓展，建成高质量数据集超11万个。
 
-如今，越来越多的年轻人查出了血脂异常，这种几乎无自觉症状的慢性病，正悄无声息侵蚀着年轻群体的心血管健康。
+数据标注累计规模超85拍字节(PB)，相关产值达183亿元人民币。
 
-不疼不痒，血管却悄悄被堵住 “血脂升高，人体几乎没有任何症状，不会头晕、乏力，却会持续损伤血管内皮。
+报告指出，5G演进网络(5G-A)已覆盖超330个城市；6G研发形成超300项关键技术储备；智能算力规模达到159万PFLOPS(FP16)。
 
-”广东省人民医院心血管内科主任荆志成告诉中青报·中青网记者，血管内皮是血管最里面那层光滑的“保护膜”。
+2025年，数字经济“进”的态势更加稳健，数字经济核心产业增加值占中国国内生产总值的比重达到10.5%以上。
 
 ## 相关推荐
 
-- 2026-06-29 13:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 13:49 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 13:31 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 13:52 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 13:44 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 13:58 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 13:52 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 13:56 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 13:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 13:30 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 13:54 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 13:37 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 13:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 13:47 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 13:54 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 13:42 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 13:55 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 13:53 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 13:43 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 13:59 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 13:37 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 13:46 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 13:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 14:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 13:55 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 13:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 13:55 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 13:39 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 13:37 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [加拿大92分钟绝杀南非](http://www.blog.kurohicncr.top/Article/details/96197.shtml)
-- 2026-06-29 13:31 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/77668.shtml)
-- 2026-06-29 14:00 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/50197.shtml)
-- 2026-06-29 13:50 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/57285929.shtml)
-- 2026-06-29 13:48 - [这位猫咪，请你自重！](https://www.share.minike.top/Article/details/86654.shtml)
-- 2026-06-29 13:47 - [速度与激情9](http://www.share.minike.top/Article/details/109446501257.shtml)
-- 2026-06-29 13:37 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/7861267.shtml)
-- 2026-06-29 13:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/711183.shtml)
-- 2026-06-29 13:56 - [詹俊预测德国大胜巴拉圭](https://www.blog.kurohicncr.top/Article/details/4475561.shtml)
-- 2026-06-29 13:40 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/9634355.shtml)
-- 2026-06-29 13:48 - [金牌调解](https://www.share.minike.top/Article/details/37097.shtml)
-- 2026-06-29 13:51 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/36841753.shtml)
-- 2026-06-29 13:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/199142.shtml)
-- 2026-06-29 13:30 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/6663577.shtml)
-- 2026-06-29 13:30 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/48629100.shtml)
+- 2026-06-29 14:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/222304.shtml)
+- 2026-06-29 13:58 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/54778827450.shtml)
+- 2026-06-29 14:04 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/4244962018.shtml)
+- 2026-06-29 13:49 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/407200146492.shtml)
+- 2026-06-29 13:41 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/257866909.shtml)
+- 2026-06-29 13:47 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/5917871.shtml)
+- 2026-06-29 13:48 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/0312673245.shtml)
+- 2026-06-29 13:55 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/3670604.shtml)
+- 2026-06-29 13:53 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.minike.top/Article/details/37087414.shtml)
+- 2026-06-29 13:36 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.kurohicncr.top/Article/details/68502.shtml)
+- 2026-06-29 14:03 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/66651028.shtml)
+- 2026-06-29 13:48 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/86294145.shtml)
+- 2026-06-29 13:54 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/413495.shtml)
+- 2026-06-29 13:53 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/739212293850.shtml)
+- 2026-06-29 13:39 - [伊朗球员致歉](https://www.blog.minike.top/Article/details/599940378.shtml)
