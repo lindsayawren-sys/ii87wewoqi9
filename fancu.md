@@ -1,56 +1,57 @@
-# 光影之外，戏中有戏：上海国际电影节“票根经济”撬动文化消费活力
+# B站毕业歌会首次牵手北京环球度假区，线上观看人次突破6300万创新高
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网上海6月18日电 题：光影之外，戏中有戏：上海国际电影节“票根经济”撬动文化消费活力 中新网记者张亨伟 六月的上海，因为上海国际电影节的到来，整座城市仿佛被按下了播放键，而一张小小的电影票根，也成为了撬动城市文化消费、连接人与空间的“超级通行证”。 6月17日晚，久事·上海商城剧院里人头攒动。为了迎接这场光影盛宴，今年剧院在氛围布置上下足了功夫。从精心设计的印章，到限量版
+5月30日晚，随着《海阔天空》万人合唱的旋律响彻广州大学城体育中心体育馆，《永远22！2026bilibili毕业歌会》(以下简称B站毕业歌会)正式落下帷幕。这是B站毕业歌会连续举办的第六年，也是规模最大的一届。数据显示，今年歌会首次落地广州大学城，现场观众近3万人，线上预约人数突破360万，直播最高同时在线观看人次超6300万，均刷新历届纪录。相比于单纯的演出规模增长，更值得
 
 ## 正文
 
-中新网上海6月18日电 题：光影之外，戏中有戏：上海国际电影节“票根经济”撬动文化消费活力 中新网记者张亨伟 六月的上海，因为上海国际电影节的到来，整座城市仿佛被按下了播放键，而一张小小的电影票根，也成为了撬动城市文化消费、连接人与空间的“超级通行证”。
+5月30日晚，随着《海阔天空》万人合唱的旋律响彻广州大学城体育中心体育馆，《永远22！
 
-6月17日晚，久事·上海商城剧院里人头攒动。
+2026bilibili毕业歌会》(以下简称B站毕业歌会)正式落下帷幕。
 
-为了迎接这场光影盛宴，今年剧院在氛围布置上下足了功夫。
+这是B站毕业歌会连续举办的第六年，也是规模最大的一届。
 
-从精心设计的印章，到限量版票根，再到主题明信片，剧院推出的“光影之外，戏中有戏”主题活动，把原本单一的观影变成了一场沉浸式的打卡游戏。
+数据显示，今年歌会首次落地广州大学城，现场观众近3万人，线上预约人数突破360万，直播最高同时在线观看人次超6300万，均刷新历届纪录。
 
-“我觉得上海‘电影之城’这个概念特别好。
+相比于单纯的演出规模增长，更值得关注的是，经过六年发展，毕业歌会正在从一场毕业晚会，逐渐成长为覆盖线上线下、连接高校群体的毕业季文化IP。
 
-”影迷陈天雁手里拿着刚盖好章的票根，难掩兴奋，“像商城剧院、大光明、国泰这些，它们本身就是历史地标。
+让大学生成为主角：千人共演、万人合唱的青春歌会 本届毕业歌会汇聚了李宇春、大张伟、古巨基、容祖儿、沙一汀等歌手，带来《送别》《想唱就唱》《第一天》《情歌王》《海阔天空》等广受年轻人喜爱的歌曲，引发现场观众齐声合唱。
 
-上影节给了我们一个走进去的理由，让我们不仅能看一部好电影，更能真切地触摸到这座城市的历史。
+由于首次来到广州，歌会还特别融入大湾区文化元素，《嘉禾望岗(粤语版)》《爱与诚》《世上只有》等经典粤语歌曲接连上演，为现场观众带来浓厚的城市记忆与情感共鸣。
 
-” 今年，久事·商城剧院集中展映了45部风格多元的佳作，既有《剧院魅影：25周年纪念演出》《英国病人》这样一票难求的经典，也有《总统的蛋糕》《泡泡糖女孩》等备受年轻人追捧的新锐作品。
+过去，大型晚会中的年轻人更多是观众，而今年B站毕业歌会最具代表性的变化之一，是让大学生成为舞台的一部分。
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 03:37 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 03:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 03:39 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 04:03 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 04:05 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 03:43 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 03:47 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 03:40 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 04:00 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 04:11 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 04:04 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 03:46 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 03:59 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 03:58 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 04:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 04:00 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 03:47 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 03:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 03:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 03:46 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:05 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/424922603.shtml)
-- 2026-06-30 03:48 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/446232502873.shtml)
-- 2026-06-30 03:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/11611085.shtml)
-- 2026-06-30 03:45 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/25781.shtml)
-- 2026-06-30 04:05 - [苗族银饰](http://www.share.minike.top/Article/details/85917870253.shtml)
-- 2026-06-30 04:01 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/886835912010.shtml)
-- 2026-06-30 03:50 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/77650726.shtml)
-- 2026-06-30 04:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/3104466.shtml)
-- 2026-06-30 03:42 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/0347014.shtml)
-- 2026-06-30 04:03 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/708281.shtml)
-- 2026-06-30 04:02 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/24985462.shtml)
-- 2026-06-30 03:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/40103941.shtml)
-- 2026-06-30 03:39 - [急先锋](http://www.share.kurohicncr.top/Article/details/6576251.shtml)
-- 2026-06-30 03:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/2269348214.shtml)
-- 2026-06-30 03:47 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/21264798825.shtml)
+- 2026-06-30 03:53 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/3919401.shtml)
+- 2026-06-30 03:45 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/23657.shtml)
+- 2026-06-30 04:06 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/43848854160.shtml)
+- 2026-06-30 03:46 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/99678.shtml)
+- 2026-06-30 04:05 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/8516869.shtml)
+- 2026-06-30 04:02 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/16419141.shtml)
+- 2026-06-30 03:44 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/29971.shtml)
+- 2026-06-30 04:00 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/322304711617.shtml)
+- 2026-06-30 03:53 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/583672.shtml)
+- 2026-06-30 03:55 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/699436.shtml)
+- 2026-06-30 03:42 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/300560416.shtml)
+- 2026-06-30 03:44 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/0141920.shtml)
+- 2026-06-30 04:10 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/131426559077.shtml)
+- 2026-06-30 03:43 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/748835745.shtml)
+- 2026-06-30 04:08 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/49725831.shtml)

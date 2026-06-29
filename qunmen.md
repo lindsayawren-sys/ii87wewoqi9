@@ -1,58 +1,60 @@
-# 美国债市：沃什领导的美联储强化了市场加息预期 短债大跌
+# 江风里听交响 “乐汇两江”点亮重庆艺术之夜
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-周三短期美国国债价格大幅下跌，收益率曲线急剧走平。此前，美联储主席凯文·沃什上任后的首次政策会议上，决策者们将前景展望做了鹰派调整，同时利率保持不变。 短端收益率飙升，2年期国债收益率一度上涨15个基点至4.20%，创下2025年2月以来的最高水平；纽约时间下午3点后，该收益率维持在接近该水平；曲线中段收益率涨幅较小，远端收益率则基本保持不变。 关键收益率曲线达到2025年4月
+中新网重庆6月1日电 (记者 钟旖)两江之畔，晚风之中，交响与歌声相和。5月31日晚，作为第四届重庆都市艺术节“江·岸艺术现场”的重头戏之一，“乐汇两江”城市音乐会在弹子石广场奏响。 重庆交响乐团携手王丽达、谭学胜、张宇、沈晶晶、姜明、刘广、赵丹妮等声乐名家，以壮阔的江岸夜景为幕，为市民和游客献上一场高雅与烟火交融的视听盛宴。 没有传统剧院的围墙，只有晚风、江涛和满天星光。20
 
 ## 正文
 
-周三短期美国国债价格大幅下跌，收益率曲线急剧走平。
+中新网重庆6月1日电 (记者 钟旖)两江之畔，晚风之中，交响与歌声相和。
 
-此前，美联储主席凯文·沃什上任后的首次政策会议上，决策者们将前景展望做了鹰派调整，同时利率保持不变。
+5月31日晚，作为第四届重庆都市艺术节“江·岸艺术现场”的重头戏之一，“乐汇两江”城市音乐会在弹子石广场奏响。
 
-短端收益率飙升，2年期国债收益率一度上涨15个基点至4.20%，创下2025年2月以来的最高水平；纽约时间下午3点后，该收益率维持在接近该水平；曲线中段收益率涨幅较小，远端收益率则基本保持不变。
+重庆交响乐团携手王丽达、谭学胜、张宇、沈晶晶、姜明、刘广、赵丹妮等声乐名家，以壮阔的江岸夜景为幕，为市民和游客献上一场高雅与烟火交融的视听盛宴。
 
-关键收益率曲线达到2025年4月以来最平坦；其中2年/10年收益率差收窄约10个基点，至28个基点；5年/30年收益率差下降约12个基点，降至66个基点；二者收窄幅度都是2025年4月以来最大。
+没有传统剧院的围墙，只有晚风、江涛和满天星光。
 
-利率决议公布的同时，美联储决策者还公布了经济和货币政策季度预测，显示出明显的鹰派转变；官员们对年底前政策利率是上升还是下降存在分歧，预测中值从3月的3.4%升至3.75%。
+20时整，重庆交响乐团以一曲欢快热烈的《蝙蝠序曲》拉开序幕，弦乐与铜管交相呼应，瞬间点燃现场气氛。
 
-在政策会议之后的新闻发布会期间，短债维持疲态。
+这支深耕“交响乐中国化、重庆化”的乐团，展现出扎实的艺术功底与昂扬的时代风貌。
 
-与美联储会期挂钩的OIS合约充分消化到10月会议会有一次25个基点的加息，相比之下，美联储政策会议前市场体现的首次加息月份是明年1月。
+音乐会曲目中西合璧、精彩纷呈，既有《九儿》《天路》《亲吻祖国》等民族金曲，也有《春之声圆舞曲》《斗牛士之歌》等世界名篇。
 
-责任编辑：丁文武
+张宇一曲《父亲的草原母亲的河》清澈悠远，沈晶晶演唱《天上雾腾腾》尽显民歌韵味，谭学胜献唱《天路》高亢磅礴，赵丹妮的花腔演绎华丽灵动，刘广带来《贝加尔湖畔》温暖醇厚，王丽达以《亲吻祖国》《共圆中国梦》将全场气氛推向高潮……每位艺术家都以独特的声音，在江风中留下难忘的回响。
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 03:37 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 04:02 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 03:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 03:51 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 04:01 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 03:58 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 03:51 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 03:37 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 04:03 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 04:03 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 03:48 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 04:09 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 04:09 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 03:43 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 03:52 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 03:57 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 03:48 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 04:10 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 04:03 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 04:07 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 03:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 03:54 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 04:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 03:53 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 03:56 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/17565.shtml)
-- 2026-06-30 03:57 - [扬名立万](http://www.share.kurohicncr.top/Article/details/8707351167.shtml)
-- 2026-06-30 03:47 - [金牌调解](http://www.share.kurohicncr.top/Article/details/9413835.shtml)
-- 2026-06-30 04:00 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/274515768.shtml)
-- 2026-06-30 03:51 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/11731.shtml)
-- 2026-06-30 04:05 - [扬名立万](http://www.blog.minike.top/Article/details/8232460.shtml)
-- 2026-06-30 03:54 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/7990265.shtml)
-- 2026-06-30 03:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/2660933.shtml)
-- 2026-06-30 04:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/6843961196.shtml)
-- 2026-06-30 03:53 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/6674816620.shtml)
-- 2026-06-30 03:38 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/85483.shtml)
-- 2026-06-30 03:36 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/18611655.shtml)
-- 2026-06-30 03:43 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/12056.shtml)
-- 2026-06-30 03:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/75380.shtml)
-- 2026-06-30 04:00 - [明星大侦探第四季](https://www.share.minike.top/Article/details/297542053.shtml)
+- 2026-06-30 03:56 - [千香](http://www.blog.kurohicncr.top/Article/details/86981465.shtml)
+- 2026-06-30 03:47 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/745839.shtml)
+- 2026-06-30 03:59 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/24243232983.shtml)
+- 2026-06-30 03:42 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/629787.shtml)
+- 2026-06-30 03:53 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/5550238924.shtml)
+- 2026-06-30 03:42 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/9160877.shtml)
+- 2026-06-30 03:54 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/451720.shtml)
+- 2026-06-30 03:45 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/7981068458.shtml)
+- 2026-06-30 04:01 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/57875701.shtml)
+- 2026-06-30 04:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/97846773962.shtml)
+- 2026-06-30 03:57 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/533292513.shtml)
+- 2026-06-30 03:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/06211175285.shtml)
+- 2026-06-30 03:49 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/9126040.shtml)
+- 2026-06-30 03:52 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/63960519525.shtml)
+- 2026-06-30 04:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/723815538.shtml)

@@ -1,60 +1,60 @@
-# 铁路端午假期运输启动 预计发送旅客8300万人次
+# 日本在野党批高市政府推动修宪扩军：背离民众真实诉求
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网6月18日电 据“中国铁路”微信公众号消息，为期5天的铁路端午假期运输今日启动，自6月18日至22日，全国铁路预计发送旅客8300万人次，6月19日为客流最高峰日，预计发送旅客约1900万人次。 今年端午假期铁路客流以探亲流、旅游流为主，呈现首尾较高、中短途出行占比大、旅游流增长明显等特点。截至今日8时，铁路12306已累计发售端午假期车票超4000万张。从车票预售情况来
+中新网6月1日电 据日本《赤旗报》报道，5月30日，日本共产党委员长田村智子在全国革新恳谈会总会上作特别报告，批评高市早苗政府的政策与国民的迫切需求之间存在深刻矛盾。 田村表示，高市领导的自民党在日本众议院拥有超过三分之二的议席，正在推行修改宪法第9条、全面解禁武器出口、部署远程导弹等政策，朝着“建设战争国家”的方向发展，其危险性前所未有。 田村指出，众议院宪法审查会虽然每周召
 
 ## 正文
 
-中新网6月18日电 据“中国铁路”微信公众号消息，为期5天的铁路端午假期运输今日启动，自6月18日至22日，全国铁路预计发送旅客8300万人次，6月19日为客流最高峰日，预计发送旅客约1900万人次。
+中新网6月1日电 据日本《赤旗报》报道，5月30日，日本共产党委员长田村智子在全国革新恳谈会总会上作特别报告，批评高市早苗政府的政策与国民的迫切需求之间存在深刻矛盾。
 
-今年端午假期铁路客流以探亲流、旅游流为主，呈现首尾较高、中短途出行占比大、旅游流增长明显等特点。
+田村表示，高市领导的自民党在日本众议院拥有超过三分之二的议席，正在推行修改宪法第9条、全面解禁武器出口、部署远程导弹等政策，朝着“建设战争国家”的方向发展，其危险性前所未有。
 
-截至今日8时，铁路12306已累计发售端午假期车票超4000万张。
+田村指出，众议院宪法审查会虽然每周召开，但执政党内部意见也并不一致，讨论尚未形成共识。
 
-从车票预售情况来看，热门出发城市主要有北京、广州、上海、成都、深圳、杭州、武汉、郑州、南京、长沙；热门到达城市主要有北京、广州、成都、杭州、上海、南京、郑州、武汉、长沙、西安；北京至郑州、北京至沈阳、北京至济南、广州至南宁、北京至太原、上海至北京、北京至上海、北京至呼和浩特、武汉至长沙等热门区间客流较为集中。
+她认为，这是因为国民并没有要求修宪，民意调查中将修宪视为优先课题的回答也只是极少数。
 
-铁路部门坚持以人民为中心的发展思想，积极适应旅客多样化出行需求，精心制定假期运输方案，优化旅客列车开行方案，落实便民利民惠民举措，努力保障旅客平安有序出行。
+她表示，当前国民最强烈的要求是应对伊朗战事导致的物价上涨和材料短缺，但高市政权对消费税减免、提高养老金和生活补助标准、支持中小企业等要求完全没有回应，补充预算案也极其有限。
 
-一是增加客运能力供给。
+田村最后表示，日美同盟基轴是自民党政治最粗壮的根基，也渗透到其他主要政党之中。
 
-全国铁路实行高峰线运行图，统筹运用高速铁路和普速铁路资源，日均计划开行旅客列车约1.3万列。
+她称，正因为主张废除安保法制的市民与在野党的共同斗争触及了这一核心，自民党才发自内心地感到恐惧，并试图瓦解这一共同斗争。
 
-动态分析铁路12306售票和候补购票大数据，精准掌握旅客出行需求，根据客流变化加大运力投放，在高峰时段通过加开旅客列车、动车组列车重联、普速列车加挂车辆等方式，及时在热门区域、线路和时段精准投放运力，6月18日夜间至19日凌晨、21日夜间至22日凌晨，在京沪、京广、京哈等主要高铁干线通道安排开行夜间高铁；6月17日、18日在上海至惠州、珠海、佛山、广州等方向增开高铁动卧列车，6月18日在北京至深圳、南宁、湛江、珠海、潮汕、昆明、香港等方向增开高铁动卧列车。
+她表示，今后将继续推进以宪法为中心的共同斗争。
 
 ## 相关推荐
 
-- 2026-06-30 03:42 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 03:41 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 03:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 03:54 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 03:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 03:39 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 03:58 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 03:53 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 03:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 03:42 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 04:00 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 03:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 03:48 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 04:02 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 03:43 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 04:11 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 03:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 04:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 04:02 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 04:11 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 04:05 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 03:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 04:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 03:49 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 04:02 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 03:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 04:02 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 04:11 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:56 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/21276.shtml)
-- 2026-06-30 04:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/3755038185.shtml)
-- 2026-06-30 04:05 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/527788.shtml)
-- 2026-06-30 04:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/1778382.shtml)
-- 2026-06-30 03:40 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/841171465.shtml)
-- 2026-06-30 04:03 - [扬名立万](https://www.blog.minike.top/Article/details/3734250.shtml)
-- 2026-06-30 03:51 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/159410.shtml)
-- 2026-06-30 03:56 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/86921979979.shtml)
-- 2026-06-30 03:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/122760463679.shtml)
-- 2026-06-30 03:37 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/264796744.shtml)
-- 2026-06-30 03:38 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/14693093.shtml)
-- 2026-06-30 03:54 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/141381.shtml)
-- 2026-06-30 03:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/298148734241.shtml)
-- 2026-06-30 04:01 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/85367.shtml)
-- 2026-06-30 03:36 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/04330.shtml)
+- 2026-06-30 03:56 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/808121904.shtml)
+- 2026-06-30 03:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/004200.shtml)
+- 2026-06-30 04:11 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/26495183990.shtml)
+- 2026-06-30 03:58 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/961610.shtml)
+- 2026-06-30 04:07 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/00496181091.shtml)
+- 2026-06-30 04:05 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/150011819.shtml)
+- 2026-06-30 03:57 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/009333911248.shtml)
+- 2026-06-30 04:01 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/414025.shtml)
+- 2026-06-30 04:09 - [天道](http://www.share.minike.top/Article/details/7086823116.shtml)
+- 2026-06-30 03:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/08162.shtml)
+- 2026-06-30 04:11 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/8857478.shtml)
+- 2026-06-30 04:03 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/17286.shtml)
+- 2026-06-30 04:10 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/761177502266.shtml)
+- 2026-06-30 03:54 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/74625243.shtml)
+- 2026-06-30 04:01 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/6392497545.shtml)

@@ -1,58 +1,56 @@
-# 在德国龙舟竞渡中体验中国文化
+# 阿塞拜疆阿布歇隆天然气项目取得进展，新销售协议签署
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-新华社法兰克福6月16日电 通讯｜在德国龙舟竞渡中体验中国文化 新华社记者尹亮 单玮怡 贾金明 初夏的德国法兰克福，雨后新晴，碧空如洗。13日，来自中国、德国、法国、荷兰等国的18支龙舟队伍齐聚法兰克福美因河畔，准备展开竞逐。 当地时间上午10时30分许，比赛正式开始，18支队伍分组轮番上阵。鼓点铿锵，水波粼粼，龙舟争渡。每艘龙舟上22名队员同舟共济、奋勇争先，河道里、河岸边击
+阿塞拜疆国家石油公司、道达尔能源、阿联酋国际石油控股公司以及土耳其博塔什石油管道公司已签署一项天然气销售与购买协议，涉及阿塞拜疆阿布歇隆气田即将生产的天然气。 该协议是在巴库能源周期间签署的，签署方包括阿塞拜疆国家石油公司总裁罗夫尚·纳杰夫、博塔什公司董事长兼总经理阿卜杜勒瓦希特·菲丹、道达尔能源欧洲勘探与生产高级副总裁马蒂诺·帕尼齐，以及XRG公司国际天然气总裁穆罕默德·阿尔
 
 ## 正文
 
-新华社法兰克福6月16日电 通讯｜在德国龙舟竞渡中体验中国文化 新华社记者尹亮 单玮怡 贾金明 初夏的德国法兰克福，雨后新晴，碧空如洗。
+阿塞拜疆国家石油公司、道达尔能源、阿联酋国际石油控股公司以及土耳其博塔什石油管道公司已签署一项天然气销售与购买协议，涉及阿塞拜疆阿布歇隆气田即将生产的天然气。
 
-13日，来自中国、德国、法国、荷兰等国的18支龙舟队伍齐聚法兰克福美因河畔，准备展开竞逐。
+该协议是在巴库能源周期间签署的，签署方包括阿塞拜疆国家石油公司总裁罗夫尚·纳杰夫、博塔什公司董事长兼总经理阿卜杜勒瓦希特·菲丹、道达尔能源欧洲勘探与生产高级副总裁马蒂诺·帕尼齐，以及XRG公司国际天然气总裁穆罕默德·阿尔·阿利亚尼。
 
-当地时间上午10时30分许，比赛正式开始，18支队伍分组轮番上阵。
+阿布歇隆项目第二阶段的最终投资决定预计将于今年做出。
 
-鼓点铿锵，水波粼粼，龙舟争渡。
+年度天然气生产预计将于2029年开始，年产量将达到40亿立方米以上。
 
-每艘龙舟上22名队员同舟共济、奋勇争先，河道里、河岸边击鼓声、欢呼声、加油声此起彼伏。
+阿塞拜疆国家石油公司一位官员表示，根据协议，约一半的产量将供应给土耳其市场。
 
-历经预赛、正赛、决赛，直至傍晚才决出最终名次。
+阿布歇隆气田是阿塞拜疆最大的凝析气田之一。
 
-美因河岸南侧，中国传统文化、亚洲美食等展台帐篷鳞次栉比，绵延数百米，主舞台还连续上演中国传统民乐、中文歌曲和舞蹈表演等。
+第二开发阶段将提升阿塞拜疆的天然气出口潜力，并为区域能源安全做出贡献。
 
-正值周末，许多当地居民全家出动，一边观赛一边体验中国传统文化。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 03:59 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 03:40 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 03:47 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 03:44 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 03:50 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 03:51 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 03:38 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 03:52 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-30 03:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 03:50 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 03:58 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 03:49 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 03:52 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 04:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 04:00 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 03:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 03:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 03:52 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 03:43 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 04:06 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 03:58 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:49 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/39917.shtml)
-- 2026-06-30 03:57 - [沉睡花园](http://www.blog.minike.top/Article/details/056808726969.shtml)
-- 2026-06-30 04:01 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/8068668.shtml)
-- 2026-06-30 03:50 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/373539478.shtml)
-- 2026-06-30 03:50 - [起风了](https://www.share.minike.top/Article/details/40272.shtml)
-- 2026-06-30 03:44 - [点菜也要教吗](https://www.share.minike.top/Article/details/9012772.shtml)
-- 2026-06-30 04:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/6993207589.shtml)
-- 2026-06-30 03:52 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/94021152801.shtml)
-- 2026-06-30 04:00 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/80986609143.shtml)
-- 2026-06-30 03:38 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/3107307.shtml)
-- 2026-06-30 04:03 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/848346754612.shtml)
-- 2026-06-30 03:42 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/36511.shtml)
-- 2026-06-30 03:40 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/25483.shtml)
-- 2026-06-30 04:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/3068503.shtml)
-- 2026-06-30 04:00 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/918954.shtml)
+- 2026-06-30 03:45 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/4270633600.shtml)
+- 2026-06-30 04:09 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/59609638.shtml)
+- 2026-06-30 04:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/4368948.shtml)
+- 2026-06-30 03:43 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/76644501.shtml)
+- 2026-06-30 03:56 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/916408.shtml)
+- 2026-06-30 04:10 - [世界杯](https://www.share.minike.top/Article/details/965142973309.shtml)
+- 2026-06-30 04:04 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/7407312407.shtml)
+- 2026-06-30 03:59 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/897637055709.shtml)
+- 2026-06-30 04:06 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/36489161.shtml)
+- 2026-06-30 03:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/6104198.shtml)
+- 2026-06-30 03:59 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/614627891.shtml)
+- 2026-06-30 04:07 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/40783.shtml)
+- 2026-06-30 03:51 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/04767379.shtml)
+- 2026-06-30 03:46 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/45599605.shtml)
+- 2026-06-30 04:11 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/67503386.shtml)

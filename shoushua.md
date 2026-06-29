@@ -1,57 +1,59 @@
-# 白银龙头盛达资源及其实控人被立案，股价一字跌停，7.4万股民“踩雷”
+# 韩国股市不断超车 已越过印度成为世界第六大股市
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 从一年暴涨超400%的“明星牛股”，到一纸立案告知书后封死跌停，盛达资源（维权）的资本故事正在经历戏剧性转折。 6月15日晚间，A股白银龙头盛达资源（000603）发布公告称，公司及实际控制人赵满堂于当日分别收到中国证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司及赵满堂立案。消息一出，6月16日公司股价开盘
+随着全球人工智能建设所依赖的芯片巨头股价持续飙升，韩国股市已超越印度股市，排到世界第六。 彭博汇编的数据显示，今年在韩上市公司总市值飙升86%，达到5万亿美元，而在印上市公司总市值则下降至4.8万亿美元。 新晋万亿美元市值俱乐部成员三星电子和SK海力士，是韩股涨势的主要推手，凭借它们在AI存储芯片领域的主导地位，推动韩国KOSPI指数在2026年上涨了逾100%。韩国股市今年已
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 从一年暴涨超400%的“明星牛股”，到一纸立案告知书后封死跌停，盛达资源（维权）的资本故事正在经历戏剧性转折。
+随着全球人工智能建设所依赖的芯片巨头股价持续飙升，韩国股市已超越印度股市，排到世界第六。
 
-6月15日晚间，A股白银龙头盛达资源（000603）发布公告称，公司及实际控制人赵满堂于当日分别收到中国证监会下发的《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司及赵满堂立案。
+彭博汇编的数据显示，今年在韩上市公司总市值飙升86%，达到5万亿美元，而在印上市公司总市值则下降至4.8万亿美元。
 
-消息一出，6月16日公司股价开盘即封死跌停，报收27.71元/股，市值一天之内蒸发超20亿元。
+新晋万亿美元市值俱乐部成员三星电子和SK海力士，是韩股涨势的主要推手，凭借它们在AI存储芯片领域的主导地位，推动韩国KOSPI指数在2026年上涨了逾100%。
 
-一、祸起资金占用：11个月滚动占用7.92亿元 此次立案调查，指向的是公司此前自查披露的控股股东资金占用问题。
+韩国股市今年已陆续超过了加拿大、德国、英国和法国股市。
 
-据盛达资源2025年4月29日披露的自查公告，2024年2月至12月期间，控股股东甘肃盛达集团有限公司及其附属企业存在间歇性非经营性占用公司资金的情形。
+“对于一个不久前还把5000点设为雄心勃勃的KOSPI目标的市场来说，赶上印度是一个意义非凡的里程碑，”Asset Value Investors高级投资分析师Ross McGarry表示。
 
-滚动累计占用资金7.92亿元，日占用资金最高余额达2.75亿元。
+“不过，今年的上涨行情主要归功于存储周期 —— 三星和SK海力士挑起了大梁。
 
-盛达资源称，截至2024年12月11日，公司已收回全部被占用资金，并按3.85%的年化利率收取资金占用利息360.14万元。
+真正的考验在于，韩国能否通过真正的公司治理改革来维持这一价值重估势头。
 
-公司已对相关问题进行整改。
+” 反观印度，其股市则受到卢比贬值、创纪录的外资流出以及匮乏与AI基础设施直接相关的公司等因素的困扰。
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 03:58 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 03:58 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 03:37 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 03:53 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 04:05 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 03:36 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 03:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 03:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 04:00 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 03:56 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-30 03:58 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 03:48 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 03:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 03:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 03:49 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 03:44 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 03:52 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 04:10 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 03:48 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 04:04 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 04:00 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 03:45 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 03:57 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/857731.shtml)
-- 2026-06-30 03:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/7996650.shtml)
-- 2026-06-30 03:48 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/65989454.shtml)
-- 2026-06-30 03:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/282885474821.shtml)
-- 2026-06-30 04:04 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/9861884444.shtml)
-- 2026-06-30 03:57 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/4578499738.shtml)
-- 2026-06-30 03:49 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/4996757.shtml)
-- 2026-06-30 03:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/2823792686.shtml)
-- 2026-06-30 03:53 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/7879310156.shtml)
-- 2026-06-30 03:46 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/688909214419.shtml)
-- 2026-06-30 03:39 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/374217.shtml)
-- 2026-06-30 03:49 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/855513.shtml)
-- 2026-06-30 03:57 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/70082171207.shtml)
-- 2026-06-30 03:38 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/106807194.shtml)
-- 2026-06-30 03:39 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/577792457.shtml)
+- 2026-06-30 03:52 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/909618211.shtml)
+- 2026-06-30 03:47 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/09145169.shtml)
+- 2026-06-30 04:11 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/62124.shtml)
+- 2026-06-30 04:10 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/03892.shtml)
+- 2026-06-30 03:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/0612888723.shtml)
+- 2026-06-30 04:05 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/398692.shtml)
+- 2026-06-30 03:59 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/067953.shtml)
+- 2026-06-30 04:06 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/2310419.shtml)
+- 2026-06-30 03:49 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/8358114.shtml)
+- 2026-06-30 03:55 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/649577.shtml)
+- 2026-06-30 03:42 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/5484546461.shtml)
+- 2026-06-30 03:54 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/342288.shtml)
+- 2026-06-30 04:07 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/6631453.shtml)
+- 2026-06-30 04:10 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/59293837.shtml)
+- 2026-06-30 03:44 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/350281.shtml)

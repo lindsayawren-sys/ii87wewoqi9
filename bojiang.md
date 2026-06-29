@@ -1,56 +1,56 @@
-# “端午”假期黑龙江省口岸预计出入境旅客约3.4万人次
+# 安徽对侵害未成年人犯罪“零容忍” 五年起诉1.4万余人
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月17日电(姜辉 钱鑫)17日，黑龙江出入境边防检查总站发布2026年“端午”假期(6月19日至21日)黑龙江省口岸通关“两公布一提示”，助您轻松出行。“端午”假期，黑龙江省口岸预计出入境旅客约3.4万人次，出入境交通运输工具约526班(辆、列、架、艘)次。 密山公路口岸、同江水运口岸、饶河水运口岸、萝北水运口岸6月21日闭关，6月19日、6月20日开关。密山公路
+中新网合肥6月1日电 (记者 赵强)记者1日从安徽省检察院召开的新闻发布会上获悉，安徽检方持续对侵害未成年人犯罪保持“零容忍”高压态势，2021年至2025年共起诉此类犯罪14102人。 安徽省检察院副检察长刘曙光介绍说，五年间，该省检察机关共受理审查起诉涉未成年人案件18648件。自2024年起，受理审查起诉未成年人犯罪数量同比持续下降。 在严惩侵害未成年人犯罪方面，安徽检察
 
 ## 正文
 
-中新网哈尔滨6月17日电(姜辉 钱鑫)17日，黑龙江出入境边防检查总站发布2026年“端午”假期(6月19日至21日)黑龙江省口岸通关“两公布一提示”，助您轻松出行。
+中新网合肥6月1日电 (记者 赵强)记者1日从安徽省检察院召开的新闻发布会上获悉，安徽检方持续对侵害未成年人犯罪保持“零容忍”高压态势，2021年至2025年共起诉此类犯罪14102人。
 
-“端午”假期，黑龙江省口岸预计出入境旅客约3.4万人次，出入境交通运输工具约526班(辆、列、架、艘)次。
+安徽省检察院副检察长刘曙光介绍说，五年间，该省检察机关共受理审查起诉涉未成年人案件18648件。
 
-密山公路口岸、同江水运口岸、饶河水运口岸、萝北水运口岸6月21日闭关，6月19日、6月20日开关。
+自2024年起，受理审查起诉未成年人犯罪数量同比持续下降。
 
-密山公路口岸预计日均出入境旅客约700人次，出入境客车约20班次；出境高峰为6月19日，入境高峰为6月19日。
+在严惩侵害未成年人犯罪方面，安徽检察机关对性侵未成年人案件全面提前介入，对严重侵害案件快捕快诉，依法提出从重量刑建议，对重罪轻判等情况坚决抗诉。
 
-同江水运口岸预计日均出入境旅客约200人次，出入境船舶约2班次；出境高峰为6月19日，入境高峰为6月20日。
+五年间，共批捕侵害未成年人犯罪9639人，起诉14102人，同时用好从业禁止、禁止令等制度，防范再犯风险。
 
-饶河水运口岸预计日均出入境旅客约350人次，出入境客车约8班次；出境高峰为6月19日，入境高峰为6月20日。
+对未成年人犯罪，安徽坚持宽严相济，既依法惩治主观恶性大、情节恶劣的犯罪，又对情节较轻者适用不起诉或附条件不起诉。
 
-萝北水运口岸预计日均出入境旅客约90人次，出入境船舶2班次；出境高峰为6月19日，入境高峰为6月20日。
+五年批捕未成年人犯罪4136人，起诉7955人，附条件不起诉4782人，助力迷途少年回归正途。
 
-黑龙江边检总站指导黑龙江省旅检口岸边检机关科学预测端午节假期出入境旅客、交通运输工具流量和客流高峰时段，严格落实“两公布一提示”工作要求，采取提前加开通道、设置“蓝色提示线”、备足执勤警力、积极协调口岸联检部门以及俄边检机关加快查验速度、交通运输企业增加人力运力等措施，共同提高口岸通关效率，保障端午节假期口岸通关顺畅。
+此外，安徽深化“四大检察”履职，五年监督立案560件、撤案935件，抗诉168件；推动“六大保护”融通发力，五年开展法治进校园30490场次，联动多部门关爱留守困境儿童，以公益诉讼推动重点领域治理，全方位筑牢未成年人保护法治屏障。
 
 ## 相关推荐
 
-- 2026-06-30 03:59 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 03:58 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 04:01 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 03:52 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 03:36 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 04:03 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 03:36 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 03:45 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 03:44 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 03:38 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 03:47 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 03:42 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 03:52 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 04:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 03:49 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 04:10 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 03:57 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 04:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 03:48 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 03:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/10133101.shtml)
-- 2026-06-30 04:03 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/948289.shtml)
-- 2026-06-30 03:59 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/83337.shtml)
-- 2026-06-30 03:43 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/7158679.shtml)
-- 2026-06-30 03:58 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/042785540.shtml)
-- 2026-06-30 04:02 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/256205.shtml)
-- 2026-06-30 03:53 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/37509.shtml)
-- 2026-06-30 04:02 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/887569476.shtml)
-- 2026-06-30 03:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/3267135776.shtml)
-- 2026-06-30 04:03 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/70495.shtml)
-- 2026-06-30 03:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/069172556.shtml)
-- 2026-06-30 04:01 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/062036778929.shtml)
-- 2026-06-30 03:54 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/00069054.shtml)
-- 2026-06-30 03:51 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/283253025456.shtml)
-- 2026-06-30 03:38 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/90665.shtml)
+- 2026-06-30 03:44 - [日本16强魔咒](https://www.share.minike.top/Article/details/9003546307.shtml)
+- 2026-06-30 03:51 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/41842622.shtml)
+- 2026-06-30 03:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/629512002255.shtml)
+- 2026-06-30 03:58 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/1036421015.shtml)
+- 2026-06-30 04:00 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/60161.shtml)
+- 2026-06-30 03:48 - [千与千寻](http://www.share.minike.top/Article/details/192762.shtml)
+- 2026-06-30 03:50 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/01767.shtml)
+- 2026-06-30 03:42 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/6490463927.shtml)
+- 2026-06-30 03:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/809131.shtml)
+- 2026-06-30 03:55 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/380813004.shtml)
+- 2026-06-30 03:48 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/35964823614.shtml)
+- 2026-06-30 03:47 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/843455744507.shtml)
+- 2026-06-30 03:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/81660749.shtml)
+- 2026-06-30 03:57 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/51001.shtml)
+- 2026-06-30 03:52 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/00555725063.shtml)

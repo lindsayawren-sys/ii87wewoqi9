@@ -1,60 +1,59 @@
-# 匠心守艺聚同心 云端代牧连山海：一个边疆村庄的同心共频
+# 海智在线佘莹：AI不是效率工具，它就是取代人
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-编者按：深调研、挖亮点、促交流。为进一步挖掘推广基层统战工作中的好做法好经验，推动交流互鉴，“丝路同心圆·基层行”第十站走进阿勒泰地区，深入基层一线，进行深度采访报道。采访成果将以“图文+短视频”形式，在自治区党委统战部“一刊一网一号”宣传平台刊发。敬请关注！“村子里新建了‘守艺工坊’，让有手艺的村民都能得到方便、专业的工作环境，有时候还会组织培训，提高我们的技术水平。”近日，
+专题：SWCC首届女性CEO大会 上海市工商联女企业家联合会第一届第一次会员大会暨SWCC首届女性CEO大会5月31日在上海举行。上海海智在线网络科技有限公司创始人兼董事长佘莹表示，AI在倒逼我自己更诚实的做决策。 佘莹指出，正是AI先让她感受到它可以放大并代替自己做很多原来做不到的事情，她才真正下决心在公司层面推行All in AI的改革。她强调，所有的变革不应是因为害怕被行
 
 ## 正文
 
-编者按：深调研、挖亮点、促交流。
+专题：SWCC首届女性CEO大会 上海市工商联女企业家联合会第一届第一次会员大会暨SWCC首届女性CEO大会5月31日在上海举行。
 
-为进一步挖掘推广基层统战工作中的好做法好经验，推动交流互鉴，“丝路同心圆·基层行”第十站走进阿勒泰地区，深入基层一线，进行深度采访报道。
+上海海智在线网络科技有限公司创始人兼董事长佘莹表示，AI在倒逼我自己更诚实的做决策。
 
-采访成果将以“图文+短视频”形式，在自治区党委统战部“一刊一网一号”宣传平台刊发。
+佘莹指出，正是AI先让她感受到它可以放大并代替自己做很多原来做不到的事情，她才真正下决心在公司层面推行All in AI的改革。
 
-敬请关注！
+她强调，所有的变革不应是因为害怕被行业后来者干掉，而是因为AI放大了很多原来做不到的事，让人看见了更多的机会。
 
-“村子里新建了‘守艺工坊’，让有手艺的村民都能得到方便、专业的工作环境，有时候还会组织培训，提高我们的技术水平。
+佘莹直言：“在我眼里，我觉得AI不是效率工具，我觉得它就是取代人，让我们拥抱更高级的人。
 
-”近日，哈萨克族刺绣非遗代表性传承人、库尔米希村村民莎拉·那毕多拉对“丝路同心圆·基层行”采访组说。
+” 新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-走进阿勒泰地区哈巴河县库尔米希村，首先映入眼帘的是一座占地近2000平方米的“守艺工坊”，工坊集非遗展销、研学教育和手工艺传承于一体，将村庄里像莎拉·那毕多拉这样的各族手艺人吸引来，不仅为他们提供了创业空间，更让非遗在传承中焕发新的生机。
-
-在工坊的手工刀工作室里，手工刀匠人司马义·赛平正专心致志地磨刀。
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-30 04:04 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 03:39 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 03:51 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 03:36 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 03:38 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 03:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-30 03:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 03:38 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 03:50 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 03:45 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-30 03:44 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 03:57 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 03:43 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 03:59 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 04:03 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 04:07 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 04:03 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 04:08 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 04:00 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 03:59 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 04:08 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 03:52 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 03:54 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 04:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 03:51 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 03:42 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 04:08 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 04:07 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 03:55 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:51 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/3781304413.shtml)
-- 2026-06-30 03:53 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/945967136152.shtml)
-- 2026-06-30 04:05 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/7384695413.shtml)
-- 2026-06-30 04:01 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/50771.shtml)
-- 2026-06-30 03:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/268300182314.shtml)
-- 2026-06-30 03:40 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/9696773.shtml)
-- 2026-06-30 03:36 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/570090885779.shtml)
-- 2026-06-30 03:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/08383109115.shtml)
-- 2026-06-30 04:04 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/96642393498.shtml)
-- 2026-06-30 03:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/86642.shtml)
-- 2026-06-30 03:54 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/24192473.shtml)
-- 2026-06-30 03:54 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/1633207594.shtml)
-- 2026-06-30 03:37 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/51412.shtml)
-- 2026-06-30 03:36 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/609362.shtml)
-- 2026-06-30 03:49 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/40280002.shtml)
+- 2026-06-30 03:59 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/5487100530.shtml)
+- 2026-06-30 03:48 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/199164.shtml)
+- 2026-06-30 03:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/931205.shtml)
+- 2026-06-30 03:55 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/6952253.shtml)
+- 2026-06-30 03:54 - [啊啊啊](http://www.share.minike.top/Article/details/08791958504.shtml)
+- 2026-06-30 03:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/820614.shtml)
+- 2026-06-30 03:53 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/066273.shtml)
+- 2026-06-30 03:56 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/7219260.shtml)
+- 2026-06-30 04:03 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/38899681342.shtml)
+- 2026-06-30 04:09 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/451583817.shtml)
+- 2026-06-30 03:45 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/42355.shtml)
+- 2026-06-30 04:11 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/674339665.shtml)
+- 2026-06-30 04:00 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/893167283.shtml)
+- 2026-06-30 04:03 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/691801.shtml)
+- 2026-06-30 04:03 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/6053944.shtml)

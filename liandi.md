@@ -1,51 +1,57 @@
-# 上交所邱勇：落实好新发布的人工智能领域配套规则 推动更多创新示范案例落地
+# 哈根达斯中国内地门店被出售
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月17日，2026陆家嘴论坛举行，上交所理事长邱勇表示，上交所下一步将发挥资本市场融资功能，更大力度支持科技创新，更好发挥科创板试验田作用。落实好新发布的人工智能领域的配套规则，推动更多创新示范案例落地。进一步落实并购六条，以并购重组推动企业向
+中新网北京6月2日电(记者 左雨晴)6月1日，全球知名食品公司通用磨坊宣布，公司已达成最终协议，将其在中国内地的所有哈根达斯门店出售给包括本土茶饮连锁运营商柠季在内的投资者集团。根据协议，买方将从通用磨坊获得在中国内地冰淇淋店及相关礼品业务中使用哈根达斯品牌的独家许可。通用磨坊将继续在中国内地持有并运营哈根达斯的零售及餐饮业务。通用磨坊表示，该拟议交易预计将于2026年完成，但
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京6月2日电(记者 左雨晴)6月1日，全球知名食品公司通用磨坊宣布，公司已达成最终协议，将其在中国内地的所有哈根达斯门店出售给包括本土茶饮连锁运营商柠季在内的投资者集团。
 
-6月17日，2026陆家嘴论坛举行，上交所理事长邱勇表示，上交所下一步将发挥资本市场融资功能，更大力度支持科技创新，更好发挥科创板试验田作用。
+根据协议，买方将从通用磨坊获得在中国内地冰淇淋店及相关礼品业务中使用哈根达斯品牌的独家许可。
 
-落实好新发布的人工智能领域的配套规则，推动更多创新示范案例落地。
+通用磨坊将继续在中国内地持有并运营哈根达斯的零售及餐饮业务。
 
-进一步落实并购六条，以并购重组推动企业向新向优，提升再融资机制灵活性、便利度，支持上市公司转型升级、做优做强。
+通用磨坊表示，该拟议交易预计将于2026年完成，但尚需获得必要的监管批准并满足其他惯例成交条件。
 
-责任编辑：常福强
+交易的财务条款尚未披露。
+
+柠季官网显示，柠季于2021年2月8日在长沙开设第一家门店，2021年7月完成数千万A轮融资，投资机构为字节跳动、顺为资本；2022年1月完成数亿元A+轮融资，投资机构为腾讯，老股东超额认购。
+
+截至2024年，柠季全国签约门店超3000家。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 03:59 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 03:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 03:59 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 03:56 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 03:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 03:51 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 03:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 03:58 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 03:40 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 03:43 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 03:59 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 03:43 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 04:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 04:00 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 03:53 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 04:07 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 04:05 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 04:03 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 03:47 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 03:59 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 03:54 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:50 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/81002746275.shtml)
-- 2026-06-30 03:54 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/8670615049.shtml)
-- 2026-06-30 03:51 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/064300308191.shtml)
-- 2026-06-30 04:04 - [扬名立万](http://www.share.minike.top/Article/details/07384017.shtml)
-- 2026-06-30 03:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/62945322.shtml)
-- 2026-06-30 03:40 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/119841706.shtml)
-- 2026-06-30 03:38 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/0891445.shtml)
-- 2026-06-30 03:39 - [美人鱼](http://www.share.minike.top/Article/details/554401192.shtml)
-- 2026-06-30 03:36 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/526010703460.shtml)
-- 2026-06-30 03:49 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/94193.shtml)
-- 2026-06-30 03:54 - [苗族银饰](https://www.share.minike.top/Article/details/28787.shtml)
-- 2026-06-30 03:43 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/168187.shtml)
-- 2026-06-30 04:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/0233323.shtml)
-- 2026-06-30 03:37 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/036908202265.shtml)
-- 2026-06-30 04:03 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/579538391056.shtml)
+- 2026-06-30 04:06 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/93433749259.shtml)
+- 2026-06-30 03:53 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/9093383722.shtml)
+- 2026-06-30 03:46 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/257283834.shtml)
+- 2026-06-30 03:54 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/720832.shtml)
+- 2026-06-30 04:01 - [蔚来车主罚站](http://www.share.minike.top/Article/details/4467325.shtml)
+- 2026-06-30 03:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/6325724214.shtml)
+- 2026-06-30 03:52 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/5311991.shtml)
+- 2026-06-30 03:58 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/94311778400.shtml)
+- 2026-06-30 03:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/728651.shtml)
+- 2026-06-30 03:52 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/712497691.shtml)
+- 2026-06-30 04:00 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/34669016988.shtml)
+- 2026-06-30 03:51 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/969486419005.shtml)
+- 2026-06-30 04:03 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/86182.shtml)
+- 2026-06-30 04:10 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/9601830655.shtml)
+- 2026-06-30 04:03 - [刘念回应](http://www.share.kurohicncr.top/Article/details/58021089.shtml)

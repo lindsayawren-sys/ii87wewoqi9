@@ -1,60 +1,56 @@
-# 上游污染下游传导 警惕软件“供应链投毒”！
+# 英伟达新芯片引爆产业链，戴尔、惠普、Arm股价齐涨
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-原标题：警惕软件“供应链投毒”！ 国家网络安全通报中心监测发现，近期集中爆发多起供应链投毒攻击事件，涉及开源软件仓库和商用工具两大核心供应链场景。相关“供应链投毒”事件呈现攻击隐蔽性强、影响范围广、危害程度高和传播速度快的共性特征，可造成凭据遭窃取、远程代码执行和敏感数据泄露等严重危害。 攻击来势汹汹 软件供应链，是软件从组件获取、开发集成、版本分发，直至交付终端用户使用的全流
+英伟达在台北国际电脑展上发布新款PC处理器的消息，不仅推动自身股价走高，也带动了产业链相关公司股价大幅上涨。 戴尔科技与惠普公司盘前分别上涨1.5%和超过3.5%。这两家PC制造巨头将成为首批搭载英伟达新款芯片RTX Spark的厂商。此前两家公司均面临传统PC市场需求疲软的压力，而AI PC的推出为其带来了新的增长动力。据悉，戴尔和惠普计划在2026年秋季推出基于新芯片的笔记
 
 ## 正文
 
-原标题：警惕软件“供应链投毒”！
+英伟达在台北国际电脑展上发布新款PC处理器的消息，不仅推动自身股价走高，也带动了产业链相关公司股价大幅上涨。
 
-国家网络安全通报中心监测发现，近期集中爆发多起供应链投毒攻击事件，涉及开源软件仓库和商用工具两大核心供应链场景。
+戴尔科技与惠普公司盘前分别上涨1.5%和超过3.5%。
 
-相关“供应链投毒”事件呈现攻击隐蔽性强、影响范围广、危害程度高和传播速度快的共性特征，可造成凭据遭窃取、远程代码执行和敏感数据泄露等严重危害。
+这两家PC制造巨头将成为首批搭载英伟达新款芯片RTX Spark的厂商。
 
-攻击来势汹汹 软件供应链，是软件从组件获取、开发集成、版本分发，直至交付终端用户使用的全流程链条。
+此前两家公司均面临传统PC市场需求疲软的压力，而AI PC的推出为其带来了新的增长动力。
 
-与直接针对终端的网络攻击不同，“供应链投毒”是一种典型的“上游污染、下游传导”模式。
+据悉，戴尔和惠普计划在2026年秋季推出基于新芯片的笔记本电脑产品线，主攻高端AI计算市场。
 
-攻击者通过劫持开发者官方账号、篡改开源代码仓库源码、污染软件安装包与发布版本等方式，将恶意程序植入各类软件中。
+涨幅最为显著的是Arm Holdings，其股价在盘前交易中飙升14.5%。
 
-随着软件的发布与更新，这些潜伏的“毒瘤”便被源源不断地输送至海量终端设备。
+作为芯片架构设计公司，Arm的技术被英伟达用于开发新款处理器。
 
-链条环环相扣 软件“供应链投毒”引发的并非单一节点的安全故障，而是全域感染的系统性危机。
+这款名为RTX Spark的芯片融合了Arm的CPU架构与英伟达的Blackwell GPU架构，标志着Arm架构在PC领域的进一步扩张。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 03:55 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 03:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 03:45 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 03:42 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 03:54 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 04:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 03:51 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-30 04:03 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 03:38 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 03:37 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 03:48 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 03:53 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 03:40 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 04:02 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 04:07 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 04:09 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 03:42 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 03:59 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 03:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 03:46 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 04:06 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 04:08 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 03:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/77780.shtml)
-- 2026-06-30 03:54 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/8083267372.shtml)
-- 2026-06-30 04:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/4449339.shtml)
-- 2026-06-30 03:54 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/17390.shtml)
-- 2026-06-30 04:02 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/27549.shtml)
-- 2026-06-30 03:40 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/614103970.shtml)
-- 2026-06-30 03:45 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/617664819858.shtml)
-- 2026-06-30 03:45 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/799506.shtml)
-- 2026-06-30 03:40 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/17224842.shtml)
-- 2026-06-30 03:48 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/9665892.shtml)
-- 2026-06-30 04:05 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/290070.shtml)
-- 2026-06-30 03:37 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/654598.shtml)
-- 2026-06-30 03:41 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/790441744651.shtml)
-- 2026-06-30 03:57 - [刘念回应](https://www.share.kurohicncr.top/Article/details/833766297961.shtml)
-- 2026-06-30 03:38 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/4551744.shtml)
+- 2026-06-30 03:47 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/915531.shtml)
+- 2026-06-30 04:05 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/86626.shtml)
+- 2026-06-30 03:54 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/369770462793.shtml)
+- 2026-06-30 04:10 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/4884237.shtml)
+- 2026-06-30 04:10 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/22820.shtml)
+- 2026-06-30 03:53 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/5340860.shtml)
+- 2026-06-30 04:08 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/563379.shtml)
+- 2026-06-30 04:10 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/0790097.shtml)
+- 2026-06-30 04:07 - [爱很美味](http://www.share.kurohicncr.top/Article/details/64458766.shtml)
+- 2026-06-30 03:49 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/8147423959.shtml)
+- 2026-06-30 04:11 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/00121384.shtml)
+- 2026-06-30 04:10 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/9600028.shtml)
+- 2026-06-30 03:45 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/623221449184.shtml)
+- 2026-06-30 04:03 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/2910807513.shtml)
+- 2026-06-30 04:05 - [千香](http://www.blog.kurohicncr.top/Article/details/3964324.shtml)

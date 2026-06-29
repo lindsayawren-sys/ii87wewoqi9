@@ -1,61 +1,60 @@
-# 中国美院打造赵无极美术馆：在西湖边为一位“游子”安家
+# 8名“七一勋章”提名建议人选，名单公示！
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网杭州6月17日电(林波)“我们计划在西湖边建设中国美术学院(下称：中国美院)赵无极美术馆，美术馆将于2028年中国美院建校百年时对外开放。”6月17日，中国美院院长余旭红接受专访时如是表示。 当日，由中国美院等组织的“大道无极——赵无极百年回顾特展”获得首届浙江省“之江潮”文化奖“优秀奖”。 赵无极是法籍华人艺术家，也是中国美院的杰出校友。1935年，15岁的他考入国立杭
+今年是中国共产党成立105周年。党中央决定，开展“七一勋章”评选颁授，隆重表彰一批为党和人民作出杰出贡献、道德品行高尚的党员。根据评选颁授工作部署，在各省(自治区、直辖市)党委、中央有关部门(系统)党委(工委、党组)、中央军委政治工作部提名的基础上，经过初审、考察和审议研究，产生8名“七一勋章”提名建议人选。 为充分发扬民主，广泛听取意见，接受社会监督，现将有关人选情况予以公示
 
 ## 正文
 
-中新网杭州6月17日电(林波)“我们计划在西湖边建设中国美术学院(下称：中国美院)赵无极美术馆，美术馆将于2028年中国美院建校百年时对外开放。
+今年是中国共产党成立105周年。
 
-”6月17日，中国美院院长余旭红接受专访时如是表示。
+党中央决定，开展“七一勋章”评选颁授，隆重表彰一批为党和人民作出杰出贡献、道德品行高尚的党员。
 
-当日，由中国美院等组织的“大道无极——赵无极百年回顾特展”获得首届浙江省“之江潮”文化奖“优秀奖”。
+根据评选颁授工作部署，在各省(自治区、直辖市)党委、中央有关部门(系统)党委(工委、党组)、中央军委政治工作部提名的基础上，经过初审、考察和审议研究，产生8名“七一勋章”提名建议人选。
 
-赵无极是法籍华人艺术家，也是中国美院的杰出校友。
+为充分发扬民主，广泛听取意见，接受社会监督，现将有关人选情况予以公示，公示时间为2026年6月1日至6月5日。
 
-1935年，15岁的他考入国立杭州艺术专科学校(现中国美院)，在杭州西湖边开启了艺术生涯。
+如对提名建议人选有异议，请于公示期内向中央组织部举报中心反映。
 
-1948年，他赴法国留学并定居，成为“抒情抽象”的代表画家。
+反映方式为电话、信函、电子邮件，信函以到达日邮戳为准。
 
-其作品被法国蓬皮杜艺术中心、美国大都会艺术博物馆等全球150余个博物馆和美术馆收藏。
+以单位名义反映情况的材料需加盖单位公章，以个人名义反映情况的材料应署实名，并提供联系电话。
 
-1985年，赵无极回到浙江美术学院(现中国美院)举办了“赵无极绘画讲习班”，对中国美术教育界产生深远影响。
+电 话：010—12380 网 站：12380举报网站 通信地址：北京市西城区西长安街80号 邮政编码：100815 中共中央组织部 党和国家功勋荣誉表彰工作委员会办公室 2026年6月1日 “七一勋章”提名建议人选 (按姓氏笔画排序) 马善祥，男，回族，1956年11月生，1979年1月入党，四川隆昌人，重庆市两江新区观音桥街道办事处退休干部、“老马工作室”负责人，第十三届全国人大代表。
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 04:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 03:52 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 03:42 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 03:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 04:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 03:53 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 03:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 04:05 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 04:04 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 03:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 03:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 03:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 04:05 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 04:01 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 03:56 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 03:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 03:49 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 03:55 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 03:42 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 03:42 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 03:55 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 03:42 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 04:01 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 03:52 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 03:56 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 03:50 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 04:02 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 03:50 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:47 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/799201.shtml)
-- 2026-06-30 03:42 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/6823801.shtml)
-- 2026-06-30 03:51 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/840146958260.shtml)
-- 2026-06-30 03:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/5798779570.shtml)
-- 2026-06-30 03:46 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/87355717.shtml)
-- 2026-06-30 03:57 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/5812206300.shtml)
-- 2026-06-30 03:51 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/24479906873.shtml)
-- 2026-06-30 03:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/76865601.shtml)
-- 2026-06-30 03:54 - [苗族银饰](http://www.blog.kurohicncr.top/Article/details/60468382.shtml)
-- 2026-06-30 03:55 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/3916528911.shtml)
-- 2026-06-30 04:00 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/14424896.shtml)
-- 2026-06-30 03:54 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/849898779855.shtml)
-- 2026-06-30 03:59 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/6210651.shtml)
-- 2026-06-30 03:36 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/41726.shtml)
-- 2026-06-30 03:44 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/8211205.shtml)
+- 2026-06-30 03:46 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/060692968.shtml)
+- 2026-06-30 03:56 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/723075216.shtml)
+- 2026-06-30 03:59 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/557941.shtml)
+- 2026-06-30 03:49 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/77932002067.shtml)
+- 2026-06-30 03:54 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/66765.shtml)
+- 2026-06-30 03:46 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/2133787122.shtml)
+- 2026-06-30 03:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/666668274699.shtml)
+- 2026-06-30 03:50 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/37600221.shtml)
+- 2026-06-30 03:49 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/7115364311.shtml)
+- 2026-06-30 04:06 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/176748.shtml)
+- 2026-06-30 04:00 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/85138908656.shtml)
+- 2026-06-30 04:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/2287411.shtml)
+- 2026-06-30 03:55 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/07445.shtml)
+- 2026-06-30 03:50 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/9648612.shtml)
+- 2026-06-30 04:04 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/386736328.shtml)

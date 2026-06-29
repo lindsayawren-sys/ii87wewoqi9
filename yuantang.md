@@ -1,59 +1,54 @@
-# 如何应对AI大模型应用风险？农业银行董事长谷澍：用AI手段应对AI应用风险 以AI对抗AI
+# Strategy出售比特币的消息令加密货币承压
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，中国农业银行董事长、执行董事谷澍出席2026陆家嘴论坛，并参加主题为“科技创新赋能金融高质量发展”的主题演讲。 谷澍主要探讨了控制AI大模型应用风险的措施与实践。他认为，大模型当前面临的主要风险有以下几个：模型黑箱、模型的幻觉、模型自主思考和决策带来的不确定性，可细分为三大类。 第一，参数海量
+Strategy向美国证券交易委员会（SEC）提交的一份文件显示，该公司上个月出售了32枚比特币，这正令主要加密货币承压。 Coin Bureau的Nic Puckrin在一份报告中表示：“本周的动能不在比特币这一边。”Puckrin说，尽管股市继续受到AI强势的提振，但这种动能跳过了大部分加密货币领域。 “这意味着比特币更多地受到加密货币特有情绪的驱动，而目前这种情绪已接近谷
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，中国农业银行董事长、执行董事谷澍出席2026陆家嘴论坛，并参加主题为“科技创新赋能金融高质量发展”的主题演讲。
+Strategy向美国证券交易委员会（SEC）提交的一份文件显示，该公司上个月出售了32枚比特币，这正令主要加密货币承压。
 
-谷澍主要探讨了控制AI大模型应用风险的措施与实践。
+Coin Bureau的Nic Puckrin在一份报告中表示：“本周的动能不在比特币这一边。
 
-他认为，大模型当前面临的主要风险有以下几个：模型黑箱、模型的幻觉、模型自主思考和决策带来的不确定性，可细分为三大类。
+”Puckrin说，尽管股市继续受到AI强势的提振，但这种动能跳过了大部分加密货币领域。
 
-第一，参数海量带来模型可解释性的难题。
+“这意味着比特币更多地受到加密货币特有情绪的驱动，而目前这种情绪已接近谷底。
 
-现在主流大模型的参数规模已经有千亿甚至万亿级别，海量参数的矩阵运算和生成非线性叠加，导致模型的决策机制和输出结果不透明，也很难解释。
+“他补充说，SpaceX即将进行的IPO不太可能帮助扭转比特币的颓势。
 
-第二，概率生成带来准确性的考验。
+比特币下跌2.3%，至71992美元；以太币下跌1.1%，至1983美元；XRP下跌2.3%，至1.30美元；Solana下跌1.7%，至80.52美元。
 
-如果对大模型有了解，大家会知道大模型决策的过程不像人类进行决策时有线性思维的过程，大模型是根据海量训练数据统计词源token的概率性规律，它本质上是概率统计，不是逻辑性的事实推导。
-
-当数据和事实依据不足时，容易产生自洽的幻觉。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 03:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 03:42 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 04:05 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 03:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 03:41 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 04:05 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 03:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 03:36 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 03:52 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 04:04 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 03:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 03:48 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 03:42 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 03:44 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 04:02 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 04:04 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 03:42 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 04:07 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 03:47 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 04:09 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 04:07 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 03:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 03:57 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/92554.shtml)
-- 2026-06-30 04:05 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/742379703011.shtml)
-- 2026-06-30 03:58 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/66510.shtml)
-- 2026-06-30 04:00 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/65520503945.shtml)
-- 2026-06-30 03:59 - [时光音乐会](https://www.blog.minike.top/Article/details/09901.shtml)
-- 2026-06-30 03:42 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/36634413887.shtml)
-- 2026-06-30 03:57 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/20085083.shtml)
-- 2026-06-30 03:43 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/2043168348.shtml)
-- 2026-06-30 04:01 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/89682840891.shtml)
-- 2026-06-30 03:43 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/8992744730.shtml)
-- 2026-06-30 03:43 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/542359.shtml)
-- 2026-06-30 03:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/3446904376.shtml)
-- 2026-06-30 03:41 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/5825723922.shtml)
-- 2026-06-30 03:54 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/7671944.shtml)
-- 2026-06-30 03:50 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/456742204.shtml)
+- 2026-06-30 03:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/540716.shtml)
+- 2026-06-30 04:08 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/64772982.shtml)
+- 2026-06-30 04:05 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/7441220.shtml)
+- 2026-06-30 03:51 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/5925293.shtml)
+- 2026-06-30 04:01 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/20238197306.shtml)
+- 2026-06-30 04:00 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/9974707691.shtml)
+- 2026-06-30 04:09 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/8810381.shtml)
+- 2026-06-30 03:45 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/25190082.shtml)
+- 2026-06-30 04:07 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/15270.shtml)
+- 2026-06-30 03:56 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/982352979.shtml)
+- 2026-06-30 03:46 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/5895563347.shtml)
+- 2026-06-30 04:08 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/56272225316.shtml)
+- 2026-06-30 03:46 - [急先锋](https://www.blog.minike.top/Article/details/21682054.shtml)
+- 2026-06-30 04:01 - [啊啊啊](http://www.share.minike.top/Article/details/26466568997.shtml)
+- 2026-06-30 04:05 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/47004945.shtml)

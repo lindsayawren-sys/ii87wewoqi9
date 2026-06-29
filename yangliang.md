@@ -1,60 +1,61 @@
-# 利率走廊区间缩窄至50BP！央行优化临时隔夜正/逆回购操作机制，加减点均调整为25BP
+# 中东战火纷飞，这些孩子没有儿童节
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 每经记者|张寿林 每经编辑|廖丹 6月17日，中国人民银行行长潘功胜在“2026陆家嘴论坛”上宣布即将出台的政策措施。 其中提到，为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化。在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，
+中新网6月1日电(记者 刁炜)今天，本该是属于所有孩子们的节日，但在中东，许多儿童却连活着都需要运气。 联合国儿童基金会近日称，加沙冲突对当地儿童伤害巨大，已致超6.4万名孩子死去或伤残。 同时期，约旦河西岸暴力活动升级，造成200多名巴勒斯坦儿童丧生。 令人心痛的是，战火非但没有熄灭，反而扩散波及到更多国家和地区。 今年早些时候，局势升级蔓延至伊朗，该国约180名儿童遭袭遇难
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 每经记者|张寿林 每经编辑|廖丹 6月17日，中国人民银行行长潘功胜在“2026陆家嘴论坛”上宣布即将出台的政策措施。
+中新网6月1日电(记者 刁炜)今天，本该是属于所有孩子们的节日，但在中东，许多儿童却连活着都需要运气。
 
-其中提到，为进一步推动货币政策框架向价格型转型，增强短端利率调控的精准性和有效性，人民银行将对利率调控机制进行进一步探索和优化。
+联合国儿童基金会近日称，加沙冲突对当地儿童伤害巨大，已致超6.4万名孩子死去或伤残。
 
-在2024年7月设立临时隔夜正/逆回购工具的基础上，完善工具使用机制，并将操作利率调整为7天期逆回购操作利率加、减25个基点，区间由70个基点收窄为50个基点。
+同时期，约旦河西岸暴力活动升级，造成200多名巴勒斯坦儿童丧生。
 
-中信证券首席经济学家明明团队分析，这一方面缩窄了利率走廊的上下限，进一步强化了央行对于资金利率的把控，另一方面明确了隔夜利率DR001的基准利率定位。
+令人心痛的是，战火非但没有熄灭，反而扩散波及到更多国家和地区。
 
-记者了解到，2024年7月，人民银行宣布，为保持银行体系流动性合理充裕，提高公开市场操作的精准性和有效性，从即日起，人民银行将视情况开展临时正回购或临时逆回购操作，时间为工作日16：00至16：20，期限为隔夜，采用固定利率、数量招标，临时隔夜正、逆回购操作的利率分别为7天期逆回购操作利率减点20BP（基点）和加点50BP。
+今年早些时候，局势升级蔓延至伊朗，该国约180名儿童遭袭遇难，其中大多是正上课的小学生。
 
-时隔近两年，该项政策获调整，将利率走廊宽度从70基点收窄至50基点，此外对应工具操作时间也有所提前。
+而在黎巴嫩和叙利亚，激烈冲突让几十万孩子流离失所，数以千计的无辜儿童饱受磨难。
 
-临时隔夜正/逆回购操作时间调整为工作日15：00至15：30，并进一步明确工具使用规则，在货币市场隔夜利率（DR001）持续低于或高于相应工具操作利率时，中国人民银行将结合一级交易商需求启动相应操作。
+这些劫后余生的孩子，不该只剩恐惧和饥饿，国际社会亟待采取行动，让和平的曙光早日来临。
 
-中信证券首席经济学家明明团队分析，相比于2024年设立的临时隔夜正/逆回购工具，本次一方面缩窄了利率走廊的上下限，进一步强化了央行对于资金利率的把控，另一方面明确了隔夜利率DR001的基准利率定位，而“在货币市场隔夜利率（DR001）持续低于或高于相应工具操作利率时”采取操作的表述，明确了央行主动管理性质的利率走廊机制。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 03:45 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 03:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 03:49 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 03:49 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 03:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 03:59 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 03:47 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 03:48 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 04:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 03:52 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 03:47 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 04:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 03:49 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 03:43 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 04:00 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 03:56 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 03:48 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 03:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 04:01 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 04:00 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 03:59 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 03:54 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 03:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 03:54 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 03:57 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 03:55 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 04:05 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 04:07 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:43 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/0647223491.shtml)
-- 2026-06-30 03:50 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/48184350539.shtml)
-- 2026-06-30 03:42 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/4486002.shtml)
-- 2026-06-30 03:59 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/46378127.shtml)
-- 2026-06-30 03:56 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/83031.shtml)
-- 2026-06-30 03:42 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/89378.shtml)
-- 2026-06-30 03:53 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/6108660.shtml)
-- 2026-06-30 03:50 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/7794700385.shtml)
-- 2026-06-30 03:58 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/42542.shtml)
-- 2026-06-30 03:36 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/047159366769.shtml)
-- 2026-06-30 03:47 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/39086.shtml)
-- 2026-06-30 03:52 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/822203.shtml)
-- 2026-06-30 03:53 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/4811211586.shtml)
-- 2026-06-30 03:58 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/4870262612.shtml)
-- 2026-06-30 03:51 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/5136274182.shtml)
+- 2026-06-30 03:55 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/73286366421.shtml)
+- 2026-06-30 04:07 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/82058.shtml)
+- 2026-06-30 03:56 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/302660.shtml)
+- 2026-06-30 04:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/774323.shtml)
+- 2026-06-30 03:56 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/60173473.shtml)
+- 2026-06-30 03:59 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/03045.shtml)
+- 2026-06-30 03:46 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/3416764140.shtml)
+- 2026-06-30 04:00 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/38115280524.shtml)
+- 2026-06-30 03:42 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/174465.shtml)
+- 2026-06-30 04:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/1303838732.shtml)
+- 2026-06-30 03:42 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/637121.shtml)
+- 2026-06-30 04:00 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/85024.shtml)
+- 2026-06-30 03:43 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/87616175664.shtml)
+- 2026-06-30 04:09 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/00019018228.shtml)
+- 2026-06-30 03:42 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/998819.shtml)

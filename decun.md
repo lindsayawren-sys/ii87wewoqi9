@@ -1,50 +1,57 @@
-# 港交所陈翊庭：提高有话语权的投资人群体和发行人的议价能力
+# 韩媒：韩国一军工企业发生爆炸，已致4人死2人伤
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 人民财讯6月17日电，6月17日，在2026陆家嘴论坛“全体大会三：建立健全功能完善的资本市场”上，香港交易所集团行政总裁陈翊庭表示，企业在发行股票时，不仅担心能不能融到资金，还非常关注市场能否给予合理定价，特别是还没有盈利或还没有收入的公司，无法用传统PE方式定价。“香港最近优化了新股定价以及分配机制，我们的做法是
+中新网6月1日电 综合韩联社等韩媒报道，当地时间1日上午10点59分，位于韩国大田市的韩华航空航天大田工厂发生爆炸，已造成4人死亡、2人受伤。 报道称，韩国消防部门于上午11点17分左右启动一级应急响应，目前正在全力扑救。大田消防局一位官员表示：“目前已确认4人死亡，2人受伤。” 事发时，警方接到的紧急求助电话，均报告听到爆炸声并看到冒出浓烟。 据悉，爆炸导致一栋建筑物起火。警
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 人民财讯6月17日电，6月17日，在2026陆家嘴论坛“全体大会三：建立健全功能完善的资本市场”上，香港交易所集团行政总裁陈翊庭表示，企业在发行股票时，不仅担心能不能融到资金，还非常关注市场能否给予合理定价，特别是还没有盈利或还没有收入的公司，无法用传统PE方式定价。
+中新网6月1日电 综合韩联社等韩媒报道，当地时间1日上午10点59分，位于韩国大田市的韩华航空航天大田工厂发生爆炸，已造成4人死亡、2人受伤。
 
-“香港最近优化了新股定价以及分配机制，我们的做法是提高有话语权的投资人群体和发行人的议价能力。
+报道称，韩国消防部门于上午11点17分左右启动一级应急响应，目前正在全力扑救。
 
-”陈翊庭说，“我的意思是，在IPO定价过程中，散户没有话语权，更有话语权的是机构投资者，因此从去年开始，香港把分配比例更多向机构投资者靠拢，让他们有更大的话语权。
+大田消防局一位官员表示：“目前已确认4人死亡，2人受伤。
 
-”责任编辑：石秀珍 SF183
+” 事发时，警方接到的紧急求助电话，均报告听到爆炸声并看到冒出浓烟。
+
+据悉，爆炸导致一栋建筑物起火。
+
+警方和消防部门初步判断爆炸发生在工厂一楼，并计划在火势得到控制后，尽快展开伤亡情况及事故原因的调查。
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 03:39 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 03:54 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 03:53 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 03:57 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 03:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 03:58 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 03:50 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 03:41 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 03:47 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 03:42 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 04:02 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 03:45 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 03:43 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 03:50 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 03:47 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 03:49 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 04:11 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 03:57 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 04:09 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 04:10 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 04:04 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 04:00 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 03:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 03:53 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 03:43 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 03:53 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:57 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/68633.shtml)
-- 2026-06-30 03:43 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/327400384267.shtml)
-- 2026-06-30 03:49 - [急先锋](https://www.blog.kurohicncr.top/Article/details/927791.shtml)
-- 2026-06-30 03:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/01486.shtml)
-- 2026-06-30 03:44 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/23676.shtml)
-- 2026-06-30 03:45 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/377080363.shtml)
-- 2026-06-30 03:52 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/0170819056.shtml)
-- 2026-06-30 03:55 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/691958002519.shtml)
-- 2026-06-30 04:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/95938.shtml)
-- 2026-06-30 03:49 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/5721195.shtml)
-- 2026-06-30 03:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/649149.shtml)
-- 2026-06-30 03:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/728719542.shtml)
-- 2026-06-30 03:50 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/8353482.shtml)
-- 2026-06-30 04:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/2604354.shtml)
-- 2026-06-30 03:42 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/865042732.shtml)
+- 2026-06-30 04:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/50343870913.shtml)
+- 2026-06-30 03:56 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/234623.shtml)
+- 2026-06-30 03:53 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/36038492.shtml)
+- 2026-06-30 04:06 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/0890158.shtml)
+- 2026-06-30 03:43 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/476486967.shtml)
+- 2026-06-30 03:44 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/89663408167.shtml)
+- 2026-06-30 04:05 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/3630097.shtml)
+- 2026-06-30 04:02 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/0762282792.shtml)
+- 2026-06-30 04:05 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/68000997794.shtml)
+- 2026-06-30 04:09 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/248127959566.shtml)
+- 2026-06-30 04:01 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/9549180.shtml)
+- 2026-06-30 04:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/7507981.shtml)
+- 2026-06-30 03:49 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/264093.shtml)
+- 2026-06-30 04:10 - [沉睡花园](https://www.blog.minike.top/Article/details/95435182.shtml)
+- 2026-06-30 03:45 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/954646145395.shtml)

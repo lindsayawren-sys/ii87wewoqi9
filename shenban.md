@@ -1,56 +1,58 @@
-# 中英出版界签约合作出版《伍连德画传》英文版
+# 两大芯片巨头互攻：英伟达杀入PC市场，英特尔将推更便宜的AI芯片
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电 《伍连德画传》英文版版权输出发布会暨签约仪式6月17日在第32届北京国际图书博览会现场举行。京版若晴公司与英国新一代出版社签署了《伍连德画传》英文版合作协议。 伍连德是中国卫生防疫、检疫事业以及中国现代医学等领域的先驱，诺贝尔奖首位华人候选人。《伍连德画传》依托作者历时十余载挖掘、整理的史料，集纳近800幅历史影像，以图文并茂、通俗生动的画传形式，完整再
+界面新闻记者 | 宋佳楠 6月1日，芯片产业上演极具戏剧性的一幕——英伟达高调杀入英特尔深耕数十年的PC芯片腹地，英特尔则强势加码英伟达主场的数据中心与AI芯片赛道。 在台北国际电脑展GTC Taipei 2026大会现场，英伟达公布面向Windows系统个人电脑的全新超级芯片RTX Spark，该芯片采用NVIDIA Blackwell RTX GPU，拥有6144个CUDA
 
 ## 正文
 
-中新网北京6月17日电 《伍连德画传》英文版版权输出发布会暨签约仪式6月17日在第32届北京国际图书博览会现场举行。
+界面新闻记者 | 宋佳楠 6月1日，芯片产业上演极具戏剧性的一幕——英伟达高调杀入英特尔深耕数十年的PC芯片腹地，英特尔则强势加码英伟达主场的数据中心与AI芯片赛道。
 
-京版若晴公司与英国新一代出版社签署了《伍连德画传》英文版合作协议。
+在台北国际电脑展GTC Taipei 2026大会现场，英伟达公布面向Windows系统个人电脑的全新超级芯片RTX Spark，该芯片采用NVIDIA Blackwell RTX GPU，拥有6144个CUDA核心和第五代Tensor Core。
 
-伍连德是中国卫生防疫、检疫事业以及中国现代医学等领域的先驱，诺贝尔奖首位华人候选人。
+此举宣告英伟达正式进军个人电脑核心处理器市场，直接挑战英特尔与AMD长期把持的行业格局。
 
-《伍连德画传》依托作者历时十余载挖掘、整理的史料，集纳近800幅历史影像，以图文并茂、通俗生动的画传形式，完整再现了伍连德跌宕传奇的一生。
+这款芯片由英伟达联合联发科设计，采用台积电3纳米先进制程，内部集成Blackwell RTX GPU与20核心Grace CPU，可适配基于微软Arm架构Windows操作系统。
 
-出席仪式的《伍连德画传》作者、伍连德亲属代表及伍连德权益在华唯⼀授权维护⼈黄建堃表示，伍连德与英国渊源深厚，是剑桥首位华人医学博士，且长期推动中英文化学术交流。
+RTX Spark图形处理能力对标RTX 5070移动GPU，CPU性能据称达到Windows平台顶级水准，足以与市面主流竞品同台竞技。
 
-希望通过《伍连德画传》英文版的推出，依托全球传播渠道，更好地让世界读懂伍连德济世为民的医者精神。
+按照规划，从今年秋季开始，戴尔、联想、华硕等全球主流PC厂商，将陆续推出搭载RTX Spark芯片的笔记本与台式机产品。
 
-京版若晴公司董事长袁海表示，《伍连德画传》版权输出合作体现了中英出版与医学人文文化的深度交融。
+英伟达CEO黄仁勋在演讲中表示，个人计算机历经Windows 95时代四十余年发展迎来全新拐点，AI智能体正在重塑PC产业形态，英伟达与微软正“重新发明”个人电脑，让本地PC具备独立AI智能代理能力，实现人工智能终端化落地。
 
-未来将继续立足首都出版优势，持续深化国际版权合作，打造更多可传播、可感知、可共鸣的中国原创好书，持续助力中华文化国际传播。
+在行业人士看来，RTX Spark的问世是英伟达将CPU、GPU与本地AI计算深度融合的战略布局，凭借自身在AI算力领域的积淀，其或从底层架构撼动英特尔在PC x86市场的传统优势，推动PC产业从传统计算向AI原生计算全面转型。
 
 ## 相关推荐
 
-- 2026-06-30 03:45 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 03:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 03:53 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 04:05 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 03:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 03:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 03:45 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 03:38 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 04:00 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 04:02 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 03:58 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 04:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 03:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 03:47 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 04:07 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 04:03 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 04:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 03:44 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 03:45 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 03:49 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 03:52 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 03:57 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:01 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/665799.shtml)
-- 2026-06-30 04:04 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/9929364.shtml)
-- 2026-06-30 04:01 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/48145412777.shtml)
-- 2026-06-30 03:42 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/36995793619.shtml)
-- 2026-06-30 03:51 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/415082697337.shtml)
-- 2026-06-30 03:42 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/93401771587.shtml)
-- 2026-06-30 03:44 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/0814154100.shtml)
-- 2026-06-30 03:55 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/6420649.shtml)
-- 2026-06-30 03:49 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/737525773253.shtml)
-- 2026-06-30 03:59 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/81902519510.shtml)
-- 2026-06-30 03:41 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/6543497.shtml)
-- 2026-06-30 03:57 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/849650494.shtml)
-- 2026-06-30 03:54 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/217211818680.shtml)
-- 2026-06-30 03:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/2791939.shtml)
-- 2026-06-30 04:00 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/5190776871.shtml)
+- 2026-06-30 04:09 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/334337.shtml)
+- 2026-06-30 04:06 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/855791.shtml)
+- 2026-06-30 04:01 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/337987112.shtml)
+- 2026-06-30 03:51 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/92302.shtml)
+- 2026-06-30 04:10 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/01754596804.shtml)
+- 2026-06-30 03:54 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/3913458.shtml)
+- 2026-06-30 03:44 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/7049098123.shtml)
+- 2026-06-30 03:51 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/88513914493.shtml)
+- 2026-06-30 04:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/887004866440.shtml)
+- 2026-06-30 04:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/791935390191.shtml)
+- 2026-06-30 04:11 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/79611.shtml)
+- 2026-06-30 03:58 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/519180132.shtml)
+- 2026-06-30 04:09 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/3327827.shtml)
+- 2026-06-30 03:54 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/457684.shtml)
+- 2026-06-30 04:09 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/0256461790.shtml)

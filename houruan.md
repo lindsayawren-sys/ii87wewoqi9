@@ -1,61 +1,50 @@
-# 人歇机不停 和天气“赛跑” “气象预警+农机调度”打赢小麦抢收攻坚战
+# 网暴抗洪救灾村干部“戴金耳环” 相关网民被行政处罚
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-央视网消息：眼下，在山西晋中介休，近5万亩冬小麦正迎来收获的关键窗口期。根据气象部门预报，6月18日起，当地将迎来一轮连续降雨天气。这两天，介休正抢抓晴好天气窗口，全力组织机械抢收。目前当地抢收进度如何？小麦基本已处于最佳收获窗口期 记者来到介休市宋谷乡的东段屯村，可以看到，麦田里好几台联合收割机正在紧张作业。进入五月中下旬，介休市不断出现间歇性的降雨或强对流天气。在最近几天晴
+中新网6月2日电 据公安部网安局微信公众号消息，近日，湖南省石门县遭遇强降雨，一村干部连续多日坚守抗洪救灾一线，上门叫应、通知转移、安置群众、运送物资等，令无数网友动容。 然而，就在全社会积极为抗击灾害贡献力量的时候，却有极个别网民因其接受采访时的配饰，而对其进行无端指责，揣测“耳环有二两重”，并发布“普通农村妇女可戴不起金耳环”“把耳环捐了更感动”等贬低嘲讽类言论，干扰抗洪救
 
 ## 正文
 
-央视网消息：眼下，在山西晋中介休，近5万亩冬小麦正迎来收获的关键窗口期。
+中新网6月2日电 据公安部网安局微信公众号消息，近日，湖南省石门县遭遇强降雨，一村干部连续多日坚守抗洪救灾一线，上门叫应、通知转移、安置群众、运送物资等，令无数网友动容。
 
-根据气象部门预报，6月18日起，当地将迎来一轮连续降雨天气。
+然而，就在全社会积极为抗击灾害贡献力量的时候，却有极个别网民因其接受采访时的配饰，而对其进行无端指责，揣测“耳环有二两重”，并发布“普通农村妇女可戴不起金耳环”“把耳环捐了更感动”等贬低嘲讽类言论，干扰抗洪救灾工作，影响恶劣。
 
-这两天，介休正抢抓晴好天气窗口，全力组织机械抢收。
+对此，公安网安部门迅速行动，依法查处网暴行为15起，对秦某某(男，44岁)、未某某(男，45岁)等依法行政处罚。
 
-目前当地抢收进度如何？
-
-小麦基本已处于最佳收获窗口期 记者来到介休市宋谷乡的东段屯村，可以看到，麦田里好几台联合收割机正在紧张作业。
-
-进入五月中下旬，介休市不断出现间歇性的降雨或强对流天气。
-
-在最近几天晴天之后，根据气象部门预报，从18日开始，介休又将迎来连续的降雨天气。
-
-对于已经成熟的小麦来说，连续的降雨是十足的威胁。
+公安机关网安部门将持续开展“净网”专项行动，聚焦网络暴力、网络水军、网络谣言等突出网络乱象，依法严厉打击相关违法犯罪活动，切实维护人民群众合法权益与网络空间秩序。
 
 ## 相关推荐
 
-- 2026-06-30 03:54 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 03:44 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 03:41 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 04:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 03:43 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 03:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 03:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 04:00 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 04:04 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 03:48 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 03:49 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 04:04 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 03:38 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 03:59 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 03:51 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 04:00 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-30 04:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 04:01 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 04:08 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 03:42 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 03:42 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 03:44 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 04:01 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 04:01 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 03:51 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 03:47 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 04:07 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/23230823876.shtml)
-- 2026-06-30 03:53 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/3929788728.shtml)
-- 2026-06-30 03:39 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/28289837.shtml)
-- 2026-06-30 03:45 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/787519.shtml)
-- 2026-06-30 03:48 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/5599957.shtml)
-- 2026-06-30 04:04 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/405285919.shtml)
-- 2026-06-30 04:05 - [扬名立万](https://www.share.kurohicncr.top/Article/details/6068268320.shtml)
-- 2026-06-30 03:59 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/67785297117.shtml)
-- 2026-06-30 03:55 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/98885666713.shtml)
-- 2026-06-30 04:01 - [金牌调解](https://www.blog.minike.top/Article/details/07545984084.shtml)
-- 2026-06-30 03:44 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/4832293.shtml)
-- 2026-06-30 03:43 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/8524823.shtml)
-- 2026-06-30 04:01 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/17231.shtml)
-- 2026-06-30 04:04 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/84976656.shtml)
-- 2026-06-30 03:43 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/6136998.shtml)
+- 2026-06-30 03:59 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/60551028.shtml)
+- 2026-06-30 04:02 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/16193025.shtml)
+- 2026-06-30 03:50 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/89368841060.shtml)
+- 2026-06-30 04:00 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/4974758.shtml)
+- 2026-06-30 04:02 - [千香](http://www.share.kurohicncr.top/Article/details/319184.shtml)
+- 2026-06-30 03:58 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/61729459754.shtml)
+- 2026-06-30 03:55 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/7370753629.shtml)
+- 2026-06-30 03:55 - [蔚来车主罚站](https://www.share.minike.top/Article/details/6179793284.shtml)
+- 2026-06-30 04:07 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/530315.shtml)
+- 2026-06-30 04:07 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/320272345149.shtml)
+- 2026-06-30 04:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/550254427048.shtml)
+- 2026-06-30 03:43 - [勇敢的心第二部](https://www.share.minike.top/Article/details/99781001706.shtml)
+- 2026-06-30 03:58 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/744245.shtml)
+- 2026-06-30 04:10 - [我和我的家乡](http://www.blog.minike.top/Article/details/6242011.shtml)
+- 2026-06-30 03:51 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/2793216.shtml)

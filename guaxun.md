@@ -1,57 +1,56 @@
-# 端午佳节临近 浙江嘉兴粽子出口忙
+# iSTART儿童艺术节：打开读懂孩童世界的窗口
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网嘉兴6月17日电(傅飞扬 沈航)浙江嘉兴素有“粽子之乡”的美誉，全国粽子产业每年产量达数十亿只，其中嘉兴大概占50%。端午佳节临近，嘉兴粽子迎来了出口高峰。连日来，在当地一家粽子企业，生产线高速运转，裹粽、蒸煮、封装、质检各环节有序衔接，一批批粽子经海关监管后销往海外。 “今年我们粽子出口突破了120批次，最多的时候一天向海外发运了5000多箱粽子。”该企业国际业务中心业
+中新网成都6月1日电(单鹏)“很久以前，有一座岛上一本书都没有，也没有知识，所以叫作‘不知岛’。” “后来岛上长出了许多书，但岛主们发现知道的越多，不知道的反而更多。于是，这里依然叫作‘不知岛’。” 这是第十二届iSTART儿童艺术节上，一座名为“不知岛”的主题展区的叙事起点。在这座“岛”上，孩子们不只是读书，也发明书、管理书、重新想象书的形态。80本《小小书》、关于麓湖水生态
 
 ## 正文
 
-中新网嘉兴6月17日电(傅飞扬 沈航)浙江嘉兴素有“粽子之乡”的美誉，全国粽子产业每年产量达数十亿只，其中嘉兴大概占50%。
+中新网成都6月1日电(单鹏)“很久以前，有一座岛上一本书都没有，也没有知识，所以叫作‘不知岛’。
 
-端午佳节临近，嘉兴粽子迎来了出口高峰。
+” “后来岛上长出了许多书，但岛主们发现知道的越多，不知道的反而更多。
 
-连日来，在当地一家粽子企业，生产线高速运转，裹粽、蒸煮、封装、质检各环节有序衔接，一批批粽子经海关监管后销往海外。
+于是，这里依然叫作‘不知岛’。
 
-“今年我们粽子出口突破了120批次，最多的时候一天向海外发运了5000多箱粽子。
+” 这是第十二届iSTART儿童艺术节上，一座名为“不知岛”的主题展区的叙事起点。
 
-”该企业国际业务中心业务经理沈骞介绍。
+在这座“岛”上，孩子们不只是读书，也发明书、管理书、重新想象书的形态。
 
-在此背景下，嘉兴海关主动对接企业需求，开通粽子出口查检“绿色通道”，通过“预约查验”服务，实现查检货物“即报即检”；依托“云签发”模式实现出口检验检疫证书“随到随签”，确保出口各环节“零延时”，最大限度压缩通关时长，保障鲜香粽味跨越山海。
+80本《小小书》、关于麓湖水生态的共创桌游《小水滴麓湖奇遇记》、由视障儿童制作的触摸书《赵老师的音符》，以及用AI设计银河星际列车的10岁“工程师”，都汇聚于此。
 
-“针对不同国家和地区的原料准入、农兽药限量、添加剂使用等差异化标准，我们上门开展政策宣讲，指导企业完善供应商评价和自检自控要求，重点对粽子生产的原料验收、热加工流程、成品检验等环节进行验证，确保食品安全管理体系有效运作。
+“六一”国际儿童节是属于孩童的烂漫时刻，也是倾听少年心声、看见儿童力量的最佳契机。
 
-”嘉兴海关监管四科二级主办凌燕说。
+在成都，由A4儿童艺术馆主办的第十二届iSTART儿童艺术节聚焦童心与思考，在节日里为大众打开一扇读懂孩童世界的窗口。
 
 ## 相关推荐
 
-- 2026-06-30 04:02 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 03:43 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 03:55 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 03:52 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 04:05 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 03:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 04:05 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 03:39 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 03:37 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 03:40 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 03:36 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 04:01 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 04:06 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 03:44 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 03:46 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 03:58 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 03:42 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 03:52 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 04:06 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 03:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 03:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:48 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/63182.shtml)
-- 2026-06-30 03:41 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/3151482288.shtml)
-- 2026-06-30 03:49 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/27350.shtml)
-- 2026-06-30 03:51 - [请回答王牌2019](http://www.blog.minike.top/Article/details/0352533987.shtml)
-- 2026-06-30 03:58 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/19232115521.shtml)
-- 2026-06-30 03:54 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/835065931009.shtml)
-- 2026-06-30 03:36 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/6283166742.shtml)
-- 2026-06-30 03:51 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/135002877.shtml)
-- 2026-06-30 03:58 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/1947809.shtml)
-- 2026-06-30 03:43 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/6113169.shtml)
-- 2026-06-30 04:03 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/9008389.shtml)
-- 2026-06-30 04:00 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/504833054439.shtml)
-- 2026-06-30 03:46 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/9264599623.shtml)
-- 2026-06-30 03:48 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/530896282.shtml)
-- 2026-06-30 03:40 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/86377332.shtml)
+- 2026-06-30 04:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/600365940323.shtml)
+- 2026-06-30 04:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/646579757405.shtml)
+- 2026-06-30 03:43 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/401428320329.shtml)
+- 2026-06-30 04:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/493169.shtml)
+- 2026-06-30 04:01 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/5073316794.shtml)
+- 2026-06-30 03:59 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/8211817884.shtml)
+- 2026-06-30 03:51 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/98176.shtml)
+- 2026-06-30 04:09 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/3862570458.shtml)
+- 2026-06-30 04:02 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/48652653.shtml)
+- 2026-06-30 03:50 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/035403.shtml)
+- 2026-06-30 03:44 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/806756.shtml)
+- 2026-06-30 04:06 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/187508.shtml)
+- 2026-06-30 04:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/7974487.shtml)
+- 2026-06-30 03:53 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/1411006.shtml)
+- 2026-06-30 03:48 - [《共患难》](https://www.share.minike.top/Article/details/88068828.shtml)

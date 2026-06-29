@@ -1,51 +1,54 @@
-# 国家发改委回应大规模投建算力网：市场力量将起决定性作用
+# Anthropic已保密提交IPO注册文件草案 最快今秋登陆美股
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网6月18日电 (李金磊 陈庆洋) 6月18日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上回应称，目前，随着人工智能快速发展，全国一体化算力网建设正在加速推进。截至今年3月底，我国已建成智能算力规模188.2万P，是去年同期的2.5倍，预计还将保持高速增长态势。在具体建设过程中，市场力量将起决定性作用；我们将会同有关部门，加强统筹协调和政策引导。
+Anthropic已保密提交IPO注册文件草案，力争最快于今年秋季登陆美股市场。 该公司周一在博客文章中表示：“拟发行股份数量及发行价格尚未确定。” 这家Claude聊天机器人开发商近期完成一轮融资，对公司估值（含本轮融资）达到9650亿美元，首次超过竞争对手OpenAI。 近几个月来，Anthropic与OpenAI在上市进程上你追我赶，双方都在推进IPO计划。此前有报道称，
 
 ## 正文
 
-中新网6月18日电 (李金磊 陈庆洋) 6月18日，国家发展改革委政策研究室副主任、新闻发言人李超在新闻发布会上回应称，目前，随着人工智能快速发展，全国一体化算力网建设正在加速推进。
+Anthropic已保密提交IPO注册文件草案，力争最快于今年秋季登陆美股市场。
 
-截至今年3月底，我国已建成智能算力规模188.2万P，是去年同期的2.5倍，预计还将保持高速增长态势。
+该公司周一在博客文章中表示：“拟发行股份数量及发行价格尚未确定。
 
-在具体建设过程中，市场力量将起决定性作用；我们将会同有关部门，加强统筹协调和政策引导。
+” 这家Claude聊天机器人开发商近期完成一轮融资，对公司估值（含本轮融资）达到9650亿美元，首次超过竞争对手OpenAI。
+
+近几个月来，Anthropic与OpenAI在上市进程上你追我赶，双方都在推进IPO计划。
+
+此前有报道称，OpenAI正准备在未来数周内保密提交IPO申请文件，并计划于今年秋季上市。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 03:44 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 03:41 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 03:57 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 03:48 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 04:03 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 03:53 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 03:48 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 03:53 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 04:03 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 03:57 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 03:36 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 03:36 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 03:44 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 03:59 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 03:47 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 03:45 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 03:47 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 04:06 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-30 04:03 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 03:57 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 03:49 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 03:44 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 04:10 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 03:46 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 03:54 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 03:53 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 04:11 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:43 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/5928748.shtml)
-- 2026-06-30 03:51 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/3718962.shtml)
-- 2026-06-30 03:40 - [沙丘](http://www.blog.kurohicncr.top/Article/details/2732711846.shtml)
-- 2026-06-30 03:53 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/47101694229.shtml)
-- 2026-06-30 03:58 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/481225.shtml)
-- 2026-06-30 03:53 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/198505286.shtml)
-- 2026-06-30 03:55 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/04059340.shtml)
-- 2026-06-30 03:50 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/489370.shtml)
-- 2026-06-30 04:00 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/951909403.shtml)
-- 2026-06-30 03:52 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/33310.shtml)
-- 2026-06-30 03:59 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/468837.shtml)
-- 2026-06-30 03:47 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/979471206311.shtml)
-- 2026-06-30 04:01 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/00020372440.shtml)
-- 2026-06-30 03:40 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/48619971877.shtml)
-- 2026-06-30 03:41 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/62908875452.shtml)
+- 2026-06-30 03:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/330210424.shtml)
+- 2026-06-30 03:44 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/9462379.shtml)
+- 2026-06-30 04:07 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/23824273.shtml)
+- 2026-06-30 04:00 - [巴西扳平比分](http://www.blog.minike.top/Article/details/15526.shtml)
+- 2026-06-30 03:56 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/94575049856.shtml)
+- 2026-06-30 03:49 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/404516.shtml)
+- 2026-06-30 03:43 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/970349.shtml)
+- 2026-06-30 03:59 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/81402.shtml)
+- 2026-06-30 03:43 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/56876207.shtml)
+- 2026-06-30 04:02 - [日本16强魔咒](https://www.blog.minike.top/Article/details/921491113.shtml)
+- 2026-06-30 04:10 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/8395462.shtml)
+- 2026-06-30 03:50 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/84482216837.shtml)
+- 2026-06-30 03:43 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/22177.shtml)
+- 2026-06-30 03:43 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/7844048580.shtml)
+- 2026-06-30 03:59 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/21521921919.shtml)

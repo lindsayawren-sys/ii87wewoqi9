@@ -1,58 +1,59 @@
-# 宣布六项政策，央行行长潘功胜详解中国金融结构变迁和金融市场现代化
+# 一字涨停！刚刚，大幅异动！两大利好，来袭！
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 完善短端利率调控机制、创设境外央行回购工具、在上海自贸区开展离岸人民币外汇交易试点、研究设立特定情景非银流动性支持宏观审慎工具等，6月17日上午，中国人民银行行长潘功胜在2026陆家嘴论坛上详解了央行即将出台的六项政策举措。 同时，潘功胜阐述了中国金融结构变迁，他指出，从一个较长的时间区间看，中国金融结构的变迁，根本
+两大AI巨头，均有新消息传出！ 北京时间6月2日，英伟达首席执行官黄仁勋表示，英伟达将扩大其面向PC产品线的AI芯片产品线。他还指出，智能体AI将开启未来十年算力革命。 二级市场上，A股AIPC概念股大幅走高，板块指数涨幅超过2%。其中，春秋电子一字涨停，博杰股份盘中也直线拉升至涨停板，雷神科技涨近20%，鹏鼎控股一度触及10%涨停，英力股份涨超11%。 值得关注的是，美股夜盘
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 完善短端利率调控机制、创设境外央行回购工具、在上海自贸区开展离岸人民币外汇交易试点、研究设立特定情景非银流动性支持宏观审慎工具等，6月17日上午，中国人民银行行长潘功胜在2026陆家嘴论坛上详解了央行即将出台的六项政策举措。
+两大AI巨头，均有新消息传出！
 
-同时，潘功胜阐述了中国金融结构变迁，他指出，从一个较长的时间区间看，中国金融结构的变迁，根本上反映了经济结构的深度调整和经济增长动能的新旧转换，金融体系与产业结构转型升级的动态适配，以及金融供给侧结构性改革的持续深化，是长期性、趋势性的变化。
+北京时间6月2日，英伟达首席执行官黄仁勋表示，英伟达将扩大其面向PC产品线的AI芯片产品线。
 
-谈及持续建设规范、开放、有活力、有韧性的现代化金融市场，潘功胜给出了五大重点方向：第一，建设和发展多类别、多层次的金融市场体系，进一步丰富金融市场业态。
+他还指出，智能体AI将开启未来十年算力革命。
 
-第二，持续深化市场化改革，进一步发挥金融市场价格发现和资源配置作用。
+二级市场上，A股AIPC概念股大幅走高，板块指数涨幅超过2%。
 
-第三，健全法治规则体系，进一步培育良好的市场生态。
+其中，春秋电子一字涨停，博杰股份盘中也直线拉升至涨停板，雷神科技涨近20%，鹏鼎控股一度触及10%涨停，英力股份涨超11%。
 
-第四，完善金融市场宏观审慎管理框架和监管体系，进一步提升金融市场运行稳定性和韧性。
+值得关注的是，美股夜盘，半导体企业迈威尔科技的股价直线拉升，涨幅一度超过16%。
 
-第五，稳步推进金融领域制度型开放，进一步提升中国金融市场的国际化水平。
+黄仁勋称，迈威尔科技将成为下一个万亿美元公司，并表示两家公司正在巩固合作关系，以扩展为下一代AI数据中心提供动力所需的关键网络和连接基础设施。
 
-多项政策举措将出台 一是完善短端利率调控机制。
+此外，AI巨头Anthropic上市进展加快。
 
 ## 相关推荐
 
-- 2026-06-30 03:44 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 04:03 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 03:51 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 03:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 04:04 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 04:00 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 04:04 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 04:02 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 03:57 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 04:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 03:56 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 03:38 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 03:53 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 04:10 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 03:51 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 03:51 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 03:54 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 03:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 04:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 04:04 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 04:08 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 03:42 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 03:42 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 03:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 03:53 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/9421910484.shtml)
-- 2026-06-30 03:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/4502127.shtml)
-- 2026-06-30 04:01 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/287468218513.shtml)
-- 2026-06-30 03:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/818262044218.shtml)
-- 2026-06-30 03:51 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/9746391.shtml)
-- 2026-06-30 03:42 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/18336.shtml)
-- 2026-06-30 03:50 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/206635471.shtml)
-- 2026-06-30 03:51 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/38278.shtml)
-- 2026-06-30 04:02 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/665653716.shtml)
-- 2026-06-30 03:43 - [千香](https://www.share.minike.top/Article/details/32600915861.shtml)
-- 2026-06-30 03:48 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/55899.shtml)
-- 2026-06-30 04:03 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/846093871.shtml)
-- 2026-06-30 03:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/396756589.shtml)
-- 2026-06-30 03:44 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/050928915165.shtml)
-- 2026-06-30 04:01 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/318449989177.shtml)
+- 2026-06-30 04:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/44636.shtml)
+- 2026-06-30 04:06 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/273280.shtml)
+- 2026-06-30 04:10 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/0897106528.shtml)
+- 2026-06-30 04:09 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/010980.shtml)
+- 2026-06-30 04:04 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/9602519.shtml)
+- 2026-06-30 03:48 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/9206521.shtml)
+- 2026-06-30 03:56 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/32003869.shtml)
+- 2026-06-30 03:55 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/050918.shtml)
+- 2026-06-30 03:43 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/8228298.shtml)
+- 2026-06-30 03:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/19410477888.shtml)
+- 2026-06-30 04:08 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/19362903.shtml)
+- 2026-06-30 03:58 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/449346.shtml)
+- 2026-06-30 03:54 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/781019241485.shtml)
+- 2026-06-30 03:48 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/862149917.shtml)
+- 2026-06-30 04:05 - [一见倾心](http://www.share.kurohicncr.top/Article/details/2375283544.shtml)

@@ -1,58 +1,51 @@
-# 美国以禁核武为名打响的伊朗战争 恐在核材料去向不明中草草收场
+# RIMBACO发布中期业绩 净利润1575.3万令吉同比增长398%
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-美国总统特朗普与伊朗之间逐渐浮出水面的核协议，可能比前总统奥巴马政府谈判达成的协议更加宽松。特朗普曾嘲讽奥巴马的协议，随后将其废除。 这项潜在协议将在60天内谈判达成，并将以一份谅解备忘录为基础。备忘录仅称，伊朗接近武器级的铀库存将得到“妥善处理”。足以制造多枚核武器的材料命运仍然未决，也凸显出要在防止伊朗拥有核武器方面超过2015年协议的力度所面临的挑战。 特朗普本周就高浓缩
+RIMBACO（01953）发布截至2026年4月30日止六个月业绩，收益1.83亿令吉，同比增长50.6%；净利润1575.3万令吉，同比增长398%；每股基本盈利1.25令吉仙。 期内收益增加主要是由于2026年上半财年期间内完成一个快速通道工厂项目所致。责任编辑：卢昱君
 
 ## 正文
 
-美国总统特朗普与伊朗之间逐渐浮出水面的核协议，可能比前总统奥巴马政府谈判达成的协议更加宽松。
+RIMBACO（01953）发布截至2026年4月30日止六个月业绩，收益1.83亿令吉，同比增长50.6%；净利润1575.3万令吉，同比增长398%；每股基本盈利1.25令吉仙。
 
-特朗普曾嘲讽奥巴马的协议，随后将其废除。
+期内收益增加主要是由于2026年上半财年期间内完成一个快速通道工厂项目所致。
 
-这项潜在协议将在60天内谈判达成，并将以一份谅解备忘录为基础。
-
-备忘录仅称，伊朗接近武器级的铀库存将得到“妥善处理”。
-
-足以制造多枚核武器的材料命运仍然未决，也凸显出要在防止伊朗拥有核武器方面超过2015年协议的力度所面临的挑战。
-
-特朗普本周就高浓缩铀的重要性释放出混杂信号。
-
-他经常把这些材料称为“核尘埃”。
-
-在法国举行的七国集团会议上，他对于获取伊朗铀库存是否是结束美伊战争关键条件的态度摇摆。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 03:48 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 03:55 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 03:56 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 04:01 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 03:38 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 04:04 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 03:53 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 03:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 03:59 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 04:00 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 04:02 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 04:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 03:46 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 03:49 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 03:52 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 03:54 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 04:00 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 03:43 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 03:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 04:01 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 04:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 04:05 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 03:58 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 03:49 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 03:58 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 03:42 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:00 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/59859150984.shtml)
-- 2026-06-30 03:41 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/379564267.shtml)
-- 2026-06-30 04:00 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/3826567.shtml)
-- 2026-06-30 04:00 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/6717706395.shtml)
-- 2026-06-30 03:45 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/40336970.shtml)
-- 2026-06-30 03:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/0687006.shtml)
-- 2026-06-30 03:42 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/7313882742.shtml)
-- 2026-06-30 03:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/8153180.shtml)
-- 2026-06-30 03:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/41835916663.shtml)
-- 2026-06-30 03:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/5795777822.shtml)
-- 2026-06-30 04:01 - [美人鱼](https://www.share.minike.top/Article/details/92619.shtml)
-- 2026-06-30 03:49 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/873096.shtml)
-- 2026-06-30 03:46 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/459514152310.shtml)
-- 2026-06-30 03:40 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/90575.shtml)
-- 2026-06-30 03:47 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/874325.shtml)
+- 2026-06-30 04:07 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/001843199536.shtml)
+- 2026-06-30 04:05 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/023847991796.shtml)
+- 2026-06-30 03:42 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/7504770.shtml)
+- 2026-06-30 04:06 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/9921241.shtml)
+- 2026-06-30 04:06 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/48418.shtml)
+- 2026-06-30 04:11 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/343813158242.shtml)
+- 2026-06-30 04:03 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/62127728998.shtml)
+- 2026-06-30 04:00 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/54666.shtml)
+- 2026-06-30 03:43 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/05077.shtml)
+- 2026-06-30 03:52 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/77465462824.shtml)
+- 2026-06-30 03:57 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/45024894849.shtml)
+- 2026-06-30 03:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/94418317.shtml)
+- 2026-06-30 03:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/76670.shtml)
+- 2026-06-30 04:03 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/789400172.shtml)
+- 2026-06-30 03:42 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/64842422.shtml)

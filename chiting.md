@@ -1,61 +1,58 @@
-# 上期所与伦敦金属交易所联合发布热卷期货结算价授权项目
+# 北京检方五年来共批准逮捕成年人侵害未成年人犯罪1791人
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网上海6月17日电 (高志苗)上海期货交易所(下称上期所)17日与伦敦金属交易所(下称LME)在2026陆家嘴论坛期间，举行热轧卷板期货结算价授权签约仪式。 上期所理事长田向阳表示，本次结算价授权合作，是上期所加快落实资本市场对外开放、加快建成世界一流交易所的具体举措。中国钢铁产业规模庞大、产业基础扎实，期货市场运行规范、发展成熟。此次合作将进一步拓展“上海价格”的国际应用
+中新网北京6月1日电 (记者 张素)6月1日，北京市人民检察院举办“检爱四十载 携手向未来”主题检察开放日活动。北京市人民检察院副检察长岳向阳通报《北京未成年人检察工作实践与探索(2021—2025)》。 工作通报介绍，北京检察机关依法从严惩治侵害未成年人犯罪，特别是对性侵害未成年人犯罪“零容忍”。五年来，共批准逮捕成年人侵害未成年人犯罪1791人，起诉1911人，有力形成打击
 
 ## 正文
 
-中新网上海6月17日电 (高志苗)上海期货交易所(下称上期所)17日与伦敦金属交易所(下称LME)在2026陆家嘴论坛期间，举行热轧卷板期货结算价授权签约仪式。
+中新网北京6月1日电 (记者 张素)6月1日，北京市人民检察院举办“检爱四十载 携手向未来”主题检察开放日活动。
 
-上期所理事长田向阳表示，本次结算价授权合作，是上期所加快落实资本市场对外开放、加快建成世界一流交易所的具体举措。
+北京市人民检察院副检察长岳向阳通报《北京未成年人检察工作实践与探索(2021—2025)》。
 
-中国钢铁产业规模庞大、产业基础扎实，期货市场运行规范、发展成熟。
+工作通报介绍，北京检察机关依法从严惩治侵害未成年人犯罪，特别是对性侵害未成年人犯罪“零容忍”。
 
-此次合作将进一步拓展“上海价格”的国际应用场景，吸引全球钢铁企业与金融机构参与价格形成，持续提升我国钢铁期货的国际影响力。
+五年来，共批准逮捕成年人侵害未成年人犯罪1791人，起诉1911人，有力形成打击侵害未成年人犯罪的高压态势。
 
-未来，上期所将继续深化与国际机构务实合作，积极拓展对外开放的路径和模式，更好发挥期货市场功能。
+2025年受理审查逮捕和受理审查起诉成年人侵害未成年人犯罪人数较2021年分别下降26.31%和10.21%。
 
-LME主席约翰·威廉姆森表示：“此次合作对两地市场而言都是激动人心的进展，中国以外的企业可以更容易地参与世界流动性最好的大宗商品合约之一，并同时享有交易LME现金交割合约的便捷性。
+工作通报显示，北京检察机关坚持依法惩治与精准帮教相结合，做实“预防就是保护、惩治也是挽救”，对主观恶性大、犯罪性质恶劣、手段残忍、后果严重的涉罪未成年人，坚决依法惩处，发挥警示教育作用，五年来，共批准逮捕未成年人犯罪437人，提起公诉528人。
 
-本协议将进一步完善我们的现金交割钢材合约产品体系，并强化LME与全球最大金属生产国和消费国的联系。
+对犯罪情节较轻、社会危害性较小的犯罪，或者较轻犯罪的初犯、偶犯，依法从宽，最大限度进行教育挽救，共作出附条件不起诉决定485人，开展特殊预防1435人次。
 
-” 依托双方合作，上期所向LME授权热轧卷板期货结算价，支持其推出以该价格为基准的期货合约。
+2025年受理审查逮捕和受理审查起诉未成年人犯罪人数同比分别下降1.47%和12.66%。
 
 ## 相关推荐
 
-- 2026-06-30 03:38 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 03:37 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 04:02 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 03:51 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 03:44 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 03:41 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 04:03 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 03:38 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 03:49 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 04:00 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 04:01 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 03:59 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 03:40 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 04:05 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 03:51 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 03:45 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 03:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 03:55 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 04:06 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 03:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 04:03 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 03:51 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 04:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 03:53 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 03:54 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 03:56 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 04:01 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:42 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/634101337305.shtml)
-- 2026-06-30 03:50 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/526228.shtml)
-- 2026-06-30 04:04 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/601832863.shtml)
-- 2026-06-30 03:45 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/940899968.shtml)
-- 2026-06-30 03:58 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/234579706778.shtml)
-- 2026-06-30 03:58 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/85670430.shtml)
-- 2026-06-30 03:37 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/1586455.shtml)
-- 2026-06-30 03:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/16495.shtml)
-- 2026-06-30 03:45 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/438919654.shtml)
-- 2026-06-30 03:56 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/3819619229.shtml)
-- 2026-06-30 03:38 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/856376107.shtml)
-- 2026-06-30 03:54 - [内马尔替补](https://www.share.minike.top/Article/details/59274908440.shtml)
-- 2026-06-30 04:02 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/74922.shtml)
-- 2026-06-30 03:37 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/99245722.shtml)
-- 2026-06-30 03:59 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/516116049.shtml)
+- 2026-06-30 03:52 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/37624325014.shtml)
+- 2026-06-30 03:51 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/707514362377.shtml)
+- 2026-06-30 03:59 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/9627366.shtml)
+- 2026-06-30 04:09 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/5435400210.shtml)
+- 2026-06-30 03:51 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/8866949637.shtml)
+- 2026-06-30 04:08 - [青春环游记第三季](https://www.blog.minike.top/Article/details/792923100762.shtml)
+- 2026-06-30 04:10 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/28701847872.shtml)
+- 2026-06-30 04:02 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/406062529600.shtml)
+- 2026-06-30 03:54 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/778518.shtml)
+- 2026-06-30 04:00 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/403678796.shtml)
+- 2026-06-30 03:43 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/29314.shtml)
+- 2026-06-30 04:01 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/951912.shtml)
+- 2026-06-30 04:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/674340306963.shtml)
+- 2026-06-30 04:00 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/871190328965.shtml)
+- 2026-06-30 04:09 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/42130396692.shtml)

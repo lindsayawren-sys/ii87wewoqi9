@@ -1,57 +1,59 @@
-# 中国进出口银行首席风险官李忠元赴丹麦、波兰和土耳其开展工作调研
+# 湖南一乡村小学69名学生登台办展：每个孩子都是主角
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-来源：进出口银行 近日，中国进出口银行首席风险官李忠元赴丹麦、波兰和土耳其开展工作调研。期间，拜会我驻外使领馆，就双边经贸投资发展、重点金融领域合作等内容深入交流；与多家航运航空企业、当地中资金融同业、中资企业、中国船级社分支机构等负责人座谈，实地考察相关项目，并与中国进出口银行波兰代表处和中国-中东欧投资合作基金中方员工座谈交流。 △与丹麦马士基集团会谈 △调研土耳其航空培训
+中新网益阳6月1日电 (李胜财 丁睿 胡寅)6月1日，湖南益阳市桃江县桃花江竹海翠竹千顷，牛田镇杉树仑小学全校69名学生带着自己的版画、歌声与欢笑，在竹文化博览馆登上舞台。这场特殊的成果展，每个孩子都是主角，一个都没少。 这一天，以“‘69’一个都不能少”为主题的农村美育探索成果展举行，成为孩子最特别的“六一”礼物。展演从少先队入队仪式开始，老队员为新队员系上红领巾，全体少先队
 
 ## 正文
 
-来源：进出口银行 近日，中国进出口银行首席风险官李忠元赴丹麦、波兰和土耳其开展工作调研。
+中新网益阳6月1日电 (李胜财 丁睿 胡寅)6月1日，湖南益阳市桃江县桃花江竹海翠竹千顷，牛田镇杉树仑小学全校69名学生带着自己的版画、歌声与欢笑，在竹文化博览馆登上舞台。
 
-期间，拜会我驻外使领馆，就双边经贸投资发展、重点金融领域合作等内容深入交流；与多家航运航空企业、当地中资金融同业、中资企业、中国船级社分支机构等负责人座谈，实地考察相关项目，并与中国进出口银行波兰代表处和中国-中东欧投资合作基金中方员工座谈交流。
+这场特殊的成果展，每个孩子都是主角，一个都没少。
 
-△与丹麦马士基集团会谈 △调研土耳其航空培训中心 李忠元首席风险官分别与丹麦马士基集团、波兰汽船航运公司和土耳其航空公司等企业负责人会谈，深入了解国际航运航空市场动态及企业经营发展情况，就共同应对市场波动、持续深化务实合作达成共识。
+这一天，以“‘69’一个都不能少”为主题的农村美育探索成果展举行，成为孩子最特别的“六一”礼物。
 
-同时，赴有关中资企业走访，了解其业务开展现状与面临的挑战，围绕境外业务风险防控与差异化可持续发展路径进行交流。
+展演从少先队入队仪式开始，老队员为新队员系上红领巾，全体少先队员高举右拳庄严宣誓。
 
-在调研期间，李忠元首席风险官还与建行欧洲华沙分行、工银土耳其和土耳其中行等中资银行相关负责人举行会谈，围绕风险研判、项目协作、人民币融资等内容进行交流，并就充分发挥互补优势，提升金融服务质效，更好支持双边经贸关系发展交换意见。
+文艺演出环节，朗诵、集体舞、合唱等节目依次登场，全部由公益志愿者义务编排指导，其中杉树仑小学校长刘制坤与学生合唱歌曲《苔》最为动容。
 
-在波期间，李忠元首席风险官还与中国进出口银行波兰代表处和中国-中东欧投资合作基金中方员工座谈交流，强调要持续发挥海外机构桥头堡作用，进一步提升深度调研能力与资源整合能力，为全行境外业务高质量发展提供更强有力的支撑。
+桃江籍画家王战如、桃江县书画家协会主席王超才及会员刘壮、温云翔现场创作，传统书画与儿童版画同台交融，博得阵阵掌声。
 
-责任编辑：秦艺
+展览的重头戏，是孩子们创作的160幅版画。
+
+田野里的油菜花、山坡上的老黄牛、每天走过的山路……这些山乡日常，被一双双小手刻印成画，分别在竹文化博览馆副展区和竹海景区非遗街区亮相。
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 03:53 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 03:42 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 03:48 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 04:03 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 04:05 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 03:42 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 03:38 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 04:02 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 03:44 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 03:52 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 04:02 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 03:59 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 03:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 03:53 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 03:54 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 04:06 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 03:51 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 03:47 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 03:46 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 04:01 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 04:09 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 03:49 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 03:53 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 03:52 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 03:53 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:54 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/5918885.shtml)
-- 2026-06-30 03:52 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/94824626663.shtml)
-- 2026-06-30 03:52 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/0371067726.shtml)
-- 2026-06-30 03:44 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/54720373087.shtml)
-- 2026-06-30 03:41 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/370655.shtml)
-- 2026-06-30 04:01 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/47033.shtml)
-- 2026-06-30 03:36 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/048016.shtml)
-- 2026-06-30 04:01 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/7267378.shtml)
-- 2026-06-30 03:41 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/936227549.shtml)
-- 2026-06-30 04:04 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/9287518795.shtml)
-- 2026-06-30 04:02 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/4297246015.shtml)
-- 2026-06-30 03:53 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/727953066616.shtml)
-- 2026-06-30 04:04 - [日本领先巴西](https://www.blog.minike.top/Article/details/58499.shtml)
-- 2026-06-30 03:39 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/0385124.shtml)
-- 2026-06-30 04:04 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/7610626580.shtml)
+- 2026-06-30 03:42 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/13890888394.shtml)
+- 2026-06-30 03:56 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/992931331.shtml)
+- 2026-06-30 03:58 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/2773584.shtml)
+- 2026-06-30 04:00 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/4521361151.shtml)
+- 2026-06-30 03:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/20701947489.shtml)
+- 2026-06-30 03:45 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/8635727.shtml)
+- 2026-06-30 03:58 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/38663.shtml)
+- 2026-06-30 04:07 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/988855780680.shtml)
+- 2026-06-30 03:54 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/56588362.shtml)
+- 2026-06-30 04:04 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/15057.shtml)
+- 2026-06-30 03:42 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/11300156532.shtml)
+- 2026-06-30 04:07 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/385434177306.shtml)
+- 2026-06-30 03:56 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/721063363.shtml)
+- 2026-06-30 03:44 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/217451987084.shtml)
+- 2026-06-30 03:50 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/3617623721.shtml)

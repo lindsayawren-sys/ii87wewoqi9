@@ -1,59 +1,58 @@
-# （经济观察）跨国公司加码“研在中国” 开拓全球市场
+# 红利低波ETF华泰柏瑞（512890）近60日吸金31.8亿！光大证券看多6月银行股绝对收益
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新社青岛6月17日电 (王禹 张孝鹏)为期3天的第七届跨国公司领导人青岛峰会17日在青岛闭幕。本届峰会显示，“研在中国”正成为越来越多跨国公司开拓全球市场的重要支点。 多年来，完备的产业生态、丰富的创新场景和广阔的应用市场持续吸引跨国公司加码在华研发。数据显示，2025年，跨国公司对华绿地投资中，研发投入为37.3亿美元，占跨国公司全球研发总投入的14.3%；中国科学研究和技
+6月2日，三大股指集体收涨，沪指涨0.43%，深成指涨1.63%，创指涨2.66%。受此影响，红利低波ETF华泰柏瑞（512890）涨0.08%，报1.182元，换手率2.65%，成交额8.73亿元，居同类标的ETF首位。 最新定期报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股今日涨多跌少，包括上海银行、南京银行、平安银行、沪农商行、华润江中、中国海油、中国石油、民
 
 ## 正文
 
-中新社青岛6月17日电 (王禹 张孝鹏)为期3天的第七届跨国公司领导人青岛峰会17日在青岛闭幕。
+6月2日，三大股指集体收涨，沪指涨0.43%，深成指涨1.63%，创指涨2.66%。
 
-本届峰会显示，“研在中国”正成为越来越多跨国公司开拓全球市场的重要支点。
+受此影响，红利低波ETF华泰柏瑞（512890）涨0.08%，报1.182元，换手率2.65%，成交额8.73亿元，居同类标的ETF首位。
 
-多年来，完备的产业生态、丰富的创新场景和广阔的应用市场持续吸引跨国公司加码在华研发。
+最新定期报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股今日涨多跌少，包括上海银行、南京银行、平安银行、沪农商行、华润江中、中国海油、中国石油、民生银行、陕鼓动力、成都银行，持仓占比如下。
 
-数据显示，2025年，跨国公司对华绿地投资中，研发投入为37.3亿美元，占跨国公司全球研发总投入的14.3%；中国科学研究和技术服务领域实际使用外资占中国实际使用外资总额近五分之一，连续七年稳步上升。
+资金流向上，红利低波ETF华泰柏瑞（512890）长期受资金青睐。
 
-峰会上，阿尔斯通中国区总裁耿明举例，该公司在华合资企业已实现减振器全生命周期的本地化研发与生产，其自主研发的全球首款碟片式减振器即将推向国际市场。
+近5个交易日资金净流入5.4亿元，近20个交易日资金净流入26.5亿元，近60个交易日资金净流入31.8亿元。
 
-他透露，未来阿尔斯通将继续立足中国、链接全球，持续强化本土创新与数字化布局。
+截止2026年6月1日，该ETF流通规模329.03亿元。
 
-从材料科学企业陶氏设立其全球首个热管理材料科学实验室，到国际化学企业巨头汉高建立其全球第二大创新中心，从拜耳集团加强与中国高校合作，到宝马集团构建智能网联汽车研发体系，中国正成为全球创新要素集聚地和创新成果策源地。
+消息面上，昨日中国人民银行以固定利率、数量招标方式开展了110亿元7天期逆回购操作，操作利率1.40%。
 
-阿斯利康中国总经理林骁受访时表示，中国是阿斯利康全球第二大市场，也是其全球创新的战略枢纽，该公司在中国设立的两个全球战略研发中心，迄今已主导开展超20项全球临床试验。
+因当日有2580亿元逆回购到期，公开市场实现净回笼2470亿元。
 
 ## 相关推荐
 
-- 2026-06-30 03:46 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 03:40 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 03:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 03:52 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 03:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 03:52 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 03:44 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 03:49 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 03:36 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 03:52 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 03:49 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 03:37 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 03:40 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 04:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 04:08 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 04:05 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 04:09 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 04:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 04:06 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 03:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 03:58 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 04:04 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-30 04:06 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 03:57 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 03:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:45 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/634628814963.shtml)
-- 2026-06-30 04:03 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/630774573206.shtml)
-- 2026-06-30 03:40 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/5180030615.shtml)
-- 2026-06-30 03:55 - [巴西扳平比分](http://www.blog.minike.top/Article/details/9005977.shtml)
-- 2026-06-30 03:55 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/28981827.shtml)
-- 2026-06-30 03:39 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/77872755.shtml)
-- 2026-06-30 04:00 - [巴西扳平比分](http://www.blog.minike.top/Article/details/31609.shtml)
-- 2026-06-30 03:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/7357543.shtml)
-- 2026-06-30 03:53 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/957196.shtml)
-- 2026-06-30 03:48 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/33784.shtml)
-- 2026-06-30 03:45 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/051964123.shtml)
-- 2026-06-30 03:41 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/803714698.shtml)
-- 2026-06-30 03:42 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/81505856.shtml)
-- 2026-06-30 03:57 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/44574886.shtml)
-- 2026-06-30 03:47 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/648717287.shtml)
+- 2026-06-30 03:48 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/4291419488.shtml)
+- 2026-06-30 04:06 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/9149744379.shtml)
+- 2026-06-30 03:45 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/5046359.shtml)
+- 2026-06-30 03:56 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/94752.shtml)
+- 2026-06-30 03:50 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/80465763.shtml)
+- 2026-06-30 04:10 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/70456113.shtml)
+- 2026-06-30 04:06 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/654565805770.shtml)
+- 2026-06-30 03:55 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/6576316.shtml)
+- 2026-06-30 04:05 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/32625.shtml)
+- 2026-06-30 04:04 - [田曦薇没招了](http://www.blog.minike.top/Article/details/26498.shtml)
+- 2026-06-30 03:49 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/104462445878.shtml)
+- 2026-06-30 04:04 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/57695.shtml)
+- 2026-06-30 03:56 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/367982197303.shtml)
+- 2026-06-30 03:57 - [周生如故](http://www.blog.minike.top/Article/details/960391.shtml)
+- 2026-06-30 04:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/55825098617.shtml)

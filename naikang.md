@@ -1,61 +1,59 @@
-# “唇齿唇声动捕数据库”填补空白 成果迈向产业化
+# 新疆伊昭公路正式恢复通车
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网上海6月17日电 (记者 陈静)17日，校企联合打造的“唇齿唇声动捕数据库”在上海数据交易所挂牌发布，标志着这一产教融合示范性成果迈向市场化、产业化发展。 第十一届“汇创青春”上海大学生文化创意作品展示季(简称：“汇创青春”)优秀作品汇展17日举行。记者了解到，“唇齿唇声动捕数据库”作为拥有自主知识产权的专业化中文垂类数据集，聚焦语音、唇形、面部微表情与情感语态联动方向，
+中新网新疆察布查尔6月1日电 (张璐 赵金秀)6月1日，素有“小独库”之称的新疆伊昭公路正式恢复季节性通车，贯通伊宁市、察布查尔锡伯自治县(简称“察布查尔县”)至昭苏县的百里景观公路全线迎客。 伊昭公路全长120余公里，是新疆极具代表性的山区景观公路。公路沿途翻越天山支脉，串联雪山、草甸、山谷、林海、草原等多元地貌。受山区冬季降雪、结冰天气影响，该公路仅每年夏季限时通行。 当天
 
 ## 正文
 
-中新网上海6月17日电 (记者 陈静)17日，校企联合打造的“唇齿唇声动捕数据库”在上海数据交易所挂牌发布，标志着这一产教融合示范性成果迈向市场化、产业化发展。
+中新网新疆察布查尔6月1日电 (张璐 赵金秀)6月1日，素有“小独库”之称的新疆伊昭公路正式恢复季节性通车，贯通伊宁市、察布查尔锡伯自治县(简称“察布查尔县”)至昭苏县的百里景观公路全线迎客。
 
-第十一届“汇创青春”上海大学生文化创意作品展示季(简称：“汇创青春”)优秀作品汇展17日举行。
+伊昭公路全长120余公里，是新疆极具代表性的山区景观公路。
 
-记者了解到，“唇齿唇声动捕数据库”作为拥有自主知识产权的专业化中文垂类数据集，聚焦语音、唇形、面部微表情与情感语态联动方向，有效填补了国内精细情感表达、语音口型同步领域高质量中文数据的空白。
+公路沿途翻越天山支脉，串联雪山、草甸、山谷、林海、草原等多元地貌。
 
-据上海电影艺术职业学院方面介绍，“唇齿唇声动捕数据库”应用场景广泛，既可支撑影视虚拟拍摄、数字人制作、动画配音等演艺行业数字化升级，又能为智能语音系统、虚拟客服等人机交互设备提供底层数据，还可以赋能AI口语教学、台词实训、情感计算、多模态大模型训练等领域，实现艺术与科技双向赋能。
+受山区冬季降雪、结冰天气影响，该公路仅每年夏季限时通行。
 
-据悉，在“唇齿唇声动捕数据库”的构建中，学校演艺学院的师生共同参与数据采集、标注、清洗、校正等核心工作，将舞台表演、情感塑造、台词把控等专业能力融入数据研发全流程，打破课堂教学与产业实践的边界。
+当天上午，随着道路管制解除，首批自驾车辆在摩托车队的带领下，有序驶入伊昭公路。
 
-本届“汇创青春”于今年3月正式启动，吸引了来自海内外高校上万名大学生积极参与，参赛人次和参赛作品数量再创新高。
+山西游客陈橙说：“我特意把摩托车从山西托运过来，等了好几天，就为了能在通车首日体验伊昭公路。
 
-本届“汇创青春”汇展集中展示了近百所高校、九大赛道的优秀创意成果，生动呈现了青年学子用专业所长、青春创意服务城市发展的创新实践，呈现出数智赋能更鲜明、服务社会更主动、文化传承更深入、国际影响更深远等特点。
+” 为保障道路安全畅通、服务优质，察布查尔县交通、公安、路政、养护等多部门联动，提前完成全线清雪除障、道路隐患排查、护栏检修、路面养护等工作。
 
-记者了解到，在互联网+文创类作品中，上海财经大学“智研金融”依托多查询RAG机制实现研报智能解读；华东师范大学“知翼”通过AI机器人和知识图谱助力县域教育均衡发展；上海中医药大学“本草智愈”研发慢性皮肤溃疡治疗新方案。
+通车期间，执勤警力、养护人员将常态化分段巡查值守，严查交通违法行为，及时疏导车流、处置突发情况，同时做好路况提示、游客咨询、应急救援等便民服务。
 
 ## 相关推荐
 
-- 2026-06-30 03:49 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 03:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 03:50 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-30 03:54 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 03:52 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 03:58 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 03:52 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 04:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 03:52 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 03:43 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 03:48 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 03:57 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 04:01 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 03:53 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-30 03:37 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-30 04:00 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 03:50 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 03:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 04:00 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 03:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-30 03:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 04:05 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 04:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 03:48 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 04:04 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 04:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 03:49 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 03:59 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/301283217637.shtml)
-- 2026-06-30 03:41 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/72492.shtml)
-- 2026-06-30 03:47 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/4384586275.shtml)
-- 2026-06-30 03:49 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/234857406377.shtml)
-- 2026-06-30 04:05 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/0623277.shtml)
-- 2026-06-30 04:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/0744798.shtml)
-- 2026-06-30 03:58 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/46334407496.shtml)
-- 2026-06-30 03:47 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/580454302.shtml)
-- 2026-06-30 03:53 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/728535111186.shtml)
-- 2026-06-30 04:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/3272616.shtml)
-- 2026-06-30 03:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/4440551828.shtml)
-- 2026-06-30 03:48 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/88454.shtml)
-- 2026-06-30 04:03 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/221357879.shtml)
-- 2026-06-30 04:01 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/11163.shtml)
-- 2026-06-30 03:44 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/9860593.shtml)
+- 2026-06-30 03:49 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/7298962753.shtml)
+- 2026-06-30 04:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/1285481.shtml)
+- 2026-06-30 04:03 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/496202072307.shtml)
+- 2026-06-30 03:52 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/003753101869.shtml)
+- 2026-06-30 03:58 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/06977.shtml)
+- 2026-06-30 03:55 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/03976.shtml)
+- 2026-06-30 03:50 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/80458876728.shtml)
+- 2026-06-30 03:52 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/4691209.shtml)
+- 2026-06-30 03:47 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/94104963.shtml)
+- 2026-06-30 03:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/8315441.shtml)
+- 2026-06-30 04:07 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/541494529850.shtml)
+- 2026-06-30 04:05 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/1074931697.shtml)
+- 2026-06-30 03:45 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/50467474004.shtml)
+- 2026-06-30 04:11 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/6782840.shtml)
+- 2026-06-30 03:53 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/829707.shtml)

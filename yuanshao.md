@@ -1,46 +1,50 @@
-# 范式智能获富国基金增持328.75万股 每股作价约28.69港元
+# SpaceX：马斯克同意接受为期366天的股票锁定期
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月12日，富国基金管理有限公司增持范式智能（06682）328.75万股，每股作价28.6911港元，总金额约为9432.20万港元。增持后最新持股数目约为1838.61万股，持股比例为5.12%。责任编辑：卢昱君
+根据SpaceX提交的S-1文件修正案，马斯克已与承销商达成协议，接受为期366天的锁定期。在未经高盛事先书面同意的情况下，他持有的所有股份均不得出售。 SpaceX还表示，将预留最多5%的IPO A类普通股供部分员工以及由公司高管指定的人士认购。责任编辑：李桐
 
 ## 正文
 
-香港联交所最新数据显示，6月12日，富国基金管理有限公司增持范式智能（06682）328.75万股，每股作价28.6911港元，总金额约为9432.20万港元。
+根据SpaceX提交的S-1文件修正案，马斯克已与承销商达成协议，接受为期366天的锁定期。
 
-增持后最新持股数目约为1838.61万股，持股比例为5.12%。
+在未经高盛事先书面同意的情况下，他持有的所有股份均不得出售。
 
-责任编辑：卢昱君
+SpaceX还表示，将预留最多5%的IPO A类普通股供部分员工以及由公司高管指定的人士认购。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 03:40 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-30 04:03 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 03:44 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 03:47 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 03:36 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 03:54 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 04:05 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 03:45 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 03:57 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 03:49 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 04:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 03:45 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 03:46 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 03:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 03:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 03:57 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 04:06 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 03:42 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 04:08 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-30 04:05 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 03:47 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:00 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/4041335723.shtml)
-- 2026-06-30 03:50 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/378994884799.shtml)
-- 2026-06-30 03:55 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/56424716105.shtml)
-- 2026-06-30 03:56 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/60301.shtml)
-- 2026-06-30 03:55 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/5025022113.shtml)
-- 2026-06-30 03:54 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/66853380.shtml)
-- 2026-06-30 03:43 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/829224.shtml)
-- 2026-06-30 03:37 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/040633099309.shtml)
-- 2026-06-30 04:03 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/5854803.shtml)
-- 2026-06-30 03:53 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/46918783.shtml)
-- 2026-06-30 03:40 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/972996.shtml)
-- 2026-06-30 03:58 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/9338027174.shtml)
-- 2026-06-30 03:54 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/974918016399.shtml)
-- 2026-06-30 03:53 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/515643385.shtml)
-- 2026-06-30 04:00 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/41260.shtml)
+- 2026-06-30 03:51 - [美股](http://www.share.kurohicncr.top/Article/details/3858145764.shtml)
+- 2026-06-30 03:42 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/476571181.shtml)
+- 2026-06-30 03:46 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/72660273.shtml)
+- 2026-06-30 03:54 - [天道](https://www.blog.kurohicncr.top/Article/details/6383177.shtml)
+- 2026-06-30 03:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/8721143867.shtml)
+- 2026-06-30 03:51 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/67085794.shtml)
+- 2026-06-30 03:51 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/495203064498.shtml)
+- 2026-06-30 04:03 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/42815687803.shtml)
+- 2026-06-30 03:42 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/5417203.shtml)
+- 2026-06-30 03:53 - [恋与深空回应争议](http://www.share.minike.top/Article/details/1486876871.shtml)
+- 2026-06-30 04:06 - [急先锋](https://www.share.kurohicncr.top/Article/details/5393538221.shtml)
+- 2026-06-30 04:04 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/45632.shtml)
+- 2026-06-30 04:01 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/423963610170.shtml)
+- 2026-06-30 03:56 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/749213941541.shtml)
+- 2026-06-30 03:43 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/10086048839.shtml)

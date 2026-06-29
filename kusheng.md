@@ -1,48 +1,45 @@
-# 浙海德曼：公司未来将举办形式多样的投资者交流活动
+# 刘祎获批担任重庆农商行副行长
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月17日，浙海德曼在互动平台回答投资者提问时表示，公司未来将举办形式多样的投资者交流活动，以便让投资者更多的了解公司。（文章来源：证券日报）
+6月1日金融一线消息，重庆金融监管局发布《关于刘祎重庆农村商业银行副行长任职资格的批复》，核准刘祎重庆农村商业银行股份有限公司副行长的任职资格。 责任编辑：曹睿潼
 
 ## 正文
 
-证券日报网讯 6月17日，浙海德曼在互动平台回答投资者提问时表示，公司未来将举办形式多样的投资者交流活动，以便让投资者更多的了解公司。
+6月1日金融一线消息，重庆金融监管局发布《关于刘祎重庆农村商业银行副行长任职资格的批复》，核准刘祎重庆农村商业银行股份有限公司副行长的任职资格。
 
-（文章来源：证券日报）
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 04:02 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 03:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 03:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 03:53 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 03:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 03:39 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 03:53 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 03:44 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 03:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 03:47 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 03:57 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 03:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 03:58 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 04:00 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 04:04 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 03:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 03:47 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 03:57 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 03:55 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-30 04:04 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 04:01 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 04:01 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 03:56 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 04:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/38839684684.shtml)
-- 2026-06-30 03:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/313686895329.shtml)
-- 2026-06-30 03:48 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/727467183935.shtml)
-- 2026-06-30 04:01 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/817672.shtml)
-- 2026-06-30 03:55 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/96927641.shtml)
-- 2026-06-30 03:43 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/223429063812.shtml)
-- 2026-06-30 03:43 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/29381943716.shtml)
-- 2026-06-30 03:47 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/9595978946.shtml)
-- 2026-06-30 03:59 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/9852896253.shtml)
-- 2026-06-30 03:43 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/19599994.shtml)
-- 2026-06-30 03:43 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/97546473103.shtml)
-- 2026-06-30 03:42 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/585423757.shtml)
-- 2026-06-30 03:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/815773.shtml)
-- 2026-06-30 03:54 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/484672012.shtml)
-- 2026-06-30 04:05 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/181008690709.shtml)
+- 2026-06-30 03:47 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/08569061.shtml)
+- 2026-06-30 04:00 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/219489114.shtml)
+- 2026-06-30 04:05 - [恋与深空 日服](https://www.blog.minike.top/Article/details/453689204947.shtml)
+- 2026-06-30 03:55 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/00437.shtml)
+- 2026-06-30 03:58 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/7473735.shtml)
+- 2026-06-30 03:55 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/061725927.shtml)
+- 2026-06-30 03:47 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/826602315.shtml)
+- 2026-06-30 03:52 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/42608829.shtml)
+- 2026-06-30 04:08 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/33519067525.shtml)
+- 2026-06-30 04:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/7105659256.shtml)
+- 2026-06-30 04:04 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/694590.shtml)
+- 2026-06-30 03:44 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/5265113931.shtml)
+- 2026-06-30 03:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/2016134299.shtml)
+- 2026-06-30 03:46 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/705541192.shtml)
+- 2026-06-30 04:06 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/03426.shtml)

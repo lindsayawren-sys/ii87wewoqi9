@@ -1,59 +1,61 @@
-# 支付宝“折叠”：十年前拼流量，十年后赌AI
+# 富恒新材（920469）投资者索赔分析
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 董静怡 6月16日，支付宝做了一件它二十多年来从未做过的事——给自己“瘦身”。 用户只需在支付宝首页“往右一滑”，就能进入一个全新的界面：只剩下两个功能页——“阿宝”和“资产”。上万种服务被折叠进一个对话框，查公积金、交水电费、预约挂号，一句话就能办完。 这个被命名为“阿宝”的AI助手，是支付宝历史上最大规模的一次改版。据报道，该项目在内部代号“宝计划”，
+2026年4月30日，富恒新材（维权）（920469）公司就监管措施发布前期会计差错更正及定期报告更正公告。部分股民或许存在索赔机会。 徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、印花税及佣金损失。（徐劲律
 
 ## 正文
 
-21世纪经济报道记者 董静怡 6月16日，支付宝做了一件它二十多年来从未做过的事——给自己“瘦身”。
+2026年4月30日，富恒新材（维权）（920469）公司就监管措施发布前期会计差错更正及定期报告更正公告。
 
-用户只需在支付宝首页“往右一滑”，就能进入一个全新的界面：只剩下两个功能页——“阿宝”和“资产”。
+部分股民或许存在索赔机会。
 
-上万种服务被折叠进一个对话框，查公积金、交水电费、预约挂号，一句话就能办完。
+徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、印花税及佣金损失。
 
-这个被命名为“阿宝”的AI助手，是支付宝历史上最大规模的一次改版。
+（徐劲律师专栏） 暂定索赔条件： 在2024年4月26日至2026年4月29日期间买入，且在2026年4月29日后卖出或仍持有而亏损的投资者（最终索赔结果以法院判决为准）。
 
-据报道，该项目在内部代号“宝计划”，已筹备超过一年，由支付宝事业群总裁李俊挂帅。
+（富恒新材维权入口） 投资者应准备下列材料：身份证复印件，证券账户开户信息确认单（原件加盖证券公司营业部印章），证券交易记录流水（从首次买入该股票至今并加盖证券公司营业部印章，有库存股的还要打印出库存股数）。
 
-在传统流量入口的争夺中，支付宝已经处于下风，它显然明白用AI改版的重要性。
+（本文由北京市盈科（深圳）律师事务所徐劲律师（执业证号14403200610948623）供稿，不代表新浪财经的立场。
 
-但面对背后庞大的10亿用户，和AI时代展开的新机遇窗口，它的任何动作都必须谨慎。
+徐劲律师擅长在上市公司虚假陈述案件中为股民维权索赔，执业十余年来，曾代理投资者起诉多家上市公司成功索赔。
 
-今年1月，蚂蚁集团CEO韩歆毅在接受采访时曾表示：“我们对支付宝的AI化还在摸索中，这事不容易做。
+） 责任编辑：韦子蓉
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 03:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 04:02 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 03:36 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 04:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 03:51 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 03:37 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 04:04 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 03:37 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 03:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 03:39 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 03:37 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 03:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 04:05 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 03:57 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 03:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 04:04 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-30 03:52 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 04:11 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 03:52 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 03:59 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 04:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 03:54 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 03:59 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 04:03 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 04:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 04:01 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 03:50 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/13899915271.shtml)
-- 2026-06-30 03:49 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/820998.shtml)
-- 2026-06-30 04:02 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/12142500.shtml)
-- 2026-06-30 03:38 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/409969713.shtml)
-- 2026-06-30 04:02 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/386117894563.shtml)
-- 2026-06-30 03:59 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/810588561.shtml)
-- 2026-06-30 03:54 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/36850.shtml)
-- 2026-06-30 03:53 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/73900931942.shtml)
-- 2026-06-30 03:46 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/465586385392.shtml)
-- 2026-06-30 04:00 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/953700839.shtml)
-- 2026-06-30 03:59 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/999806.shtml)
-- 2026-06-30 03:44 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/00423860.shtml)
-- 2026-06-30 03:55 - [日本淘汰](http://www.share.minike.top/Article/details/600521823131.shtml)
-- 2026-06-30 03:59 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/200229613535.shtml)
-- 2026-06-30 03:39 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/008319735103.shtml)
+- 2026-06-30 03:48 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/191215381.shtml)
+- 2026-06-30 03:50 - [月亮](http://www.share.minike.top/Article/details/428905542.shtml)
+- 2026-06-30 03:53 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/72133411750.shtml)
+- 2026-06-30 03:54 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/423193249.shtml)
+- 2026-06-30 04:10 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/855750891645.shtml)
+- 2026-06-30 04:07 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/4778025293.shtml)
+- 2026-06-30 03:53 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/413698281659.shtml)
+- 2026-06-30 04:05 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/468605886.shtml)
+- 2026-06-30 03:58 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/560062.shtml)
+- 2026-06-30 03:50 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/7533550129.shtml)
+- 2026-06-30 03:43 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/690203310162.shtml)
+- 2026-06-30 03:48 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/65535961.shtml)
+- 2026-06-30 03:50 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/7217476872.shtml)
+- 2026-06-30 03:43 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/496706832.shtml)
+- 2026-06-30 03:50 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/2532428674.shtml)

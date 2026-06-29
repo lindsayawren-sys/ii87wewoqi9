@@ -1,56 +1,51 @@
-# 银行开始下架2年期定存！存款利率继续下滑
+# 伊朗称与阿曼在霍尔木兹海峡管控方面取得“良好进展”
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-不仅3年期、5年期定期存款在渐行渐远，连2年期定存也开始被银行下架。记者发现，重庆富民银行近日发布关于2年期及以上整存整取及续存系列产品暂停受理新增存入的公告。这意味着，重庆富民银行线上渠道的中长期存款全部阶段性停售。融360数字科技研究院高级分析师艾亚文在接受采访时分析，银行下架中长期定期存款，主要因优质信贷资产增长乏力，叠加高息揽存模式难以为继，机构主动压降高成本、长期限负
+伊朗外交部副部长Kazem Gharibabadi在接受伊朗国家电视台采访时表示，伊朗和阿曼有权对霍尔木兹海峡行使主权。 重申伊朗已制定新的战时船舶通过霍尔木兹海峡的管制条例，绝不允许任何国家干涉。 他说，任何安排都必须与阿曼协调。责任编辑：江学思
 
 ## 正文
 
-不仅3年期、5年期定期存款在渐行渐远，连2年期定存也开始被银行下架。
+伊朗外交部副部长Kazem Gharibabadi在接受伊朗国家电视台采访时表示，伊朗和阿曼有权对霍尔木兹海峡行使主权。
 
-记者发现，重庆富民银行近日发布关于2年期及以上整存整取及续存系列产品暂停受理新增存入的公告。
+重申伊朗已制定新的战时船舶通过霍尔木兹海峡的管制条例，绝不允许任何国家干涉。
 
-这意味着，重庆富民银行线上渠道的中长期存款全部阶段性停售。
+他说，任何安排都必须与阿曼协调。
 
-融360数字科技研究院高级分析师艾亚文在接受采访时分析，银行下架中长期定期存款，主要因优质信贷资产增长乏力，叠加高息揽存模式难以为继，机构主动压降高成本、长期限负债。
-
-第一财经“下架潮”蔓延至2年期存款就在6月初，多家银行下架3年期、5年期定期存款的话题冲上了微博热搜。
-
-其中，北京中关村银行暂时下架个人、单位整存整取3年期存款产品。
-
-该行在售整存整取产品的期限包括3个月、6个月、1年和2年，其中，2年期存款利率为1.8%。
-
-湖南三湘银行也于5月初下架了5年期定存产品，存量到期不再自动滚存，并将3年期利率从2.05%下调至1.95%。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 03:47 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 03:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 03:40 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 03:38 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-30 03:50 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 03:50 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 03:37 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 03:36 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 03:44 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 03:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 04:02 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 03:55 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 04:01 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 03:50 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 04:05 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 03:58 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 03:51 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 03:43 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 04:03 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 03:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 04:05 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 03:52 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 04:03 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/2878765264.shtml)
-- 2026-06-30 03:59 - [金刚川](https://www.share.minike.top/Article/details/2622574415.shtml)
-- 2026-06-30 03:40 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/3366889.shtml)
-- 2026-06-30 03:36 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/69569796853.shtml)
-- 2026-06-30 03:49 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/41397697.shtml)
-- 2026-06-30 03:57 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/5553220.shtml)
-- 2026-06-30 03:59 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/2334912.shtml)
-- 2026-06-30 03:42 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/2034927393.shtml)
-- 2026-06-30 03:58 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/207437.shtml)
-- 2026-06-30 03:57 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/42638312594.shtml)
-- 2026-06-30 03:47 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/96334001230.shtml)
-- 2026-06-30 03:50 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/05272927205.shtml)
-- 2026-06-30 03:57 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/04815265.shtml)
-- 2026-06-30 03:57 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/870600.shtml)
-- 2026-06-30 03:50 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/13358905.shtml)
+- 2026-06-30 04:05 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/51607590897.shtml)
+- 2026-06-30 04:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/402979.shtml)
+- 2026-06-30 03:45 - [啊啊啊](http://www.share.minike.top/Article/details/422419149680.shtml)
+- 2026-06-30 03:54 - [天道](http://www.share.kurohicncr.top/Article/details/94042768984.shtml)
+- 2026-06-30 04:05 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/5633172681.shtml)
+- 2026-06-30 03:54 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/910134431.shtml)
+- 2026-06-30 04:03 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/48422830.shtml)
+- 2026-06-30 03:45 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/05942728411.shtml)
+- 2026-06-30 03:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/026781042575.shtml)
+- 2026-06-30 03:54 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/761111908051.shtml)
+- 2026-06-30 04:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/52809.shtml)
+- 2026-06-30 04:08 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/101391724659.shtml)
+- 2026-06-30 04:02 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/76349749375.shtml)
+- 2026-06-30 04:05 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/23988.shtml)
+- 2026-06-30 04:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/372428308.shtml)

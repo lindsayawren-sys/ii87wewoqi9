@@ -1,59 +1,58 @@
-# 丛林法则卷土重来 多边主义失灵了吗？王毅回应
+# 圭亚那着眼创纪录石油收入，全球能源市场格局生变
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-今天(6月17日)，国务院新闻办公室举行新闻发布会，发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书。总台央视记者提问：越来越多的人正在担忧当前的国际秩序是正在退回到弱肉强食的“丛林法则”，同时联合国的权威和作用也在受到削弱，在这样的背景之下，中国将如何维护多边主义以及如何支持联合国更好地发挥作用？中共中央政治局委员、外交部长王毅作出回应。不是联合国不重要
+在美国与以色列对伊朗的战争推高油价之前，圭亚那已是全球增长最快的经济体。如今，随着这场冲突重塑全球能源市场，这个拥有近100万人口的加勒比小国将获得更大的财富。 这场战争造成了历史上最大规模的能源中断之一，凸显了圭亚那等国家日益增长的重要性——这些国家政治稳定，其估计110亿桶石油储量在地理上不受通行限制。石油带来的暴增收入给政府带来压力，企业主和当地民众要求政府利用数十亿美元
 
 ## 正文
 
-今天(6月17日)，国务院新闻办公室举行新闻发布会，发布《构建更加公正合理的全球治理体系：中国的理念、倡议与行动》白皮书。
+在美国与以色列对伊朗的战争推高油价之前，圭亚那已是全球增长最快的经济体。
 
-总台央视记者提问：越来越多的人正在担忧当前的国际秩序是正在退回到弱肉强食的“丛林法则”，同时联合国的权威和作用也在受到削弱，在这样的背景之下，中国将如何维护多边主义以及如何支持联合国更好地发挥作用？
+如今，随着这场冲突重塑全球能源市场，这个拥有近100万人口的加勒比小国将获得更大的财富。
 
-中共中央政治局委员、外交部长王毅作出回应。
+这场战争造成了历史上最大规模的能源中断之一，凸显了圭亚那等国家日益增长的重要性——这些国家政治稳定，其估计110亿桶石油储量在地理上不受通行限制。
 
-不是联合国不重要 而是没有得到尊守和维护 80多年前，正是因为看到“丛林法则”横行造成的人类浩劫，国际社会才在两次世界大战的废墟上痛定思痛，选择拥抱多边主义，创立了联合国。
+石油带来的暴增收入给政府带来压力，企业主和当地民众要求政府利用数十亿美元推动其他经济领域的发展。
 
-今天，多边主义之所以看似失灵，不是由于联合国不再重要，而恰恰是由于联合国的权威和作用没有得到尊重和发挥；“丛林法则”之所以卷土重来，不是由于联合国宪章过时了，而恰恰是宪章没有得到有效遵守和维护。
+总统伊尔凡·阿里本月在莱斯大学贝克研究所发表演讲时表示：“世界上有太多能源繁荣的案例最终留下的是鬼城、被破坏的森林和怨声载道的人民。
 
-面对全球挑战 当务之急是履行联合国宪章义务 面对层出不穷的全球挑战，当务之急就是要履行联合国宪章的义务，奉行主权平等、遵守国际法治、反对强权霸凌，要积极支持联合国发挥核心作用，通过联合国这个平台来凝聚全球共识，协调各国行动，共同应对挑战，不断消弭全球治理的短板和赤字。
+圭亚那不会成为那样的故事。
 
-同时，我们还要与时俱进，加快联合国改革的步伐，积极回应发展中国家的诉求，着力提升全球南方国家的代表性和发言权，持续激发联合国的活力，提升联合国的效能。
+” 由埃克森美孚领导的石油联合体控制了圭亚那的全部石油生产，在短短七年内将产量提升至每日超过90万桶，这一速度在近期史无前例——海上项目通常需要两倍的时间才能产出第一滴油。
 
-中国愿同各国一道重振联合国，壮大联合国 作为第一个在联合国宪章上签字的国家——中国，我们责无旁贷愿意通过全球治理倡议的推进来维护联合国的权威，同各国一道重振联合国、壮大联合国。
+根据世界银行的数据，从2019年开始产油到2024年，圭亚那的GDP增长了三倍多，达到275亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 03:52 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 03:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 04:04 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-30 04:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 03:58 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 03:49 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 03:46 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 03:46 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 03:40 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 03:37 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 03:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 03:55 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 04:07 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 04:11 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 03:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 03:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 03:46 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 03:54 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 04:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-30 04:08 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 03:48 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 03:52 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 04:11 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 03:49 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:43 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/24306367.shtml)
-- 2026-06-30 03:41 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/02761.shtml)
-- 2026-06-30 03:54 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/3188842966.shtml)
-- 2026-06-30 04:00 - [巴西绝杀日本](http://www.share.minike.top/Article/details/37043764.shtml)
-- 2026-06-30 03:50 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/561853565.shtml)
-- 2026-06-30 03:41 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/72476455944.shtml)
-- 2026-06-30 03:41 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/501071001280.shtml)
-- 2026-06-30 03:51 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/73918285005.shtml)
-- 2026-06-30 03:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/02230261180.shtml)
-- 2026-06-30 03:54 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/42331.shtml)
-- 2026-06-30 03:55 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/5789710.shtml)
-- 2026-06-30 03:56 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/5008111692.shtml)
-- 2026-06-30 03:52 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/54961536503.shtml)
-- 2026-06-30 03:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/057070.shtml)
-- 2026-06-30 04:04 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/61618.shtml)
+- 2026-06-30 04:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/9988132553.shtml)
+- 2026-06-30 03:59 - [沉睡花园](https://www.share.minike.top/Article/details/5304112848.shtml)
+- 2026-06-30 04:09 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/0974094.shtml)
+- 2026-06-30 03:57 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/4966020768.shtml)
+- 2026-06-30 04:08 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/116105071.shtml)
+- 2026-06-30 03:48 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/5827767.shtml)
+- 2026-06-30 03:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/62172594552.shtml)
+- 2026-06-30 03:43 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/389350.shtml)
+- 2026-06-30 03:46 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/1117757.shtml)
+- 2026-06-30 04:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/831442265355.shtml)
+- 2026-06-30 04:05 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/25873574585.shtml)
+- 2026-06-30 03:56 - [巴西vs日本](http://www.share.minike.top/Article/details/592145.shtml)
+- 2026-06-30 04:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/6732278.shtml)
+- 2026-06-30 04:10 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/394365089586.shtml)
+- 2026-06-30 03:44 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/032967378.shtml)

@@ -1,60 +1,54 @@
-# 深交所发布主动管理ETF业务指引 推动权益类基金创新发展（全文）
+# 战场“分身”帅爆了！直击无人机实战化作战训练现场
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月17日，深交所发布主动管理ETF业务指引，一是规范主动ETF定义与产品命名，要求基金名称与场内简称均需体现“主动”属性。二是规定基金管理人和基金经理相关要求。基金管理人应当治理健全稳定、合规运作，具备丰富的主动管理经验，以及健全有效的投资运作与风险管理制度、充足的投研人员、稳定的ETF运作团队与技术系统等。基金经理应当具备丰
+发布时间：2026年06月02日 10:09 来源：中国新闻网 凌空砺羽，智战沙场。为全面锤炼官兵遂行多样化任务能力，夯实智能化作战基础，近日，武警内蒙古总队兴安支队扎实开展无人机实战化作战训练。训练全程紧贴实战标准，围绕无人机起降操控、空中侦察、目标锁定、协同打击、应急处置等课目展开专攻精练。参训人员严格依规操作、精细研判态势、默契协同配合，在近似实战的环境中突破技能难点、打
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月17日，深交所发布主动管理ETF业务指引，一是规范主动ETF定义与产品命名，要求基金名称与场内简称均需体现“主动”属性。
+发布时间：2026年06月02日 10:09 来源：中国新闻网 凌空砺羽，智战沙场。
 
-二是规定基金管理人和基金经理相关要求。
+为全面锤炼官兵遂行多样化任务能力，夯实智能化作战基础，近日，武警内蒙古总队兴安支队扎实开展无人机实战化作战训练。
 
-基金管理人应当治理健全稳定、合规运作，具备丰富的主动管理经验，以及健全有效的投资运作与风险管理制度、充足的投研人员、稳定的ETF运作团队与技术系统等。
+训练全程紧贴实战标准，围绕无人机起降操控、空中侦察、目标锁定、协同打击、应急处置等课目展开专攻精练。
 
-基金经理应当具备丰富的证券投研经验，中长期业绩良好，投资风格稳定等。
+参训人员严格依规操作、精细研判态势、默契协同配合，在近似实战的环境中突破技能难点、打磨战术素养，有效提升无人机班组空中作战、立体侦察和全域支援能力。
 
-基金管理人首次开发主动ETF的，应当通过本所组织的专项检查验收。
+全体参训人员斗志昂扬、刻苦钻研，在真训实练中补齐能力短板，以推动部队作战力量建设再上新台阶。
 
-三是明确基金投资管理要求，包括投资组合分布广泛且流动性良好，投资策略市场容量充足，合理控制组合换手率，设置合适的业绩比较基准并保持投资风格稳定等。
-
-四是明确信息披露与风险防控要求，要求基金管理人充分披露申购赎回清单制作与指数ETF的差异，做好主动ETF的特有风险提示，建立风险监控系统，监控主动ETF运行情况，并对潜在风险进行防范、控制和处理。
-
-五是明确主动ETF基金份额的认购、交易和申购赎回，按产品类别适用《深圳证券交易所证券投资基金交易和申购赎回实施细则》等有关规定。
+(作者：张嘉方 刘景琪 庞娇) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 03:38 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 04:03 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 03:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 03:52 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 03:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 04:02 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 03:50 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 03:59 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 03:55 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 03:56 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 03:47 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 03:51 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 03:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 04:05 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-30 04:10 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 04:04 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 03:55 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 04:11 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 03:45 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 04:08 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 03:52 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 03:45 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 03:46 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 03:53 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 04:04 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:04 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/568260.shtml)
-- 2026-06-30 03:56 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/8799571960.shtml)
-- 2026-06-30 03:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/0609793.shtml)
-- 2026-06-30 03:58 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/23539960264.shtml)
-- 2026-06-30 03:58 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/693090886.shtml)
-- 2026-06-30 03:58 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/96611151612.shtml)
-- 2026-06-30 03:57 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/723891665836.shtml)
-- 2026-06-30 03:53 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/996145.shtml)
-- 2026-06-30 03:58 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/99786827.shtml)
-- 2026-06-30 03:38 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/495009975.shtml)
-- 2026-06-30 03:44 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/672382303797.shtml)
-- 2026-06-30 03:57 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/4599812516.shtml)
-- 2026-06-30 04:04 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/252653660.shtml)
-- 2026-06-30 03:54 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/700520.shtml)
-- 2026-06-30 03:47 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/82531.shtml)
+- 2026-06-30 03:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/5809624137.shtml)
+- 2026-06-30 03:44 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/86440915332.shtml)
+- 2026-06-30 04:06 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/007677850.shtml)
+- 2026-06-30 03:50 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/362756842811.shtml)
+- 2026-06-30 04:09 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/3621474890.shtml)
+- 2026-06-30 03:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/56417.shtml)
+- 2026-06-30 04:09 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/44254.shtml)
+- 2026-06-30 04:08 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/986412.shtml)
+- 2026-06-30 03:57 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/7023063089.shtml)
+- 2026-06-30 04:05 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/66374544119.shtml)
+- 2026-06-30 04:05 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/081044.shtml)
+- 2026-06-30 03:50 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/2132017.shtml)
+- 2026-06-30 03:51 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/0829188776.shtml)
+- 2026-06-30 04:08 - [起风了](http://www.blog.minike.top/Article/details/76634613.shtml)
+- 2026-06-30 03:59 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/74483822.shtml)

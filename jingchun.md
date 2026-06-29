@@ -1,60 +1,60 @@
-# 做空中国20年，美国这个顶级犹太大空头，终于被判了
+# “潮风客韵”旅游计次票上线 粤东地区旅客享便捷
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：棱镜 作者 | 温世君编辑 | 孙春芳 过去20年，他几乎操盘了每一次中概股危机。 2006年，他发布首份中概股做空报告，直指中国科技发展集团。仅仅一纸公开质疑，就让这家纳斯达克上市公司深陷漩涡、一蹶不振，最终走向退市。 从此，冷箭开始频频射出。新东方、360、恒大、跟谁学、蔚来……多年来看空数十家中
+中新网深圳6月1日电 (索有为 马鑫宇 蒋杰豪)深圳铁路部门1日发布消息称，为满足旅客多样化出行需求，铁路部门当日正式推出“潮风客韵”旅游计次票新型票制产品，该票制支持旅客在指定发到站间自由选择行程。 该票制涵盖广州、广州东、广州新塘、广州南、深圳北、潮汕、饶平、汕头、揭阳、普宁、汕尾、陆丰、梅州西、龙川西、河源东、惠州北共16个车站。相比于普通购票，此票制可享受一定的折扣，为
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网深圳6月1日电 (索有为 马鑫宇 蒋杰豪)深圳铁路部门1日发布消息称，为满足旅客多样化出行需求，铁路部门当日正式推出“潮风客韵”旅游计次票新型票制产品，该票制支持旅客在指定发到站间自由选择行程。
 
-来源：棱镜 作者 | 温世君编辑 | 孙春芳 过去20年，他几乎操盘了每一次中概股危机。
+该票制涵盖广州、广州东、广州新塘、广州南、深圳北、潮汕、饶平、汕头、揭阳、普宁、汕尾、陆丰、梅州西、龙川西、河源东、惠州北共16个车站。
 
-2006年，他发布首份中概股做空报告，直指中国科技发展集团。
+相比于普通购票，此票制可享受一定的折扣，为粤东地区旅客出行提供了更加实惠和便捷的选择。
 
-仅仅一纸公开质疑，就让这家纳斯达克上市公司深陷漩涡、一蹶不振，最终走向退市。
+据了解，“潮风客韵”旅游计次票是铁路部门推出的新型票制产品，用户可根据实际需求选择2至10段行程，每段行程为单次、单向、指定席别使用。
 
-从此，冷箭开始频频射出。
+需注意的是，如仅选择2段行程时，不可选择相同区间的往返行程。
 
-新东方、360、恒大、跟谁学、蔚来……多年来看空数十家中国上市公司，让没有华尔街大投行背景，也无常春藤名校光环加持的他，成为资本市场上的“中概股猎人”。
+旅客购买后，可通过席位预约和直接刷证两种方式乘车，产品有效期为自首次乘车之日起15天。
 
-作为创始人，他为以做空而知名的香橼定下口号：“代表华尔街的另一面”。
+在购买规则方面，旅客可通过12306网站或“铁路12306”手机App实名购买，仅向已通过身份信息核验的注册用户开放，注册用户可为本人及账户下已核验的乘车人购买。
 
-但即使是华尔街的“另一面”，也是一门暴利生意。
+同一乘车人可同时购买多个产品。
 
 ## 相关推荐
 
-- 2026-06-30 04:02 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 04:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 03:51 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 03:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 03:56 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 03:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 03:59 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 03:40 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 03:38 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 03:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 03:44 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 03:59 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 03:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 03:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 03:48 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 03:44 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 04:11 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 04:01 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 03:43 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 04:08 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 04:08 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 04:05 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 03:55 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 04:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 03:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 03:45 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 03:48 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 04:03 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:37 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/5577150236.shtml)
-- 2026-06-30 03:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/66054861210.shtml)
-- 2026-06-30 03:50 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/5210838585.shtml)
-- 2026-06-30 03:53 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/495055048.shtml)
-- 2026-06-30 03:39 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/191853962593.shtml)
-- 2026-06-30 03:59 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/41961715.shtml)
-- 2026-06-30 04:00 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/78542865.shtml)
-- 2026-06-30 04:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/2965097.shtml)
-- 2026-06-30 03:59 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/74711.shtml)
-- 2026-06-30 03:57 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/48737602146.shtml)
-- 2026-06-30 04:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/036801.shtml)
-- 2026-06-30 03:47 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/98797049106.shtml)
-- 2026-06-30 03:38 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/76472562.shtml)
-- 2026-06-30 03:57 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/2575534093.shtml)
-- 2026-06-30 03:50 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/664222.shtml)
+- 2026-06-30 03:48 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/003778524.shtml)
+- 2026-06-30 03:56 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/620974.shtml)
+- 2026-06-30 03:42 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/865497.shtml)
+- 2026-06-30 03:48 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/6533063629.shtml)
+- 2026-06-30 04:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/9968689995.shtml)
+- 2026-06-30 03:49 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/874737.shtml)
+- 2026-06-30 03:51 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/589957906.shtml)
+- 2026-06-30 03:54 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/70391764.shtml)
+- 2026-06-30 04:06 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/9458775492.shtml)
+- 2026-06-30 03:47 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/6827965.shtml)
+- 2026-06-30 04:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/10309607715.shtml)
+- 2026-06-30 03:45 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/085303.shtml)
+- 2026-06-30 03:42 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/472063068.shtml)
+- 2026-06-30 03:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/8668672.shtml)
+- 2026-06-30 03:55 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/57222296651.shtml)

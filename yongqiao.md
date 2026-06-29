@@ -1,58 +1,59 @@
-# 创业板第四套上市标准企业再添一例！腾盾科创IPO申请获受理
+# 中国国际动漫节再设“香港馆” 16家香港企业携原创IP参展
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-上证报中国证券网讯（记者 时娜）6月16日，四川腾盾科创股份有限公司（以下简称“腾盾科创”）创业板IPO获深交所受理，适用创业板第四套上市标准企业再添一例。 业内人士认为，当前深化创业板改革政策正处于快速落地实施阶段，创业板服务优质创新企业能力持续增强。 腾盾科创主要从事高端无人机系统的研发、生产、销售及相关服务，致力于为低空经济及通用航空等领域提供智能化、模块化、集群化的无人
+中新网香港6月2日电(记者 张祥毅)香港数码娱乐协会2日在香港举行记者招待会表示，该协会将以“潮游动漫”为主题，于6月17日至21日在杭州举办的第二十二届中国国际动漫节设立“香港馆”。16家来自动漫、游戏及潮玩等领域的香港企业将携近20个IP(知识产权)参展，并以角色扮演、游戏试玩、漫画大师速画等形式，全面推广香港动画、漫画、游戏及潮玩的创意和实力。 香港数码娱乐协会主席彭子杰
 
 ## 正文
 
-上证报中国证券网讯（记者 时娜）6月16日，四川腾盾科创股份有限公司（以下简称“腾盾科创”）创业板IPO获深交所受理，适用创业板第四套上市标准企业再添一例。
+中新网香港6月2日电(记者 张祥毅)香港数码娱乐协会2日在香港举行记者招待会表示，该协会将以“潮游动漫”为主题，于6月17日至21日在杭州举办的第二十二届中国国际动漫节设立“香港馆”。
 
-业内人士认为，当前深化创业板改革政策正处于快速落地实施阶段，创业板服务优质创新企业能力持续增强。
+16家来自动漫、游戏及潮玩等领域的香港企业将携近20个IP(知识产权)参展，并以角色扮演、游戏试玩、漫画大师速画等形式，全面推广香港动画、漫画、游戏及潮玩的创意和实力。
 
-腾盾科创主要从事高端无人机系统的研发、生产、销售及相关服务，致力于为低空经济及通用航空等领域提供智能化、模块化、集群化的无人机系统产品及多场景应用的整体解决方案。
+香港数码娱乐协会主席彭子杰表示，经历两届的锻炼，今年着力以设计原创性、品质、以及商业认受性三大准则挑选出16家即将到杭州参展的企业，务求以质量并重的方式，展现香港数码娱乐产业的最高水准。
 
-作为国内大型智能无人机系统领军企业、国内极少数具备大型无人机全系统自主研发能力及多场景应用技术储备的企业，公司以科技创新为驱动构建了涵盖大型固定翼无人机、无人直升机、水陆两栖无人机、蜂群无人子机等多元产品谱系，产品覆盖滑跑起降、垂直起降、水上起降、地面发射、空中投放等多种部署方式。
+香港行声制作有限公司IP主理人李诗婷向记者表示，这是公司第三次参加中国国际动漫节，她认为内地生产与供应链齐全，香港具备联通世界的贸易优势和拥有汇聚东西方文化的品牌特色，相信可以一起携手做好潮玩IP出海。
 
-招股说明书显示，腾盾科创已掌握25项关键核心技术，覆盖了大型固定翼无人机、无人直升机、水陆两栖无人机、蜂群无人机等不同产品类型，以及设计研发、生产制造和服务等主营业务环节。
+继中国国际动漫节后，今年在广州举行的中国国际漫画节动漫游戏展也将设立“香港馆”。
 
-公司大型多发固定翼无人机总体设计技术、面向复杂环境的综合设计技术、智能飞行管理与控制技术、空天地融合“机-站-链”协同指挥控制与通信网络构建技术等技术达到国际先进水平。
+16家香港数码娱乐企业，将通过以创意成果交易和人才推介为主要内容的动漫产业平台，深化粤港澳大湾区融合，推动与区内同行及潜在业务伙伴加强交流与合作。
 
-公司3吨级中高空固定翼无人机系统、三发长航时固定翼无人机系统等产品达到国际先进水平，高原型无人直升机系统达到国内领先水平。
-
-责任编辑：宋雅芳
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 03:50 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 03:38 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 04:03 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 03:45 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 03:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 04:02 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 04:00 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 03:36 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 03:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 03:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 04:05 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 04:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-30 04:08 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 04:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 03:56 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 04:03 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-30 03:56 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 03:53 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 03:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 04:06 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 04:04 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 03:43 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 04:01 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 03:53 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 03:57 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 03:47 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:45 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/49012876123.shtml)
-- 2026-06-30 03:37 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/199117004883.shtml)
-- 2026-06-30 03:40 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/336615039.shtml)
-- 2026-06-30 03:59 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/0146173.shtml)
-- 2026-06-30 04:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/16049782382.shtml)
-- 2026-06-30 03:41 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/680913881878.shtml)
-- 2026-06-30 03:44 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/879395.shtml)
-- 2026-06-30 03:58 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/020536884412.shtml)
-- 2026-06-30 03:47 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/29816.shtml)
-- 2026-06-30 04:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/6730815.shtml)
-- 2026-06-30 03:59 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/37183194.shtml)
-- 2026-06-30 03:38 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/64188652539.shtml)
-- 2026-06-30 04:00 - [日本反击率先破门](https://www.blog.minike.top/Article/details/7338128.shtml)
-- 2026-06-30 03:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/28435668.shtml)
-- 2026-06-30 04:03 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/88383.shtml)
+- 2026-06-30 04:09 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/6545941321.shtml)
+- 2026-06-30 04:03 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/170403.shtml)
+- 2026-06-30 04:08 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/73203224145.shtml)
+- 2026-06-30 04:10 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/86133794758.shtml)
+- 2026-06-30 03:55 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/6404231.shtml)
+- 2026-06-30 04:07 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/60458366361.shtml)
+- 2026-06-30 03:58 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/72431.shtml)
+- 2026-06-30 03:45 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/39713.shtml)
+- 2026-06-30 03:58 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/08862099835.shtml)
+- 2026-06-30 03:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/712269.shtml)
+- 2026-06-30 03:57 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/1002224.shtml)
+- 2026-06-30 04:05 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/21039800.shtml)
+- 2026-06-30 04:00 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/51189508762.shtml)
+- 2026-06-30 03:52 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/35035435171.shtml)
+- 2026-06-30 03:58 - [起风了](https://www.blog.kurohicncr.top/Article/details/228670914071.shtml)

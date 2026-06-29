@@ -1,60 +1,59 @@
-# Anthropic主动呼吁AI监管，华盛顿的管控力度却远超其预期
+# 谨防公共场所财物被盗！中国驻爱尔兰大使馆发布提醒
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-核心要点 Anthropic多年来一直奔走呼吁行业监管，如今这份诉求却反噬自身。 这家当前估值接近 1 万亿美元的人工智能企业，长期标榜自身坚守 AI 安全底线。但今年以来，Anthropic第二次被纳入特朗普政府的重点监管范围，此次监管行动源于官方对其新一代大模型安全风险的担忧。 上周五晚间，就在太空探索技术公司（SpaceX）完成史上规模 IPO、首日挂牌交易结束数小时后，
+中新网6月2日电 据中国驻爱尔兰大使馆微信公众号消息，近期，中国驻爱尔兰使馆陆续接到多名在爱中国公民，特别是留学生求助，反映在爱公共场所遭遇财物被盗案件，丢失钱包、身份证件、银行卡及现金等重要财物。其中，城市公共交通、休闲公园、旅游景点、酒吧等人员密集区域为盗窃案件高发地段。使馆特此发布安全提醒，警示大家提高防范意识，做好公共场所安全防护。强化出行防范，筑牢安全防线 一是妥善保
 
 ## 正文
 
-核心要点 Anthropic多年来一直奔走呼吁行业监管，如今这份诉求却反噬自身。
+中新网6月2日电 据中国驻爱尔兰大使馆微信公众号消息，近期，中国驻爱尔兰使馆陆续接到多名在爱中国公民，特别是留学生求助，反映在爱公共场所遭遇财物被盗案件，丢失钱包、身份证件、银行卡及现金等重要财物。
 
-这家当前估值接近 1 万亿美元的人工智能企业，长期标榜自身坚守 AI 安全底线。
+其中，城市公共交通、休闲公园、旅游景点、酒吧等人员密集区域为盗窃案件高发地段。
 
-但今年以来，Anthropic第二次被纳入特朗普政府的重点监管范围，此次监管行动源于官方对其新一代大模型安全风险的担忧。
+使馆特此发布安全提醒，警示大家提高防范意识，做好公共场所安全防护。
 
-上周五晚间，就在太空探索技术公司（SpaceX）完成史上规模 IPO、首日挂牌交易结束数小时后，Anthropic对外公告，公司收到一份出口管制指令：要求立刻禁止所有外籍人员使用旗下最新克劳德系列模型 —— 寓言 5 与神话 5，管控对象覆盖美国境内外所有外籍人士，其中也包含Anthropic自身的外籍员工。
+强化出行防范，筑牢安全防线 一是妥善保管随身财物。
 
-Anthropic表示，美国政府仅援引国家安全部门相关考量，并未具体说明风险点究竟在哪。
+日常出行、游玩、休闲期间，务必时刻绷紧安全弦，不随身携带大量现金。
 
-而就在这份管制指令下达的几天前，公司首席执行官达里奥・阿莫代伊刚刚发表专栏文章，呼吁美国出台更严肃、具备法律约束力的 AI 监管法规，赋予监管机构权限，一旦判定大模型存在安全隐患，即可叫停相关模型上线部署。
+身份证件、银行卡、钱包、手机等贵重物品统一贴身存放，优先选择内侧口袋、防盗包收纳，严禁放置在背包外侧口袋、外露裤袋等易扒窃位置。
 
-阿莫代伊在文中写道：“前沿人工智能模型和民航飞机一样，必须经过技术检测与独立审计；如果无法达到严苛的安全标准、对公共安全构成威胁，就应当暂停上线、甚至强制下线召回。
+在乘坐公共交通、逛景点、游园、泡吧时，切勿随意摆弄、展示手机、钱包等贵重物品，避免暴露财物，吸引不法分子注意。
 
-” 这并非Anthropic首次公开呼吁政府加强对飞速迭代的 AI 行业监管。
+二是警惕陌生人员及异常情况。
 
 ## 相关推荐
 
-- 2026-06-30 03:42 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 03:42 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 04:02 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 03:54 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 03:48 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 04:01 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 03:41 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 03:55 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 03:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 04:03 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 03:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 04:05 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 03:48 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 04:02 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 04:02 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 04:12 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 03:44 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 03:47 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 03:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 04:03 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 03:49 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 03:53 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 03:42 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 04:11 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 04:09 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 03:56 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 03:52 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/08228009290.shtml)
-- 2026-06-30 03:59 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/428898.shtml)
-- 2026-06-30 04:02 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/087283550.shtml)
-- 2026-06-30 03:55 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/744277562.shtml)
-- 2026-06-30 03:59 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/0557927.shtml)
-- 2026-06-30 03:54 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/115864452.shtml)
-- 2026-06-30 03:46 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/38307162036.shtml)
-- 2026-06-30 03:47 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/97808803559.shtml)
-- 2026-06-30 04:01 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/242240.shtml)
-- 2026-06-30 04:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/202172624634.shtml)
-- 2026-06-30 03:36 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/673246646.shtml)
-- 2026-06-30 03:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/4000562.shtml)
-- 2026-06-30 04:02 - [金牌调解](https://www.share.kurohicncr.top/Article/details/55033.shtml)
-- 2026-06-30 03:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/1784525.shtml)
-- 2026-06-30 03:55 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/047609.shtml)
+- 2026-06-30 04:07 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/81547.shtml)
+- 2026-06-30 03:52 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/5856479210.shtml)
+- 2026-06-30 03:46 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/107796278.shtml)
+- 2026-06-30 04:06 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/16768509841.shtml)
+- 2026-06-30 03:56 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/987759678.shtml)
+- 2026-06-30 03:46 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/36581353813.shtml)
+- 2026-06-30 03:46 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/00371568590.shtml)
+- 2026-06-30 03:54 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/463835702056.shtml)
+- 2026-06-30 03:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/531018958.shtml)
+- 2026-06-30 04:01 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/991348064.shtml)
+- 2026-06-30 03:50 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/3076484197.shtml)
+- 2026-06-30 03:59 - [我和我的家乡](https://www.blog.minike.top/Article/details/649429209.shtml)
+- 2026-06-30 03:45 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/73276.shtml)
+- 2026-06-30 03:48 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/86577323.shtml)
+- 2026-06-30 03:54 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/06990134761.shtml)

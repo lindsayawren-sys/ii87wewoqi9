@@ -1,50 +1,57 @@
-# 厦门银行发布2025年年度权益分派实施公告：每股派利0.11元
+# 股东交售股票数量据悉已可使裕信银行对德国商业银行持股比例远超30%
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-6月17日金融一线消息，厦门银行公布2025年年度权益分派实施公告，本次利润分配以方案实施前的公司总股本2，639，127，888股为基数，每股派发现金红利0.11元（含税），共计派发现金红利290，304，067.68元。 本次权益分派股权登记日为：2026年6月25日，除权除息日为：2026年6月26日。 责任编辑：李琳琳
+据知情人士透露，裕信银行已获得足够承诺，将使其对德国商业银行的持股比例明显升破30%，为其以386亿欧元（450亿美元）收购这家德国竞争对手的方案增添了动能。 知情人士称，股东已就裕信银行的收购要约交售足够数量的股票，可使该行的直接持股比例从26.8%升至30%以上。由于信息尚未公开，知情人士要求匿名。 对裕信银行首席执行官Andrea Orcel来说，跨过30%这一门槛具有重
 
 ## 正文
 
-6月17日金融一线消息，厦门银行公布2025年年度权益分派实施公告，本次利润分配以方案实施前的公司总股本2，639，127，888股为基数，每股派发现金红利0.11元（含税），共计派发现金红利290，304，067.68元。
+据知情人士透露，裕信银行已获得足够承诺，将使其对德国商业银行的持股比例明显升破30%，为其以386亿欧元（450亿美元）收购这家德国竞争对手的方案增添了动能。
 
-本次权益分派股权登记日为：2026年6月25日，除权除息日为：2026年6月26日。
+知情人士称，股东已就裕信银行的收购要约交售足够数量的股票，可使该行的直接持股比例从26.8%升至30%以上。
 
-责任编辑：李琳琳
+由于信息尚未公开，知情人士要求匿名。
+
+对裕信银行首席执行官Andrea Orcel来说，跨过30%这一门槛具有重要意义。
+
+过去近两年里，他一直在推进对德国商业银行的收购。
+
+这将增强Orcel的影响力，也会让目标公司更难抵御其攻势，尽管德国政府也坚定支持反对这宗收购交易的阵营。
+
+此番进展也表明，至少有部分投资者对这项收购提议存在一定兴趣，尽管其隐含估值低于德国商业银行当前的市场价格。
+
+这项自5月初起向投资者开放的收购要约将持续至6月16日。
 
 ## 相关推荐
 
-- 2026-06-30 03:43 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 04:03 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 03:38 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 03:44 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 03:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 03:55 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 04:02 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-30 03:50 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 03:56 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-30 03:38 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 03:54 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 03:42 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 03:56 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 03:57 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 03:54 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 03:54 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 04:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 03:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 03:42 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 03:56 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 03:46 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 03:43 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 03:48 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 03:44 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 03:56 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/555369379.shtml)
-- 2026-06-30 03:56 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/5309146.shtml)
-- 2026-06-30 03:44 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/178351.shtml)
-- 2026-06-30 03:55 - [周生如故](http://www.share.kurohicncr.top/Article/details/84015302.shtml)
-- 2026-06-30 03:56 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/9900719741.shtml)
-- 2026-06-30 03:49 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/203059195.shtml)
-- 2026-06-30 03:48 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/28677654285.shtml)
-- 2026-06-30 03:54 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/61250294.shtml)
-- 2026-06-30 03:38 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/444239383.shtml)
-- 2026-06-30 03:37 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/3295254.shtml)
-- 2026-06-30 04:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/57277739.shtml)
-- 2026-06-30 03:46 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/090705266.shtml)
-- 2026-06-30 03:46 - [千与千寻](http://www.share.minike.top/Article/details/3081636.shtml)
-- 2026-06-30 03:37 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/865647454.shtml)
-- 2026-06-30 03:53 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/22012374314.shtml)
+- 2026-06-30 03:55 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/07792779407.shtml)
+- 2026-06-30 03:49 - [沉睡花园](http://www.blog.minike.top/Article/details/2540689496.shtml)
+- 2026-06-30 04:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/92667817837.shtml)
+- 2026-06-30 04:08 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/380844672.shtml)
+- 2026-06-30 04:11 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/31525350431.shtml)
+- 2026-06-30 04:03 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/68787.shtml)
+- 2026-06-30 04:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/6093736.shtml)
+- 2026-06-30 04:09 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/202097.shtml)
+- 2026-06-30 04:05 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/90527194.shtml)
+- 2026-06-30 03:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/263768.shtml)
+- 2026-06-30 03:57 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/822513.shtml)
+- 2026-06-30 04:10 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/150129888496.shtml)
+- 2026-06-30 03:59 - [女心理师](http://www.share.kurohicncr.top/Article/details/779085563077.shtml)
+- 2026-06-30 03:50 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/9087195442.shtml)
+- 2026-06-30 04:11 - [日本反击率先破门](https://www.blog.minike.top/Article/details/67695104577.shtml)

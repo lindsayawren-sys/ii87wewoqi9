@@ -1,46 +1,53 @@
-# 九鼎新材：公司无逾期担保
+# 境外旅行商看好河南文旅：计划组织更多游客入豫
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-证券日报网讯 6月17日，九鼎新材（维权）发布公告称，本次担保后，公司及合并报表范围内子公司对外担保余额为31，901.60万元，占公司最近一期经审计净资产的27.28%，其中：为合并报表范围内公司担保31，901.60万元，占公司最近一期经审计净资产的27.28%，为合并报表范围外公司担保0万元，占公司最近一期经审计净资产的0%。上述担保均在正常履行中，无逾期担保。（文章来源
+发布时间：2026年06月02日 16:14 来源：中国新闻网 近日，来自马来西亚、越南等国家和地区的旅行商代表在河南安阳考察当地文旅资源后表示，安阳及河南已被纳入境外重点推广旅游线路，将向更多海外游客推介中国历史文化和中原风情。多位旅行商表示，未来将组织更多团队赴豫旅游，让海外游客亲身感受中华文明的独特魅力。 据介绍，“行走河南·读懂中国”入境游主题活动汇聚来自13个国家和地
 
 ## 正文
 
-证券日报网讯 6月17日，九鼎新材（维权）发布公告称，本次担保后，公司及合并报表范围内子公司对外担保余额为31，901.60万元，占公司最近一期经审计净资产的27.28%，其中：为合并报表范围内公司担保31，901.60万元，占公司最近一期经审计净资产的27.28%，为合并报表范围外公司担保0万元，占公司最近一期经审计净资产的0%。
+发布时间：2026年06月02日 16:14 来源：中国新闻网 近日，来自马来西亚、越南等国家和地区的旅行商代表在河南安阳考察当地文旅资源后表示，安阳及河南已被纳入境外重点推广旅游线路，将向更多海外游客推介中国历史文化和中原风情。
 
-上述担保均在正常履行中，无逾期担保。
+多位旅行商表示，未来将组织更多团队赴豫旅游，让海外游客亲身感受中华文明的独特魅力。
 
-（文章来源：证券日报）
+据介绍，“行走河南·读懂中国”入境游主题活动汇聚来自13个国家和地区的84家境外旅行商代表。
+
+活动通过推介洽谈、实地考察等形式，展示河南丰富的历史文化资源和旅游产品，旨在持续提升河南文旅品牌国际影响力。
+
+(范晓恒 王宇 张寒） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-30 04:04 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 03:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 03:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 04:00 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 03:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 03:43 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-30 03:38 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 03:57 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 03:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 03:57 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 04:11 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 04:02 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 04:04 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 03:56 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 03:57 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 04:11 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 04:02 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 03:49 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 03:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 03:48 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 04:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 04:05 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 03:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:55 - [天道](https://www.blog.minike.top/Article/details/7693494.shtml)
-- 2026-06-30 03:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/17245999.shtml)
-- 2026-06-30 03:37 - [巴西扳平比分](http://www.blog.minike.top/Article/details/532174891258.shtml)
-- 2026-06-30 03:58 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/468293219.shtml)
-- 2026-06-30 04:05 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/192843927122.shtml)
-- 2026-06-30 03:57 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/65533.shtml)
-- 2026-06-30 03:38 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/6306600164.shtml)
-- 2026-06-30 03:52 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/60585893367.shtml)
-- 2026-06-30 03:52 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/83666.shtml)
-- 2026-06-30 03:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/354684102.shtml)
-- 2026-06-30 03:46 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/781421450191.shtml)
-- 2026-06-30 03:58 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/47755472.shtml)
-- 2026-06-30 03:55 - [急先锋](https://www.blog.kurohicncr.top/Article/details/6831639191.shtml)
-- 2026-06-30 03:55 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/25986365392.shtml)
-- 2026-06-30 04:00 - [绘画区你赢了](https://www.share.minike.top/Article/details/687184697605.shtml)
+- 2026-06-30 03:54 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/64807.shtml)
+- 2026-06-30 04:03 - [月亮](http://www.share.kurohicncr.top/Article/details/023134929301.shtml)
+- 2026-06-30 04:00 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/813470.shtml)
+- 2026-06-30 03:45 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/98714622945.shtml)
+- 2026-06-30 03:55 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/396723.shtml)
+- 2026-06-30 03:44 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/1648665.shtml)
+- 2026-06-30 04:00 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/3812642402.shtml)
+- 2026-06-30 04:04 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/63577021.shtml)
+- 2026-06-30 04:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/251336485.shtml)
+- 2026-06-30 04:07 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/54123.shtml)
+- 2026-06-30 03:49 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/2494454.shtml)
+- 2026-06-30 03:50 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/85012.shtml)
+- 2026-06-30 04:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/76122019010.shtml)
+- 2026-06-30 04:04 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/23032.shtml)
+- 2026-06-30 03:52 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/66695.shtml)

@@ -1,60 +1,57 @@
-# 万物皆可做“CT” “璧山造”智造装备如何远销全球？
+# 广州南沙发布楼市新政 补贴最高可达17万元
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网重庆6月17日电(马佳欣)走进重庆日联科技有限公司(以下简称“日联科技”)的展厅，一系列“X光片”引人驻足。汽车一体压铸车身内部的微小气孔清晰可见、新能源电池的焊点瑕疵无所遁形……6月16日，“2026海外华媒侨领川渝行”参访团走进位于重庆市璧山区的日联科技，实地观摩智能检测核心装备，深入了解企业技术研发创新与全球化市场布局情况。 重庆日联科技有限公司成立于2013年，是
+中新社广州6月2日电 (记者 王坚)《关于进一步推动南沙区房地产市场高质量发展的实施意见》(下称“南十条”)2日在广州南沙区发布。“南十条”提出，向符合条件的参与南沙区住房“以旧换新”的居民个人发放专项补贴，南沙区的补贴和广州市的补贴可以叠加，各项补贴累计最高可达17万元(人民币，下同)。南沙区政府介绍，“南十条”旨在更好激发住房消费活力，优化住房供应结构，提升居住配套品质，加
 
 ## 正文
 
-中新网重庆6月17日电(马佳欣)走进重庆日联科技有限公司(以下简称“日联科技”)的展厅，一系列“X光片”引人驻足。
+中新社广州6月2日电 (记者 王坚)《关于进一步推动南沙区房地产市场高质量发展的实施意见》(下称“南十条”)2日在广州南沙区发布。
 
-汽车一体压铸车身内部的微小气孔清晰可见、新能源电池的焊点瑕疵无所遁形……6月16日，“2026海外华媒侨领川渝行”参访团走进位于重庆市璧山区的日联科技，实地观摩智能检测核心装备，深入了解企业技术研发创新与全球化市场布局情况。
+“南十条”提出，向符合条件的参与南沙区住房“以旧换新”的居民个人发放专项补贴，南沙区的补贴和广州市的补贴可以叠加，各项补贴累计最高可达17万元(人民币，下同)。
 
-重庆日联科技有限公司成立于2013年，是一家专注于精密X射线技术研究及智能检测装备研发、生产与销售的国家级高新技术企业。
+南沙区政府介绍，“南十条”旨在更好激发住房消费活力，优化住房供应结构，提升居住配套品质，加快构建供需匹配、品质优先、职住平衡、治理高效的发展新格局。
 
-公司建有总面积达75000平方米的X射线检测装备产业基地。
+“南十条”提出，将面向居民开展“收旧房、换新房”活动，收房范围为广州市全域，购买新房需位于南沙区内，“旧房”收购款可直接抵扣“新房”购房款，同时对参与南沙区住房“以旧换新”的居民个人发放专项补贴，按“新房”总价的1%给予补贴，单套最高2万元，补贴总额3000万元，用完即止。
 
-凭借可覆盖工业制造、食品医药、美妆日化等多品类、全场景的精密X射线检测技术，实现“万物皆可工业CT”的精准检测能力，这家扎根璧山13年的企业生产智造装备已经远销全球70多个国家，成为“璧山造”智造装备走向全球的一张名片。
+南沙区的补贴和市级补贴可以叠加。
 
-X射线智能检测装备被誉为“工业医生”，其核心部件微焦点X射线源曾长期被美国、日本等国垄断，是国内高端制造业的难题。
+同时，“南十条”提出建立健全“政府引导、国企主导、社会参与”收储机制，以需定购，重点收储区位适配、户型合理、配套完善的存量商品住房及符合条件的商办用房，鼓励转化为人才公寓、市场化长租公寓，提供给有需要的新市民和年轻人。
 
-重庆日联科技有限公司副总经理余海鹏称，日联科技历时十余年攻坚，成功研制出国内首款封闭式热阴极微焦点X射线源并实现产业化。
+此外，“南十条”还提出，未来三年内，对于南沙征收及城市更新等安置需求，依托房票安置、收购存量商品房等市场化方式解决安置需求，并研究拓宽房票使用范畴，切实将安置需求转化为去库存的增长动能。
 
-“这一突破对中国新能源电池、汽车制造等重点产业的产业链安全检测具有重要意义。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:36 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 03:49 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 03:55 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 03:42 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 03:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 03:43 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 03:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 03:40 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 03:54 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-30 03:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 03:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 03:39 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 03:41 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 03:44 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 03:58 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 04:08 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 03:49 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 04:05 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 04:05 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 03:47 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 03:45 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 04:00 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 03:45 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 04:04 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 03:47 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/03832.shtml)
-- 2026-06-30 03:46 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/68230438346.shtml)
-- 2026-06-30 03:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/58845382.shtml)
-- 2026-06-30 03:42 - [乔家的儿女](http://www.blog.minike.top/Article/details/26256.shtml)
-- 2026-06-30 03:52 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/670743490.shtml)
-- 2026-06-30 03:53 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/1452035735.shtml)
-- 2026-06-30 03:42 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/5411836.shtml)
-- 2026-06-30 03:42 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/7165353.shtml)
-- 2026-06-30 03:55 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/542379828.shtml)
-- 2026-06-30 04:00 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/634156848.shtml)
-- 2026-06-30 03:40 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/121750.shtml)
-- 2026-06-30 04:04 - [TOP Prada](http://www.blog.minike.top/Article/details/87722155.shtml)
-- 2026-06-30 04:00 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/461354152.shtml)
-- 2026-06-30 03:38 - [蔚来车主罚站](https://www.share.minike.top/Article/details/399754389637.shtml)
-- 2026-06-30 03:38 - [我们的少年时代2](https://www.share.minike.top/Article/details/79085.shtml)
+- 2026-06-30 04:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/907794.shtml)
+- 2026-06-30 04:02 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/0451720574.shtml)
+- 2026-06-30 03:50 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/23757267782.shtml)
+- 2026-06-30 03:49 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/66823630034.shtml)
+- 2026-06-30 04:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/7957114776.shtml)
+- 2026-06-30 04:01 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/89143.shtml)
+- 2026-06-30 03:44 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/6768303596.shtml)
+- 2026-06-30 04:03 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/38030.shtml)
+- 2026-06-30 04:06 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/65300699179.shtml)
+- 2026-06-30 03:50 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/147216237065.shtml)
+- 2026-06-30 03:55 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/920186.shtml)
+- 2026-06-30 03:44 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/19904.shtml)
+- 2026-06-30 04:06 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/687552912.shtml)
+- 2026-06-30 03:52 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/96969705131.shtml)
+- 2026-06-30 03:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/758844047344.shtml)

@@ -1,46 +1,61 @@
-# 国家外汇管理局：优化外汇贷款、跨境股权激励等制度
+# 中外媒体向浙江提问 三组关系揭示创新“密码”
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 边万莉 2026年陆家嘴论坛于6月17日上午正式开幕，主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。 在论坛开幕式上，中国人民银行副行长、国家外汇管理局局长朱鹤新表示，近期将新增推出“一揽子”增量政策，全面改革FDI跨境政策，进一步简化ODI、外债等汇兑管理，优化外汇贷款、跨
+中新网杭州6月1日电 (张斌)中国国务院新闻办公室6月1日在浙江杭州举行中外记者见面会，浙江省副省长何中伟及相关部门负责人介绍科技创新和产业创新相关情况，并回答记者提问。 问答之间，三组关系揭示浙江的创新“密码”。 长期与短期：没有大投入就没有大产出 浙江官方强调，科技创新没有大投入就没有大产出，需要以长期主义者的坚定久久为功。2025年，浙江全省GDP同比增长5.5%、高于全
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 21世纪经济报道记者 边万莉 2026年陆家嘴论坛于6月17日上午正式开幕，主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。
+中新网杭州6月1日电 (张斌)中国国务院新闻办公室6月1日在浙江杭州举行中外记者见面会，浙江省副省长何中伟及相关部门负责人介绍科技创新和产业创新相关情况，并回答记者提问。
 
-在论坛开幕式上，中国人民银行副行长、国家外汇管理局局长朱鹤新表示，近期将新增推出“一揽子”增量政策，全面改革FDI跨境政策，进一步简化ODI、外债等汇兑管理，优化外汇贷款、跨境股权激励等制度，发放新一批QDII额度。
+问答之间，三组关系揭示浙江的创新“密码”。
 
-责任编辑：秦艺
+长期与短期：没有大投入就没有大产出 浙江官方强调，科技创新没有大投入就没有大产出，需要以长期主义者的坚定久久为功。
+
+2025年，浙江全省GDP同比增长5.5%、高于全国平均增速，高新技术产业增加值同比增长7.9%。
+
+结合产学研协同创新的经验，何中伟在见面会上介绍，浙江已构建“企业出题、政府助题、平台答题、车间验题、市场评价”的协同攻关机制。
+
+此外，该省计划强化企业创新主体地位，引导企业主动参与前沿技术研发，培育企业内生创新动能，“到2030年力争规上工业企业的研发机构设置率达65%以上。
+
+” 在科创长期投入方面，浙江有何举措？
+
+面对中新社提问，浙江省科学技术厅厅长佟桂莉介绍，2025年，浙江全省科技创新投入达7232亿元(人民币，下同)。
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 03:46 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-30 03:38 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 04:00 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 03:47 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 03:36 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 03:59 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 03:47 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 03:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 03:50 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 04:05 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 04:05 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 04:06 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 03:53 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 04:06 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 04:11 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 04:03 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 03:57 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 03:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 03:50 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 03:51 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 03:56 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 03:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 03:48 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 03:55 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:48 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/5672811326.shtml)
-- 2026-06-30 03:57 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/11862.shtml)
-- 2026-06-30 04:06 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/3428028497.shtml)
-- 2026-06-30 03:49 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/1250119073.shtml)
-- 2026-06-30 03:45 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/609611506.shtml)
-- 2026-06-30 03:53 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/38104.shtml)
-- 2026-06-30 03:47 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/031080969.shtml)
-- 2026-06-30 04:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/576504747127.shtml)
-- 2026-06-30 04:01 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/89036611.shtml)
-- 2026-06-30 04:03 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/844013901.shtml)
-- 2026-06-30 04:05 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/26962.shtml)
-- 2026-06-30 03:57 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/32837217662.shtml)
-- 2026-06-30 03:46 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/061402777184.shtml)
-- 2026-06-30 03:47 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/150728810.shtml)
-- 2026-06-30 03:48 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/841716792992.shtml)
+- 2026-06-30 04:06 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/1975694.shtml)
+- 2026-06-30 04:07 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/409526494.shtml)
+- 2026-06-30 03:59 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/70447305.shtml)
+- 2026-06-30 03:45 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/99664644.shtml)
+- 2026-06-30 04:05 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/676692.shtml)
+- 2026-06-30 03:52 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/6019298777.shtml)
+- 2026-06-30 03:49 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/511679550.shtml)
+- 2026-06-30 04:01 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/03687941276.shtml)
+- 2026-06-30 03:54 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/5072082989.shtml)
+- 2026-06-30 04:07 - [速度与激情9](http://www.share.minike.top/Article/details/39410424663.shtml)
+- 2026-06-30 03:45 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/7442279.shtml)
+- 2026-06-30 03:55 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/81821.shtml)
+- 2026-06-30 03:50 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/658218308.shtml)
+- 2026-06-30 03:42 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/233537.shtml)
+- 2026-06-30 04:09 - [女子发现孩子非现任亲生起诉前任](http://www.share.minike.top/Article/details/367280.shtml)

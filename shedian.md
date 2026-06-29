@@ -1,58 +1,52 @@
-# 芜湖市淮北商会正式成立
+# 先进数通（300541）：中标沧州银行股份有限公司采购项目，中标金额为1104.87万元
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-潮起皖江阔，同心向未来。为搭建芜淮两地经贸交流桥梁，凝聚在芜淮北籍企业家力量，6月16日，芜湖市淮北商会一届一次会员大会暨成立大会召开。芜湖市政协副主席、市工商联主席孙四平出席会议并致辞。淮北市委统战部副部长、市工商联党组书记王成应邀参会并致辞，芜湖市委统战部副部长、市工商联党组书记刘雪冬及两地市直相关部门负责人、有关商协会代表及商会全体会员参加。大会现场，芜湖市工商联、市民政
+同壁财经讯，企查查数据显示，根据《2026年沧州银行鲲鹏服务器采购项目一标段中标公告》，北京先进数通信息技术股份公司于2026年6月1日公告中标沧州银行股份有限公司采购项目，中标金额为1104.87万元。相关上市公司：先进数通(300541.SZ)同壁财经小贴士：先进数通(300541.SZ)2025年营业收入为35.84亿元，营业收入增长率为61.48%，归属母公司净利润为1
 
 ## 正文
 
-潮起皖江阔，同心向未来。
+同壁财经讯，企查查数据显示，根据《2026年沧州银行鲲鹏服务器采购项目一标段中标公告》，北京先进数通信息技术股份公司于2026年6月1日公告中标沧州银行股份有限公司采购项目，中标金额为1104.87万元。
 
-为搭建芜淮两地经贸交流桥梁，凝聚在芜淮北籍企业家力量，6月16日，芜湖市淮北商会一届一次会员大会暨成立大会召开。
+相关上市公司：先进数通(300541.SZ)同壁财经小贴士：先进数通(300541.SZ)2025年营业收入为35.84亿元，营业收入增长率为61.48%，归属母公司净利润为1.19亿元，归属母公司净利润增长率为210.45%，净资产收益率为7.03%。
 
-芜湖市政协副主席、市工商联主席孙四平出席会议并致辞。
+2026年一季度公司营业收入为6.01亿元，营业收入增长率为13.56%，归属母公司净利润为-0.10亿元，归属母公司净利润增长率为-135.39%。
 
-淮北市委统战部副部长、市工商联党组书记王成应邀参会并致辞，芜湖市委统战部副部长、市工商联党组书记刘雪冬及两地市直相关部门负责人、有关商协会代表及商会全体会员参加。
-
-大会现场，芜湖市工商联、市民政局相关负责人依次宣读商会成立批复等文件。
-
-会议选举产生商会第一届理事会、监事会及领导班子。
-
-芜湖零壹精密工具制造有限公司总经理刘长金当选商会首届会长，纵仁当选秘书长；胡峰、张进、高军、陈飞、王光明、任明晓当选副会长，纵磊当选监事。
-
-大会审议并表决通过《商会章程》《会费标准及管理办法》等内部管理制度，为商会规范化、制度化、常态化运营筑牢制度根基。
+目前公司属于信息技术行业，主要产品类型为互联网服务，2025年报主营构成为IT基础设施建设:81.49%;软件解决方案:11.41%;IT运行维护服务:7.1%。
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 03:51 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-30 03:52 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 03:36 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 03:54 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 04:03 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 03:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 03:50 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 03:44 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 04:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 03:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 03:44 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 04:02 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 04:04 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 04:11 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 03:57 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 04:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 04:07 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 03:52 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 03:49 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 03:59 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 03:46 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 04:01 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 04:01 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 03:57 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 03:53 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/4783188.shtml)
-- 2026-06-30 03:39 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/31402728.shtml)
-- 2026-06-30 03:59 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/770330405635.shtml)
-- 2026-06-30 03:41 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/09591.shtml)
-- 2026-06-30 04:04 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/517635.shtml)
-- 2026-06-30 04:01 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/63977.shtml)
-- 2026-06-30 03:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/078715480.shtml)
-- 2026-06-30 03:58 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/53115.shtml)
-- 2026-06-30 03:46 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/157626686.shtml)
-- 2026-06-30 04:04 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/8722513044.shtml)
-- 2026-06-30 04:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/051681.shtml)
-- 2026-06-30 03:37 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/21175071.shtml)
-- 2026-06-30 03:47 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/789718.shtml)
-- 2026-06-30 03:53 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/86947764514.shtml)
-- 2026-06-30 03:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/50203708.shtml)
+- 2026-06-30 03:44 - [毒液2](http://www.share.kurohicncr.top/Article/details/035305669534.shtml)
+- 2026-06-30 03:48 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/38495915214.shtml)
+- 2026-06-30 04:00 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/05079937985.shtml)
+- 2026-06-30 04:10 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/98487224889.shtml)
+- 2026-06-30 03:44 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/3846305.shtml)
+- 2026-06-30 04:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/056897101232.shtml)
+- 2026-06-30 04:09 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/313989453.shtml)
+- 2026-06-30 04:04 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/77752821174.shtml)
+- 2026-06-30 04:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/473792246658.shtml)
+- 2026-06-30 03:49 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/9230477060.shtml)
+- 2026-06-30 04:01 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/508896621.shtml)
+- 2026-06-30 03:48 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/654830319.shtml)
+- 2026-06-30 03:54 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/4164348.shtml)
+- 2026-06-30 03:49 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/087156201.shtml)
+- 2026-06-30 03:56 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/92211709283.shtml)

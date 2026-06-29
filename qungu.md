@@ -1,52 +1,57 @@
-# 李氏大药厂拟回购不多于5000万港元公司股份
+# 软银登顶日本市值榜首，宣布向法国投资530亿美元布局AI
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-李氏大药厂（00950）发布公告，公司已决定透过行使公司股东于2026年5月21日举行的公司股东周年大会上授予董事会购回公司股份的一般授权，实行一项股份购回计划。公司将于公开市场上购回其股份。在购回授权的规限下，股份购回计划将授权公司于自2026年6月16日起至公司下届股东周年大会结束时或公司的组织章程大纲及细则或任何适用法律规定公司须举行下届股东周年大会的期限届满时或公司股东
+核心要点 软银集团于周日宣布，计划在未来五年内向法国投资 450 亿欧元，用于建设人工智能基础设施。 这家科技巨头表示，该笔投资是其整体规划的一部分。按照总规模 750 亿欧元的方案，公司将在法国打造总装机容量达 5 吉瓦的 AI 数据中心。 据市场数据分析机构万得（FactSet）数据显示，软银目前市值已超越丰田，成为日本市值最高的企业。 软银透露，首期投资规划将在 2031
 
 ## 正文
 
-李氏大药厂（00950）发布公告，公司已决定透过行使公司股东于2026年5月21日举行的公司股东周年大会上授予董事会购回公司股份的一般授权，实行一项股份购回计划。
+核心要点 软银集团于周日宣布，计划在未来五年内向法国投资 450 亿欧元，用于建设人工智能基础设施。
 
-公司将于公开市场上购回其股份。
+这家科技巨头表示，该笔投资是其整体规划的一部分。
 
-在购回授权的规限下，股份购回计划将授权公司于自2026年6月16日起至公司下届股东周年大会结束时或公司的组织章程大纲及细则或任何适用法律规定公司须举行下届股东周年大会的期限届满时或公司股东于股东大会上以普通决议案撤销或更改购回授权之日（以最早者为准）止期间，以不多于5000万港元的总代价购回股份。
+按照总规模 750 亿欧元的方案，公司将在法国打造总装机容量达 5 吉瓦的 AI 数据中心。
 
-根据购回授权，公司获准购回最多达于授出购回授权的相关决议案通过当日已发行股份总数10%的本身股份（即58，883，534股股份）。
+据市场数据分析机构万得（FactSet）数据显示，软银目前市值已超越丰田，成为日本市值最高的企业。
 
-责任编辑：卢昱君
+软银透露，首期投资规划将在 2031 年前，于法国北部上法兰西大区落地总容量 3.1 吉瓦的 AI 数据中心，选址涵盖敦刻尔克、博斯凯尔、布尚等城市。
+
+软银在声明中表示：“这是集团在欧洲开展的规模最大的 AI 基础设施投资。
+
+项目旨在通过扩充法国高性能算力资源，助力人工智能产业快速发展。
+
+” 软银总裁孙正义于周一同法国总统埃马纽埃尔・马克龙一同出席新闻发布会，正式确认 750 亿欧元的投资计划。
 
 ## 相关推荐
 
-- 2026-06-30 03:37 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 03:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 04:04 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 03:36 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 03:51 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 04:00 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 03:46 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 03:56 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 03:48 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 04:01 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 03:41 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 03:45 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 03:43 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 03:51 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 04:05 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 04:07 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 04:04 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 04:01 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 03:54 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 03:46 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 04:01 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 03:45 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 03:50 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:53 - [巴西vs日本](http://www.blog.minike.top/Article/details/204204618.shtml)
-- 2026-06-30 04:00 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/27266.shtml)
-- 2026-06-30 03:47 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/192572.shtml)
-- 2026-06-30 03:51 - [美股](https://www.share.kurohicncr.top/Article/details/6148312.shtml)
-- 2026-06-30 03:40 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/014391336.shtml)
-- 2026-06-30 04:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/406214596.shtml)
-- 2026-06-30 04:02 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/39895.shtml)
-- 2026-06-30 03:40 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/4083903854.shtml)
-- 2026-06-30 04:00 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/980559110068.shtml)
-- 2026-06-30 03:39 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/905333744.shtml)
-- 2026-06-30 03:51 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/88425179.shtml)
-- 2026-06-30 03:45 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/878756263656.shtml)
-- 2026-06-30 03:51 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/6807312.shtml)
-- 2026-06-30 03:51 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/48633330604.shtml)
-- 2026-06-30 03:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/57177.shtml)
+- 2026-06-30 03:55 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/89370.shtml)
+- 2026-06-30 04:02 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/0661202457.shtml)
+- 2026-06-30 04:10 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/7445945334.shtml)
+- 2026-06-30 04:01 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/426313133.shtml)
+- 2026-06-30 03:50 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/868172699800.shtml)
+- 2026-06-30 04:10 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/500782.shtml)
+- 2026-06-30 03:59 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/4832863.shtml)
+- 2026-06-30 03:56 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/6177214.shtml)
+- 2026-06-30 03:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/729136.shtml)
+- 2026-06-30 03:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/70676562373.shtml)
+- 2026-06-30 03:54 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/2153701.shtml)
+- 2026-06-30 03:58 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/150282611970.shtml)
+- 2026-06-30 04:10 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/80917230.shtml)
+- 2026-06-30 04:00 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/711809991.shtml)
+- 2026-06-30 04:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/02936.shtml)

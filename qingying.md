@@ -1,56 +1,47 @@
-# 瑞慈医疗拟回购不超过1亿港元股份
+# 2026年度长江流域水生生物资源监测全面启动
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-瑞慈医疗（01526）发布公告，公司董事会已获公司股东于2026年6月17日举行之公司股东周年大会上授予一般授权，可回购最多不超过公司于2026年股东周年大会当日已发行股份总数（不包括公司库存股）的10%。 董事会通过一项决议案，批准公司在股份回购授权范围内以自有资金（不包括公司于香港联合交易所有限公司主板上市所筹集的任何所得款项）回购股份，回购总金额不超过港币1亿元。回购期限
+发布时间：2026年06月01日 10:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-瑞慈医疗（01526）发布公告，公司董事会已获公司股东于2026年6月17日举行之公司股东周年大会上授予一般授权，可回购最多不超过公司于2026年股东周年大会当日已发行股份总数（不包括公司库存股）的10%。
-
-董事会通过一项决议案，批准公司在股份回购授权范围内以自有资金（不包括公司于香港联合交易所有限公司主板上市所筹集的任何所得款项）回购股份，回购总金额不超过港币1亿元。
-
-回购期限自董事会批准之日起至公司将于2027年举行之应届股东周年大会结束时止。
-
-公司拟将所购回的股份作为库存股处理，未来可根据需要予以注销、出售或转让（包括根据股权激励计划进行转让）。
-
-董事会已综合考量公司当前业务运营的稳定性、其财务盈利的可持续性、其对未来发展前景的坚定信心以及公司的股票市场表现及估值。
-
-董事会认为，公司股份的当前市值已低于其内在价值。
-
-为有效维护公司的价值及全体股东的权益，以及传递管理层对公司长期发展的信心，董事会建议实施股份回购。
-
-董事会认为，股份回购不仅体现了对公司内在价值的高度认可，亦彰显了对业务长远前景的充足信心。
+发布时间：2026年06月01日 10:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 03:45 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 03:47 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 03:38 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 03:46 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 03:42 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 03:38 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 03:55 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 03:43 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 03:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 03:45 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 04:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 04:10 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 03:45 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 03:58 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 04:07 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 03:44 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 03:55 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 03:46 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 04:03 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 03:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 03:54 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 03:49 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 03:50 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 03:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 04:10 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:52 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/7259292157.shtml)
-- 2026-06-30 03:37 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/82624.shtml)
-- 2026-06-30 03:51 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/73895761.shtml)
-- 2026-06-30 03:36 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/72324.shtml)
-- 2026-06-30 04:05 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/748548.shtml)
-- 2026-06-30 04:03 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/23020.shtml)
-- 2026-06-30 03:37 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/8750350.shtml)
-- 2026-06-30 04:00 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/9300152.shtml)
-- 2026-06-30 03:50 - [扫黑风暴](https://www.blog.minike.top/Article/details/926460001.shtml)
-- 2026-06-30 04:03 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/2518121861.shtml)
-- 2026-06-30 03:48 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/194263.shtml)
-- 2026-06-30 03:48 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/27845984753.shtml)
-- 2026-06-30 03:54 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/34349782297.shtml)
-- 2026-06-30 04:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/97596008.shtml)
-- 2026-06-30 03:54 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/132750882.shtml)
+- 2026-06-30 04:01 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/316549.shtml)
+- 2026-06-30 04:08 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/61918.shtml)
+- 2026-06-30 03:56 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/92094258083.shtml)
+- 2026-06-30 03:52 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/46565851994.shtml)
+- 2026-06-30 04:08 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/679400056.shtml)
+- 2026-06-30 03:56 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/04385016.shtml)
+- 2026-06-30 04:09 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/854742930.shtml)
+- 2026-06-30 04:11 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/44181465.shtml)
+- 2026-06-30 03:46 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/18740851.shtml)
+- 2026-06-30 04:00 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/46371247.shtml)
+- 2026-06-30 04:11 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/414800204644.shtml)
+- 2026-06-30 04:02 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/0350008514.shtml)
+- 2026-06-30 03:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/042967143094.shtml)
+- 2026-06-30 04:03 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/0569658728.shtml)
+- 2026-06-30 03:51 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/43423.shtml)

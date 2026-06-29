@@ -1,58 +1,45 @@
-# 如何构建科技金融发展新路径？工商银行行长刘珺阐述现代经济新“三表”
+# 100天后 2026年服贸会将亮相北京首钢园
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，中国工商银行行长刘珺出席2026陆家嘴论坛，并参加主题为“健全科技金融全生命周期服务体系，服务实体经济高质量发展”的主题演讲。 刘珺首先对科技和金融作出定义：科技是第一生产力，人才是第一资源，金融是现代经济的血液，同时也是实体经济的血液。大家谈到科技金融，会发现它是多维度的概念，科技、教育、人
+发布时间：2026年06月02日 09:58 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，中国工商银行行长刘珺出席2026陆家嘴论坛，并参加主题为“健全科技金融全生命周期服务体系，服务实体经济高质量发展”的主题演讲。
-
-刘珺首先对科技和金融作出定义：科技是第一生产力，人才是第一资源，金融是现代经济的血液，同时也是实体经济的血液。
-
-大家谈到科技金融，会发现它是多维度的概念，科技、教育、人才三位一体，同时金融又带着产业，“科技+金融+产业”三维叠加。
-
-他进一步解释称，科技金融是特别复杂的系统化概念，现在看到科技金融的重要性是基于科技对当代全球经济增长和人类福祉提升的决定性意义，同时反观科技创新前沿发展也会发现，它正在不断逼近物理极限和工程极限，对资源投入的要求趋于极值化。
-
-金融服务和金融范式需要在边界进行定义，在极限进行思维，在集成解的基础上，向边界条件上寻求它的焦点解。
-
-“以前我们认为，科技创新基于某个前沿科技创新领域，对这个领域做一定程度的研究，适配一定金融服务，把它推而广之，现在不行，很多颠覆性科技技术在边界上进行定位，如果不能对边界做准确把握，科技金融服务一定不会特别到位。
-
-” 目前“经济”的定位和意涵发生了什么样的变化？
-
-刘珺提出四方面的变化：首先是资源配置的极致效率。
+发布时间：2026年06月02日 09:58 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 03:50 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 03:36 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 03:52 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 03:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-30 03:44 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 04:04 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 03:43 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 03:54 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 03:49 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 03:59 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 03:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 03:50 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 03:49 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 04:04 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 03:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 04:06 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 04:11 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 04:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 03:58 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 04:09 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 03:49 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 04:11 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 04:10 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 03:58 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:04 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/9006985.shtml)
-- 2026-06-30 03:55 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/42241.shtml)
-- 2026-06-30 03:47 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/053852.shtml)
-- 2026-06-30 03:58 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/041404650.shtml)
-- 2026-06-30 03:52 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/281763.shtml)
-- 2026-06-30 03:58 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/76220.shtml)
-- 2026-06-30 03:42 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/115710.shtml)
-- 2026-06-30 03:39 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/71414.shtml)
-- 2026-06-30 04:00 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/3814067832.shtml)
-- 2026-06-30 03:54 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/53344.shtml)
-- 2026-06-30 03:38 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/1406985.shtml)
-- 2026-06-30 03:49 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/135256463.shtml)
-- 2026-06-30 03:36 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/55873.shtml)
-- 2026-06-30 03:36 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/809799679.shtml)
-- 2026-06-30 04:04 - [起风了](https://www.blog.minike.top/Article/details/15222826563.shtml)
+- 2026-06-30 03:59 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/40258921.shtml)
+- 2026-06-30 04:07 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/1609203642.shtml)
+- 2026-06-30 04:10 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/6587889.shtml)
+- 2026-06-30 03:50 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/1500908.shtml)
+- 2026-06-30 03:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/87173.shtml)
+- 2026-06-30 03:44 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/848589137.shtml)
+- 2026-06-30 03:47 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/89119.shtml)
+- 2026-06-30 03:51 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/77853.shtml)
+- 2026-06-30 03:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/95828481101.shtml)
+- 2026-06-30 03:49 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/800716621.shtml)
+- 2026-06-30 03:55 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/740329695.shtml)
+- 2026-06-30 04:03 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/92244.shtml)
+- 2026-06-30 04:11 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/952114.shtml)
+- 2026-06-30 03:51 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/5819373557.shtml)
+- 2026-06-30 03:45 - [啊啊啊](http://www.share.minike.top/Article/details/767161930184.shtml)

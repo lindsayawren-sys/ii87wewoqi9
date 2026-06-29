@@ -1,58 +1,61 @@
-# 西藏：晴空映珠峰 游客打卡雪山胜景
+# Royce Small-Cap Trust宣布第二季度每股派息0.31美元，较上期增长3.3%
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？十届南博会，一叶清茶何以架起文明对话之桥？中国沙漠治理经验，如何与世界共享？人工智能如何向善而行？为什么不能总挖鼻孔？专家提醒淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护深化金融改革强监管 为全球注入更多确定性冲刺百万亿，服务业高质量发展提速用AI做旅游攻略：“被忽悠白花了
+Royce Small-Cap Trust， Inc．今日宣布，将向普通股股东派发2026年第二季度现金股息，每股0.31美元。本次股息较上一季度的0.30美元增长了约3.3%，延续了基金的稳定派息政策。 根据公告，本次股息将于2026年6月29日支付，股权登记日为6月11日，除息日为6月11日。股东可选择以现金形式收取股息，或以股息再投资方式增持基金股份。股份再投资的价格将于
 
 ## 正文
 
-一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
+Royce Small-Cap Trust， Inc．今日宣布，将向普通股股东派发2026年第二季度现金股息，每股0.31美元。
 
-十届南博会，一叶清茶何以架起文明对话之桥？
+本次股息较上一季度的0.30美元增长了约3.3%，延续了基金的稳定派息政策。
 
-中国沙漠治理经验，如何与世界共享？
+根据公告，本次股息将于2026年6月29日支付，股权登记日为6月11日，除息日为6月11日。
 
-人工智能如何向善而行？
+股东可选择以现金形式收取股息，或以股息再投资方式增持基金股份。
 
-为什么不能总挖鼻孔？
+股份再投资的价格将于6月18日确定。
 
-专家提醒淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护深化金融改革强监管 为全球注入更多确定性冲刺百万亿，服务业高质量发展提速用AI做旅游攻略：“被忽悠白花了1000块钱”“特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？
+Royce Small-Cap Trust为封闭式多元化管理投资公司，其普通股在纽约证券交易所上市交易。
 
-斯坦利·约翰逊：为何要重走马可·波罗之路？
+基金的主要投资目标为长期资本增值，在正常情况下，至少将80%的净资产投资于小盘公司的权益证券。
 
-多边主义保障世界人权面临何种挑战与机遇？
+基金采用季度派息政策，按前四个日历季度末资产净值滚动平均值的7%年化率进行分配，第四季度分配则为1.75%的滚动平均值与美国国税局规定的最低分配额两者中较高者。
 
 ## 相关推荐
 
-- 2026-06-30 03:39 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 03:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 03:55 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 03:50 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 03:57 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 03:48 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 03:51 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 03:40 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 03:51 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 03:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 04:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 03:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 04:02 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 04:08 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 03:56 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 03:50 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 03:42 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 03:44 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 04:09 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 04:12 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 03:45 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 03:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 04:01 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 03:46 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 04:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 03:53 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 04:04 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:49 - [月亮](http://www.blog.minike.top/Article/details/570343.shtml)
-- 2026-06-30 03:47 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/3024860.shtml)
-- 2026-06-30 04:04 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/10453890203.shtml)
-- 2026-06-30 04:03 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/131880856.shtml)
-- 2026-06-30 03:55 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/4822448.shtml)
-- 2026-06-30 03:53 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/08735928697.shtml)
-- 2026-06-30 03:39 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/988947372762.shtml)
-- 2026-06-30 03:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/84809150821.shtml)
-- 2026-06-30 03:54 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/6476107.shtml)
-- 2026-06-30 03:56 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/11891285.shtml)
-- 2026-06-30 03:45 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/54026690.shtml)
-- 2026-06-30 03:51 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/315836006.shtml)
-- 2026-06-30 03:50 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/93488379325.shtml)
-- 2026-06-30 03:57 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/7846392625.shtml)
-- 2026-06-30 03:46 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/20704586679.shtml)
+- 2026-06-30 03:48 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/99222.shtml)
+- 2026-06-30 04:08 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/3355814.shtml)
+- 2026-06-30 04:09 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/575077.shtml)
+- 2026-06-30 03:45 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/752837718.shtml)
+- 2026-06-30 04:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/1715942.shtml)
+- 2026-06-30 03:51 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/606527611232.shtml)
+- 2026-06-30 04:01 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/085950.shtml)
+- 2026-06-30 03:52 - [逃狱兄弟](https://www.share.minike.top/Article/details/00030483924.shtml)
+- 2026-06-30 04:11 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/005453.shtml)
+- 2026-06-30 03:53 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/270398941.shtml)
+- 2026-06-30 03:54 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/49886726906.shtml)
+- 2026-06-30 03:45 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/8793431887.shtml)
+- 2026-06-30 03:54 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/0608393991.shtml)
+- 2026-06-30 04:04 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/24959.shtml)
+- 2026-06-30 03:43 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/34325521.shtml)

@@ -1,59 +1,57 @@
-# 量价齐稳 北京二手房价环比连涨4个月
+# 伊朗击落美军无人机后美军空袭伊朗，伊朗随后发起报复打击
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-6月16日，国家统计局发布5月70个大中城市商品住宅销售价格变动情况。数据显示，5月，一线城市二手住宅销售价格环比上涨0.4%，连续3个月实现上涨。其中，北京环比上涨0.1%。北京商报记者梳理发现，北京自2月起便结束了二手房价连续10个月的环比下跌趋势，是四大一线城市中二手房价回暖较早的城市之一，至今已经连续4个月环比上涨。北京二手房市场“量价齐稳” 从上涨城市数量来看，5月7
+中新网6月1日电 据美联社报道，美国军方当地时间6月1日表示，在伊朗击落一架美国MQ-1“捕食者”无人机后，美军轰炸了伊朗境内的雷达和无人机控制站点。伊朗方面承认随后发动报复性打击。与此同时，科威特表示，其防空系统拦截了来袭的无人机和导弹。报道称，美伊双方相互攻击反映出停火十分脆弱。尽管美国和伊朗官员正试图通过谈判达成延长停火的协议，但袭击仍不断发生。 美国中央司令部称，美军于
 
 ## 正文
 
-6月16日，国家统计局发布5月70个大中城市商品住宅销售价格变动情况。
+中新网6月1日电 据美联社报道，美国军方当地时间6月1日表示，在伊朗击落一架美国MQ-1“捕食者”无人机后，美军轰炸了伊朗境内的雷达和无人机控制站点。
 
-数据显示，5月，一线城市二手住宅销售价格环比上涨0.4%，连续3个月实现上涨。
+伊朗方面承认随后发动报复性打击。
 
-其中，北京环比上涨0.1%。
+与此同时，科威特表示，其防空系统拦截了来袭的无人机和导弹。
 
-北京商报记者梳理发现，北京自2月起便结束了二手房价连续10个月的环比下跌趋势，是四大一线城市中二手房价回暖较早的城市之一，至今已经连续4个月环比上涨。
+报道称，美伊双方相互攻击反映出停火十分脆弱。
 
-北京二手房市场“量价齐稳” 从上涨城市数量来看，5月70个城市中，二手房价格环比上涨的城市数量为10个。
+尽管美国和伊朗官员正试图通过谈判达成延长停火的协议，但袭击仍不断发生。
 
-上海、深圳二手房价格环比上涨0.6%，位居二手房价格上涨城市首位；徐州环比上涨0.3%紧随其后；北京、广州、厦门等7座城市则环比上涨0.1%。
+美国中央司令部称，美军于5月30日和31日在伊朗格鲁克市附近以及格什姆岛实施打击。
 
-上海易居房地产研究院副院长严跃进表示，政策层面对于限购的放开，直接带动了上海、深圳购房需求的明显释放，二手房交易量呈现稳步上升态势，市场活跃度随之提升。
+声明称，此次打击是为了回应伊朗击落一架在国际水域上空行动的美国MQ-1无人机等“侵略性行动”。
 
-北京商报记者梳理发现，今年4月末，上海、深圳同步出台调整限购标准、上调公积金贷款额度等支持举措，有效激活本地住房消费，推动市场热度上行。
+美军称，美国战斗机摧毁了伊朗防空设施、一个地面控制站以及两架对通过地区水域的船只构成威胁的单向攻击无人机。
 
 ## 相关推荐
 
-- 2026-06-30 03:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 03:46 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 04:01 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 03:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 03:44 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 03:55 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 03:48 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 03:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 03:52 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 04:05 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 03:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 03:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-30 03:54 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 04:10 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 03:57 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 03:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 03:47 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 04:07 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 04:02 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 04:11 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 03:47 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 03:52 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 04:07 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 04:01 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:39 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/3661934.shtml)
-- 2026-06-30 03:59 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/8391043.shtml)
-- 2026-06-30 03:56 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/196565946.shtml)
-- 2026-06-30 04:03 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/26621.shtml)
-- 2026-06-30 03:48 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/422590714967.shtml)
-- 2026-06-30 03:56 - [苗族银饰](http://www.share.minike.top/Article/details/10734027.shtml)
-- 2026-06-30 03:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/133035246565.shtml)
-- 2026-06-30 03:50 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/3460512926.shtml)
-- 2026-06-30 04:01 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/4746791.shtml)
-- 2026-06-30 04:01 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/441980785019.shtml)
-- 2026-06-30 03:50 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/3567028787.shtml)
-- 2026-06-30 04:04 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/11692384304.shtml)
-- 2026-06-30 04:04 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/02242.shtml)
-- 2026-06-30 04:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/99776531.shtml)
-- 2026-06-30 03:45 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/130769.shtml)
+- 2026-06-30 03:42 - [时光音乐会](http://www.blog.minike.top/Article/details/84186.shtml)
+- 2026-06-30 03:47 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/0345314308.shtml)
+- 2026-06-30 03:55 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/37574504822.shtml)
+- 2026-06-30 03:42 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/676562.shtml)
+- 2026-06-30 03:44 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/71009750893.shtml)
+- 2026-06-30 03:54 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/591814.shtml)
+- 2026-06-30 03:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/82653778523.shtml)
+- 2026-06-30 03:53 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/712028.shtml)
+- 2026-06-30 04:09 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/7919522.shtml)
+- 2026-06-30 03:55 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/589466559.shtml)
+- 2026-06-30 04:06 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/475963588.shtml)
+- 2026-06-30 03:51 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/534940184770.shtml)
+- 2026-06-30 04:09 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/92208726.shtml)
+- 2026-06-30 03:57 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/980293313416.shtml)
+- 2026-06-30 04:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/847086345962.shtml)

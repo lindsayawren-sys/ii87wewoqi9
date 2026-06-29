@@ -1,51 +1,61 @@
-# 谷歌Gemini项目联合负责人诺姆·沙泽尔确认将加入OpenAI
+# 太行山深处，200多只“喵星人”接管了河北一个村
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-谷歌工程副总裁、Gemini人工智能模型联合负责人诺姆·沙泽尔（Noam Shazeer）周三表示，他将离开该公司，加入OpenAI。稍早有媒体报道，沙泽尔即将加入OpenAI。责任编辑：王永生
+中新网保定6月2日电 题：太行山深处，200多只“喵星人”接管了河北一个村 作者 赵丹媚 谌诗雨 韩冰 “欢迎光临喵——请走这边喵——” 在“猫村”，如果你听得懂“喵言喵语”，这大概是它们最标准的迎宾词。 这里是河北省保定市阜平县龙泉关镇黑崖沟行政村东坪自然村，200多只“猫村民”是这里真正的主人。而为它们服务的“村长”，是阜平籍返乡艺术家周合伟。 2019年，因易地扶贫搬迁，
 
 ## 正文
 
-谷歌工程副总裁、Gemini人工智能模型联合负责人诺姆·沙泽尔（Noam Shazeer）周三表示，他将离开该公司，加入OpenAI。
+中新网保定6月2日电 题：太行山深处，200多只“喵星人”接管了河北一个村 作者 赵丹媚 谌诗雨 韩冰 “欢迎光临喵——请走这边喵——” 在“猫村”，如果你听得懂“喵言喵语”，这大概是它们最标准的迎宾词。
 
-稍早有媒体报道，沙泽尔即将加入OpenAI。
+这里是河北省保定市阜平县龙泉关镇黑崖沟行政村东坪自然村，200多只“猫村民”是这里真正的主人。
 
-责任编辑：王永生
+而为它们服务的“村长”，是阜平籍返乡艺术家周合伟。
+
+2019年，因易地扶贫搬迁，东坪村村民们搬进距此约10公里的镇上居住，但许多猫不适应城镇生活，“留守”在了村庄。
+
+周合伟在开展艺术乡建时发现了它们，“不忍心让猫在这里自生自灭”，于是，他向乡里申请利用闲置房屋收留这些猫。
+
+经当地政府统筹，22处闲置院落交由周合伟统一进行艺术改造。
+
+加固老屋、修建猫舍……周合伟将整座村落打造成猫的乐园，“猫村村长”的名号也从此叫开了。
+
+一进村，一个用旧铁梯搭成的巨大“猫头”张着大嘴迎接来客，仿佛在说：“欢迎来到猫的地盘！
 
 ## 相关推荐
 
-- 2026-06-30 03:40 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 04:05 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 03:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 04:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 03:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 03:45 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 03:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 03:59 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 03:37 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 03:57 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 04:01 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 03:43 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 04:03 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 03:45 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 03:50 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 04:06 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 04:07 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 03:54 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 04:00 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 03:46 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 04:10 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 04:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 04:04 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 03:55 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 03:44 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 03:50 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 04:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 04:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 03:50 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 03:56 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:50 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/34856773168.shtml)
-- 2026-06-30 03:50 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/58665913118.shtml)
-- 2026-06-30 03:59 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/8976362351.shtml)
-- 2026-06-30 04:00 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/983495072531.shtml)
-- 2026-06-30 03:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/14560.shtml)
-- 2026-06-30 03:47 - [爱很美味](http://www.share.minike.top/Article/details/0997443.shtml)
-- 2026-06-30 03:51 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/53466817.shtml)
-- 2026-06-30 03:57 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/109080891.shtml)
-- 2026-06-30 03:41 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/391286918.shtml)
-- 2026-06-30 03:38 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/294569.shtml)
-- 2026-06-30 03:57 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/11430144.shtml)
-- 2026-06-30 03:43 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/12787.shtml)
-- 2026-06-30 04:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/29209455.shtml)
-- 2026-06-30 03:50 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/2748031.shtml)
-- 2026-06-30 03:42 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/1259552249.shtml)
+- 2026-06-30 04:06 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/4778378.shtml)
+- 2026-06-30 03:42 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/078285.shtml)
+- 2026-06-30 03:56 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/51050.shtml)
+- 2026-06-30 04:04 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/761832283452.shtml)
+- 2026-06-30 04:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/69207640766.shtml)
+- 2026-06-30 04:02 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/767841138.shtml)
+- 2026-06-30 04:08 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/3688000454.shtml)
+- 2026-06-30 04:10 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/15568653.shtml)
+- 2026-06-30 04:07 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/79535.shtml)
+- 2026-06-30 03:47 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/971038258.shtml)
+- 2026-06-30 03:57 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/785066133.shtml)
+- 2026-06-30 04:06 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/41558711934.shtml)
+- 2026-06-30 04:05 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/933494.shtml)
+- 2026-06-30 04:06 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/088414047164.shtml)
+- 2026-06-30 03:57 - [巴西扳平比分](http://www.blog.minike.top/Article/details/76701654190.shtml)

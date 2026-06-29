@@ -1,59 +1,60 @@
-# 摩根大通预计到2030年 AI基础设施建设总花费将达5.5万亿美元
+# SpaceX在IPO中为部分员工及亲友预留高达5%的股份
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-摩根大通上调对大型科技公司建设人工智能（AI）基础设施所需的花费和借款预估。 该行策略师在周二的一份研报中指出，他们预计到2030年，AI超大规模数据中心运营商将为此投入约5.5万亿美元，较11月时的预测增加4000亿美元。他们写道，其中约4.1万亿美元将来自债务融资，反映出市场预期这些公司将利用借入的资金来覆盖更大比例的支出。 围绕AI基础设施的投资竞赛已极大地推动企业债发行
+根据周一发布的一份修订版申报文件，SpaceX已在其首次公开募股（IPO）发售的股票中，预留了最高5%的股份供“特定员工及相关人士”通过直接股票认购计划进行购买。 此次发行有望筹集创纪录的资金，规模预计在750亿美元左右。此前在今年早些时候，当马斯克将其人工智能初创公司xAI与SpaceX合并时，曾为后者给出1.25万亿美元的估值。历史上，仅有两家科技公司——Facebook和
 
 ## 正文
 
-摩根大通上调对大型科技公司建设人工智能（AI）基础设施所需的花费和借款预估。
+根据周一发布的一份修订版申报文件，SpaceX已在其首次公开募股（IPO）发售的股票中，预留了最高5%的股份供“特定员工及相关人士”通过直接股票认购计划进行购买。
 
-该行策略师在周二的一份研报中指出，他们预计到2030年，AI超大规模数据中心运营商将为此投入约5.5万亿美元，较11月时的预测增加4000亿美元。
+此次发行有望筹集创纪录的资金，规模预计在750亿美元左右。
 
-他们写道，其中约4.1万亿美元将来自债务融资，反映出市场预期这些公司将利用借入的资金来覆盖更大比例的支出。
+此前在今年早些时候，当马斯克将其人工智能初创公司xAI与SpaceX合并时，曾为后者给出1.25万亿美元的估值。
 
-围绕AI基础设施的投资竞赛已极大地推动企业债发行。
+历史上，仅有两家科技公司——Facebook和阿里巴巴——在美国交易所上市的首个交易日市值便达到了1000亿美元以上。
 
-包括Tarek Hamid在内的摩根大通策略师指出，自该行11月做出预测以来，与AI和数据中心有关的债券发行规模已超过3000亿美元。
+通过直接股票认购计划，公司可以为员工、客户甚至亲友预留一定比例的发行股份。
 
-他们表示，数据中心的债券发行是今年初债券发行量接近历史最高水平的最大推手。
+SpaceX在文件中表示，参与者将由“公司高管酌情选定”，且这部分股票不受禁售期（锁定期）的限制。
 
-芯片制造巨头英伟达周一也加入了科技巨头大规模发债的浪潮，发行了250亿美元的高评级债券。
+这一条款使得部分个人能够获得通常只有与IPO承销商关系密切的大型资金管理机构才能享有的收益。
 
-此次发行吸引了高达850亿美元的认购，投资者希望借此参与AI热潮。
+包括Airbnb、Uber和Rivian在内的多家公司都曾在发行中包含过直接股票认购计划。
 
 ## 相关推荐
 
-- 2026-06-30 03:55 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 03:45 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 03:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 03:51 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 04:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 03:54 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 03:37 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 04:05 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 03:46 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 03:52 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 03:38 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 03:55 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 03:41 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 04:05 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 04:06 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 03:43 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 03:52 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 04:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 04:11 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 04:08 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 03:44 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 03:49 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 03:45 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 03:52 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 03:57 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 03:48 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 04:01 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/60283112.shtml)
-- 2026-06-30 03:56 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/54353447.shtml)
-- 2026-06-30 03:42 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/121481.shtml)
-- 2026-06-30 03:54 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/533317.shtml)
-- 2026-06-30 03:36 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/627729237051.shtml)
-- 2026-06-30 04:02 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/9558238053.shtml)
-- 2026-06-30 03:37 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/656136.shtml)
-- 2026-06-30 03:56 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/027032.shtml)
-- 2026-06-30 03:43 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/990859898.shtml)
-- 2026-06-30 03:46 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/027054707.shtml)
-- 2026-06-30 03:37 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/026686719.shtml)
-- 2026-06-30 03:46 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/45234.shtml)
-- 2026-06-30 03:43 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/94312.shtml)
-- 2026-06-30 03:55 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/5112249.shtml)
-- 2026-06-30 04:04 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/434174579.shtml)
+- 2026-06-30 04:07 - [日本 高位逼抢](http://www.share.minike.top/Article/details/468076875.shtml)
+- 2026-06-30 04:05 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/60627.shtml)
+- 2026-06-30 03:53 - [爱很美味](https://www.share.kurohicncr.top/Article/details/0655307.shtml)
+- 2026-06-30 03:42 - [恋与深空 巧合](http://www.share.minike.top/Article/details/020569864.shtml)
+- 2026-06-30 03:48 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/15127291.shtml)
+- 2026-06-30 03:49 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/1391073974.shtml)
+- 2026-06-30 03:54 - [金刚川](http://www.blog.kurohicncr.top/Article/details/517817488808.shtml)
+- 2026-06-30 03:50 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/59859278.shtml)
+- 2026-06-30 03:54 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/299854226.shtml)
+- 2026-06-30 03:56 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/03765324398.shtml)
+- 2026-06-30 04:03 - [起风了](https://www.blog.kurohicncr.top/Article/details/76078363.shtml)
+- 2026-06-30 04:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/726049952.shtml)
+- 2026-06-30 03:46 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/530710.shtml)
+- 2026-06-30 03:42 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/743701678229.shtml)
+- 2026-06-30 03:50 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/6853583887.shtml)

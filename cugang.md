@@ -1,50 +1,60 @@
-# 香港西九龙站高铁直达内地站点新增3个 相关车票已发售
+# 中高考临近考生如何保障健康？专家支招
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月17日 19:42 来源：中国新闻网 由香港铁路有限公司运营的高速铁路(香港段)7月1日起新增广州北、义乌、福清西三个站点。至此，香港西九龙站直达内地站点增至113个，相关车票于6月17日起发售。 港铁表示，本次新增站点中，广州北站为区域交通枢纽，接驳地铁、城际铁路，临近白云机场与广州融创文旅城；浙江义乌有“世界超市”之称，是知名的小商品集散中心；福建
+发布时间：2026年06月01日 18:26 来源：中国新闻网 6月1日，国家卫生健康委召开新闻发布会，介绍促进儿童青少年身心健康有关情况。会上，专家为近期参加中高考的考生做出健康提示。 首都医科大学附属北京中医医院主任医师李敏介绍，中考和高考都是人生大事，这时候孩子不仅心理压力大，他的体力、脑力消耗的也比较多，所以作为家长来讲，要注意以下几个方面。 首先要保障饮食营养卫生。做
 
 ## 正文
 
-发布时间：2026年06月17日 19:42 来源：中国新闻网 由香港铁路有限公司运营的高速铁路(香港段)7月1日起新增广州北、义乌、福清西三个站点。
+发布时间：2026年06月01日 18:26 来源：中国新闻网 6月1日，国家卫生健康委召开新闻发布会，介绍促进儿童青少年身心健康有关情况。
 
-至此，香港西九龙站直达内地站点增至113个，相关车票于6月17日起发售。
+会上，专家为近期参加中高考的考生做出健康提示。
 
-港铁表示，本次新增站点中，广州北站为区域交通枢纽，接驳地铁、城际铁路，临近白云机场与广州融创文旅城；浙江义乌有“世界超市”之称，是知名的小商品集散中心；福建福清有灵石山国家森林公园等众多文旅资源。
+首都医科大学附属北京中医医院主任医师李敏介绍，中考和高考都是人生大事，这时候孩子不仅心理压力大，他的体力、脑力消耗的也比较多，所以作为家长来讲，要注意以下几个方面。
 
-港铁将持续优化跨境铁路服务，便利乘客出行。
+首先要保障饮食营养卫生。
 
-(记者 孙悦) 责任编辑：【李季】
+做到膳食结构合理，粗细搭配得当，而且蔬菜水果都要有。
+
+每餐都要有肉蛋等富含蛋白质的食物，这时候要清淡而富有营养的饮食，清淡指的是不要太油腻，要少油少盐少糖，像油炸还有烧烤的烹饪方法就尽量少用。
+
+同时，尽量不要去尝试新食物，也就是以前没有吃过，这时候也尽量不要去尝试。
+
+另外，还要减少冷饮的摄入，防止不耐受新食物或者受凉以后引起腹泻。
 
 ## 相关推荐
 
-- 2026-06-30 03:58 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 04:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 04:02 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 03:39 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 03:46 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 03:37 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 03:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 03:42 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 03:55 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 03:45 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 03:43 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 03:47 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 03:56 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 04:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 03:58 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 04:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 03:43 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 03:46 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 04:11 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 03:55 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 03:54 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 03:43 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 04:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 03:55 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:03 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/550971947499.shtml)
-- 2026-06-30 03:45 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/9883962601.shtml)
-- 2026-06-30 03:51 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/0225957.shtml)
-- 2026-06-30 04:04 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/011134073.shtml)
-- 2026-06-30 03:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/102430537.shtml)
-- 2026-06-30 03:51 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/6876788041.shtml)
-- 2026-06-30 04:01 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/348639735692.shtml)
-- 2026-06-30 03:43 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/763240.shtml)
-- 2026-06-30 03:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/208412.shtml)
-- 2026-06-30 03:46 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/76264306256.shtml)
-- 2026-06-30 04:00 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/737717489052.shtml)
-- 2026-06-30 03:40 - [日本16强魔咒](http://www.blog.minike.top/Article/details/33530.shtml)
-- 2026-06-30 03:47 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/1199236887.shtml)
-- 2026-06-30 04:01 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/39952309646.shtml)
-- 2026-06-30 03:54 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/5379506.shtml)
+- 2026-06-30 04:04 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/49104.shtml)
+- 2026-06-30 03:47 - [刘念回应](http://www.share.kurohicncr.top/Article/details/5200732904.shtml)
+- 2026-06-30 03:53 - [沙丘](http://www.blog.kurohicncr.top/Article/details/6278545430.shtml)
+- 2026-06-30 03:59 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/713695454.shtml)
+- 2026-06-30 03:55 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/1708319.shtml)
+- 2026-06-30 03:52 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/7668744.shtml)
+- 2026-06-30 03:46 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/4361487.shtml)
+- 2026-06-30 03:49 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/413536.shtml)
+- 2026-06-30 04:02 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/67912.shtml)
+- 2026-06-30 03:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/561125.shtml)
+- 2026-06-30 03:55 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/29966805457.shtml)
+- 2026-06-30 04:07 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/73473779.shtml)
+- 2026-06-30 04:10 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/18323.shtml)
+- 2026-06-30 03:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/77506.shtml)
+- 2026-06-30 04:06 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/5478155555.shtml)

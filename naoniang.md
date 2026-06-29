@@ -1,49 +1,59 @@
-# 山东玻纤：公司经营及基本面一切正常
+# 英伟达，重大发布！引爆A股涨停潮
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-证券日报网讯6月17日，山东玻纤在互动平台回答投资者提问时表示，公司经营及基本面一切正常，不存在应披露而未披露的重大事项。当日股价波动属于二级市场正常交易行为，受市场交易情绪、资金流动等因素影响。
+英伟达进军个人电脑处理器市场。 6月1日，在GTC Taipei2026大会上，全球AI芯片巨头英伟达正式宣布进军个人电脑处理器市场，发力电脑通用计算芯片市场。英伟达CEO黄仁勋还重点介绍了Vera Rubin架构、DRIVE Hyperion自动驾驶出租车平台等多个新品。 受到英伟达推出新款PC芯片消息提振，今日（6月1日），A股，AI PC概念强势拉升，多股涨停。其中，雷神
 
 ## 正文
 
-证券日报网讯6月17日，山东玻纤在互动平台回答投资者提问时表示，公司经营及基本面一切正常，不存在应披露而未披露的重大事项。
+英伟达进军个人电脑处理器市场。
 
-当日股价波动属于二级市场正常交易行为，受市场交易情绪、资金流动等因素影响。
+6月1日，在GTC Taipei2026大会上，全球AI芯片巨头英伟达正式宣布进军个人电脑处理器市场，发力电脑通用计算芯片市场。
+
+英伟达CEO黄仁勋还重点介绍了Vera Rubin架构、DRIVE Hyperion自动驾驶出租车平台等多个新品。
+
+受到英伟达推出新款PC芯片消息提振，今日（6月1日），A股，AI PC概念强势拉升，多股涨停。
+
+其中，雷神科技、慧为智能30%涨停，软通动力、英力股份20%涨停，星环科技涨超15%，龙旗科技、华勤技术、亿道信息等多股涨停。
+
+正式推出新款PC芯片 在当天的演讲中，黄仁勋表示，此次携手微软打造的N1X处理器，将率先应用于微软、戴尔、惠普、华硕、联想、微星六大品牌的全新Windows笔记本及台式机产品，预计2026年秋季正式上市。
+
+英伟达官方透露，后续将陆续推出30余款笔记本、10款台式机搭载这款全新芯片。
+
+硬件配置层面，新款超级芯片将采用先进台积电3纳米制程工艺，由英伟达Blackwell架构GPU与联发科定制设计的Arm架构N1X CPU融合而成，标配128GB统一内存，实现CPU与GPU算力高效协同。
 
 ## 相关推荐
 
-- 2026-06-30 03:59 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 03:41 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 03:46 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 03:39 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 03:53 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 03:40 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 03:41 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 04:03 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 03:46 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 03:40 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 03:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 04:02 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 04:03 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 03:37 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-30 03:38 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 03:54 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 04:08 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 03:52 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 04:11 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 03:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 04:02 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 04:05 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 03:51 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 03:51 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 03:51 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 03:51 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 03:43 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 03:58 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:44 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/736979592277.shtml)
-- 2026-06-30 03:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/85333012304.shtml)
-- 2026-06-30 04:04 - [时光音乐会](http://www.share.minike.top/Article/details/268835542.shtml)
-- 2026-06-30 04:02 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/7826412.shtml)
-- 2026-06-30 03:38 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/27293.shtml)
-- 2026-06-30 04:03 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/70913657251.shtml)
-- 2026-06-30 03:57 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/338280727.shtml)
-- 2026-06-30 03:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/34290338559.shtml)
-- 2026-06-30 03:57 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/4018012.shtml)
-- 2026-06-30 03:45 - [王欣瑜2-1击败科恰雷托](https://www.share.minike.top/Article/details/1527146537.shtml)
-- 2026-06-30 03:40 - [孙兴慜道歉](https://www.share.minike.top/Article/details/227995242.shtml)
-- 2026-06-30 03:37 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/93273273.shtml)
-- 2026-06-30 04:00 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/058571834717.shtml)
-- 2026-06-30 03:50 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/969442.shtml)
-- 2026-06-30 03:50 - [世界杯](http://www.share.minike.top/Article/details/24994428792.shtml)
+- 2026-06-30 03:56 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/9143035166.shtml)
+- 2026-06-30 03:45 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/709824231.shtml)
+- 2026-06-30 03:58 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/00187483424.shtml)
+- 2026-06-30 03:50 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/3766356246.shtml)
+- 2026-06-30 04:05 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/41910710622.shtml)
+- 2026-06-30 04:00 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/93556869.shtml)
+- 2026-06-30 03:56 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/3941131.shtml)
+- 2026-06-30 03:51 - [金刚川](http://www.blog.kurohicncr.top/Article/details/497085760148.shtml)
+- 2026-06-30 04:00 - [第一炉香](http://www.blog.minike.top/Article/details/887727015987.shtml)
+- 2026-06-30 03:42 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/955279650751.shtml)
+- 2026-06-30 04:07 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/602969704000.shtml)
+- 2026-06-30 04:10 - [孙兴慜道歉](http://www.share.minike.top/Article/details/964773157.shtml)
+- 2026-06-30 04:01 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/240548165519.shtml)
+- 2026-06-30 03:54 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/30496.shtml)
+- 2026-06-30 04:07 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/3014455420.shtml)

@@ -1,57 +1,59 @@
-# 银行间市场数据报告库在上海正式开业
+# 重庆90%以上珍稀濒危野生动植物资源得到有效保护
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-6月16日，银行间市场数据报告库（上海）股份有限公司（以下简称数据报告库）在上海正式开业。中国人民银行党委委员、副行长邹澜，上海市委常委、常务副市长吴伟出席开业仪式并致辞。 邹澜表示，设立数据报告库有利于及时准确掌握市场整体运行状况，更好服务宏观审慎管理和宏观调控，是银行间市场防风险、强监管、促高质量发展的重要里程碑。希望数据报告库真抓实干、务求实效，以高标准、高质量的金融数据
+中新网重庆6月2日电 (梁钦卿)重庆市政府新闻办2日举行新闻发布会。会上透露，近年来，重庆市划定多处陆生野生动物重要栖息地和候鸟迁飞通道，建成多处林木种质资源库，有效保护全市90%以上的珍稀濒危野生动植物资源，生态系统多样性、稳定性、持续性向好发展。在植物保护方面，针对崖柏、珙桐、红豆杉、伯乐树、连香树及本土兰科植物等十余种珍稀濒危物种，建设种质资源保育基地和人工繁育研究基地，
 
 ## 正文
 
-6月16日，银行间市场数据报告库（上海）股份有限公司（以下简称数据报告库）在上海正式开业。
+中新网重庆6月2日电 (梁钦卿)重庆市政府新闻办2日举行新闻发布会。
 
-中国人民银行党委委员、副行长邹澜，上海市委常委、常务副市长吴伟出席开业仪式并致辞。
+会上透露，近年来，重庆市划定多处陆生野生动物重要栖息地和候鸟迁飞通道，建成多处林木种质资源库，有效保护全市90%以上的珍稀濒危野生动植物资源，生态系统多样性、稳定性、持续性向好发展。
 
-邹澜表示，设立数据报告库有利于及时准确掌握市场整体运行状况，更好服务宏观审慎管理和宏观调控，是银行间市场防风险、强监管、促高质量发展的重要里程碑。
+在植物保护方面，针对崖柏、珙桐、红豆杉、伯乐树、连香树及本土兰科植物等十余种珍稀濒危物种，建设种质资源保育基地和人工繁育研究基地，攻克规模化人工繁育、种苗驯化、野外回归等关键技术，稳步恢复野外种群数量，有效扭转了物种野生资源衰退趋势。
 
-希望数据报告库真抓实干、务求实效，以高标准、高质量的金融数据服务，更好助力宏观审慎管理和金融市场监管，为持续深化上海国际金融中心建设发挥更大作用。
+在动物保护方面，重庆重点攻关本土野外灭绝或濒临灭绝的动物物种恢复工作，全力推进白冠长尾雉、勺鸡、红腹角雉等的繁育与野化放归，建立起全国领先的珍稀濒危雉类繁育野化研究基地，持续开展人工繁育、野化训练、适应性放归试验，稳步重建野外种群，推动本土珍稀濒危野生动物重返巴山渝水。
 
-吴伟表示，数据报告库落地上海，是完善上海金融市场基础设施布局的关键一步，也是上海国际金融中心建设进程中具有标志性意义的重要事件。
+依托成熟的珍稀物种人工繁育和驯化技术，重庆把实验室的研究成果落地到山野乡村。
 
-希望数据报告库以数字化、智能化技术为抓手，不断强化风险智能监测、前瞻研判、精准预警能力，更好助力金融市场平稳安全运行，为持续提升上海国际金融中心能级、服务金融强国建设贡献更大力量。
+重庆合理利用规模化培育的人工种质资源，带动周边群众参与苗木培育、生态修复、野外监测等科研辅助工作，让群众就近稳定增收。
 
-数据报告库由七家单位共同发起设立，通过高频汇集并系统分析银行间债券、货币、衍生品、黄金、票据等金融子市场交易数据，服务金融机构、宏观调控和金融市场监管。
+同时，依托珍稀物种的生态修复、景观观赏、自然科普价值，科学发展苗木培育、自然教育、生态轻康养等绿色业态，把多年的科研保护成果转化为可持续的生态产业优势。
 
-中国人民银行相关司局，上海市政府、相关部门，上海总部、在沪所属单位、数据报告库股东单位负责同志等参加开业仪式。
+下一步，重庆将持续推广成熟的物种保护与价值转化模式，结合缙云山等自然保护区资源特色，针对不同珍稀物种制定科学化、差异化的保护利用方案，推动珍稀濒危物种从“被动守护”向“主动赋能”转变，持续打通生态保护与绿色发展双向通道。
 
 ## 相关推荐
 
-- 2026-06-30 03:59 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 03:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 03:48 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 04:03 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 03:57 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 03:59 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 03:46 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 03:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 03:56 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 03:51 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 03:42 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 03:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 04:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 03:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 03:44 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 04:01 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-30 03:52 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 04:03 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 03:49 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 04:00 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 04:00 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 03:51 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 04:07 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 04:08 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/960747.shtml)
-- 2026-06-30 03:53 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/0620435.shtml)
-- 2026-06-30 03:39 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/020048.shtml)
-- 2026-06-30 03:52 - [日本领先巴西](https://www.blog.minike.top/Article/details/794446897692.shtml)
-- 2026-06-30 03:42 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/55363273.shtml)
-- 2026-06-30 03:57 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/616482.shtml)
-- 2026-06-30 03:37 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/0995268344.shtml)
-- 2026-06-30 03:36 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/805321.shtml)
-- 2026-06-30 03:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/795066768.shtml)
-- 2026-06-30 04:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/6849819507.shtml)
-- 2026-06-30 03:47 - [流金岁月](https://www.share.kurohicncr.top/Article/details/62206018.shtml)
-- 2026-06-30 03:39 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/90604516.shtml)
-- 2026-06-30 03:51 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/3243588721.shtml)
-- 2026-06-30 03:38 - [速度与激情9](http://www.blog.minike.top/Article/details/17499.shtml)
-- 2026-06-30 03:55 - [爱很美味](https://www.blog.minike.top/Article/details/903522714443.shtml)
+- 2026-06-30 03:46 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/39680650.shtml)
+- 2026-06-30 04:05 - [乔家的儿女](http://www.blog.minike.top/Article/details/8287847.shtml)
+- 2026-06-30 03:51 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/54161535.shtml)
+- 2026-06-30 04:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/69750770895.shtml)
+- 2026-06-30 03:52 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/66586638.shtml)
+- 2026-06-30 04:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/835516.shtml)
+- 2026-06-30 04:06 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/22085896776.shtml)
+- 2026-06-30 04:05 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/36494.shtml)
+- 2026-06-30 03:58 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/5290544265.shtml)
+- 2026-06-30 03:43 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/72364674080.shtml)
+- 2026-06-30 04:02 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/9224108.shtml)
+- 2026-06-30 03:56 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/36852.shtml)
+- 2026-06-30 04:09 - [刘念回应](http://www.blog.minike.top/Article/details/886695.shtml)
+- 2026-06-30 04:06 - [女心理师](https://www.share.kurohicncr.top/Article/details/30463191004.shtml)
+- 2026-06-30 04:08 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/85873324.shtml)

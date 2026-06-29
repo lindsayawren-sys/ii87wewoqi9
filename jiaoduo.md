@@ -1,50 +1,55 @@
-# A股开盘：超3600只个股飘绿，三大指数集体低开
+# 韩正会见英国外交大臣库珀
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-A股开盘：超3600只个股飘绿，三大指数集体低开；通信设备、石油化工、半导体板块下跌，海运、航空、保险上涨 17日，A股三大指数集体低开，上证指数跌0.43%，深证成指跌0.67%，创业板指跌1.01%。全市超3600只个股飘绿。 板块方面，休闲用品、海运、航空、保险等板块上涨；通信设备、石油化工、半导体、电脑硬件等板块跌幅居前。
+新华社北京6月2日电 6月2日，国家副主席韩正在北京会见英国外交大臣库珀。 韩正表示，今年1月，习近平主席同斯塔默首相一致同意发展中英长期稳定的全面战略伙伴关系，开启两国关系新篇章。中英关系改善发展符合两国人民利益。双方要携手承担大国责任，加强战略沟通，巩固双边关系良好势头，不断挖掘新机遇，孕育新动能，促进人文交流和民心相通。共同践行真正的多边主义，携手推进全球治理体系改革，为
 
 ## 正文
 
-A股开盘：超3600只个股飘绿，三大指数集体低开；通信设备、石油化工、半导体板块下跌，海运、航空、保险上涨 17日，A股三大指数集体低开，上证指数跌0.43%，深证成指跌0.67%，创业板指跌1.01%。
+新华社北京6月2日电 6月2日，国家副主席韩正在北京会见英国外交大臣库珀。
 
-全市超3600只个股飘绿。
+韩正表示，今年1月，习近平主席同斯塔默首相一致同意发展中英长期稳定的全面战略伙伴关系，开启两国关系新篇章。
 
-板块方面，休闲用品、海运、航空、保险等板块上涨；通信设备、石油化工、半导体、电脑硬件等板块跌幅居前。
+中英关系改善发展符合两国人民利益。
+
+双方要携手承担大国责任，加强战略沟通，巩固双边关系良好势头，不断挖掘新机遇，孕育新动能，促进人文交流和民心相通。
+
+共同践行真正的多边主义，携手推进全球治理体系改革，为世界注入更多稳定性和确定性。
+
+库珀表示，英中在经贸投资、人工智能、绿色发展、应对气变等领域拥有广泛共同利益和合作潜力。
+
+英方愿同中方推进落实两国领导人达成的重要共识，开展建设性对话和合作，共同应对挑战。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 03:46 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 04:00 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 04:03 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 03:40 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 03:51 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 03:43 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 03:39 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 03:41 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 03:56 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 03:46 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 03:47 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 03:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 03:37 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 04:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 03:52 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 04:09 - [日本淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 03:49 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 03:59 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 03:56 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 03:59 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 04:06 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-30 04:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 03:52 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 04:09 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:46 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/067787605619.shtml)
-- 2026-06-30 03:56 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/4772934.shtml)
-- 2026-06-30 03:42 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/583483.shtml)
-- 2026-06-30 03:38 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/0315819034.shtml)
-- 2026-06-30 03:56 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/664986965.shtml)
-- 2026-06-30 03:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/340729280738.shtml)
-- 2026-06-30 04:01 - [勇敢的心第二部](http://www.share.minike.top/Article/details/07965301.shtml)
-- 2026-06-30 03:56 - [月亮](http://www.share.kurohicncr.top/Article/details/4987557.shtml)
-- 2026-06-30 03:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/884967656640.shtml)
-- 2026-06-30 04:03 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/970346451271.shtml)
-- 2026-06-30 03:50 - [孙兴慜道歉](http://www.share.minike.top/Article/details/94764.shtml)
-- 2026-06-30 03:57 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/13784418736.shtml)
-- 2026-06-30 03:39 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/19502320.shtml)
-- 2026-06-30 03:41 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/05358.shtml)
-- 2026-06-30 04:02 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/69424403.shtml)
+- 2026-06-30 03:49 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/6642232095.shtml)
+- 2026-06-30 03:46 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/07392732494.shtml)
+- 2026-06-30 04:01 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/96120398.shtml)
+- 2026-06-30 03:59 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/3848011.shtml)
+- 2026-06-30 03:45 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/712689474333.shtml)
+- 2026-06-30 03:44 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/1060761.shtml)
+- 2026-06-30 04:00 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/909642548973.shtml)
+- 2026-06-30 04:09 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/24504.shtml)
+- 2026-06-30 04:05 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/147247787892.shtml)
+- 2026-06-30 03:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/4542439066.shtml)
+- 2026-06-30 03:57 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/094321242.shtml)
+- 2026-06-30 04:03 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/7043324600.shtml)
+- 2026-06-30 03:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/666418319.shtml)
+- 2026-06-30 03:50 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/531252.shtml)
+- 2026-06-30 04:07 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/49047.shtml)

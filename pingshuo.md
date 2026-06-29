@@ -1,49 +1,48 @@
-# 吴清：中国资产的安全+韧性+创新价值，受到国际投资者广泛关注和青睐
+# 美元走强 有报道称伊朗停止与美国的沟通
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，随着新“国九条”和“1+N”政策体系各项任务落地实施，中国资本市场发生了积极而深刻的变化，市场运行稳健活跃，市场结构持续改善，韧性和抗风险能力不断提升，经受了关税战贸易战和中东冲突等重大风险考验。当前，全球金融资产正在经历深度再平衡、再配置，中国经济长期向好、科
+彭博美元现货指数飙升至盘中高点，所有G-10货币相对于美元当日都走低，之前塔斯尼姆通讯社报道称，为了抗议以色列相关活动，伊朗将停止与美国的沟通。 彭博美元现货指数一度上涨0.3%；新西兰元和瑞士法郎领跌G-10货币。责任编辑：刘明亮
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，随着新“国九条”和“1+N”政策体系各项任务落地实施，中国资本市场发生了积极而深刻的变化，市场运行稳健活跃，市场结构持续改善，韧性和抗风险能力不断提升，经受了关税战贸易战和中东冲突等重大风险考验。
+彭博美元现货指数飙升至盘中高点，所有G-10货币相对于美元当日都走低，之前塔斯尼姆通讯社报道称，为了抗议以色列相关活动，伊朗将停止与美国的沟通。
 
-当前，全球金融资产正在经历深度再平衡、再配置，中国经济长期向好、科技和产业向新向优、宏观政策稳定有力，中国资产的安全价值、韧性价值和创新价值正受到国际投资者广泛关注和青睐。
+彭博美元现货指数一度上涨0.3%；新西兰元和瑞士法郎领跌G-10货币。
 
-我们将以钉钉子精神抓好新“国九条”和“1+N”政策体系落地见效，全力巩固资本市场稳中向好势头，促进资本市场长期投资价值不断提升，持续筑牢高质量发展内在基础。
-
-责任编辑：常福强
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 03:57 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 03:52 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 03:48 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 03:44 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 03:39 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 03:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 03:50 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 04:00 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 03:44 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 03:43 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 03:41 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 03:53 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 03:45 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 04:10 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 03:53 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 04:10 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 03:52 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 03:43 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 04:00 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 03:55 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 04:09 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 04:07 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 03:45 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:36 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/5893355.shtml)
-- 2026-06-30 03:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/939468.shtml)
-- 2026-06-30 03:52 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/4384477.shtml)
-- 2026-06-30 03:36 - [日本进球](https://www.share.minike.top/Article/details/173851661335.shtml)
-- 2026-06-30 03:38 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/69443666042.shtml)
-- 2026-06-30 03:36 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/256815603341.shtml)
-- 2026-06-30 03:49 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/125439.shtml)
-- 2026-06-30 03:42 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/98121.shtml)
-- 2026-06-30 03:48 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/78571.shtml)
-- 2026-06-30 04:04 - [沙丘](http://www.blog.kurohicncr.top/Article/details/24645147431.shtml)
-- 2026-06-30 03:59 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/612422.shtml)
-- 2026-06-30 03:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/817618262.shtml)
-- 2026-06-30 03:41 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/142877106.shtml)
-- 2026-06-30 03:41 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/7667993121.shtml)
-- 2026-06-30 03:43 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/67894026768.shtml)
+- 2026-06-30 04:01 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/2681488.shtml)
+- 2026-06-30 04:09 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/889739.shtml)
+- 2026-06-30 04:03 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/621173750840.shtml)
+- 2026-06-30 03:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/89053316798.shtml)
+- 2026-06-30 03:47 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/85265052281.shtml)
+- 2026-06-30 03:43 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/658232268.shtml)
+- 2026-06-30 03:51 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/419797.shtml)
+- 2026-06-30 03:56 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/4644174624.shtml)
+- 2026-06-30 03:45 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/118292973970.shtml)
+- 2026-06-30 03:55 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/311061.shtml)
+- 2026-06-30 04:02 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/214886578.shtml)
+- 2026-06-30 03:53 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/98997941.shtml)
+- 2026-06-30 03:46 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/271891982329.shtml)
+- 2026-06-30 03:48 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/86410944445.shtml)
+- 2026-06-30 03:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/077344.shtml)

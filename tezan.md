@@ -1,55 +1,59 @@
-# 刘珺：金融服务和金融范式需要在边界进行定义、在极限进行思维，向边界条件上寻求焦点解
+# 央行上海总部谈深化上海全球资产管理中心建设：拓宽境外机构投资境内人民币资产的途径
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，中国工商银行行长刘珺出席2026陆家嘴论坛，并参加主题为“健全科技金融全生命周期服务体系，服务实体经济高质量发展”的主题演讲。 刘珺指出，科技金融是特别复杂的系统化概念，现在看到科技金融的重要性是基于科技对当代全球经济增长和人类福祉提升的决定性意义，同时反观科技创新前沿发展也会发现，它正在不断
+近日，上海市人民政府办公厅印发《关于深化上海全球资产管理中心建设的若干意见》的通知，自2026年6月1日起施行。 6月2日，中国人民银行上海总部宏观审慎管理部主任葛庆在新闻通气会上表示，建设全球资产管理中心，是上海国际金融中心能级提升的重要抓手，也是人民币国际化的重要的应用场景。一方面，成熟开放的资管市场能够吸引全球资本配置人民币资产，持续增强人民币的计价、投资、储备功能，夯实
 
 ## 正文
 
-专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月18日金融一线消息，中国工商银行行长刘珺出席2026陆家嘴论坛，并参加主题为“健全科技金融全生命周期服务体系，服务实体经济高质量发展”的主题演讲。
+近日，上海市人民政府办公厅印发《关于深化上海全球资产管理中心建设的若干意见》的通知，自2026年6月1日起施行。
 
-刘珺指出，科技金融是特别复杂的系统化概念，现在看到科技金融的重要性是基于科技对当代全球经济增长和人类福祉提升的决定性意义，同时反观科技创新前沿发展也会发现，它正在不断逼近物理极限和工程极限，对资源投入的要求趋于极值化。
+6月2日，中国人民银行上海总部宏观审慎管理部主任葛庆在新闻通气会上表示，建设全球资产管理中心，是上海国际金融中心能级提升的重要抓手，也是人民币国际化的重要的应用场景。
 
-金融服务和金融范式需要在边界进行定义，在极限进行思维，在集成解的基础上，向边界条件上寻求它的焦点解。
+一方面，成熟开放的资管市场能够吸引全球资本配置人民币资产，持续增强人民币的计价、投资、储备功能，夯实人民币国际化的市场根基。
 
-“以前我们认为，科技创新基于某个前沿科技创新领域，对这个领域做一定程度的研究，适配一定金融服务，把它推而广之，现在不行，很多颠覆性科技技术在边界上进行定位，如果不能对边界做准确把握，科技金融服务一定不会特别到位。
+另一方面，人民币跨境使用场景不断丰富、跨境金融基础设施持续完善，也能进一步增强上海资管市场的全球吸引力和竞争力。
 
-”责任编辑：曹睿潼
+葛庆表示，下一步将抓好各项政策的贯彻落实，持续深化金融对外开放，稳步扩大金融市场互联互通，不断优化跨境金融服务，进一步提升人民币资产的全球的吸引力和定价吸引力。
+
+一是持续畅通跨境投融资双向渠道，落地落实跨境投融资的各项便利化政策，拓宽境外机构投资境内人民币资产的途径，优化跨境资金结算流程。
+
+二是持续丰富人民币资产供给，稳步扩大熊猫债的规模，完善绿色人民币债券等特色产品体系，打造多元化、差异化的人民币资产矩阵，满足全球不同类型投资者的配置，避险和收益需求。
+
+三是聚焦制度型开放创新，探索离岸金融服务创新，推动自贸离岸债的发展，打造制度开放新高地。
 
 ## 相关推荐
 
-- 2026-06-30 03:56 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 04:05 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 03:48 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 03:41 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 03:44 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 03:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 04:05 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 04:02 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 03:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 03:46 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 03:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 03:55 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 03:51 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 03:36 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 03:58 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 03:57 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 03:48 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-30 03:42 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 03:58 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 03:43 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 03:48 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 04:03 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 04:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 04:00 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 03:51 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 03:55 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 04:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 03:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:00 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/58932056722.shtml)
-- 2026-06-30 03:46 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/08574460.shtml)
-- 2026-06-30 03:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/1406891268.shtml)
-- 2026-06-30 03:55 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/278300219.shtml)
-- 2026-06-30 03:38 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/26292711117.shtml)
-- 2026-06-30 03:57 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/109331.shtml)
-- 2026-06-30 03:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/562567636513.shtml)
-- 2026-06-30 04:02 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/129688.shtml)
-- 2026-06-30 03:53 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/1425932093.shtml)
-- 2026-06-30 04:04 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/40788031203.shtml)
-- 2026-06-30 03:43 - [电影后室值得看吗](http://www.share.minike.top/Article/details/87175053531.shtml)
-- 2026-06-30 03:46 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/997439353299.shtml)
-- 2026-06-30 03:55 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/6549816049.shtml)
-- 2026-06-30 03:50 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/07283.shtml)
-- 2026-06-30 04:01 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/511683.shtml)
+- 2026-06-30 04:11 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/942411.shtml)
+- 2026-06-30 04:05 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/992217.shtml)
+- 2026-06-30 03:59 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/6998987271.shtml)
+- 2026-06-30 03:58 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/485801.shtml)
+- 2026-06-30 04:08 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/26927.shtml)
+- 2026-06-30 03:53 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/9129907436.shtml)
+- 2026-06-30 04:03 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/53423467.shtml)
+- 2026-06-30 03:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/56503.shtml)
+- 2026-06-30 03:50 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/33106004.shtml)
+- 2026-06-30 04:06 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/46784602541.shtml)
+- 2026-06-30 04:10 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/750963765.shtml)
+- 2026-06-30 04:08 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/091258267145.shtml)
+- 2026-06-30 03:55 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/08380239112.shtml)
+- 2026-06-30 04:11 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/362061.shtml)
+- 2026-06-30 04:01 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/98849.shtml)

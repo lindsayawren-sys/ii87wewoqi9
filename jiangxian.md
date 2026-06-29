@@ -1,57 +1,59 @@
-# 主打“均码通穿”的服饰品牌关闭试衣间
+# 刚果（金）暴发埃博拉疫情 外交部：此时此刻中国医疗队就在当地坚守
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-布兰迪・梅尔维尔的年轻顾客们怨声载道，却依旧选择进店消费 内容速览 以 “均码适配大多数人” 服饰出圈的布兰迪・梅尔维尔，宣布关闭旗下门店试衣间。 长久以来，布兰迪・梅尔维尔的消费者一直纠结于一个问题：店里这些潮流的 “均码款” 衣服到底合不合身。 如今这个问题变得更难找到答案了 —— 该品牌门店全面关停了试衣间。 TikTok 上数十位年轻消费者纷纷吐槽这一新规：有人拍下自己
+中新网北京6月1日电 (记者 黄钰钦 谢雁冰)中国外交部发言人林剑6月1日主持例行记者会。 有记者提问：近期，刚果(金)暴发新一轮埃博拉疫情。世界卫生组织和非洲疾控中心呼吁国际社会积极支持非洲抗疫。请问中方采取了哪些措施支持非方应对本轮埃博拉疫情？ 林剑：中非是风雨同舟、患难与共的好兄弟，我们对当前刚果(金)暴发新一轮埃博拉疫情感同身受。王毅外长近日在纽约主持联合国安理会高级别
 
 ## 正文
 
-布兰迪・梅尔维尔的年轻顾客们怨声载道，却依旧选择进店消费 内容速览 以 “均码适配大多数人” 服饰出圈的布兰迪・梅尔维尔，宣布关闭旗下门店试衣间。
+中新网北京6月1日电 (记者 黄钰钦 谢雁冰)中国外交部发言人林剑6月1日主持例行记者会。
 
-长久以来，布兰迪・梅尔维尔的消费者一直纠结于一个问题：店里这些潮流的 “均码款” 衣服到底合不合身。
+有记者提问：近期，刚果(金)暴发新一轮埃博拉疫情。
 
-如今这个问题变得更难找到答案了 —— 该品牌门店全面关停了试衣间。
+世界卫生组织和非洲疾控中心呼吁国际社会积极支持非洲抗疫。
 
-TikTok 上数十位年轻消费者纷纷吐槽这一新规：有人拍下自己直接在店内裤子外面套试穿半身裙的视频，还有人表示下次会直接穿着泳衣到店里试衣服。
+请问中方采取了哪些措施支持非方应对本轮埃博拉疫情？
 
-此次突然关停试衣间的具体原因尚未明确。
+林剑：中非是风雨同舟、患难与共的好兄弟，我们对当前刚果(金)暴发新一轮埃博拉疫情感同身受。
 
-布兰迪・梅尔维尔并未公开回应这项新规，但部分门店员工透露，一方面是门店失窃案件大幅增多；另一方面，不少顾客会用口香糖把试衣间容易滑落的窗帘粘在墙上保护隐私，这类行为在 TikTok 上被大量曝光。
+王毅外长近日在纽约主持联合国安理会高级别会议时表示，在重大公共危机面前，中国千里驰援。
 
-去年一条播放量超 70 万的 TikTok 视频里，一名门店员工用纸巾清理窗帘上残留的口香糖，配文写道：“恳请大家不要再把口香糖粘在试衣间了，所有布兰迪・梅尔维尔员工敬上。
+继2015年全力支持西非三国抗击埃博拉疫情之后，中国将向近期暴发埃博拉疫情的刚果(金)等积极提供帮助。
 
-” 深受少女群体喜爱的布兰迪・梅尔维尔，多年来始终深陷各类争议。
+为此，中国政府决定向刚果(金)提供紧急人道主义援助，并专门派遣医疗专家组赴刚提供医疗服务和帮助。
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-30 04:00 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-30 03:38 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 03:44 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 03:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 04:02 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 03:56 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 03:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 03:40 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 04:04 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 03:56 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 03:55 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 03:56 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 03:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 04:03 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 03:52 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 04:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 03:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 03:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 03:47 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 04:03 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-30 04:10 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 04:08 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-30 04:09 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:58 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/0201171.shtml)
-- 2026-06-30 03:44 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/25046844814.shtml)
-- 2026-06-30 03:53 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/623379175057.shtml)
-- 2026-06-30 03:40 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/956191564804.shtml)
-- 2026-06-30 03:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/630954384944.shtml)
-- 2026-06-30 03:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/29920640387.shtml)
-- 2026-06-30 03:53 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/17236191.shtml)
-- 2026-06-30 03:41 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/96589.shtml)
-- 2026-06-30 03:53 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/0365104.shtml)
-- 2026-06-30 03:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/0630867793.shtml)
-- 2026-06-30 03:37 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/8886315.shtml)
-- 2026-06-30 04:01 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/680208420.shtml)
-- 2026-06-30 03:56 - [爱很美味](https://www.share.kurohicncr.top/Article/details/70605878.shtml)
-- 2026-06-30 03:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/716184.shtml)
-- 2026-06-30 04:00 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/62792477337.shtml)
+- 2026-06-30 04:08 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/8371310.shtml)
+- 2026-06-30 03:46 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/2298922465.shtml)
+- 2026-06-30 04:09 - [日本进球](https://www.share.kurohicncr.top/Article/details/0562820955.shtml)
+- 2026-06-30 03:54 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/88286.shtml)
+- 2026-06-30 03:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/224417581.shtml)
+- 2026-06-30 03:50 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/95185639953.shtml)
+- 2026-06-30 04:11 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/82919648.shtml)
+- 2026-06-30 04:03 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/3106579.shtml)
+- 2026-06-30 04:07 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/7160989.shtml)
+- 2026-06-30 03:48 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/425086.shtml)
+- 2026-06-30 03:46 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/90161493.shtml)
+- 2026-06-30 04:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/4622639162.shtml)
+- 2026-06-30 04:09 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/948736044680.shtml)
+- 2026-06-30 03:59 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/591351310831.shtml)
+- 2026-06-30 03:43 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/6313729.shtml)

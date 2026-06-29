@@ -1,55 +1,59 @@
-# 淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护
+# 002982突发！价值400余万元鸡蛋被非法侵占，6人获刑
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网北京6月17日电(左雨晴) 6月17日，国家市场监管总局就《外卖平台补贴行为规范十条》正式面向社会公开征求意见。淘宝闪购、美团、京东外卖随后发文回应称，坚决拥护国家规范外卖平台补贴行为 。 淘宝闪购称，对于《外卖平台补贴行为规范十条(征求意见稿)》，我们将与行业各方一道，共同维护公平有序的市场竞争环境。 美团表示，外卖行业长周期大规模补贴等非理性竞争，扰乱了正常的市场秩序
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华夏时报 湖南湘佳牧业股份有限公司（下称“湘佳股份”，002982.SZ）价值400余万元鸡蛋被非法侵占，6人被刑事追责，其中4人为公司员工。 6月1日，湖南省石门县人民法院（下称“石门法院”）发布通报，经审理查明，被告人吴某、金某、陈某、唐某四人均为湘佳股份员工，在非种蛋库从事保管员工作。 2021
 
 ## 正文
 
-中新网北京6月17日电(左雨晴) 6月17日，国家市场监管总局就《外卖平台补贴行为规范十条》正式面向社会公开征求意见。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-淘宝闪购、美团、京东外卖随后发文回应称，坚决拥护国家规范外卖平台补贴行为 。
+来源：华夏时报 湖南湘佳牧业股份有限公司（下称“湘佳股份”，002982.SZ）价值400余万元鸡蛋被非法侵占，6人被刑事追责，其中4人为公司员工。
 
-淘宝闪购称，对于《外卖平台补贴行为规范十条(征求意见稿)》，我们将与行业各方一道，共同维护公平有序的市场竞争环境。
+6月1日，湖南省石门县人民法院（下称“石门法院”）发布通报，经审理查明，被告人吴某、金某、陈某、唐某四人均为湘佳股份员工，在非种蛋库从事保管员工作。
 
-美团表示，外卖行业长周期大规模补贴等非理性竞争，扰乱了正常的市场秩序。
+2021年1月至2024年9月，被告人姚某、王某在向湘佳股份购买鸡蛋的过程中，分别与被告人吴某等四人相互勾结，利用吴某职务便利，通过更改鸡蛋出库件数、虚报数据、多提少记等方式侵占湘佳股份鸡蛋，被侵占鸡蛋价值超400万元，6名被告人非法获利11万余元——388万余元不等。
 
-此次《外卖平台补贴行为规范十条(征求意见稿)》的出台，将明确补贴行为的合规边界，有力遏制外卖行业“内卷式”竞争，促进行业规范健康发展。
+石门法院认为，被告人姚某、王某利用被告人吴某的职务便利，将湘佳股份的财物非法占为己有，被告人陈某、金某、唐某明知他人利用吴某的职务便利，侵占单位财物，仍参与配合，6名被告人的行为均已构成职务侵占罪。
 
-京东外卖称，将不断规范补贴行为，持续推进行业反内卷，拒绝恶性低价竞争。
+综合考虑各被告人的犯罪情节、社会危害性、认罪悔罪态度等，石门法院一审判处被告人姚某有期徒刑四年九个月，并处罚金人民币三十万元；判处被告人吴某有期徒刑三年六个月，并处罚金人民币二十一万元；判处被告人陈某有期徒刑一年九个月，缓刑两年，并处罚金人民币十一万元；判处被告人唐某有期徒刑一年六个月，缓刑一年九个月，并处罚金人民币十万五千元；判处被告人金某有期徒刑一年四个月，缓刑一年六个月，并处罚金人民币十万五千元；判处被告人王某有期徒刑九个月，并处罚金人民币十万元。
+
+公开资料显示，湘佳股份创始于1991年，是一家集畜禽、柑橘种养加工销售为一体的企业，旗下拥有全资和控股子公司近20家，员工7000余人，自养基地50多处。
+
+2020年4月，湘佳股份成功上市，成为中国鲜禽第一股。
 
 ## 相关推荐
 
-- 2026-06-30 04:04 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 03:41 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 03:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 03:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 03:44 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 03:43 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-30 04:01 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 04:02 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 03:36 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 03:41 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 04:02 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 03:59 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 03:36 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 03:54 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 03:59 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 04:07 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 04:06 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 04:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 03:57 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 04:06 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 03:47 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 04:03 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 04:05 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 04:04 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 03:59 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 03:45 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:52 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/17571457.shtml)
-- 2026-06-30 03:47 - [美股](https://www.blog.minike.top/Article/details/638264999348.shtml)
-- 2026-06-30 04:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/66683.shtml)
-- 2026-06-30 03:54 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/45687.shtml)
-- 2026-06-30 03:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/43925586.shtml)
-- 2026-06-30 03:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/655024196.shtml)
-- 2026-06-30 04:00 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/52994.shtml)
-- 2026-06-30 03:50 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/8614423476.shtml)
-- 2026-06-30 03:55 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/350898997843.shtml)
-- 2026-06-30 03:59 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/215603406096.shtml)
-- 2026-06-30 03:49 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/46386.shtml)
-- 2026-06-30 03:40 - [明星大侦探第一季](http://www.share.minike.top/Article/details/97546357176.shtml)
-- 2026-06-30 03:52 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/74687.shtml)
-- 2026-06-30 04:05 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/851131966586.shtml)
-- 2026-06-30 03:58 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/83671210677.shtml)
+- 2026-06-30 04:06 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/95961871992.shtml)
+- 2026-06-30 04:04 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/002300.shtml)
+- 2026-06-30 04:10 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/85583.shtml)
+- 2026-06-30 03:59 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/5358400.shtml)
+- 2026-06-30 04:08 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/6070717.shtml)
+- 2026-06-30 03:52 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/841490.shtml)
+- 2026-06-30 03:56 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/93094930.shtml)
+- 2026-06-30 03:56 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/53500.shtml)
+- 2026-06-30 04:11 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/68833.shtml)
+- 2026-06-30 04:08 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/85693.shtml)
+- 2026-06-30 03:43 - [千香](https://www.blog.minike.top/Article/details/601010631028.shtml)
+- 2026-06-30 03:49 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/7359496.shtml)
+- 2026-06-30 04:09 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/70113917.shtml)
+- 2026-06-30 03:48 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/75300690776.shtml)
+- 2026-06-30 04:00 - [千与千寻](https://www.blog.minike.top/Article/details/29546277.shtml)

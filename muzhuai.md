@@ -1,59 +1,60 @@
-# 东西问丨阿努拉：十届南博会，一叶清茶何以架起文明对话之桥？
+# 白天干的糗事，为什么一到晚上大脑就喜欢反复？还有救吗？
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新社昆明6月17日电 题：十届南博会，一叶清茶何以架起文明对话之桥？ ——专访中国斯里兰卡“一带一路”商贸合作商会主席阿努拉 作者 时文枝 6月11日至16日，第10届中国—南亚博览会在云南昆明举行。 作为“全勤”客商，中国斯里兰卡“一带一路”商贸合作商会主席、斯里兰卡茶商阿努拉·班达(Anura Banda)亲历了南博会变迁。这位因武术结缘中国、最终投身茶业的斯里兰卡商人，
+相信很多人都有过这样的经历：白天发生的一件小糗事，到了晚上却在脑子里自动循环播放，怎么都关不掉。 比如，躺在床上正准备睡觉，白天开会时说错的一句话却突然蹦出来，开始在脑海里反复回放当时所有人的反应；或者一场还算顺利的汇报结束后，脑子却盯着某个听众皱眉的瞬间，放大、再放大。 明明事情已经过去了，大脑为什么偏偏要在安静下来的时候，把那些尴尬和后悔翻出来反复咀嚼呢？这和大脑的默认工作
 
 ## 正文
 
-中新社昆明6月17日电 题：十届南博会，一叶清茶何以架起文明对话之桥？
+相信很多人都有过这样的经历：白天发生的一件小糗事，到了晚上却在脑子里自动循环播放，怎么都关不掉。
 
-——专访中国斯里兰卡“一带一路”商贸合作商会主席阿努拉 作者 时文枝 6月11日至16日，第10届中国—南亚博览会在云南昆明举行。
+比如，躺在床上正准备睡觉，白天开会时说错的一句话却突然蹦出来，开始在脑海里反复回放当时所有人的反应；或者一场还算顺利的汇报结束后，脑子却盯着某个听众皱眉的瞬间，放大、再放大。
 
-作为“全勤”客商，中国斯里兰卡“一带一路”商贸合作商会主席、斯里兰卡茶商阿努拉·班达(Anura Banda)亲历了南博会变迁。
+明明事情已经过去了，大脑为什么偏偏要在安静下来的时候，把那些尴尬和后悔翻出来反复咀嚼呢？
 
-这位因武术结缘中国、最终投身茶业的斯里兰卡商人，近日在昆明接受中新社“东西问”专访，分享他的十届南博会观察。
+这和大脑的默认工作机制有关。
 
-现将访谈实录摘要如下： 中新社记者：您因武术结缘中国，最终投身茶业。
+但别担心，有很多方法可以帮我们跳出这一恶性循环。
 
-在您看来，茶为何能成为连接中斯两国的桥梁？
+反刍≠反思！
 
-阿努拉：斯里兰卡与中国是传统友好邻邦。
+这种围绕自我评价、个人困扰或痛苦经历反复出现、持续盘旋的负面思考，被称为反刍思维(rumination)。
 
-中国明代航海家郑和下西洋时多次抵达斯里兰卡。
+很多人会误以为，反刍是一种反思，其实不然。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 03:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 03:39 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 03:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 03:38 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 03:53 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 03:39 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 03:53 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 03:38 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 03:46 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 03:48 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 03:46 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 03:37 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 03:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 04:07 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 04:09 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 03:49 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 03:49 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 03:47 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 04:08 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 03:55 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 04:06 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 03:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 03:46 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 04:09 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 03:45 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 03:49 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:45 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/9215369.shtml)
-- 2026-06-30 03:42 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/77097.shtml)
-- 2026-06-30 03:36 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/859375.shtml)
-- 2026-06-30 03:45 - [恋与深空 日服](https://www.share.minike.top/Article/details/43903627.shtml)
-- 2026-06-30 04:05 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/080546512.shtml)
-- 2026-06-30 03:52 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/8234304.shtml)
-- 2026-06-30 03:45 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/70408.shtml)
-- 2026-06-30 03:42 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/030366626.shtml)
-- 2026-06-30 03:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/29700.shtml)
-- 2026-06-30 03:55 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/994417205139.shtml)
-- 2026-06-30 04:01 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/61898.shtml)
-- 2026-06-30 04:02 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/800634043.shtml)
-- 2026-06-30 03:44 - [小娘惹](http://www.blog.minike.top/Article/details/897113975.shtml)
-- 2026-06-30 04:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/119062.shtml)
-- 2026-06-30 03:49 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/382526444.shtml)
+- 2026-06-30 04:08 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/8361809737.shtml)
+- 2026-06-30 04:01 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/273169361.shtml)
+- 2026-06-30 03:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/67083.shtml)
+- 2026-06-30 03:42 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/52124.shtml)
+- 2026-06-30 03:52 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/29518.shtml)
+- 2026-06-30 03:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/41517825580.shtml)
+- 2026-06-30 03:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/447332822711.shtml)
+- 2026-06-30 04:02 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/286139882.shtml)
+- 2026-06-30 04:02 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/1369403.shtml)
+- 2026-06-30 04:07 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/84317.shtml)
+- 2026-06-30 04:04 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/8899321006.shtml)
+- 2026-06-30 03:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/650774698152.shtml)
+- 2026-06-30 03:55 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/58860.shtml)
+- 2026-06-30 04:01 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/690325.shtml)
+- 2026-06-30 04:06 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/025944.shtml)

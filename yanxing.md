@@ -1,56 +1,57 @@
-# 对接国家战略 辽宁高校人才培养呈现“冷热”新图景
+# Gossamer Bio证券集体诉讼截止日期今晚到期，Faruqi & Faruqi鼓励受损投资者联系
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-中新网沈阳6月16日电(姜月恒 禹瑞斋)在高校毕业生就业市场与高等教育专业调整的双重坐标下，一幅人才供需精准匹配的新图景正在辽宁展开。一边是看似“冷门”的工科专业凭借高就业率成为就业市场的“硬通货”；另一边是高校敏锐地捕捉社会需求，新设专业。近日，记者走进辽宁省两所高校，了解到高等教育正加速从“供给导向”向“需求导向”深刻转型。 “冷门”不冷：安全领域人才需求旺盛 沈阳理工大学
+纽约知名国家安全诉讼律所Faruqi & Faruqi， LLP正在对Gossamer Bio， Inc．展开调查，并提醒投资者，在该公司证券集体诉讼中寻求担任首席原告的截止日期为2026年6月1日。 该诉讼代表在2025年6月16日至2026年2月20日期间购买或以其他方式收购Gossamer Bio证券的所有个人和实体提起。 诉讼指控称，在整个集体诉讼期内，被告做出了虚假和
 
 ## 正文
 
-中新网沈阳6月16日电(姜月恒 禹瑞斋)在高校毕业生就业市场与高等教育专业调整的双重坐标下，一幅人才供需精准匹配的新图景正在辽宁展开。
+纽约知名国家安全诉讼律所Faruqi & Faruqi， LLP正在对Gossamer Bio， Inc．展开调查，并提醒投资者，在该公司证券集体诉讼中寻求担任首席原告的截止日期为2026年6月1日。
 
-一边是看似“冷门”的工科专业凭借高就业率成为就业市场的“硬通货”；另一边是高校敏锐地捕捉社会需求，新设专业。
+该诉讼代表在2025年6月16日至2026年2月20日期间购买或以其他方式收购Gossamer Bio证券的所有个人和实体提起。
 
-近日，记者走进辽宁省两所高校，了解到高等教育正加速从“供给导向”向“需求导向”深刻转型。
+诉讼指控称，在整个集体诉讼期内，被告做出了虚假和/或误导性陈述，且/或未能披露以下事项：公司3期PROSERA试验的设计存在缺陷，特别是在控制拉丁美洲试验点的安慰剂反应方面存在不足。
 
-“冷门”不冷：安全领域人才需求旺盛 沈阳理工大学，其特色专业常年因名称带有“安全”“爆炸”等字眼而被部分考生视为“冷门”。
+2026年2月23日，Gossamer Bio公布了PROSERA试验的顶线结果，该试验评估了seralutinib治疗肺动脉高压的疗效。
 
-然而，在近年来的就业市场上，这些专业却呈现出供不应求的火热态势。
+结果显示，试验未能达到第24周改善六分钟步行距离的主要终点，经安慰剂校正后的改善仅为13.3米，p值为0.0320，未能达到0.025的预设统计学阈值。
 
-6月的沈阳理工大学，弹药工程与爆炸技术、安全工程等专业的教学与实训正在有序进行。
+公司将这一失败归因于拉丁美洲试验点患者表现出的“超大安慰剂反应”。
 
-“弹药工程与爆炸技术专业毕业生服务于民用爆破等领域，可替代性非常低。
+据披露，这些地区的患者属于“经过大量治疗的低风险人群”，在安慰剂对照下表现异常出色，包括一些“超级反应者”在仅使用安慰剂的情况下步行改善超过100米。
 
-”沈阳理工大学弹药工程与爆炸技术专业教研室主任郭文凤介绍到，此专业融合多学科知识，适配行业复合型技术人才需求。
+试验失败的消息导致Gossamer Bio股价从2月20日的每股2.13美元收盘价暴跌至2月23日的0.42美元，单日跌幅超过80%。
 
 ## 相关推荐
 
-- 2026-06-30 03:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 03:45 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 03:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 03:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 03:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 03:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 03:52 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 04:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 03:42 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 03:38 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 04:00 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 04:02 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 03:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 04:08 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 03:53 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 03:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 04:09 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 03:44 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 04:09 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 04:04 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 03:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:40 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/4783515519.shtml)
-- 2026-06-30 03:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/9841422.shtml)
-- 2026-06-30 03:41 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/13109.shtml)
-- 2026-06-30 03:59 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/67792482.shtml)
-- 2026-06-30 03:37 - [毒液2](http://www.blog.minike.top/Article/details/76280121.shtml)
-- 2026-06-30 04:00 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/5865550.shtml)
-- 2026-06-30 03:48 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/165193569.shtml)
-- 2026-06-30 03:47 - [速度与激情9](http://www.blog.minike.top/Article/details/08110826267.shtml)
-- 2026-06-30 04:00 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/9849893799.shtml)
-- 2026-06-30 03:52 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/769439.shtml)
-- 2026-06-30 03:53 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/36068589.shtml)
-- 2026-06-30 03:37 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/780712.shtml)
-- 2026-06-30 03:54 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/99824784.shtml)
-- 2026-06-30 04:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/89547.shtml)
-- 2026-06-30 03:50 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/646705098704.shtml)
+- 2026-06-30 03:45 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/245080.shtml)
+- 2026-06-30 03:43 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/49515750278.shtml)
+- 2026-06-30 03:55 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/0200990.shtml)
+- 2026-06-30 04:08 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/18648.shtml)
+- 2026-06-30 03:45 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/490537.shtml)
+- 2026-06-30 03:49 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/466587.shtml)
+- 2026-06-30 04:09 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/52587.shtml)
+- 2026-06-30 03:47 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/53152.shtml)
+- 2026-06-30 03:46 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/66831023410.shtml)
+- 2026-06-30 04:07 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/48269421.shtml)
+- 2026-06-30 03:59 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/2842883613.shtml)
+- 2026-06-30 03:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/27385866126.shtml)
+- 2026-06-30 04:01 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/4975943.shtml)
+- 2026-06-30 04:04 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/630589.shtml)
+- 2026-06-30 04:01 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/6630839749.shtml)

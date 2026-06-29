@@ -1,59 +1,42 @@
-# 特朗普称国家情报总监提名应被推迟
+# 中央空管办等部门联合推广“扫码飞”
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普向参议院共和党人施压，要求推迟确认Jay Clayton出任下一任国家情报总监。这打乱了共和党领导层的计划，他们原本打算在特朗普忠实盟友Bill Pulte以代理身份接任该职之前，迅速敲定Clayton的任命。 特朗普表示，参议院情报委员会将取消原定于周三举行的Clayton提名确认听证会。如果委员会批准了Clayton的提名，最早可能在周四进行最终确认投
+日前，中央空管办会同国家发展改革委、公安部、中国民航局等多部门，在上海市、四川省无人机管制空域内划设固定专用空域，采取“政府协同管理、行业指导监管、用户随报随飞”模式(即“扫码飞”)，实现空域资源持续精细化保障。
 
 ## 正文
 
-美国总统唐纳德·特朗普向参议院共和党人施压，要求推迟确认Jay Clayton出任下一任国家情报总监。
-
-这打乱了共和党领导层的计划，他们原本打算在特朗普忠实盟友Bill Pulte以代理身份接任该职之前，迅速敲定Clayton的任命。
-
-特朗普表示，参议院情报委员会将取消原定于周三举行的Clayton提名确认听证会。
-
-如果委员会批准了Clayton的提名，最早可能在周四进行最终确认投票。
-
-参议院尚未宣布听证会是否已被取消。
-
-参议院情报委员会资深民主党人Mark Warner表示，Clayton的提名最早可能在本周获得批准。
-
-但这一快速推进程序需要全部100名参议员的同意，如果没有举行听证会对提名人选进行审查，要达成这种一致将变得极其困难。
-
-特朗普在社交媒体上发文称，在参议院确认Jamie McDonald接替Clayton出任曼哈顿联邦检察官之前，Clayton的提名程序“不会继续推进”。
+日前，中央空管办会同国家发展改革委、公安部、中国民航局等多部门，在上海市、四川省无人机管制空域内划设固定专用空域，采取“政府协同管理、行业指导监管、用户随报随飞”模式(即“扫码飞”)，实现空域资源持续精细化保障。
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 04:02 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 03:50 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 04:02 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 03:58 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 03:43 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 03:59 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 03:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 04:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 03:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 03:39 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 03:59 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 03:56 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 03:42 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 03:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-30 03:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 04:09 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 04:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 04:07 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 04:11 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 03:50 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 03:57 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 04:09 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:50 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/355851092445.shtml)
-- 2026-06-30 03:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/4886542.shtml)
-- 2026-06-30 03:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/412218095593.shtml)
-- 2026-06-30 03:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/838527746152.shtml)
-- 2026-06-30 04:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/94346563.shtml)
-- 2026-06-30 03:47 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/53639.shtml)
-- 2026-06-30 03:51 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/21498063826.shtml)
-- 2026-06-30 03:50 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/79772268748.shtml)
-- 2026-06-30 03:53 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/42810.shtml)
-- 2026-06-30 04:01 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/048658.shtml)
-- 2026-06-30 03:45 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/3940550936.shtml)
-- 2026-06-30 03:58 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/34753923.shtml)
-- 2026-06-30 03:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/4921441.shtml)
-- 2026-06-30 03:59 - [乔家的儿女](https://www.share.minike.top/Article/details/4128028396.shtml)
-- 2026-06-30 03:47 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/24213734.shtml)
+- 2026-06-30 04:04 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/98635427.shtml)
+- 2026-06-30 03:46 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/32529.shtml)
+- 2026-06-30 03:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/14265471.shtml)
+- 2026-06-30 03:52 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/7330721.shtml)
+- 2026-06-30 04:07 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/057227152.shtml)
+- 2026-06-30 04:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/66201.shtml)
+- 2026-06-30 03:54 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/9951026.shtml)
+- 2026-06-30 03:56 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/523730.shtml)
+- 2026-06-30 03:42 - [女心理师](https://www.blog.kurohicncr.top/Article/details/67130.shtml)
+- 2026-06-30 03:51 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/477857658.shtml)
+- 2026-06-30 03:51 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/0116779.shtml)
+- 2026-06-30 03:48 - [《共患难》](http://www.share.minike.top/Article/details/671371.shtml)
+- 2026-06-30 04:11 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/973584.shtml)
+- 2026-06-30 03:48 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/89280676015.shtml)
+- 2026-06-30 04:01 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/77066166.shtml)

@@ -1,56 +1,56 @@
-# 首届中国（宁夏）—中亚经贸对接交流会促农贸、新能源合作
+# 欧洲央行官员Schnabel：战争可能导致通胀预期失控
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-【中亚专线】首届中国(宁夏)—中亚经贸对接交流会促农贸、新能源合作 中新社银川6月17日电 (记者 李佩珊)首届中国(宁夏)—中亚经贸对接交流会17日在银川开幕。本次活动以“跨山海塞上携手 谱新篇共赢未来”为主题，搭建宁夏与中亚国家多层次务实合作平台，持续助力共建“一带一路”高质量发展。 交流会由中国国际贸易促进委员会宁夏回族自治区委员会、中国-中亚实业家委员会中方联席秘书处主
+欧洲央行执行理事会成员Isabel Schnabel称，随着价格压力蔓延至能源以外的领域，以及通胀预期失控的风险上升，我们不能再忽视伊朗战争带来的通胀影响。 Schnabel在韩国央行周一在首尔举行的会议上表示，对能源基础设施和全球供应链的破坏已经以更持久的方式改变了价格动态，这意味着即使冲突立即结束，政策制定者也可能需要做出应对。 “我们不能再对这种冲击视而不见了，”Schn
 
 ## 正文
 
-【中亚专线】首届中国(宁夏)—中亚经贸对接交流会促农贸、新能源合作 中新社银川6月17日电 (记者 李佩珊)首届中国(宁夏)—中亚经贸对接交流会17日在银川开幕。
+欧洲央行执行理事会成员Isabel Schnabel称，随着价格压力蔓延至能源以外的领域，以及通胀预期失控的风险上升，我们不能再忽视伊朗战争带来的通胀影响。
 
-本次活动以“跨山海塞上携手 谱新篇共赢未来”为主题，搭建宁夏与中亚国家多层次务实合作平台，持续助力共建“一带一路”高质量发展。
+Schnabel在韩国央行周一在首尔举行的会议上表示，对能源基础设施和全球供应链的破坏已经以更持久的方式改变了价格动态，这意味着即使冲突立即结束，政策制定者也可能需要做出应对。
 
-交流会由中国国际贸易促进委员会宁夏回族自治区委员会、中国-中亚实业家委员会中方联席秘书处主办，汇聚中亚各国商协会、企业及宁夏政企代表洽谈合作。
+“我们不能再对这种冲击视而不见了，”Schnabel说道，“通胀预期脱锚的风险正在上升。
 
-活动前期多方提前对接撮合，累计达成23个合作项目，覆盖进出口贸易、农业、新能源、新材料等领域，企业代表在大会开幕式上进行了现场签约。
+”她被广泛认为是欧洲央行最鹰派的决策者。
 
-经贸数据显示，2025年，中国与中亚国家货物进出口总额1063亿美元，同比增长12%。
+这些评论强化了Schnabel上周的表态，当时她表示欧洲央行需要在6月10日至11日的会议上加息。
 
-同年，宁夏对中亚五国进出口总额2.84亿元人民币，同比增长126%，出口产品以化工制品、包装材料、果蔬等为主，进口产品以亚麻籽、农副畜产品、饲草料等为主，宁夏对中亚进出口增速优势突出。
+市场广泛预计央行将有此行动，官员们正努力应对能源成本上涨可能引发更广泛通胀的前景，尽管考虑到冲突造成的经济影响尚不明朗，政策制定者一直谨慎地没有透露利率将上升多少。
 
-作为古丝绸之路重要节点与内陆开放型经济试验区，宁夏对中亚合作基础持续夯实。
+Schnabel表示，现在确定可能需要加息多少次还为时过早，并称政策制定者将继续评估中东地区的数据和事态发展。
 
-当地建成中国-中亚荒漠化防治合作中心，中亚国际货运班列常态化运行，银川跨境电商综试区加快布局哈萨克斯坦、乌兹别克斯坦等国海外仓。
+“现在就说升息有几次，然后又说完工了，还为时过早。
 
 ## 相关推荐
 
-- 2026-06-30 03:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 03:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 03:59 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 03:46 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 03:48 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 03:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 03:42 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 03:52 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 04:01 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 03:48 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 04:06 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 03:47 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 03:51 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 03:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 03:58 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 03:48 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 03:45 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 03:52 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 03:57 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 04:07 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:41 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/2633101.shtml)
-- 2026-06-30 04:01 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/9529843.shtml)
-- 2026-06-30 04:00 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/450071288.shtml)
-- 2026-06-30 04:05 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/63169672.shtml)
-- 2026-06-30 04:05 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/21497.shtml)
-- 2026-06-30 03:43 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/99072652.shtml)
-- 2026-06-30 03:52 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/693654556949.shtml)
-- 2026-06-30 03:50 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/51556192857.shtml)
-- 2026-06-30 03:52 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/483526.shtml)
-- 2026-06-30 03:38 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/6716769.shtml)
-- 2026-06-30 03:37 - [美股](http://www.share.kurohicncr.top/Article/details/00611495361.shtml)
-- 2026-06-30 03:59 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/842498957703.shtml)
-- 2026-06-30 03:43 - [《共患难》](https://www.share.minike.top/Article/details/16789379414.shtml)
-- 2026-06-30 03:41 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/99211.shtml)
-- 2026-06-30 03:55 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/12733437928.shtml)
+- 2026-06-30 04:02 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/72108.shtml)
+- 2026-06-30 04:01 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/356767.shtml)
+- 2026-06-30 04:01 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/73396785275.shtml)
+- 2026-06-30 03:59 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/08024589335.shtml)
+- 2026-06-30 03:54 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/53162461299.shtml)
+- 2026-06-30 04:05 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/18103.shtml)
+- 2026-06-30 03:44 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/47349963669.shtml)
+- 2026-06-30 03:43 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/80271900.shtml)
+- 2026-06-30 03:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/694725939572.shtml)
+- 2026-06-30 03:53 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/587385.shtml)
+- 2026-06-30 04:07 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/197529685204.shtml)
+- 2026-06-30 04:05 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/177589719982.shtml)
+- 2026-06-30 04:08 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/84667970.shtml)
+- 2026-06-30 03:49 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/61481.shtml)
+- 2026-06-30 03:58 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/46826590305.shtml)

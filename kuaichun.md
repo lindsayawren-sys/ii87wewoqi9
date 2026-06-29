@@ -1,61 +1,55 @@
-# 铂力特涨停 机构龙虎榜净买入7072.20万元
+# 外交部：为扩军备战找借口是日本军国主义惯用手法
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-6月17日铂力特（维权）（688333）收盘价89.40元，收盘涨停，全天换手率6.27%，振幅21.34%，成交额14.63亿元。科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交5.77亿元， 其中，买入成交额为4.57亿元，卖出成交额为1.19亿元，合计净买入3.38亿元。具体来看，今日上榜的前五大买入营
+新华社北京6月2日电(记者曹嘉玥、孙楠)针对近期日本首相高市早苗和美国防长赫格塞思关于日本修改“防卫装备转移三原则”的言论，外交部发言人毛宁6月2日在例行记者会上说，炒作外部威胁，为扩军备战找借口，是日本军国主义的惯用手法。 毛宁说，《波茨坦公告》等国际文件明确规定，日本须完全解除武装，不得维持能使其重新武装的产业，这是日本的国际法义务。然而日本解禁杀伤性武器出口，强化军工产业
 
 ## 正文
 
-6月17日铂力特（维权）（688333）收盘价89.40元，收盘涨停，全天换手率6.27%，振幅21.34%，成交额14.63亿元。
+新华社北京6月2日电(记者曹嘉玥、孙楠)针对近期日本首相高市早苗和美国防长赫格塞思关于日本修改“防卫装备转移三原则”的言论，外交部发言人毛宁6月2日在例行记者会上说，炒作外部威胁，为扩军备战找借口，是日本军国主义的惯用手法。
 
-科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。
+毛宁说，《波茨坦公告》等国际文件明确规定，日本须完全解除武装，不得维持能使其重新武装的产业，这是日本的国际法义务。
 
-证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交5.77亿元， 其中，买入成交额为4.57亿元，卖出成交额为1.19亿元，合计净买入3.38亿元。
+然而日本解禁杀伤性武器出口，强化军工产业，安保政策加速向进攻性转变，这一系列危险动向同二战前军国主义筹备发动战争的过程何其相似。
 
-具体来看，今日上榜的前五大买入营业部中，有1家机构专用席位现身，即买四，买入金额分别为7072.20万元，沪股通为第二大买入营业部，买入金额为11887.98万元，营业部合计买入2.68亿元。
+历史上对军国主义的绥靖纵容教训惨痛。
 
-卖出营业部中，沪股通为第一大卖出营业部，卖出金额为3636.69万元，营业部合计卖出8293.11万元。
-
-买卖金额相抵，机构专用席位今日净买入该股7072.20万元，沪股通今日净买入该股8251.30万元。
-
-资金流向方面，该股今日全天主力资金净流入2.67亿元。
-
-（数据宝）铂力特6月17日龙虎榜注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
+殷鉴不远，军国主义的“魔盒”一旦打开，没有任何人可以独善其身，终将养虎为患。
 
 ## 相关推荐
 
-- 2026-06-30 04:05 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 04:00 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 04:02 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 03:53 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 03:36 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 03:46 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 03:51 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 03:57 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 03:48 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 03:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 03:59 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 03:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 04:02 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 03:40 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 04:02 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 03:48 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 03:50 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-30 03:54 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 03:59 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 04:07 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-30 03:53 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 04:01 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 04:03 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 03:56 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 03:43 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 04:03 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 03:59 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 04:05 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 04:05 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 03:57 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:59 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/00405110.shtml)
-- 2026-06-30 03:54 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/74782848.shtml)
-- 2026-06-30 04:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/919260301453.shtml)
-- 2026-06-30 03:44 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/932524549.shtml)
-- 2026-06-30 04:05 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/0442444.shtml)
-- 2026-06-30 04:01 - [《共患难》](https://www.share.kurohicncr.top/Article/details/3573760344.shtml)
-- 2026-06-30 03:50 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/339569612725.shtml)
-- 2026-06-30 03:58 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/435158906646.shtml)
-- 2026-06-30 04:00 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/4182091061.shtml)
-- 2026-06-30 03:38 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/89522.shtml)
-- 2026-06-30 03:53 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/80101768610.shtml)
-- 2026-06-30 03:40 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/557738.shtml)
-- 2026-06-30 04:04 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/298319662.shtml)
-- 2026-06-30 04:01 - [千香](https://www.blog.minike.top/Article/details/3559806716.shtml)
-- 2026-06-30 03:44 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/882072.shtml)
+- 2026-06-30 03:48 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/83579601.shtml)
+- 2026-06-30 04:09 - [斛珠夫人](http://www.share.minike.top/Article/details/173343078.shtml)
+- 2026-06-30 04:05 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/6789209305.shtml)
+- 2026-06-30 03:48 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/1317637008.shtml)
+- 2026-06-30 03:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/50484478802.shtml)
+- 2026-06-30 03:51 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/6025122166.shtml)
+- 2026-06-30 03:50 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/42523065961.shtml)
+- 2026-06-30 03:44 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/18659711896.shtml)
+- 2026-06-30 04:06 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/113480814.shtml)
+- 2026-06-30 03:50 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/41924.shtml)
+- 2026-06-30 04:08 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/510269411.shtml)
+- 2026-06-30 04:01 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/131449509.shtml)
+- 2026-06-30 03:55 - [爱很美味](https://www.share.minike.top/Article/details/75887468355.shtml)
+- 2026-06-30 03:56 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/661137570068.shtml)
+- 2026-06-30 04:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/6756723.shtml)

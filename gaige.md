@@ -1,54 +1,56 @@
-# 【讲习所】中共绿色发展理念引领全球环境治理
+# SEC、马斯克为推特持仓案的和解协议辩护 回应法官的质疑
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-【本期导读】 今年是中国共产党成立105周年，也是“十五五”规划开局之年。过去五年，在习近平生态文明思想科学指引下，中国生态文明建设从理论到实践都发生了历史性、转折性、全局性变化，由全球环境治理参与者成为引领者：提出共建地球生命共同体，先后成功举办《生物多样性公约》和《湿地公约》缔约方大会，推动确立到2030年至少有效保护全球30%陆地和海洋的目标……为构建公平合理、合作共赢的
+美国证券交易委员会（SEC）的律师周一表示，该机构与马斯克旨在了结推特持仓案的和解方案，历经了近一年的谈判。之前一位法官对该和解方案表示了担忧。 “150万美元的民事罚款，与SEC代理律师自谈判正式开始以来一直坚持的七位数罚金相符，也反映了被告方作出的让步，他们曾在和解谈判中主张比这小得多的数字，”SEC律师在法院备案文件中写道。 他们还说，该方案也考虑到了“诉讼风险和处理上诉
 
 ## 正文
 
-【本期导读】 今年是中国共产党成立105周年，也是“十五五”规划开局之年。
+美国证券交易委员会（SEC）的律师周一表示，该机构与马斯克旨在了结推特持仓案的和解方案，历经了近一年的谈判。
 
-过去五年，在习近平生态文明思想科学指引下，中国生态文明建设从理论到实践都发生了历史性、转折性、全局性变化，由全球环境治理参与者成为引领者：提出共建地球生命共同体，先后成功举办《生物多样性公约》和《湿地公约》缔约方大会，推动确立到2030年至少有效保护全球30%陆地和海洋的目标……为构建公平合理、合作共赢的全球环境治理体系作出了中国贡献，展现出中国共产党胸怀天下为人类谋进步、为世界谋大同的境界与担当。
+之前一位法官对该和解方案表示了担忧。
 
-“中国是世界绿色发展的坚定行动派、重要贡献者。
+“150万美元的民事罚款，与SEC代理律师自谈判正式开始以来一直坚持的七位数罚金相符，也反映了被告方作出的让步，他们曾在和解谈判中主张比这小得多的数字，”SEC律师在法院备案文件中写道。
 
-”国际社会认为，中国创造了举世瞩目的生态奇迹，绿色发展理念蕴含了务实而富有战略性的可持续发展愿景。
+他们还说，该方案也考虑到了“诉讼风险和处理上诉将需要消耗的大量公共资源”，并强调这将是此类案件中创纪录的罚款金额。
 
-监制：苑听雷、戴爽、金近 策划：张倩楠 文案：任丽君 视觉：曹懿心 校对：位树理、吕冬 标签：讲习所
+马斯克的律师同样称赞该和解协议公平、合理。
+
+推荐阅读：马斯克同意支付150万美元 以了结美国证券交易委员会针对推特的案件 他们在周一提交的文件中写道：“双方都有所让步，也都有所收获，这一妥协的结果体现了双方各自的主张与抗辩立场。
+
+” 双方律师分别提交了备忘录，以回应美国地区法官Sparkle Sooknanan针对拟议处罚提出的“疑点”，其中包括为何SEC希望与一个马斯克相关信托进行和解，以及这位亿万富翁是否在此案中获得了特殊待遇。
+
+Sooknanan在5月份表示：“我不会也不能以走过场的态度批准这项和解协议。
 
 ## 相关推荐
 
-- 2026-06-30 03:41 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 03:41 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 03:51 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 03:42 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 03:41 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 04:03 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 04:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 04:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 03:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 03:48 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 03:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 03:47 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 03:46 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 03:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 03:43 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 04:01 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 03:48 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 04:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 04:01 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 03:51 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 04:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 04:05 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 04:11 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 04:10 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:37 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/588716.shtml)
-- 2026-06-30 03:59 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/7101423588.shtml)
-- 2026-06-30 03:36 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/98837.shtml)
-- 2026-06-30 03:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/477848016946.shtml)
-- 2026-06-30 04:03 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/208809286025.shtml)
-- 2026-06-30 03:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/153414579586.shtml)
-- 2026-06-30 03:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/8762879.shtml)
-- 2026-06-30 03:36 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/1696328.shtml)
-- 2026-06-30 04:05 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/77164467.shtml)
-- 2026-06-30 03:42 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/885194388421.shtml)
-- 2026-06-30 03:50 - [金刚川](https://www.blog.minike.top/Article/details/6747533412.shtml)
-- 2026-06-30 04:00 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/474535.shtml)
-- 2026-06-30 03:52 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/37580748.shtml)
-- 2026-06-30 03:55 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/6739938.shtml)
-- 2026-06-30 03:55 - [美股](http://www.share.minike.top/Article/details/826861.shtml)
+- 2026-06-30 03:46 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/240562383.shtml)
+- 2026-06-30 04:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/856400598.shtml)
+- 2026-06-30 04:08 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/07667.shtml)
+- 2026-06-30 03:55 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/59478431.shtml)
+- 2026-06-30 03:51 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/398322.shtml)
+- 2026-06-30 03:51 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/1065685.shtml)
+- 2026-06-30 03:58 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/95958.shtml)
+- 2026-06-30 03:51 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/3740655135.shtml)
+- 2026-06-30 04:09 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/0643831.shtml)
+- 2026-06-30 04:03 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/69782.shtml)
+- 2026-06-30 04:04 - [美股](https://www.share.kurohicncr.top/Article/details/987167610986.shtml)
+- 2026-06-30 04:04 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/511040403.shtml)
+- 2026-06-30 03:55 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/07730508599.shtml)
+- 2026-06-30 03:46 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/89013556.shtml)
+- 2026-06-30 03:47 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/70941.shtml)

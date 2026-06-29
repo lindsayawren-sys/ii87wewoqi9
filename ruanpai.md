@@ -1,50 +1,59 @@
-# 日经指数或上涨 受对伊朗协议的乐观情绪及AI需求提振
+# 从Anthropic收入跳涨看AI商业化：国联民生证券孔蓉称“全球科技黄金时间已至”
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-得益于对美伊和平协议的持续乐观情绪以及不断增长的AI需求，日本股市可能上涨。新加坡交易所的日经指数期货上涨0.9%，至70740点。投资者正关注中东局势的任何进展以及原油价格。日经指数周三上涨0.7%，至69902.25点。责任编辑：王永生
+在经历了一轮强劲上涨后，A股科技板块近期出现调整，市场情绪分化明显。AI行情是否已经见顶？下半年还有哪些结构性机会？除了AI，还有没有值得关注的新科技方向？ 6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，直面投资者的焦虑。她表示，科技板块会经历调整，但调整之后依然是配置机会。支撑这一判断的核心逻辑是AI商业化已出现非线性的收入增长，产业进入了真
 
 ## 正文
 
-得益于对美伊和平协议的持续乐观情绪以及不断增长的AI需求，日本股市可能上涨。
+在经历了一轮强劲上涨后，A股科技板块近期出现调整，市场情绪分化明显。
 
-新加坡交易所的日经指数期货上涨0.9%，至70740点。
+AI行情是否已经见顶？
 
-投资者正关注中东局势的任何进展以及原油价格。
+下半年还有哪些结构性机会？
 
-日经指数周三上涨0.7%，至69902.25点。
+除了AI，还有没有值得关注的新科技方向？
 
-责任编辑：王永生
+6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，直面投资者的焦虑。
+
+她表示，科技板块会经历调整，但调整之后依然是配置机会。
+
+支撑这一判断的核心逻辑是AI商业化已出现非线性的收入增长，产业进入了真正的“落地阶段”。
+
+视频直播>> 面对“越涨越怕”的市场情绪，孔蓉表示，“我们觉得它会经历一定程度的调整，但对于后续的科技板块行情，我们依然是看好的。
 
 ## 相关推荐
 
-- 2026-06-30 04:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 03:56 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 03:50 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 03:42 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 03:41 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 04:05 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 03:56 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 03:47 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 03:38 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 04:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 03:56 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 03:56 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 04:10 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 03:52 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 03:51 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 04:09 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 03:43 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 03:42 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 03:57 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 04:06 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 03:59 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 04:07 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 04:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:51 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/34231454.shtml)
-- 2026-06-30 03:47 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/48409891173.shtml)
-- 2026-06-30 03:52 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/5996733.shtml)
-- 2026-06-30 03:58 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/662428708362.shtml)
-- 2026-06-30 03:54 - [一见倾心](http://www.share.kurohicncr.top/Article/details/48394725212.shtml)
-- 2026-06-30 03:57 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/78273530637.shtml)
-- 2026-06-30 03:49 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/73892.shtml)
-- 2026-06-30 03:57 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/98025413.shtml)
-- 2026-06-30 03:56 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/8349034840.shtml)
-- 2026-06-30 03:57 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/073016875.shtml)
-- 2026-06-30 03:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/81512694358.shtml)
-- 2026-06-30 04:00 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/037734.shtml)
-- 2026-06-30 03:48 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/44693988065.shtml)
-- 2026-06-30 04:03 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/564824003524.shtml)
-- 2026-06-30 03:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/978896435.shtml)
+- 2026-06-30 04:11 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/277031292295.shtml)
+- 2026-06-30 04:01 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/359320273119.shtml)
+- 2026-06-30 03:55 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/64710.shtml)
+- 2026-06-30 03:43 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/8048062065.shtml)
+- 2026-06-30 04:09 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/212456242644.shtml)
+- 2026-06-30 03:55 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/85360.shtml)
+- 2026-06-30 03:56 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/30054051.shtml)
+- 2026-06-30 04:01 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/2351653715.shtml)
+- 2026-06-30 03:50 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/386023915.shtml)
+- 2026-06-30 03:50 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/7015697088.shtml)
+- 2026-06-30 03:42 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/76923.shtml)
+- 2026-06-30 04:06 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/621901582.shtml)
+- 2026-06-30 04:03 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/2943217.shtml)
+- 2026-06-30 04:09 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/05191488800.shtml)
+- 2026-06-30 03:52 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/3565228678.shtml)

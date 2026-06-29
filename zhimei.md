@@ -1,56 +1,59 @@
-# 11部门联合发文力推新能源重卡：完成道路交通脱碳的“最后一块拼图”
+# 美高梅收到收购要约，股价应声大涨16%
 
-> 更新时间：2026-06-30 04:06:02 UTC+8
+> 更新时间：2026-06-30 04:12:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：美国环保协会 本文作者为美国环保协会（EDF）北京代表处企业伙伴关系主任冉泽、高级分析员李蕴洁。该团队致力于推动企业净零行动，并关注氢能可持续发展、储能、长途货运脱碳等议题。 在乘用车渗透率已经超过半壁江山的背景下，中国道路交通领域的清洁化转型正逐步向长途货运领域纵深推进。在交通领域“双碳”进程中，重
+美高梅国际酒店集团股价周一大幅上涨约16%，此前巴里·迪勒旗下的People Inc．向该公司提出全现金收购要约，报价为每股48.30美元。 迪勒同时担任美高梅董事会成员，他表示将回避董事会就该提案进行的任何讨论或决策。People Inc．目前持有美高梅约26.1%的流通普通股，该公司前身为IAC。若交易完成，People Inc．将获得美高梅略超50.1%的股权，其他投资者
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美高梅国际酒店集团股价周一大幅上涨约16%，此前巴里·迪勒旗下的People Inc．向该公司提出全现金收购要约，报价为每股48.30美元。
 
-来源：美国环保协会 本文作者为美国环保协会（EDF）北京代表处企业伙伴关系主任冉泽、高级分析员李蕴洁。
+迪勒同时担任美高梅董事会成员，他表示将回避董事会就该提案进行的任何讨论或决策。
 
-该团队致力于推动企业净零行动，并关注氢能可持续发展、储能、长途货运脱碳等议题。
+People Inc．目前持有美高梅约26.1%的流通普通股，该公司前身为IAC。
 
-在乘用车渗透率已经超过半壁江山的背景下，中国道路交通领域的清洁化转型正逐步向长途货运领域纵深推进。
+若交易完成，People Inc．将获得美高梅略超50.1%的股权，其他投资者继续持有少数股权。
 
-在交通领域“双碳”进程中，重卡一直是减排难度最大的领域之一，而长途干线运输更是其中最具挑战性的环节，可谓“难点中的难点”。
+迪勒在声明中阐述了发起收购的理由：“我们大约六年前开始投资美高梅，因为我们相信这是一种罕见的业务：它拥有AI无法轻易复制或替代的实体资产，同时具备卓越的数字增长机会。
 
-近日，交通运输部等11部门联合发布《推动新能源重卡规模化应用实施方案》（以下简称：《实施方案》），提出到2030年，新能源重卡渗透率达到40%，打造零碳公路运输通道，高速公路新能源重卡货运量占比达到18%等目标，标志着中国道路交通向全面清洁化迈出了重要一步，也可以说补上了道路交通脱碳最难的一块“拼图”。
+”他补充道，美高梅的资产价值被市场严重低估，公司管理团队极为出色，存在支持其下一阶段增长并帮助释放全部价值的绝佳机会。
 
-总体而言，该方案有以下几方面亮点—— 新能源重卡不仅是实现道路交通减碳的重要抓手，同时对于改善空气质量也具有重要意义。
+根据摩根士丹利的数据，按拟议收购价计算，对应2026年市场一致预期的企业价值与息税折旧摊销及租金前利润之比约为7.7倍。
 
-长期以来，柴油重卡一直是道路交通领域空气污染的重要来源——《中国移动源环境年报》显示，2024年全国货车排放的氮氧化物占汽车总排放的83%，颗粒物占比更是高达90.4%。
+该交易不设融资条件，但需获得有限的反垄断批准及适用的博彩监管批准。
 
 ## 相关推荐
 
-- 2026-06-30 03:53 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 03:47 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 03:39 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 03:48 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 03:37 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 03:40 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 04:02 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 03:45 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 03:41 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 03:46 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 03:46 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 03:44 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 03:51 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 04:11 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 04:01 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 04:07 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 04:05 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 03:45 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 04:04 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 03:59 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 04:11 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 04:02 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 04:00 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/642020787158.shtml)
-- 2026-06-30 03:48 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/3496923787.shtml)
-- 2026-06-30 04:03 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/783935794707.shtml)
-- 2026-06-30 03:58 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/074032.shtml)
-- 2026-06-30 03:49 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/5748406.shtml)
-- 2026-06-30 03:44 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/0430377.shtml)
-- 2026-06-30 03:55 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/801292425324.shtml)
-- 2026-06-30 03:44 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/241917653.shtml)
-- 2026-06-30 03:41 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/60916944.shtml)
-- 2026-06-30 03:37 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/509324461.shtml)
-- 2026-06-30 03:49 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/1111795.shtml)
-- 2026-06-30 03:45 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/0854577.shtml)
-- 2026-06-30 04:05 - [《贺子珍》](http://www.blog.minike.top/Article/details/587729458.shtml)
-- 2026-06-30 03:59 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/13331066.shtml)
-- 2026-06-30 03:45 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/77528683.shtml)
+- 2026-06-30 03:50 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/52916255987.shtml)
+- 2026-06-30 04:01 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/086981.shtml)
+- 2026-06-30 03:50 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/402387377718.shtml)
+- 2026-06-30 04:10 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/91337143.shtml)
+- 2026-06-30 03:47 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/57049853.shtml)
+- 2026-06-30 04:10 - [达美乐运输面团时被雨淋到 客服回应](http://www.share.minike.top/Article/details/646002830.shtml)
+- 2026-06-30 04:11 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/86257.shtml)
+- 2026-06-30 03:55 - [急先锋](http://www.blog.minike.top/Article/details/4314597.shtml)
+- 2026-06-30 03:45 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/707373.shtml)
+- 2026-06-30 04:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/542856.shtml)
+- 2026-06-30 04:11 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/985230.shtml)
+- 2026-06-30 04:02 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/3059727131.shtml)
+- 2026-06-30 03:56 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/7249201856.shtml)
+- 2026-06-30 03:56 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/9817488.shtml)
+- 2026-06-30 03:58 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/40690071.shtml)
