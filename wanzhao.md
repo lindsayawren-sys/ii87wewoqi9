@@ -1,59 +1,59 @@
-# 国际锐评丨落实元首共识，以新定位开启中美关系新篇章
+# 第48届东盟峰会在菲律宾宿务开幕
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-“中美元首明确两国关系新定位”“中美对话对全球稳定至关重要”“北京会晤向世界发出积极正面的信号”……对于美国总统特朗普5月13日至15日对中国进行的国事访问，国际舆论予以高度关注。访问期间，中美元首举行了举世瞩目的会晤，同意构建“中美建设性战略稳定关系”是最重要政治共识。这一新定位不仅为未来3年乃至更长时间的中美关系提供战略指引，也为世界注入亟需的稳定性和确定性。正如很多分析指
+中新社菲律宾宿务5月8日电 (记者 张兴龙)第48届东盟峰会8日在菲律宾中部宿务省开幕。 东盟轮值主席国菲律宾总统马科斯当天在开幕致辞中表示，当前本地区再次面临深刻不确定性，此次峰会体现出东盟以团结、智慧和决心应对挑战的能力。 马科斯说，中东局势持续动荡，其影响已波及本地区。东盟始终致力于维护和平，并基于各成员国表达的共同立场，呼吁冲突各方立即停止敌对行动，以和平方式解决争端，
 
 ## 正文
 
-“中美元首明确两国关系新定位”“中美对话对全球稳定至关重要”“北京会晤向世界发出积极正面的信号”……对于美国总统特朗普5月13日至15日对中国进行的国事访问，国际舆论予以高度关注。
+中新社菲律宾宿务5月8日电 (记者 张兴龙)第48届东盟峰会8日在菲律宾中部宿务省开幕。
 
-访问期间，中美元首举行了举世瞩目的会晤，同意构建“中美建设性战略稳定关系”是最重要政治共识。
+东盟轮值主席国菲律宾总统马科斯当天在开幕致辞中表示，当前本地区再次面临深刻不确定性，此次峰会体现出东盟以团结、智慧和决心应对挑战的能力。
 
-这一新定位不仅为未来3年乃至更长时间的中美关系提供战略指引，也为世界注入亟需的稳定性和确定性。
+马科斯说，中东局势持续动荡，其影响已波及本地区。
 
-正如很多分析指出，这是一次历史性会晤。
+东盟始终致力于维护和平，并基于各成员国表达的共同立场，呼吁冲突各方立即停止敌对行动，以和平方式解决争端，保护平民及民用基础设施，恢复霍尔木兹海峡安全、畅通和持续的过境通行。
 
-这是中美元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华，延续和巩固了两国元首之间的良好互动势头。
+马科斯表示，为应对中东冲突带来的影响，作为东盟轮值主席国，菲律宾已调整部分峰会相关安排，包括缩减非必要活动，并将部分会议由线下改为线上举行。
 
-此次会晤既有正式会谈和欢迎宴会，也安排了小范围交流和参观活动，两国元首互动相处近9个小时，促进了相互理解，加深了彼此信任，推进了务实合作，增进了两国人民的福祉。
+据介绍，东盟各国领导人将在本届峰会上重点讨论能源安全、粮食安全以及东盟公民安全等议题。
 
-应特朗普总统邀请，习近平主席将于今年秋季对美国进行国事访问。
+东盟成立于1967年，现成员国包括印度尼西亚、泰国、新加坡、菲律宾、文莱、马来西亚、越南、老挝、柬埔寨、缅甸和东帝汶11国。
 
-这让世界看到，元首外交始终是中美关系的“定盘星”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 22:24 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 22:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 22:47 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 22:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 22:30 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 22:27 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 22:32 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 22:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 22:28 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 22:43 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 22:45 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 22:43 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 22:37 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 22:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 22:41 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 22:32 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 22:36 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 22:35 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 22:46 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 22:38 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 22:48 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 22:42 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 22:43 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 22:24 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 22:51 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:36 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/3044222527.shtml)
-- 2026-06-29 22:43 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/52671.shtml)
-- 2026-06-29 22:40 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/21195975839.shtml)
-- 2026-06-29 22:43 - [毒液2](http://www.blog.minike.top/Article/details/320426522614.shtml)
-- 2026-06-29 22:20 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/860402872.shtml)
-- 2026-06-29 22:46 - [美以这对亲密盟友要掰了吗](https://www.share.kurohicncr.top/Article/details/540980.shtml)
-- 2026-06-29 22:26 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/24994396.shtml)
-- 2026-06-29 22:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/297781.shtml)
-- 2026-06-29 22:21 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/429524217.shtml)
-- 2026-06-29 22:23 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/07046926121.shtml)
-- 2026-06-29 22:32 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/238422.shtml)
-- 2026-06-29 22:18 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/534201.shtml)
-- 2026-06-29 22:37 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/67034984.shtml)
-- 2026-06-29 22:19 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/66656.shtml)
-- 2026-06-29 22:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/73854.shtml)
+- 2026-06-29 22:36 - [我和我的家乡](http://www.blog.minike.top/Article/details/485081172.shtml)
+- 2026-06-29 22:27 - [半导体和股市为何没让韩国人起飞](http://www.blog.kurohicncr.top/Article/details/929933.shtml)
+- 2026-06-29 22:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/38288250.shtml)
+- 2026-06-29 22:39 - [田曦薇没招了](http://www.blog.minike.top/Article/details/367528660224.shtml)
+- 2026-06-29 22:45 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/47640395.shtml)
+- 2026-06-29 22:24 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/575978759366.shtml)
+- 2026-06-29 22:26 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/409165301.shtml)
+- 2026-06-29 22:53 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/26752014.shtml)
+- 2026-06-29 22:32 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/137344.shtml)
+- 2026-06-29 22:51 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/9814554.shtml)
+- 2026-06-29 22:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/2615099.shtml)
+- 2026-06-29 22:43 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/86500.shtml)
+- 2026-06-29 22:27 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/7312362.shtml)
+- 2026-06-29 22:44 - [巴西10号球衣是天才传承史](https://www.share.kurohicncr.top/Article/details/61290984.shtml)
+- 2026-06-29 22:51 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/84158410048.shtml)

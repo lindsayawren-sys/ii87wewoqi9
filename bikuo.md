@@ -1,47 +1,58 @@
-# 视频|实控人为俞浩！追觅造车主体公司持股被冻结，公司:系商业纠纷 已和解 公示信息还没更新同步
+# 日本民众举行集会 抗议高市政权扩军修宪
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-来源：上证盈视频 责任编辑：郝欣煜
+7日，日本民间团体和部分民众在东京街头举行游行集会，反对高市政权解禁杀伤性武器出口、推动扩军修宪等一系列危险动向。 集会参加者：靠制造武器来恢复经济，这说明整个国家的经济政策正在开始向军事方向倾斜。我认为把武器送给他国去进行战争，这种事是（日本）绝对不应该做的。 集会参加者：现在高市所说的那些话，完全没有建立在对日本在二战期间做过什么的反省基础之上。对于那段历史，高市完全闭口不
 
 ## 正文
 
-来源：上证盈视频 责任编辑：郝欣煜
+7日，日本民间团体和部分民众在东京街头举行游行集会，反对高市政权解禁杀伤性武器出口、推动扩军修宪等一系列危险动向。
+
+集会参加者：靠制造武器来恢复经济，这说明整个国家的经济政策正在开始向军事方向倾斜。
+
+我认为把武器送给他国去进行战争，这种事是（日本）绝对不应该做的。
+
+集会参加者：现在高市所说的那些话，完全没有建立在对日本在二战期间做过什么的反省基础之上。
+
+对于那段历史，高市完全闭口不谈。
+
+我对此感到非常怀疑，正因为没有认真反省过去，所以我非常担心日本会不会再次走上同样的道路。
+
+集会参加者表示，日本应坚持和平宪法，而不是走向军事扩张的道路。
+
+集会参加者：我认为日本正朝着战争一路狂奔。
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 22:27 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 22:47 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 22:41 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 22:36 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 22:40 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 22:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 22:34 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 22:26 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 22:32 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 22:39 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 22:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 22:42 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 22:43 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 22:37 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 22:42 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 22:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 22:51 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 22:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 22:27 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 22:46 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 22:25 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 22:40 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 22:41 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 22:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 22:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 22:50 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:32 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/696333.shtml)
-- 2026-06-29 22:24 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/76352.shtml)
-- 2026-06-29 22:39 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/15009164.shtml)
-- 2026-06-29 22:43 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/976612974.shtml)
-- 2026-06-29 22:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/912454.shtml)
-- 2026-06-29 22:24 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/826091939219.shtml)
-- 2026-06-29 22:26 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/70779968805.shtml)
-- 2026-06-29 22:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/655289640802.shtml)
-- 2026-06-29 22:44 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/81092.shtml)
-- 2026-06-29 22:33 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/437414.shtml)
-- 2026-06-29 22:29 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/939217128.shtml)
-- 2026-06-29 22:22 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/2244349386.shtml)
-- 2026-06-29 22:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/554706578.shtml)
-- 2026-06-29 22:40 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/118042923.shtml)
-- 2026-06-29 22:44 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/06444554352.shtml)
+- 2026-06-29 22:41 - [一见倾心](http://www.blog.minike.top/Article/details/484203367.shtml)
+- 2026-06-29 22:44 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/5832445.shtml)
+- 2026-06-29 22:30 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/013828984545.shtml)
+- 2026-06-29 22:50 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/497379948306.shtml)
+- 2026-06-29 22:28 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/662662.shtml)
+- 2026-06-29 22:32 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/31606516409.shtml)
+- 2026-06-29 22:24 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/01533.shtml)
+- 2026-06-29 22:32 - [勇敢的心第二部](http://www.share.minike.top/Article/details/588289698104.shtml)
+- 2026-06-29 22:25 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/8549503469.shtml)
+- 2026-06-29 22:44 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/361611.shtml)
+- 2026-06-29 22:49 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/073258.shtml)
+- 2026-06-29 22:51 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/13125611409.shtml)
+- 2026-06-29 22:30 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/5892442.shtml)
+- 2026-06-29 22:27 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/027049.shtml)
+- 2026-06-29 22:37 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/33102143045.shtml)

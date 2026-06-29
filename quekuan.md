@@ -1,61 +1,44 @@
-# 高景气赛道火速反弹！佰维存储领涨11%，华宝基金科创芯片ETF（589190）涨超3%，AI主线强者恒强
+# 杭州联合农村商业银行阿克苏分行被罚30万元：绩效考评不合规
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-5月18日，国产芯片火速止跌反弹，全“芯”布局芯片产业的科创芯片ETF华宝（589190）低开上冲，场内价格现涨逾3%。此前两日回调，资金积极抢筹，上交所数据显示，589190近2日获资金净流入4947万元。 板块个股多数上攻，佰维存储涨逾11%，中微公司涨近5%，海光信息、寒武纪、澜起科技涨超3%，思特威-W、富创精密、安集科技、晶合集成等涨幅居前。 针对上周后半周的回调，机
+5月8日金融一线消息，阿克苏金融监管分局行政处罚信息公示列表显示，杭州联合农村商业银行股份有限公司阿克苏分行及相关责任人绩效考评不合规，对该分行罚款30万元，对蒋旭东警告并罚款5万元。 责任编辑：曹睿潼
 
 ## 正文
 
-5月18日，国产芯片火速止跌反弹，全“芯”布局芯片产业的科创芯片ETF华宝（589190）低开上冲，场内价格现涨逾3%。
+5月8日金融一线消息，阿克苏金融监管分局行政处罚信息公示列表显示，杭州联合农村商业银行股份有限公司阿克苏分行及相关责任人绩效考评不合规，对该分行罚款30万元，对蒋旭东警告并罚款5万元。
 
-此前两日回调，资金积极抢筹，上交所数据显示，589190近2日获资金净流入4947万元。
-
-板块个股多数上攻，佰维存储涨逾11%，中微公司涨近5%，海光信息、寒武纪、澜起科技涨超3%，思特威-W、富创精密、安集科技、晶合集成等涨幅居前。
-
-针对上周后半周的回调，机构普遍认为，海外通胀超预期推升货币政策紧缩预期，对全球风险资产形成短期压制。
-
-但A股成交活跃度依然强劲，短期调整属于良性整固。
-
-受益于AI高景气与盈利持续兑现，后续资金有望向科技方向进一步集中。
-
-广发证券表示，科技板块的产业趋势尚未证伪。
-
-2个月后A股将迎来半年报窗口期，市场进入业绩定价的有效阶段，科技大概率仍是高景气方向。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 22:45 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 22:46 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 22:21 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 22:41 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 22:26 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 22:33 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 22:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 22:24 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 22:45 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 22:34 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 22:28 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 22:37 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 22:35 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 22:45 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 22:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 22:47 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 22:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 22:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 22:26 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 22:46 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 22:41 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 22:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 22:44 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 22:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:40 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/603465328.shtml)
-- 2026-06-29 22:35 - [急先锋](http://www.share.minike.top/Article/details/34663309435.shtml)
-- 2026-06-29 22:45 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/21308.shtml)
-- 2026-06-29 22:37 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/79802.shtml)
-- 2026-06-29 22:22 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/0948186541.shtml)
-- 2026-06-29 22:30 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/3791693.shtml)
-- 2026-06-29 22:44 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/58198040673.shtml)
-- 2026-06-29 22:28 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/70462449876.shtml)
-- 2026-06-29 22:25 - [女生学医适合选什么专业](https://www.blog.minike.top/Article/details/2623058009.shtml)
-- 2026-06-29 22:33 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/58624294623.shtml)
-- 2026-06-29 22:18 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/087962159100.shtml)
-- 2026-06-29 22:27 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/0423388.shtml)
-- 2026-06-29 22:36 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/708890941.shtml)
-- 2026-06-29 22:47 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/8770060954.shtml)
-- 2026-06-29 22:34 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/271869284533.shtml)
+- 2026-06-29 22:48 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/582621881.shtml)
+- 2026-06-29 22:49 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/773865478086.shtml)
+- 2026-06-29 22:48 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/267596.shtml)
+- 2026-06-29 22:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/317985742.shtml)
+- 2026-06-29 22:36 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/7462101542.shtml)
+- 2026-06-29 22:47 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/597226983080.shtml)
+- 2026-06-29 22:53 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/876142396.shtml)
+- 2026-06-29 22:48 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/21293.shtml)
+- 2026-06-29 22:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/88258.shtml)
+- 2026-06-29 22:49 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/9896283821.shtml)
+- 2026-06-29 22:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/947265800005.shtml)
+- 2026-06-29 22:45 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/84729600.shtml)
+- 2026-06-29 22:38 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/050230126.shtml)
+- 2026-06-29 22:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/3450155166.shtml)
+- 2026-06-29 22:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/68166773281.shtml)

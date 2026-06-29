@@ -1,56 +1,57 @@
-# 北约敦促欧洲军工企业加大投资
+# 博阿兹・温斯坦旗下Saba暂停对9只英国基金的激进维权行动
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-知情人士称，北约秘书长马克·吕特将于下周敦促欧洲各大军工企业增加资金投入、扩大军备产能。 吕特计划在布鲁塞尔会见欧洲顶尖防务企业高层，督促各方加快行动，为今年7月在安卡拉举行的北约年度峰会发布重磅举措打好基础。 各大企业已就大额投资规划与产能扩充能力展开问询，重点聚焦防空装备、远程导弹等领域。 莱茵金属、赛峰集团、空中客车、萨博、欧洲导弹集团、莱昂纳多等军工巨头均将派代表出席此
+核心要点 由博阿兹・温斯坦执掌的对冲基金 Saba 资本，在敲定保障先驱投资信托未来发展的交易后，同意暂停为期三年、针对多达 9 只伦敦上市基金的激进维权行动。 先驱投资信托于周四宣布，将对自身至多 66% 的已发行股份发起要约收购，此举使其第一大股东 Saba 及其他投资者可按接近资产净值的价格卖出持股，也可选择继续持有。 就在上月，激进投资者 Saba 在与投资太空探索公司
 
 ## 正文
 
-知情人士称，北约秘书长马克·吕特将于下周敦促欧洲各大军工企业增加资金投入、扩大军备产能。
+核心要点 由博阿兹・温斯坦执掌的对冲基金 Saba 资本，在敲定保障先驱投资信托未来发展的交易后，同意暂停为期三年、针对多达 9 只伦敦上市基金的激进维权行动。
 
-吕特计划在布鲁塞尔会见欧洲顶尖防务企业高层，督促各方加快行动，为今年7月在安卡拉举行的北约年度峰会发布重磅举措打好基础。
+先驱投资信托于周四宣布，将对自身至多 66% 的已发行股份发起要约收购，此举使其第一大股东 Saba 及其他投资者可按接近资产净值的价格卖出持股，也可选择继续持有。
 
-各大企业已就大额投资规划与产能扩充能力展开问询，重点聚焦防空装备、远程导弹等领域。
+就在上月，激进投资者 Saba 在与投资太空探索公司 SpaceX 的爱丁堡环球投资信托的争议博弈中宣告胜出，经过长期拉锯，成功罢免其董事长及五名董事会成员。
 
-莱茵金属、赛峰集团、空中客车、萨博、欧洲导弹集团、莱昂纳多等军工巨头均将派代表出席此次会议。
+Saba 已作出不可撤销承诺，将所持先驱投资信托全部股份参与要约出售。
 
-空客方面表示，不会就非公开非正式会谈的具体内容置评。
+自 2023 年建仓以来，该信托股价长期低于资产净值折价交易，此次协议将为 Saba 带来可观收益。
 
-莱茵金属、欧洲导弹集团及莱昂纳多均拒绝就此发声。
+作为交易的一部分，今年晚些时候该基金的管理权将移交安本投资；现任基金经理、信托创始人凯蒂・波茨将带领七名同事一同加入这家总部位于伦敦的资管公司。
 
-赛峰集团与萨博暂未回应媒体置评请求。
+波茨在声明中表示：“先驱投资信托自 1994 年以来始终秉持清晰且成功的投资策略，加入安本后，这套严谨的投资框架将保持不变。
 
-责任编辑：刘明亮
+” “我们仍将聚焦科技与通信行业，该领域持续受益于技术创新，并具备强劲的长期增长前景。
 
 ## 相关推荐
 
-- 2026-06-29 22:19 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 22:42 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 22:35 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 22:40 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 22:41 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 22:29 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 22:34 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 22:34 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 22:24 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 22:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 22:28 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 22:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 22:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 22:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 22:36 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 22:41 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 22:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 22:49 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 22:36 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 22:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 22:26 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:40 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/47376.shtml)
-- 2026-06-29 22:45 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/955398157.shtml)
-- 2026-06-29 22:32 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/54766.shtml)
-- 2026-06-29 22:26 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/767768408.shtml)
-- 2026-06-29 22:41 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/9179255.shtml)
-- 2026-06-29 22:29 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/4192314588.shtml)
-- 2026-06-29 22:44 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/4391395362.shtml)
-- 2026-06-29 22:18 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/98778.shtml)
-- 2026-06-29 22:26 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/62451.shtml)
-- 2026-06-29 22:27 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/11688398.shtml)
-- 2026-06-29 22:18 - [斗破苍穹](https://www.share.minike.top/Article/details/4916571696.shtml)
-- 2026-06-29 22:24 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/432614054.shtml)
-- 2026-06-29 22:24 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/44520.shtml)
-- 2026-06-29 22:40 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/303450865700.shtml)
-- 2026-06-29 22:36 - [蔚来车主罚站](https://www.share.minike.top/Article/details/7377264.shtml)
+- 2026-06-29 22:41 - [新官上任三把火](https://www.blog.minike.top/Article/details/607681.shtml)
+- 2026-06-29 22:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/270887627193.shtml)
+- 2026-06-29 22:36 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/7046756749.shtml)
+- 2026-06-29 22:38 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/383673.shtml)
+- 2026-06-29 22:45 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/8680213994.shtml)
+- 2026-06-29 22:30 - [逃狱兄弟](http://www.share.minike.top/Article/details/01778374371.shtml)
+- 2026-06-29 22:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/35978.shtml)
+- 2026-06-29 22:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/550771640920.shtml)
+- 2026-06-29 22:35 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/88007.shtml)
+- 2026-06-29 22:41 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/20543.shtml)
+- 2026-06-29 22:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/203003046977.shtml)
+- 2026-06-29 22:28 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/70358.shtml)
+- 2026-06-29 22:41 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/468513.shtml)
+- 2026-06-29 22:43 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/60710.shtml)
+- 2026-06-29 22:26 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/0468915.shtml)

@@ -1,58 +1,56 @@
-# Eco Atlantic与JHI交易获法院批准，福克兰群岛海上扩张进入冲刺阶段
+# 修订废止文件2300余件 2026营商环境发展报告发布
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-Eco（Atlantic）Oil & Gas周一宣布，其收购JHI Associates的交易已获得安大略高等法院的最终批准令。此前在5月12日的股东会议上，该交易获得了100%投票股东的一致支持。 剩余条件与审批预期 公司表示，交易完成的剩余条件包括福克兰群岛政府、多伦多证券交易所创业板和AIM的批准，以及确认PL001许可证的五年延期及Navitas Petroleum的运
+今天(5月8日)，国家发展改革委发布《中国营商环境发展报告(2026)》，《报告》指出，2025年，中国营商环境建设取得新进展，企业进入市场的成本更少、流程更优、服务更好。 清理市场准入壁垒 修订废止文件2300余件 《报告》分为进入市场、要素保障、经营环境、纠纷化解、企业退出等五个部分，介绍了2025年我国营商环境的积极进展。《报告》指出，随着市场准入制度进一步完善，企业投资
 
 ## 正文
 
-Eco（Atlantic）Oil & Gas周一宣布，其收购JHI Associates的交易已获得安大略高等法院的最终批准令。
+今天(5月8日)，国家发展改革委发布《中国营商环境发展报告(2026)》，《报告》指出，2025年，中国营商环境建设取得新进展，企业进入市场的成本更少、流程更优、服务更好。
 
-此前在5月12日的股东会议上，该交易获得了100%投票股东的一致支持。
+清理市场准入壁垒 修订废止文件2300余件 《报告》分为进入市场、要素保障、经营环境、纠纷化解、企业退出等五个部分，介绍了2025年我国营商环境的积极进展。
 
-剩余条件与审批预期 公司表示，交易完成的剩余条件包括福克兰群岛政府、多伦多证券交易所创业板和AIM的批准，以及确认PL001许可证的五年延期及Navitas Petroleum的运营权。
+《报告》指出，随着市场准入制度进一步完善，企业投资范围更加广阔。
 
-交易完成后的资产布局 交易完成后，Eco将获得由Navitas Petroleum运营的福克兰群岛海上PL001许可证35%的参与权益，以及圭亚那海上Canje区块的潜在敞口。
+“十四五”时期，市场准入负面清单经过2022年、2025年两次修订，清单内的事项数量压减约14%。
 
-公司预计将向JHI股东发行最多9630万股新普通股，其中约45%的股份设有18个月的锁定期。
+市场准入壁垒得到清理整治，全国累计梳理排查文件3.8万余件，修订或废止文件2300余件，有力保障了经营主体市场准入权利。
 
-管理层表态 Eco总裁兼首席执行官Gil Holzman表示，JHI收购已进入最后阶段，政府批准预计即将获得，团队正努力在获批后尽快完成交割。
+企业开办更加便捷，“十四五”时期，31个省份全部开通企业开办“一网通办”平台，实现企业开办全程网办，企业开办时间普遍压减至4个工作日以内。
 
-公司正与Navitas密切合作，计划对福克兰群岛海上PL001许可证进行勘探，确保技术无缝交接。
+企业迁移更加顺畅，企业迁移登记办事材料由32份左右压减至8份，跑动次数精简至1次，加快解决企业迁移过程中多头申请、多次跑动问题。
 
-同时，JHI和Eco仍在与圭亚那政府就Canje区块的潜在延期或重新发放进行沟通。
+综合整治“内卷式”竞争 成效初显 纵深推进全国统一大市场建设、规范涉企行政执法取得了哪些新突破、新成效？
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 22:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 22:31 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 22:19 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 22:20 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 22:38 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 22:33 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 22:32 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 22:31 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 22:47 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 22:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 22:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 22:43 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 22:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 22:30 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 22:46 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 22:49 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 22:36 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 22:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 22:37 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 22:24 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 22:27 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:18 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/3955120.shtml)
-- 2026-06-29 22:36 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/921979034.shtml)
-- 2026-06-29 22:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/7824016362.shtml)
-- 2026-06-29 22:31 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/200382604.shtml)
-- 2026-06-29 22:41 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/73098411.shtml)
-- 2026-06-29 22:25 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/54789.shtml)
-- 2026-06-29 22:45 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/6054751.shtml)
-- 2026-06-29 22:31 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/9641688.shtml)
-- 2026-06-29 22:20 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/1578116.shtml)
-- 2026-06-29 22:41 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/2325693.shtml)
-- 2026-06-29 22:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/3036179310.shtml)
-- 2026-06-29 22:29 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/0291177.shtml)
-- 2026-06-29 22:28 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/0735699220.shtml)
-- 2026-06-29 22:41 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/81351659885.shtml)
-- 2026-06-29 22:20 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/20759488090.shtml)
+- 2026-06-29 22:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/46351044.shtml)
+- 2026-06-29 22:24 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/0069693283.shtml)
+- 2026-06-29 22:52 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/3097327851.shtml)
+- 2026-06-29 22:24 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/955374.shtml)
+- 2026-06-29 22:26 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/06306.shtml)
+- 2026-06-29 22:29 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/388687241271.shtml)
+- 2026-06-29 22:39 - [急先锋](https://www.share.kurohicncr.top/Article/details/9640570610.shtml)
+- 2026-06-29 22:43 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/3955467.shtml)
+- 2026-06-29 22:30 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/35927.shtml)
+- 2026-06-29 22:43 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/3256981622.shtml)
+- 2026-06-29 22:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/8785001.shtml)
+- 2026-06-29 22:25 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/739333033.shtml)
+- 2026-06-29 22:35 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/218109.shtml)
+- 2026-06-29 22:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/3673022741.shtml)
+- 2026-06-29 22:32 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/71513718.shtml)

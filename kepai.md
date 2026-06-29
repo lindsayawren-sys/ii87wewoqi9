@@ -1,56 +1,58 @@
-# 时隔三年，瑞幸正式“卖酒”
+# 泰康人寿回应青岛分公司代理人涉案事件：对应承担的责任绝不推卸
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月18日，瑞幸咖啡于全国门店正式推出两款含酒精的特调饮品，分别为“绯色月光”与“可可维也纳”，容量为400ml中杯规格，售价均为15.9元/杯。 目前，仅“绯色月光”可选择添加伦敦干味金酒，酒精度明确标注为 >0.5%vol。依据国家《饮料酒术语和分类》（GB/T 17204 - 2021）标准，酒精度在
+作者 | 林汉垚 5月7日，泰康人寿就青岛分公司个人代理人被青岛市公安机关立案侦查一事发布声明。 泰康人寿表示，公司对此高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。 泰康人寿称，公司始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客户权益的行为零容忍。目前，已主动联系可能受影响的客
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+作者 | 林汉垚 5月7日，泰康人寿就青岛分公司个人代理人被青岛市公安机关立案侦查一事发布声明。
 
-5月18日，瑞幸咖啡于全国门店正式推出两款含酒精的特调饮品，分别为“绯色月光”与“可可维也纳”，容量为400ml中杯规格，售价均为15.9元/杯。
+泰康人寿表示，公司对此高度重视，第一时间组织专项工作组派驻青岛，全力配合公安机关的工作，并同步启动对该事件的内部自查和客户排查，绝不姑息任何违法犯罪行为。
 
-目前，仅“绯色月光”可选择添加伦敦干味金酒，酒精度明确标注为 >0.5%vol。
+泰康人寿称，公司始终将客户权益置于首位，坚定维护客户的合法权益，对任何损害客户权益的行为零容忍。
 
-依据国家《饮料酒术语和分类》（GB/T 17204 - 2021）标准，酒精度在0.5%vol以上的酒精饮料属于“饮料酒”。
+目前，已主动联系可能受影响的客户及相关人士，并承诺对于依法应由其承担的责任绝不推卸。
 
-值得注意的是，2023年瑞幸曾与茅台联名推出过酱香拿铁咖啡，但由于酒精度低于0.5%vol，因此并未作为酒类管理，此后瑞幸一直没有推出含酒饮品。
+泰康人寿表示，已深刻认识到代理人员管理的重要性，全面检视相关流程制度，加强合规培训与监督检查。
 
-责任编辑：宋雅芳
+此前，有媒体报道，青岛市公安机关以“其他接触类诈骗案”对泰康人寿青岛分公司个人代理人任某某立案侦查。
+
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 22:40 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 22:45 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 22:38 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 22:37 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 22:37 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 22:46 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 22:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 22:39 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 22:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 22:20 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 22:19 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 22:19 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 22:37 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 22:30 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 22:47 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 22:32 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 22:40 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 22:51 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 22:35 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 22:28 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 22:24 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 22:26 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 22:50 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 22:50 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 22:43 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 22:41 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 22:42 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 22:42 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:36 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/8095455.shtml)
-- 2026-06-29 22:25 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/3335451038.shtml)
-- 2026-06-29 22:35 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/9899741.shtml)
-- 2026-06-29 22:42 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/5789627.shtml)
-- 2026-06-29 22:35 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/0280680270.shtml)
-- 2026-06-29 22:42 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/0866657372.shtml)
-- 2026-06-29 22:27 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/08627380158.shtml)
-- 2026-06-29 22:35 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.minike.top/Article/details/3078077273.shtml)
-- 2026-06-29 22:46 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/30118.shtml)
-- 2026-06-29 22:24 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/988310936427.shtml)
-- 2026-06-29 22:39 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/02145888.shtml)
-- 2026-06-29 22:26 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/833074915585.shtml)
-- 2026-06-29 22:29 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/706882.shtml)
-- 2026-06-29 22:31 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/18136.shtml)
-- 2026-06-29 22:25 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/050414.shtml)
+- 2026-06-29 22:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/52771184938.shtml)
+- 2026-06-29 22:30 - [沉睡花园](http://www.blog.minike.top/Article/details/0487424543.shtml)
+- 2026-06-29 22:52 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/346995873.shtml)
+- 2026-06-29 22:39 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/929790915.shtml)
+- 2026-06-29 22:37 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/8672712.shtml)
+- 2026-06-29 22:35 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/55857842.shtml)
+- 2026-06-29 22:45 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/211430439412.shtml)
+- 2026-06-29 22:33 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/984901.shtml)
+- 2026-06-29 22:34 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/48754.shtml)
+- 2026-06-29 22:43 - [世界杯](http://www.blog.minike.top/Article/details/1955002960.shtml)
+- 2026-06-29 22:47 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/74309472703.shtml)
+- 2026-06-29 22:34 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/7176402820.shtml)
+- 2026-06-29 22:49 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/844312.shtml)
+- 2026-06-29 22:26 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/206783000.shtml)
+- 2026-06-29 22:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/37473.shtml)

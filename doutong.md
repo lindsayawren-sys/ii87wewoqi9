@@ -1,58 +1,56 @@
-# 天津视障电竞选手许禄：从“听风者”到为无声世界“撑伞”
+# “想象一下股市再涨40%……”华尔街大佬激辩！芯片股，来到泡沫破裂前夕？
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-中新网天津5月17日电 题：天津视障电竞选手许禄：从“听风者”到为无声世界“撑伞” 作者 薛淳月 指尖在键盘上快速敲击，耳机里传来的不仅是激烈的枪火声，还有方位、距离。许禄神情专注，一幅由声音构建的竞技地图在他的脑中逐渐成形。 今天是第36个全国助残日。今年助残日的主题是“保障残疾人平等权益，促进残疾人融合发展”。在天津，天生双目失明的“80后”电竞选手许禄，正用自己的方式诠释
+中新经纬5月8日电 (罗琨)5月初，北半球大部分地方还未入夏，但全球股市的半导体板块已经热得有些“烫手”。 当地时间5日，美股市场上的费城半导体指数大涨4.48%，收于11472.76点，首次站上11000点关口，刷新历史新高。韩国市场，三星电子在本周一脚跨入万亿美元市值俱乐部，并和SK海力士一道将韩国综指推上7000点高位。 然而，在一片狂欢声中，关于半导体泡沫的争论白热化。
 
 ## 正文
 
-中新网天津5月17日电 题：天津视障电竞选手许禄：从“听风者”到为无声世界“撑伞” 作者 薛淳月 指尖在键盘上快速敲击，耳机里传来的不仅是激烈的枪火声，还有方位、距离。
+中新经纬5月8日电 (罗琨)5月初，北半球大部分地方还未入夏，但全球股市的半导体板块已经热得有些“烫手”。
 
-许禄神情专注，一幅由声音构建的竞技地图在他的脑中逐渐成形。
+当地时间5日，美股市场上的费城半导体指数大涨4.48%，收于11472.76点，首次站上11000点关口，刷新历史新高。
 
-今天是第36个全国助残日。
+韩国市场，三星电子在本周一脚跨入万亿美元市值俱乐部，并和SK海力士一道将韩国综指推上7000点高位。
 
-今年助残日的主题是“保障残疾人平等权益，促进残疾人融合发展”。
+然而，在一片狂欢声中，关于半导体泡沫的争论白热化。
 
-在天津，天生双目失明的“80后”电竞选手许禄，正用自己的方式诠释着这一主题。
+正在复刻互联网泡沫轨迹？
 
-从“绝对音感”到电竞选手 五六岁时，父母发现许禄对声音有着超乎常人的敏感。
+华尔街资深人士越来越多地将当前行情与一个历史节点联系起来——2000年3月，互联网泡沫破裂前夕。
 
-他给自己找的“玩具”是一桶水和几个玻璃饮料瓶——每个瓶子装不同高度的水，敲击时声音也不同。
+截至当地时间5月5日，费城半导体指数创下自2000年3月9日以来最强的25日滚动涨幅。
 
-上学后，音乐老师弹琴给同学们听音，四五个音同时响起，他能全部听出来。
+根据道琼斯市场数据，在此期间该指数已上涨超过50%。
 
 ## 相关推荐
 
-- 2026-06-29 22:19 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 22:45 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 22:21 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 22:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 22:42 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 22:32 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 22:28 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 22:25 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 22:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 22:31 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 22:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 22:21 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 22:43 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 22:39 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 22:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 22:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 22:24 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 22:45 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 22:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 22:48 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 22:26 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 22:44 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:21 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/59483352.shtml)
-- 2026-06-29 22:43 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/209086246458.shtml)
-- 2026-06-29 22:45 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/1304875.shtml)
-- 2026-06-29 22:41 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/83010.shtml)
-- 2026-06-29 22:47 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/5732499673.shtml)
-- 2026-06-29 22:21 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/4554942288.shtml)
-- 2026-06-29 22:30 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/02297.shtml)
-- 2026-06-29 22:25 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/756634409.shtml)
-- 2026-06-29 22:46 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/0766552.shtml)
-- 2026-06-29 22:28 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/92947437744.shtml)
-- 2026-06-29 22:27 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/5601570806.shtml)
-- 2026-06-29 22:27 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/732050124776.shtml)
-- 2026-06-29 22:44 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/84423.shtml)
-- 2026-06-29 22:43 - [我们的少年时代2](http://www.blog.minike.top/Article/details/721713974486.shtml)
-- 2026-06-29 22:22 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/45609219.shtml)
+- 2026-06-29 22:49 - [时光音乐会](https://www.share.minike.top/Article/details/155342.shtml)
+- 2026-06-29 22:36 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/8485802968.shtml)
+- 2026-06-29 22:33 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/467535.shtml)
+- 2026-06-29 22:47 - [绘画区你赢了](http://www.blog.minike.top/Article/details/7597142.shtml)
+- 2026-06-29 22:41 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/0988137618.shtml)
+- 2026-06-29 22:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/77193.shtml)
+- 2026-06-29 22:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/1360133.shtml)
+- 2026-06-29 22:50 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/775403911517.shtml)
+- 2026-06-29 22:49 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/47977128052.shtml)
+- 2026-06-29 22:24 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/097998247.shtml)
+- 2026-06-29 22:25 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/33892.shtml)
+- 2026-06-29 22:32 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/448695045.shtml)
+- 2026-06-29 22:37 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/94664481.shtml)
+- 2026-06-29 22:36 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/061892287111.shtml)
+- 2026-06-29 22:31 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/2312213.shtml)

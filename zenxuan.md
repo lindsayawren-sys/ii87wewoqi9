@@ -1,58 +1,57 @@
-# 第25届“汉语桥”世界大学生中文比赛德国区决赛举行
+# 中国“拉索”在银河系捕获新的超级粒子加速器 能量超200万亿电子伏特
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月17日 18:17 来源：中国新闻网 当地时间5月16日，第25届“汉语桥”世界大学生中文比赛德国区决赛在德国南部城市纽伦堡举行。 当日，共有来自德国各地的12名选手参赛。比赛设置中文演讲、文化常识问答及才艺表演环节。各选手普遍结合自身经历讲述对“汉语桥”主题“天下一家”的理解，并展示了唱歌、跳舞、书法、乐器演奏等才艺。 最终，汉堡孔子学院推荐的选手黎
+中新网北京5月8日电 (记者 孙自法)中国国家重大科技基础设施高海拔宇宙线观测站(英文缩写LHAASO，中文昵称“拉索”)最近在探索极端宇宙方面取得重要突破：首次探测到来自银河系内伽马射线双星LS I +61 303的超高能(大于100 TeV，即超过100万亿电子伏特)伽马射线信号，不仅将对该类天体的观测推向更高能段，更对现有的粒子加速理论形成挑战。 这项基于大科学装置“拉索
 
 ## 正文
 
-发布时间：2026年05月17日 18:17 来源：中国新闻网 当地时间5月16日，第25届“汉语桥”世界大学生中文比赛德国区决赛在德国南部城市纽伦堡举行。
+中新网北京5月8日电 (记者 孙自法)中国国家重大科技基础设施高海拔宇宙线观测站(英文缩写LHAASO，中文昵称“拉索”)最近在探索极端宇宙方面取得重要突破：首次探测到来自银河系内伽马射线双星LS I +61 303的超高能(大于100 TeV，即超过100万亿电子伏特)伽马射线信号，不仅将对该类天体的观测推向更高能段，更对现有的粒子加速理论形成挑战。
 
-当日，共有来自德国各地的12名选手参赛。
+这项基于大科学装置“拉索”在银河系捕捉到新的超级粒子加速器、首次将LS I +61 303的观测能谱推至200万亿电子伏特的重大发现成果，由中国科学院高能物理研究所和中国科学院上海天文台的“拉索”团队成员共同完成，相关论文近日在国际专业学术期刊《物理评论快报》(Physical Review Letters)发表，并被选为“编辑推荐”，还被美国物理学会官方科普杂志《物理》作为精选成果进行焦点报道。
 
-比赛设置中文演讲、文化常识问答及才艺表演环节。
+论文共同通讯作者、中国科学院上海天文台周佳能副研究员介绍说，宇宙线是来自外太空的高能粒子，其起源被称为“世纪谜题”。
 
-各选手普遍结合自身经历讲述对“汉语桥”主题“天下一家”的理解，并展示了唱歌、跳舞、书法、乐器演奏等才艺。
+寻找能够将粒子加速到拍电子伏特(PeV，1000万亿电子伏特)级别的极端天体(PeVatron)，是破解宇宙线起源的关键之一。
 
-最终，汉堡孔子学院推荐的选手黎维(Levi Benjamin Petersen)获得一等奖，将代表德国参加在中国举办的“汉语桥”总决赛。
+由一颗大质量恒星和一颗致密星(如中子星或恒星级黑洞)组成的“伽马射线双星”，是探究极端物理过程的天然实验室，同时也是潜在的宇宙线加速源。
 
-黎维学习中文已有四年半，目前就读于汉堡大学汉学系。
+然而，在甚高能段(超过1000亿电子伏特)已知的双星系统十分有限。
 
-他赛后在接受记者采访时表示，学习中文让他开阔了视野。
+LS I +61 303作为一颗经典的伽马射线双星，此前的观测最高能量仅覆盖至10万亿电子伏特左右，更高能段的辐射是否存在一直是个谜。
 
-希望大学毕业后，能够有机会继续到中国留学，并为促进德国与中国之间友谊贡献力量。
+在本项研究中，研究团队充分利用“拉索”的超高灵敏度和宽能段覆盖优势，认证了LS I +61 303为超高能伽马射线双星。
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 22:25 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 22:32 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 22:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 22:26 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 22:20 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 22:21 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 22:30 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 22:35 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 22:26 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 22:32 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 22:27 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 22:39 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 22:44 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 22:40 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 22:50 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 22:26 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 22:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 22:26 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 22:28 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 22:29 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 22:52 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 22:53 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:36 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/26438.shtml)
-- 2026-06-29 22:46 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/416675.shtml)
-- 2026-06-29 22:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/45156.shtml)
-- 2026-06-29 22:36 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/692742650436.shtml)
-- 2026-06-29 22:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/81911.shtml)
-- 2026-06-29 22:45 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/936283.shtml)
-- 2026-06-29 22:42 - [急先锋](https://www.blog.kurohicncr.top/Article/details/633923.shtml)
-- 2026-06-29 22:25 - [温网](https://www.blog.kurohicncr.top/Article/details/739845120531.shtml)
-- 2026-06-29 22:26 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/02494660077.shtml)
-- 2026-06-29 22:22 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/6457511687.shtml)
-- 2026-06-29 22:39 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/86358.shtml)
-- 2026-06-29 22:27 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/36387146575.shtml)
-- 2026-06-29 22:24 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/07037209.shtml)
-- 2026-06-29 22:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/55386954881.shtml)
-- 2026-06-29 22:18 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/54548043.shtml)
+- 2026-06-29 22:36 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/14869.shtml)
+- 2026-06-29 22:26 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/099072.shtml)
+- 2026-06-29 22:39 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/333963.shtml)
+- 2026-06-29 22:26 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/962501807084.shtml)
+- 2026-06-29 22:32 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/2486098476.shtml)
+- 2026-06-29 22:32 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/64037583.shtml)
+- 2026-06-29 22:47 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/01044000.shtml)
+- 2026-06-29 22:32 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/45512939.shtml)
+- 2026-06-29 22:43 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/8552265065.shtml)
+- 2026-06-29 22:47 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/046389.shtml)
+- 2026-06-29 22:35 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/9780102965.shtml)
+- 2026-06-29 22:26 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/0895624.shtml)
+- 2026-06-29 22:33 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/8430223.shtml)
+- 2026-06-29 22:49 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/705779986.shtml)
+- 2026-06-29 22:41 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/29516.shtml)

@@ -1,56 +1,57 @@
-# 逆市显韧性！氟化工、锂电爆发，华宝基金化工ETF（516020）盘中上探1.78%！近百亿主力资金抢筹
+# “一口价”黄金激战国贸，定价模式掀行业变局
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-化工板块周五（5月15日）逆市显韧性。反映化工板块整体走势的化工ETF华宝（516020）全天多数时间飘红，盘中场内价格涨幅一度达到1.78%，尾盘随市回落，最终逆市收涨0.1%。 成份股方面，氟化工、锂电等板块大面积走强。截至收盘，多氟多涨停，巨化股份、卫星化学、天赐材料等大涨超3%，三美股份、金发科技、华峰化学等亦涨幅居前。 值得注意的是，尽管近日涨势暂歇，化工板块年初以来
+当金价持续高位震荡，传统按克计价的黄金首饰遭遇寒流，北京国贸商圈却悄然上演了一场百米之内的黄金品牌“贴身战”。近日，米瑞欧、京匠黄金两大新品牌相继完成北京首秀，以“一口价”模式将黄金克价拉升至2000元甚至更高区间。定价黄金热潮背后，究竟是短期风口还是行业变局？ 4月，两家新黄金品牌在国贸相继开业且比邻而居。 多家“一口价”黄金首店落子国贸 近日，国贸商圈接连落地两家“一口价”
 
 ## 正文
 
-化工板块周五（5月15日）逆市显韧性。
+当金价持续高位震荡，传统按克计价的黄金首饰遭遇寒流，北京国贸商圈却悄然上演了一场百米之内的黄金品牌“贴身战”。
 
-反映化工板块整体走势的化工ETF华宝（516020）全天多数时间飘红，盘中场内价格涨幅一度达到1.78%，尾盘随市回落，最终逆市收涨0.1%。
+近日，米瑞欧、京匠黄金两大新品牌相继完成北京首秀，以“一口价”模式将黄金克价拉升至2000元甚至更高区间。
 
-成份股方面，氟化工、锂电等板块大面积走强。
+定价黄金热潮背后，究竟是短期风口还是行业变局？
 
-截至收盘，多氟多涨停，巨化股份、卫星化学、天赐材料等大涨超3%，三美股份、金发科技、华峰化学等亦涨幅居前。
+4月，两家新黄金品牌在国贸相继开业且比邻而居。
 
-值得注意的是，尽管近日涨势暂歇，化工板块年初以来表现仍显著优于大盘。
+多家“一口价”黄金首店落子国贸 近日，国贸商圈接连落地两家“一口价”黄金品牌北京首店。
 
-数据显示，截至周五收盘，化工ETF华宝标的指数细分化工指数年内累计涨幅已达到8.88%，显著优于同期上证指数（4.2%）、沪深300指数（4.96%）等A股主要指数。
+9日下午，记者走进开业不久的京匠黄金，该店定位“东方高奢黄金”，全场实行“一口价”。
 
-数据来源：Wind，取值区间为2026.1.1-2026.5.15，细分化工指数近5个完整年度涨跌幅分别为：2021年，15.72%；2022年，-26.89%；2023年，-23.17%；2024年，-3.83%；2025年，41.09%。
+一款京匠游园系列的蕾丝花盘吊坠，克重约7.5克，标价接近两万元；一款约14克的镶钻葫芦吊坠售价约3.9万元，每克价格超2700元，克价远超传统品牌。
 
-指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
+记者注意到，店内首饰主打黄金搭配红宝石的设计，所有标签均按件定价，同时也标注克重和宝石规格。
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 22:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 22:37 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 22:27 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 22:22 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 22:20 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 22:20 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 22:45 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 22:19 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 22:29 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 22:38 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 22:49 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 22:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 22:48 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 22:41 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 22:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 22:50 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 22:49 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 22:26 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 22:37 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 22:32 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/5463316849.shtml)
-- 2026-06-29 22:25 - [周生如故](https://www.blog.kurohicncr.top/Article/details/7817064.shtml)
-- 2026-06-29 22:44 - [一生一世](https://www.share.minike.top/Article/details/185842.shtml)
-- 2026-06-29 22:21 - [男子称在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/645013379965.shtml)
-- 2026-06-29 22:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/820897257070.shtml)
-- 2026-06-29 22:33 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/9329441.shtml)
-- 2026-06-29 22:41 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/791225554876.shtml)
-- 2026-06-29 22:33 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/6148547.shtml)
-- 2026-06-29 22:37 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/64438412.shtml)
-- 2026-06-29 22:26 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/87422101794.shtml)
-- 2026-06-29 22:18 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/655641402.shtml)
-- 2026-06-29 22:37 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/00925.shtml)
-- 2026-06-29 22:31 - [斛珠夫人](http://www.share.minike.top/Article/details/902529247408.shtml)
-- 2026-06-29 22:41 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/8395784.shtml)
-- 2026-06-29 22:31 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/433105299665.shtml)
+- 2026-06-29 22:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/99845.shtml)
+- 2026-06-29 22:50 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/4177284126.shtml)
+- 2026-06-29 22:46 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/99675.shtml)
+- 2026-06-29 22:52 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/2730081.shtml)
+- 2026-06-29 22:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/51902936278.shtml)
+- 2026-06-29 22:39 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/91087.shtml)
+- 2026-06-29 22:39 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/830982197137.shtml)
+- 2026-06-29 22:31 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/3708160.shtml)
+- 2026-06-29 22:38 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/3414162820.shtml)
+- 2026-06-29 22:37 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/383785627.shtml)
+- 2026-06-29 22:40 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/930872106295.shtml)
+- 2026-06-29 22:53 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/26333997.shtml)
+- 2026-06-29 22:38 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/10099347.shtml)
+- 2026-06-29 22:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/679756389.shtml)
+- 2026-06-29 22:27 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/3831617729.shtml)

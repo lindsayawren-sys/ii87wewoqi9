@@ -1,56 +1,59 @@
-# 45年来肥胖率研究：中低收入国家持续上升 高收入国家趋于平稳
+# 妈妈孕期病多动少 孩子3岁时肥胖风险加倍
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月18日电 (记者 孙自法)国际学术期刊《自然》最新一期发表一篇健康研究论文指出，过去45年来，中低收入国家的肥胖率持续上升，但在许多高收入国家已趋于平稳。 这项研究基于对200个国家和地区2.32亿人的大规模数据分析，其结果表明，将肥胖视为一种全球流行病掩盖了一个事实，即不同国家、年龄组和性别之间的肥胖发展轨迹存在显著差异。 该论文介绍，与20世纪末相比，当前肥胖
+怀孕期间同时患有高血压、糖尿病等多种慢性病，再加上平时运动少、睡不好，孩子出生后可能更容易出现“体重先偏低、后猛长”的情况。到了3岁时，孩子超重或肥胖的风险明显升高。 这并非危言耸听，而是浙江大学科研团队基于对超过2.2万名母婴真实数据的追踪研究得出的结论。 近日，浙江大学公共卫生学院徐小林团队联合淮安市妇幼保健院等合作单位，在国际医学期刊《柳叶刀》的子刊《柳叶刀-区域健康(西
 
 ## 正文
 
-中新网北京5月18日电 (记者 孙自法)国际学术期刊《自然》最新一期发表一篇健康研究论文指出，过去45年来，中低收入国家的肥胖率持续上升，但在许多高收入国家已趋于平稳。
+怀孕期间同时患有高血压、糖尿病等多种慢性病，再加上平时运动少、睡不好，孩子出生后可能更容易出现“体重先偏低、后猛长”的情况。
 
-这项研究基于对200个国家和地区2.32亿人的大规模数据分析，其结果表明，将肥胖视为一种全球流行病掩盖了一个事实，即不同国家、年龄组和性别之间的肥胖发展轨迹存在显著差异。
+到了3岁时，孩子超重或肥胖的风险明显升高。
 
-该论文介绍，与20世纪末相比，当前肥胖症的患病率更高，人们常使用“流行病”一词来描述其上升趋势。
+这并非危言耸听，而是浙江大学科研团队基于对超过2.2万名母婴真实数据的追踪研究得出的结论。
 
-然而，导致肥胖的因素(如食物质量、数量及营养状况)在各国之间以及随时间推移都存在差异。
+近日，浙江大学公共卫生学院徐小林团队联合淮安市妇幼保健院等合作单位，在国际医学期刊《柳叶刀》的子刊《柳叶刀-区域健康(西太平洋)》上发表了研究成果。
 
-了解具体的演变轨迹，有助于确定针对不同国家解决肥胖问题所需的相关干预措施和政策调整。
+研究系统揭示了女性在怀孕期间同时患有多种慢性病以及生活方式不健康，会对孩子从出生到3岁期间的生长发育产生怎样的影响。
 
-为此，一个由全球近2000名科学家组成的网络——非传染性疾病风险因素协作组，利用4050项基于人群的研究数据，分析了200个国家和地区在1980年至2024年间肥胖患病率的变化情况，这些研究测量了2.32亿名5岁及以上参与者的身高和体重。
+研究还指出，孩子出生后的前8个月，可能是早期干预、降低风险的“黄金窗口期”。
 
-他们发现，在所研究的时间段内，几乎所有国家的肥胖率均呈上升趋势，但不同人群的趋势各不相同。
+从“一种病”到“多种病”：孕期健康面临新挑战80后肖琳琳是一位“慢病共病”产妇。
 
-在西欧、北美和大洋洲等地区的高收入国家，肥胖率在研究初期呈上升趋势，但随后在多数国家都趋于平稳，尽管肥胖患病率存在差异。
+决定生三胎时，她已经40多岁，属于高龄产妇。
 
 ## 相关推荐
 
-- 2026-06-29 22:23 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 22:30 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 22:29 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 22:34 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 22:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 22:22 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 22:31 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 22:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 22:36 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 22:21 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 22:27 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 22:25 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 22:41 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 22:42 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 22:35 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 22:24 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 22:47 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 22:44 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 22:43 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 22:44 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 22:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 22:27 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 22:41 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:20 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/4637310996.shtml)
-- 2026-06-29 22:35 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/906352.shtml)
-- 2026-06-29 22:29 - [巴西10号球衣是天才传承史](https://www.blog.minike.top/Article/details/47992139249.shtml)
-- 2026-06-29 22:46 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/069917316.shtml)
-- 2026-06-29 22:30 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/99103815253.shtml)
-- 2026-06-29 22:18 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/61409183.shtml)
-- 2026-06-29 22:36 - [锐评T1零封KC](http://www.share.minike.top/Article/details/917875.shtml)
-- 2026-06-29 22:45 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/57605216.shtml)
-- 2026-06-29 22:47 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/27451796.shtml)
-- 2026-06-29 22:22 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/580896299481.shtml)
-- 2026-06-29 22:29 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/2746242446.shtml)
-- 2026-06-29 22:32 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/90857353.shtml)
-- 2026-06-29 22:34 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/9340687780.shtml)
-- 2026-06-29 22:39 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/08861.shtml)
-- 2026-06-29 22:21 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/98936.shtml)
+- 2026-06-29 22:47 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/0667125273.shtml)
+- 2026-06-29 22:35 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/91131986716.shtml)
+- 2026-06-29 22:51 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/31629024613.shtml)
+- 2026-06-29 22:50 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/5191836.shtml)
+- 2026-06-29 22:38 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/62217483.shtml)
+- 2026-06-29 22:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/060531.shtml)
+- 2026-06-29 22:32 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/936807144265.shtml)
+- 2026-06-29 22:48 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/46497518.shtml)
+- 2026-06-29 22:39 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/168467763459.shtml)
+- 2026-06-29 22:24 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/02531.shtml)
+- 2026-06-29 22:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/161786823345.shtml)
+- 2026-06-29 22:51 - [爱很美味](http://www.share.minike.top/Article/details/663346612698.shtml)
+- 2026-06-29 22:29 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/450930.shtml)
+- 2026-06-29 22:44 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/732117.shtml)
+- 2026-06-29 22:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/036376762.shtml)

@@ -1,49 +1,58 @@
-# 中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动
+# 西安高校创新“四维同心”模式 助党外人才竞相“绽放”
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-中新网5月17日电 据公安部微信公众号消息，近日，中国、美国、阿联酋三国警方首次开展国际执法合作，联合打击迪拜地区的电信网络诈骗犯罪，成功捣毁诈骗窝点9个，抓获犯罪嫌疑人276名。经查，相关诈骗团伙通过社交平台与受害人建立“恋爱”关系、骗取感情信任，后诱导受害人投资所谓高回报加密货币项目致使受害人被骗。 公安部有关负责人表示，此次联合打击行动是中国警方开展国际执法合作的重要成果
+中新网西安5月8日电 (李一璠 陈婧怡)在西安理工大学的一间实验室里，无党派人士、旱区水工程生态环境全国重点实验室副主任侯精明与他的团队成员正紧盯着屏幕上“智慧雨洪管控平台”系统模拟数据。目前该系统已成功应用于全国超百个国家级海绵城市试点及内涝治理工作中。 近年来，该校通过构建组织强基、思想领航、聚势建功、平台重构的“四维同心”工作模式，助力党外人才竞相“绽放”。 “我们不仅要
 
 ## 正文
 
-中新网5月17日电 据公安部微信公众号消息，近日，中国、美国、阿联酋三国警方首次开展国际执法合作，联合打击迪拜地区的电信网络诈骗犯罪，成功捣毁诈骗窝点9个，抓获犯罪嫌疑人276名。
+中新网西安5月8日电 (李一璠 陈婧怡)在西安理工大学的一间实验室里，无党派人士、旱区水工程生态环境全国重点实验室副主任侯精明与他的团队成员正紧盯着屏幕上“智慧雨洪管控平台”系统模拟数据。
 
-经查，相关诈骗团伙通过社交平台与受害人建立“恋爱”关系、骗取感情信任，后诱导受害人投资所谓高回报加密货币项目致使受害人被骗。
+目前该系统已成功应用于全国超百个国家级海绵城市试点及内涝治理工作中。
 
-公安部有关负责人表示，此次联合打击行动是中国警方开展国际执法合作的重要成果，中国警方将同更多国家深化务实合作，开展联合打击行动，坚决清剿电诈窝点，全力缉捕涉电诈犯罪嫌疑人，切实维护各国人民合法权益。
+近年来，该校通过构建组织强基、思想领航、聚势建功、平台重构的“四维同心”工作模式，助力党外人才竞相“绽放”。
+
+“我们不仅要待在实验室，更要把论文写在黄河两岸，写在陕西的34条重点产业链上。
+
+”九三学社社员、西安理工大学教授李怀恩表示。
+
+他深耕生态水文、水利经济与环境经济等方面的科研与教学工作多年，带领团队将界别优势转化为服务国家“黄河流域生态保护”和“双碳”目标的效能。
+
+民盟盟员、西安理工大学材料科学与工程学院院长李喜飞则致力于研究高性能电池材料。
+
+目前李喜飞教授团队已与多家相关企业达成深度合作，为高性能电池产业链作出重要贡献，创新成果落地开花。
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 22:32 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 22:30 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 22:35 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 22:45 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 22:39 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 22:18 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 22:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 22:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 22:22 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 22:47 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 22:44 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 22:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 22:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 22:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 22:41 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 22:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 22:50 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 22:35 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 22:49 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 22:30 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 22:53 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 22:44 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 22:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 22:42 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:40 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/60087180438.shtml)
-- 2026-06-29 22:25 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/550365297762.shtml)
-- 2026-06-29 22:29 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/351535761.shtml)
-- 2026-06-29 22:22 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/589244296843.shtml)
-- 2026-06-29 22:27 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/42998.shtml)
-- 2026-06-29 22:27 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/082721533.shtml)
-- 2026-06-29 22:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/6060010.shtml)
-- 2026-06-29 22:18 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/379676.shtml)
-- 2026-06-29 22:33 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/6597031817.shtml)
-- 2026-06-29 22:42 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/5654103586.shtml)
-- 2026-06-29 22:43 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/24852383606.shtml)
-- 2026-06-29 22:40 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/138112090375.shtml)
-- 2026-06-29 22:29 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/192176599961.shtml)
-- 2026-06-29 22:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/624693.shtml)
-- 2026-06-29 22:35 - [宜宾地震已转移安置225人](https://www.share.kurohicncr.top/Article/details/53956.shtml)
+- 2026-06-29 22:36 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/7333367360.shtml)
+- 2026-06-29 22:51 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/8215564.shtml)
+- 2026-06-29 22:29 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/31729526.shtml)
+- 2026-06-29 22:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/7910479.shtml)
+- 2026-06-29 22:45 - [刘宇宁 好听](https://www.share.minike.top/Article/details/69851.shtml)
+- 2026-06-29 22:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/078849955.shtml)
+- 2026-06-29 22:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/46470.shtml)
+- 2026-06-29 22:45 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/79925.shtml)
+- 2026-06-29 22:30 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/39941.shtml)
+- 2026-06-29 22:35 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/88787.shtml)
+- 2026-06-29 22:28 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/63656204.shtml)
+- 2026-06-29 22:25 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/436076796903.shtml)
+- 2026-06-29 22:31 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/9080142.shtml)
+- 2026-06-29 22:37 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/62915746.shtml)
+- 2026-06-29 22:51 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/45653.shtml)

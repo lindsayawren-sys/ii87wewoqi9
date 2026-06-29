@@ -1,58 +1,61 @@
-# 车辆违规停放消防通道 被掉落瓷砖砸坏 损失谁来担
+# 午盘：美股继续上扬 纳指上涨350点
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-法治在线丨车辆违规停放消防通道 被掉落瓷砖砸坏 损失谁来担 日常生活中，有的车主为了图方便，常常随意停车，甚至直接将车辆停在禁停区域、消防通道内。在湖南湘潭，一位业主把车违停在小区消防通道，结果被脱落的外墙瓷砖砸中，车辆受损。车主的保险公司理赔之后，把小区物业告上了法院，想要追回这笔赔偿款。那么这次天降瓷砖砸坏车的事故，到底该谁赔呢？ 车辆违规停放消防通道 被脱落瓷砖砸中 今年
+北京时间5月9日凌晨，美股周五午盘继续上扬，纳指上涨350点。标普500指数和纳斯达克综合再创历史新高。美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。 道指涨62.39点，涨幅为0.13%，报49659.36点；纳指涨346.89点，涨幅为1.34%，报26153.08点；标普500指数涨57.33
 
 ## 正文
 
-法治在线丨车辆违规停放消防通道 被掉落瓷砖砸坏 损失谁来担 日常生活中，有的车主为了图方便，常常随意停车，甚至直接将车辆停在禁停区域、消防通道内。
+北京时间5月9日凌晨，美股周五午盘继续上扬，纳指上涨350点。
 
-在湖南湘潭，一位业主把车违停在小区消防通道，结果被脱落的外墙瓷砖砸中，车辆受损。
+标普500指数和纳斯达克综合再创历史新高。
 
-车主的保险公司理赔之后，把小区物业告上了法院，想要追回这笔赔偿款。
+美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。
 
-那么这次天降瓷砖砸坏车的事故，到底该谁赔呢？
+美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。
 
-车辆违规停放消防通道 被脱落瓷砖砸中 今年2月，湖南湘潭岳塘区人民法院公布了一起典型案例。
+道指涨62.39点，涨幅为0.13%，报49659.36点；纳指涨346.89点，涨幅为1.34%，报26153.08点；标普500指数涨57.33点，涨幅为0.78%，报7394.44点。
 
-事发当天，业主肖先生开车回家，发现楼下的车位都停满了，他把车停在了小区后门的消防通道上。
+标普500指数和纳斯达克综合指数周五双双反弹，并再创历史新高。
 
-半个多小时后，楼上外墙瓷砖突然大面积脱落，多块瓷片从高空落下，肖先生来到停车位发现，他的车辆车顶、前挡风玻璃、引擎盖全都被砸中，车身也有多处划伤、凹陷、破损。
+美国劳工统计局周五公布的数据显示，4月非农就业人数增加11.5万，高于道琼斯调查经济学家预期的5.5万。
 
-事发后，肖先生报警，民警赶到现场勘查，确认车辆的所有破损，都是楼栋外墙瓷砖高空坠落造成的。
+美国失业率持稳于4.3%，符合预期。
 
 ## 相关推荐
 
-- 2026-06-29 22:25 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 22:40 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 22:36 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 22:43 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 22:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 22:47 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 22:25 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 22:26 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 22:32 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 22:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 22:27 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 22:35 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 22:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 22:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 22:32 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 22:34 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 22:36 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 22:52 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 22:34 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 22:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 22:38 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 22:31 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 22:39 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 22:28 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 22:37 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 22:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 22:32 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:28 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/92933533065.shtml)
-- 2026-06-29 22:31 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/4431467.shtml)
-- 2026-06-29 22:19 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/44029.shtml)
-- 2026-06-29 22:31 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/51041661971.shtml)
-- 2026-06-29 22:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/63045082.shtml)
-- 2026-06-29 22:32 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.kurohicncr.top/Article/details/88086173.shtml)
-- 2026-06-29 22:40 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/98929823443.shtml)
-- 2026-06-29 22:32 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/29072044434.shtml)
-- 2026-06-29 22:22 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/12665707239.shtml)
-- 2026-06-29 22:27 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/85147.shtml)
-- 2026-06-29 22:25 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/4060141082.shtml)
-- 2026-06-29 22:43 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/808542.shtml)
-- 2026-06-29 22:34 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/522242137.shtml)
-- 2026-06-29 22:28 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/896877120.shtml)
-- 2026-06-29 22:30 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/8832526.shtml)
+- 2026-06-29 22:25 - [恋与深空 巧合](https://www.share.minike.top/Article/details/161222848555.shtml)
+- 2026-06-29 22:47 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/77755.shtml)
+- 2026-06-29 22:39 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/06851.shtml)
+- 2026-06-29 22:48 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/736761716.shtml)
+- 2026-06-29 22:47 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/83029.shtml)
+- 2026-06-29 22:41 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/1847920.shtml)
+- 2026-06-29 22:44 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/6881399063.shtml)
+- 2026-06-29 22:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/84560514208.shtml)
+- 2026-06-29 22:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/36929512.shtml)
+- 2026-06-29 22:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/858417012602.shtml)
+- 2026-06-29 22:25 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/255676.shtml)
+- 2026-06-29 22:48 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/76128944315.shtml)
+- 2026-06-29 22:43 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/30726.shtml)
+- 2026-06-29 22:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/93814285213.shtml)
+- 2026-06-29 22:32 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/650500.shtml)

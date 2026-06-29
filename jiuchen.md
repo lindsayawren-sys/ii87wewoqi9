@@ -1,58 +1,60 @@
-# 中国大陆学者首获英国皇家经济学会终身院士
+# 焦点访谈丨实干笃行新征程 他们用匠心诠释着每一份坚守
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新社沈阳5月16日电 (记者 韩宏)辽宁大学16日发布消息称，英国皇家经济学会(Royal Economic Society, RES)近日授予辽宁大学校长余淼杰英国皇家经济学会终身院士(RES Fellow)，并授予其终身勋衔FREcon。这是该学会首次将这一荣誉授予中国大陆经济学者。英国皇家经济学会创立于1890年，长期致力于推动经济学研究、教育和公共政策讨论，在全球经济
+自古以来，工匠精神就根植于中华优秀传统文化的深厚土壤，也深深融入中华民族的精神血脉。党的十八大以来，习近平总书记多次礼赞劳动创造，并强调要发扬“执着专注、精益求精、一丝不苟、追求卓越”的工匠精神。 一支150毫米大口径折射式望远镜在接受测试，即将用于航空航天领域的空间目标探测。 平行光管测试，模拟的是遥远太空中的星体发来的平行星光。设计师通过从这支望远镜里看到的光线形态和清晰度
 
 ## 正文
 
-中新社沈阳5月16日电 (记者 韩宏)辽宁大学16日发布消息称，英国皇家经济学会(Royal Economic Society, RES)近日授予辽宁大学校长余淼杰英国皇家经济学会终身院士(RES Fellow)，并授予其终身勋衔FREcon。
+自古以来，工匠精神就根植于中华优秀传统文化的深厚土壤，也深深融入中华民族的精神血脉。
 
-这是该学会首次将这一荣誉授予中国大陆经济学者。
+党的十八大以来，习近平总书记多次礼赞劳动创造，并强调要发扬“执着专注、精益求精、一丝不苟、追求卓越”的工匠精神。
 
-英国皇家经济学会创立于1890年，长期致力于推动经济学研究、教育和公共政策讨论，在全球经济学界享有崇高声誉。
+一支150毫米大口径折射式望远镜在接受测试，即将用于航空航天领域的空间目标探测。
 
-其主办旗舰期刊《经济学期刊》(The Economic Journal)是现代经济学的重要学术期刊之一。
+平行光管测试，模拟的是遥远太空中的星体发来的平行星光。
 
-据介绍，英国皇家经济学会院士(RES Fellow)是英国皇家经济学会授予经济学者的重要学术荣誉，经英国皇家经济学会专门评审程序遴选产生，旨在表彰在原创研究、教学育人、学科服务等方面对经济学学科作出卓越贡献的杰出学者。
+设计师通过从这支望远镜里看到的光线形态和清晰度，来判断如何使它最大限度实现设计目标。
 
-当前英国皇家经济学会院士全球仅127人，汇聚世界经济学界最具影响力的代表性学者。
+第一次的测试结果，摄像机的拍摄与肉眼观测有差距，实际看到的星点已相当清晰，但这还远没有达到设计师的目标。
 
-余淼杰主要研究领域为国际贸易与中国经济发展，他长期深耕企业异质性、加工贸易、全球价值链和贸易政策等研究领域，在推动中国经济研究进入国际主流经济学研究主题方面作出杰出贡献。
+这支镜头出自肖维军设计团队，经过两年多的磨合，从生产加工到安装调试都已相对成熟。
 
-至今，余淼杰已在国内外权威期刊发表同行评审论文200余篇。
+即便如此，每到最终的调试阶段，肖维军也会亲自参与，作为设计师，他希望每一支镜头都能最大限度实现极致目标。
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 22:47 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 22:26 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 22:45 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 22:27 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 22:29 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 22:43 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 22:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 22:27 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 22:41 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 22:37 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 22:44 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 22:42 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 22:40 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 22:37 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 22:48 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 22:53 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 22:47 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 22:36 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 22:32 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 22:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 22:34 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 22:33 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 22:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 22:32 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 22:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/690455041.shtml)
-- 2026-06-29 22:25 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/9038108555.shtml)
-- 2026-06-29 22:45 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/518116.shtml)
-- 2026-06-29 22:18 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/8808782.shtml)
-- 2026-06-29 22:47 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/31354082250.shtml)
-- 2026-06-29 22:31 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/6556744562.shtml)
-- 2026-06-29 22:23 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/39059496460.shtml)
-- 2026-06-29 22:40 - [我和我的家乡](http://www.blog.minike.top/Article/details/5862809540.shtml)
-- 2026-06-29 22:38 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/289339241739.shtml)
-- 2026-06-29 22:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/078552200.shtml)
-- 2026-06-29 22:24 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/51207522688.shtml)
-- 2026-06-29 22:20 - [女心理师](http://www.blog.kurohicncr.top/Article/details/2317363331.shtml)
-- 2026-06-29 22:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/684422.shtml)
-- 2026-06-29 22:30 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/9452628541.shtml)
-- 2026-06-29 22:21 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/752072.shtml)
+- 2026-06-29 22:37 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/517723222.shtml)
+- 2026-06-29 22:48 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/75238279.shtml)
+- 2026-06-29 22:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/6902450923.shtml)
+- 2026-06-29 22:26 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/786599562.shtml)
+- 2026-06-29 22:34 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/82472831.shtml)
+- 2026-06-29 22:49 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/47937519153.shtml)
+- 2026-06-29 22:32 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/11407119741.shtml)
+- 2026-06-29 22:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/99540.shtml)
+- 2026-06-29 22:28 - [英法德葡存在什么隐患](https://www.blog.minike.top/Article/details/287139769.shtml)
+- 2026-06-29 22:51 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/19567.shtml)
+- 2026-06-29 22:26 - [第一炉香](http://www.share.kurohicncr.top/Article/details/30161768951.shtml)
+- 2026-06-29 22:53 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/72060.shtml)
+- 2026-06-29 22:47 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/86709639014.shtml)
+- 2026-06-29 22:36 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/85775933477.shtml)
+- 2026-06-29 22:31 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/9264751968.shtml)

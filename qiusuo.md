@@ -1,57 +1,57 @@
-# 2026年首趟“心连心·京藏号”旅游专列正式启程
+# 对接“十五五”规划 粤港澳高校代表研讨“澳门研发+横琴转化”
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新网北京5月16日电(记者 贾天勇)16日，随着T175次列车驶离北京西站，2026年首趟“心连心·京藏号”旅游专列正式启程。作为国铁北京局“京铁乐游”文化品牌核心产品，本次专列将在2026年5月至9月连续开行多趟，再次架起首都北京与雪域高原之间交流交往的桥梁，筑牢京藏文旅融合与民族团结的坚实纽带。 本次专列延续“图定列车+旅游专列”组合模式，科学设置阶梯式海拔适应行程，往返
+中新网澳门5月7日电 “薪传四十五载·智汇湾区新程——澳门城市大学45周年校庆粤港澳大湾区高校拓展交流论坛”7日在澳门城市大学举行。大湾区高校领导及青年代表齐聚一堂，共商高等教育融合发展。 本次论坛聚焦大湾区研究生培养创新与协同育人模式，设有主旨演讲、专家交流和专题分享等多个环节。 澳门城市大学副校长周万雷致辞指出，粤港澳大湾区正全力建设国际教育示范区，澳琴国际教育(大学)城将
 
 ## 正文
 
-中新网北京5月16日电(记者 贾天勇)16日，随着T175次列车驶离北京西站，2026年首趟“心连心·京藏号”旅游专列正式启程。
+中新网澳门5月7日电 “薪传四十五载·智汇湾区新程——澳门城市大学45周年校庆粤港澳大湾区高校拓展交流论坛”7日在澳门城市大学举行。
 
-作为国铁北京局“京铁乐游”文化品牌核心产品，本次专列将在2026年5月至9月连续开行多趟，再次架起首都北京与雪域高原之间交流交往的桥梁，筑牢京藏文旅融合与民族团结的坚实纽带。
+大湾区高校领导及青年代表齐聚一堂，共商高等教育融合发展。
 
-本次专列延续“图定列车+旅游专列”组合模式，科学设置阶梯式海拔适应行程，往返在海拔2261米的西宁安排两天一晚停留，帮助游客进藏快速适应高原环境，返程有效缓解醉氧不适。
+本次论坛聚焦大湾区研究生培养创新与协同育人模式，设有主旨演讲、专家交流和专题分享等多个环节。
 
-列车深度融合民族团结主题，打造“格桑花开，幸福路长”特色旅程，行程涵盖青海、西藏多地精华景区，包括布达拉宫、罗布林卡、雅鲁藏布大峡谷、羊卓雍措、青海湖、茶卡盐湖等5个5A、5个4A、2个3A级自然与人文景观，并融入藏族文化互动活动，让游客近距离感受西藏非遗传承与独特民俗风情。
+澳门城市大学副校长周万雷致辞指出，粤港澳大湾区正全力建设国际教育示范区，澳琴国际教育(大学)城将于今年9月启动研究生教学，带来区域高等教育一体化历史性机遇。
 
-在拉萨段供氧专列上，列车仅使用中下铺位，方便游客白天全程饱览青藏高原壮美风光，沿途可观赏世界海拔最高淡水湖之一措那湖、雄伟的昆仑山脉、海拔5231米的唐古拉山口，还可邂逅藏羚羊、藏野驴等高原野生动物。
+期待通过此次论坛与大湾区兄弟城市高校共建育人新生态，落实“澳门研发+横琴转化”模式，培育支撑新质生产力的高层次人才。
 
-在列车服务方面，石家庄客运段专门推出“银发暖心服务”与“便民主动服务”，针对老年旅客出行特点，乘务组配备血压仪、针线包、充电器等便民物品，全程贴心照料、及时响应旅客需求。
+专家交流环节，与会嘉宾分别分享了产教融合改革实践、特色研究生培养模式、“4I”教育理念与教学创新、科教融合与产学研合作、招生培养学位体系改革等领域的宝贵经验，并勉励青年学子厚植科研情怀、潜心深耕学术。
 
-在车辆运行保障方面，北京车辆段全面强化列车检修整备工作。
+澳门城市大学副校长叶桂平主持专题分享时说，澳门高校应立足“一国两制”独特优势，对接国家“十五五”规划与《教育强国建设规划纲要(2024-2035年)》，重点推进三方面工作：深化澳琴教育协同，推进澳琴国际教育(大学)城建设；构建跨境产学研协同创新体系，融入湾区国际科创中心建设；推进人才政策与服务一体化衔接，落实“澳门+横琴”一体化引才机制。
 
-列车发车前，北京车辆段组织经验丰富、技术精湛的整修人员围绕走行部、电气设备、空调机组、电茶炉等关键部位进行试验、检查与检修，严格把控客车出库质量，同时专门安排4名技术过硬的资深车辆乘务员随车值乘，实时监控列车运行状态，及时排查并消除安全隐患，确保旅客安全出行。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 22:28 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 22:33 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 22:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 22:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 22:43 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 22:18 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 22:38 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 22:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 22:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 22:30 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 22:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 22:38 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 22:31 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 22:43 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 22:52 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 22:27 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 22:40 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 22:26 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 22:35 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 22:37 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 22:52 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:23 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/978070411588.shtml)
-- 2026-06-29 22:20 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/15006784.shtml)
-- 2026-06-29 22:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/417932.shtml)
-- 2026-06-29 22:41 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/38280194692.shtml)
-- 2026-06-29 22:35 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/0247472.shtml)
-- 2026-06-29 22:41 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/423280.shtml)
-- 2026-06-29 22:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/836666.shtml)
-- 2026-06-29 22:33 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/59919945.shtml)
-- 2026-06-29 22:46 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/3307898.shtml)
-- 2026-06-29 22:26 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/12516719.shtml)
-- 2026-06-29 22:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/76978.shtml)
-- 2026-06-29 22:23 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/9303467.shtml)
-- 2026-06-29 22:47 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/7174932.shtml)
-- 2026-06-29 22:41 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/3538372514.shtml)
-- 2026-06-29 22:20 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/282882.shtml)
+- 2026-06-29 22:40 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/63741448849.shtml)
+- 2026-06-29 22:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/418925462.shtml)
+- 2026-06-29 22:41 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/092930.shtml)
+- 2026-06-29 22:31 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/328362.shtml)
+- 2026-06-29 22:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/669140516346.shtml)
+- 2026-06-29 22:50 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/404381249971.shtml)
+- 2026-06-29 22:45 - [天道](https://www.blog.kurohicncr.top/Article/details/472864259407.shtml)
+- 2026-06-29 22:28 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/7224622271.shtml)
+- 2026-06-29 22:47 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/055567014.shtml)
+- 2026-06-29 22:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/419359491628.shtml)
+- 2026-06-29 22:50 - [肝不好身体这几处会“说话”](http://www.share.kurohicncr.top/Article/details/237066778.shtml)
+- 2026-06-29 22:49 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/211218191380.shtml)
+- 2026-06-29 22:29 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/243299781.shtml)
+- 2026-06-29 22:36 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/775049.shtml)
+- 2026-06-29 22:32 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/66863.shtml)

@@ -1,50 +1,49 @@
-# 国防部：中蒙将举行“草原伙伴-2026”陆军联训
+# 伪满皇宫博物院古丁香盛放 古韵花香漫溢庭院
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-中新网5月18日电 据“国防部发布”微信公众号消息，5月18日下午，国防部新闻发言人蒋斌大校就近期涉军问题发布消息。 蒋斌：5月下旬至6月上旬，中蒙“草原伙伴-2026”陆军联训将在中国内蒙古举行。此次联训以联合打击非法武装组织行动为课题，是两国陆军第2次举行该系列联训，旨在不断深化友谊互信，加强务实合作，提升共同维护地区和平稳定能力。
+发布时间：2026年05月07日 21:08 来源：中国新闻网 5月7日，吉林长春，伪满皇宫博物院内古丁香次第盛放，紫白缀枝、馥郁飘香。院内多株栽植年代久远的古丁香迎来盛花期，花枝繁茂舒展、花簇如云似雪。清雅花香萦绕红墙古建，繁花与百年历史院落相映相融，古风气韵与春日芳华浑然一体。(记者 张瑶 制作 王嘉怡） 责任编辑：【卢岩】
 
 ## 正文
 
-中新网5月18日电 据“国防部发布”微信公众号消息，5月18日下午，国防部新闻发言人蒋斌大校就近期涉军问题发布消息。
+发布时间：2026年05月07日 21:08 来源：中国新闻网 5月7日，吉林长春，伪满皇宫博物院内古丁香次第盛放，紫白缀枝、馥郁飘香。
 
-蒋斌：5月下旬至6月上旬，中蒙“草原伙伴-2026”陆军联训将在中国内蒙古举行。
+院内多株栽植年代久远的古丁香迎来盛花期，花枝繁茂舒展、花簇如云似雪。
 
-此次联训以联合打击非法武装组织行动为课题，是两国陆军第2次举行该系列联训，旨在不断深化友谊互信，加强务实合作，提升共同维护地区和平稳定能力。
+清雅花香萦绕红墙古建，繁花与百年历史院落相映相融，古风气韵与春日芳华浑然一体。
+
+(记者 张瑶 制作 王嘉怡） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 22:32 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 22:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 22:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 22:23 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 22:41 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 22:39 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 22:34 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 22:25 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 22:27 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 22:22 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 22:19 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 22:26 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 22:46 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 22:36 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 22:50 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 22:31 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 22:33 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 22:47 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 22:53 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 22:37 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 22:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 22:35 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 22:31 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 22:49 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/2973718744.shtml)
-- 2026-06-29 22:29 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/41715477.shtml)
-- 2026-06-29 22:45 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/1815991.shtml)
-- 2026-06-29 22:25 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/0896316.shtml)
-- 2026-06-29 22:25 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/327752.shtml)
-- 2026-06-29 22:43 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/17376.shtml)
-- 2026-06-29 22:20 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/35358.shtml)
-- 2026-06-29 22:45 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/9650828.shtml)
-- 2026-06-29 22:18 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/742496135510.shtml)
-- 2026-06-29 22:19 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/19263081114.shtml)
-- 2026-06-29 22:26 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/903248892105.shtml)
-- 2026-06-29 22:36 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/0608527831.shtml)
-- 2026-06-29 22:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/0305458624.shtml)
-- 2026-06-29 22:43 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/48524450262.shtml)
-- 2026-06-29 22:18 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/44484.shtml)
+- 2026-06-29 22:38 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/137747828540.shtml)
+- 2026-06-29 22:40 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/22931050.shtml)
+- 2026-06-29 22:26 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/520263.shtml)
+- 2026-06-29 22:47 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/59921.shtml)
+- 2026-06-29 22:29 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/51610086.shtml)
+- 2026-06-29 22:42 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/21488.shtml)
+- 2026-06-29 22:45 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/1420916136.shtml)
+- 2026-06-29 22:49 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/8677119.shtml)
+- 2026-06-29 22:52 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/062875.shtml)
+- 2026-06-29 22:35 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/15700193873.shtml)
+- 2026-06-29 22:31 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/4465109010.shtml)
+- 2026-06-29 22:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/500180797.shtml)
+- 2026-06-29 22:50 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/734451406723.shtml)
+- 2026-06-29 22:51 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/56125472926.shtml)
+- 2026-06-29 22:29 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/47194519.shtml)

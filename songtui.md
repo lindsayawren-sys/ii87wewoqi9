@@ -1,60 +1,52 @@
-# 9连板后一字跌停，*ST准油澄清“注入算力资产”传闻
+# 外交部：敦促英方纠正错误做法，停止反华的政治操弄，停止为反中乱港分子撑腰打气
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月18日，*ST准油（维权）（002207.SZ）一字跌停，报9.64元/股。此前，该股曾连收9个涨停板。 其全天封死跌停的导火索，是5月17日的一则澄清公告。*ST准油称，近期东方财富股吧有投资者发帖称公司有“可能注入算力资产”的计划， 公司特此澄清，公司、控股股东和实际控制人并无注入算力资产的计划。截
+【环球时报-环球网报道 记者 索炎琦】在5月8日举行的中国外交部例行记者会上，对于有两名男子因为中国从事间谍活动而在英国被定罪一事，外交部发言人林剑回答相关问询时表示，中方已经多次就有关案件表明了原则立场，英方以莫须有的罪名抓捕和起诉在英的中国公民，滥用法律，操弄司法程序定罪，公然为反中乱港分子站台，对中方进行无理指控和污蔑抹黑，是典型的政治闹剧。中方对此予以强烈谴责和坚决反对
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+【环球时报-环球网报道 记者 索炎琦】在5月8日举行的中国外交部例行记者会上，对于有两名男子因为中国从事间谍活动而在英国被定罪一事，外交部发言人林剑回答相关问询时表示，中方已经多次就有关案件表明了原则立场，英方以莫须有的罪名抓捕和起诉在英的中国公民，滥用法律，操弄司法程序定罪，公然为反中乱港分子站台，对中方进行无理指控和污蔑抹黑，是典型的政治闹剧。
 
-5月18日，*ST准油（维权）（002207.SZ）一字跌停，报9.64元/股。
+中方对此予以强烈谴责和坚决反对，已向英方提出严正交涉。
 
-此前，该股曾连收9个涨停板。
+我们敦促英方纠正错误做法，停止反华的政治操弄，停止为反中乱港分子撑腰打气，维护中英关系来之不易的良好发展势头。
 
-其全天封死跌停的导火索，是5月17日的一则澄清公告。
-
-*ST准油称，近期东方财富股吧有投资者发帖称公司有“可能注入算力资产”的计划， 公司特此澄清，公司、控股股东和实际控制人并无注入算力资产的计划。
-
-截至目前，公司不存在应披露而未披露的重大事项，或处于筹划阶段的重大事项，包括但不限于重大资产 重组、股份发行、收购、债务重组、业务重组、资产剥离及资产注入等。
-
-澎湃新闻注意到，近一个月，*ST准油累计上涨超35%。
-
-因2025年度利润总额、净利润、扣除非经常性损益后的净利润均为负值，且扣除后营业收入低于3亿元，该股4月29日起被实施“退市风险警示”特别处理。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 22:20 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 22:28 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 22:34 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 22:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 22:41 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 22:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 22:45 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 22:21 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 22:46 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 22:21 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 22:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 22:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 22:34 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 22:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 22:32 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 22:28 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 22:28 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 22:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 22:42 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 22:49 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 22:38 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 22:40 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 22:31 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 22:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 22:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 22:27 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 22:34 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:46 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/19493.shtml)
-- 2026-06-29 22:29 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/051114.shtml)
-- 2026-06-29 22:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/15437.shtml)
-- 2026-06-29 22:20 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/5584658.shtml)
-- 2026-06-29 22:28 - [爱很美味](https://www.share.kurohicncr.top/Article/details/02439592.shtml)
-- 2026-06-29 22:31 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/059635.shtml)
-- 2026-06-29 22:23 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/73640461.shtml)
-- 2026-06-29 22:46 - [王鸿薇要求删陆委会百余万特别费](http://www.share.kurohicncr.top/Article/details/311188766.shtml)
-- 2026-06-29 22:28 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/932241394.shtml)
-- 2026-06-29 22:25 - [世界杯](http://www.blog.minike.top/Article/details/36070603762.shtml)
-- 2026-06-29 22:30 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/39190621142.shtml)
-- 2026-06-29 22:27 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/8466202.shtml)
-- 2026-06-29 22:36 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/32965.shtml)
-- 2026-06-29 22:38 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/4418388.shtml)
-- 2026-06-29 22:34 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/20800071745.shtml)
+- 2026-06-29 22:24 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/2521725895.shtml)
+- 2026-06-29 22:53 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/4693987.shtml)
+- 2026-06-29 22:31 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/278330.shtml)
+- 2026-06-29 22:33 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/196746685709.shtml)
+- 2026-06-29 22:53 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/152063.shtml)
+- 2026-06-29 22:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/355303644.shtml)
+- 2026-06-29 22:24 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/319046.shtml)
+- 2026-06-29 22:32 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/03770631539.shtml)
+- 2026-06-29 22:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/671040825.shtml)
+- 2026-06-29 22:31 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/47187.shtml)
+- 2026-06-29 22:53 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/11942.shtml)
+- 2026-06-29 22:46 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/736159778812.shtml)
+- 2026-06-29 22:29 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/38811711.shtml)
+- 2026-06-29 22:46 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/4685833130.shtml)
+- 2026-06-29 22:25 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/10373.shtml)

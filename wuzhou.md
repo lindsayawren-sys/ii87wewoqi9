@@ -1,60 +1,61 @@
-# 杰志队夺得香港足球超级联赛冠军
+# 麦格理大宗商品部门主管薪酬飙升 超过CEO
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-今天是国际博物馆日，我们为什么需要博物馆？原来文物也爱“串门”《给阿嬷的情书》导演蓝鸿春:潮汕方言电影因何跨越山海能源危机叠加日元贬值，日本实体经济正为中东战火埋单“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为一个馆赴一座城，河北小众博物馆频“出圈”美国记者，在北京看到了怎样的中国？台湾用30余年建成的淡江大桥通车即翻车？律师：女孩盲道被撞摆拍者或构成寻衅滋
+在核心业务的利润推动了麦格理集团的盈利增长之后，这家澳大利亚公司的大宗商品和全球市场部门主管Simon Wright薪酬暴增。 公司年报显示，Wright的年薪飙升约56%，达到3540万澳元（2550万美元）。首席执行官Shemara Wikramanayake则为2650万澳元。 该集团截至3月31日的12个月净利润同比增长30%，至48.5亿澳元，超过了接受调查的分析师平
 
 ## 正文
 
-今天是国际博物馆日，我们为什么需要博物馆？
+在核心业务的利润推动了麦格理集团的盈利增长之后，这家澳大利亚公司的大宗商品和全球市场部门主管Simon Wright薪酬暴增。
 
-原来文物也爱“串门”《给阿嬷的情书》导演蓝鸿春:潮汕方言电影因何跨越山海能源危机叠加日元贬值，日本实体经济正为中东战火埋单“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为一个馆赴一座城，河北小众博物馆频“出圈”美国记者，在北京看到了怎样的中国？
+公司年报显示，Wright的年薪飙升约56%，达到3540万澳元（2550万美元）。
 
-台湾用30余年建成的淡江大桥通车即翻车？
+首席执行官Shemara Wikramanayake则为2650万澳元。
 
-律师：女孩盲道被撞摆拍者或构成寻衅滋事罪从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？
+该集团截至3月31日的12个月净利润同比增长30%，至48.5亿澳元，超过了接受调查的分析师平均预期的44.1亿澳元。
 
-对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？
+其中，大宗商品部门的贡献飙升49%，达到42.2亿澳元。
 
-“超级食物”真有那么神奇吗？
+这家总部位于悉尼的银行和资产管理公司受益于中东冲突引发的能源市场冲击。
 
-专家揭秘真相桥头地瓜，竟是“地瓜界的爱马仕”造假摆拍，无底线博流量！
+从摩根大通到高盛集团，其华尔街同行也都得益于2026年的强劲开局，喜迎股票交易收入飙升。
 
-北京警方通报3起典型案例斯塔默政治前途“悬而未决” 潜在竞争者都有谁？
+美国总统唐纳德·特朗普的政策举措使得从股票、利率到大宗商品的各个市场都剧烈波动，刺激了客户的交易活动，并推高了银行从处理这些交易中获得的收入。
 
 ## 相关推荐
 
-- 2026-06-29 22:29 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 22:43 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 22:26 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 22:23 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 22:34 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 22:43 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 22:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 22:30 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 22:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 22:19 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 22:28 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 22:37 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 22:25 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 22:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 22:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 22:29 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 22:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 22:41 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 22:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 22:24 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 22:25 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 22:38 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 22:43 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 22:50 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 22:26 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 22:52 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 22:34 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 22:29 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 22:34 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:24 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/659700.shtml)
-- 2026-06-29 22:24 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/814126.shtml)
-- 2026-06-29 22:38 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/53381.shtml)
-- 2026-06-29 22:18 - [时光音乐会](http://www.blog.minike.top/Article/details/252628045404.shtml)
-- 2026-06-29 22:45 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/39205298.shtml)
-- 2026-06-29 22:35 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/03239364593.shtml)
-- 2026-06-29 22:39 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/19366638.shtml)
-- 2026-06-29 22:34 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/31300076.shtml)
-- 2026-06-29 22:46 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/08538.shtml)
-- 2026-06-29 22:44 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/2876075.shtml)
-- 2026-06-29 22:47 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/1276580704.shtml)
-- 2026-06-29 22:18 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/036987.shtml)
-- 2026-06-29 22:38 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/54952076096.shtml)
-- 2026-06-29 22:45 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/71315.shtml)
-- 2026-06-29 22:30 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/92201432787.shtml)
+- 2026-06-29 22:45 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/34660291.shtml)
+- 2026-06-29 22:48 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/048665.shtml)
+- 2026-06-29 22:48 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/4383477.shtml)
+- 2026-06-29 22:25 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/55417.shtml)
+- 2026-06-29 22:24 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/721635.shtml)
+- 2026-06-29 22:32 - [急先锋](http://www.blog.kurohicncr.top/Article/details/8197610.shtml)
+- 2026-06-29 22:42 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/632676.shtml)
+- 2026-06-29 22:39 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/4201052498.shtml)
+- 2026-06-29 22:27 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/802456710260.shtml)
+- 2026-06-29 22:37 - [炽夏](http://www.blog.kurohicncr.top/Article/details/580169302540.shtml)
+- 2026-06-29 22:36 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/6682293.shtml)
+- 2026-06-29 22:27 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/504688615449.shtml)
+- 2026-06-29 22:41 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/9629536.shtml)
+- 2026-06-29 22:48 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/63667354.shtml)
+- 2026-06-29 22:52 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/90378350.shtml)

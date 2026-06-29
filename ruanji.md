@@ -1,43 +1,53 @@
-# 期待！网络文明国际交流互鉴分论坛即将召开
+# 小鹏辟谣：网传“被约谈”“立案调查”系AI恶意炒作，已取证将追责
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新网5月18日电 5月19日，2026年中国网络文明大会网络文明国际交流互鉴分论坛将在广西南宁举行。
+5月9日，小鹏集团法务部发文称，部分社交账号通过AI应用，恶意炒作“8家新能源车企被集中约谈”“3家涉嫌违规被立案调查”等信息，并将小鹏集团纳入名单，对其品牌和声誉造成恶劣影响。 小鹏表示，经核实，近期并未收到此类不实信息提到的所谓“约谈”，也不存在被立案调查。“我们已经对相关制谣传谣主体进行取证，后续会依法追究其法律责任。” 小鹏集团强调，始终把用户权益放在首位，将在监管部门
 
 ## 正文
 
-中新网5月18日电 5月19日，2026年中国网络文明大会网络文明国际交流互鉴分论坛将在广西南宁举行。
+5月9日，小鹏集团法务部发文称，部分社交账号通过AI应用，恶意炒作“8家新能源车企被集中约谈”“3家涉嫌违规被立案调查”等信息，并将小鹏集团纳入名单，对其品牌和声誉造成恶劣影响。
+
+小鹏表示，经核实，近期并未收到此类不实信息提到的所谓“约谈”，也不存在被立案调查。
+
+“我们已经对相关制谣传谣主体进行取证，后续会依法追究其法律责任。
+
+” 小鹏集团强调，始终把用户权益放在首位，将在监管部门指导下持续为用户提供更好的出行体验。
+
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 22:33 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 22:26 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 22:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 22:37 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 22:24 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 22:21 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 22:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 22:35 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 22:19 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 22:45 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 22:53 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 22:38 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 22:25 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 22:45 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 22:31 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 22:49 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 22:33 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 22:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 22:53 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 22:52 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 22:43 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 22:45 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 22:27 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/938375.shtml)
-- 2026-06-29 22:40 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/757015028.shtml)
-- 2026-06-29 22:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/903459992288.shtml)
-- 2026-06-29 22:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/609615044.shtml)
-- 2026-06-29 22:43 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/09022546.shtml)
-- 2026-06-29 22:25 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/72509751.shtml)
-- 2026-06-29 22:43 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/032847614.shtml)
-- 2026-06-29 22:22 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/517755364740.shtml)
-- 2026-06-29 22:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/528560608091.shtml)
-- 2026-06-29 22:32 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/394568407422.shtml)
-- 2026-06-29 22:40 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/05924211.shtml)
-- 2026-06-29 22:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/464231.shtml)
-- 2026-06-29 22:22 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/160205227058.shtml)
-- 2026-06-29 22:36 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/346219800563.shtml)
-- 2026-06-29 22:26 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/59249268037.shtml)
+- 2026-06-29 22:33 - [青春环游记第三季](http://www.blog.minike.top/Article/details/36089752.shtml)
+- 2026-06-29 22:53 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/3275442.shtml)
+- 2026-06-29 22:28 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/3608535401.shtml)
+- 2026-06-29 22:46 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/22242349.shtml)
+- 2026-06-29 22:53 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/3623465969.shtml)
+- 2026-06-29 22:51 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/40700222.shtml)
+- 2026-06-29 22:44 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/6919427.shtml)
+- 2026-06-29 22:32 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/45964169.shtml)
+- 2026-06-29 22:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/40756.shtml)
+- 2026-06-29 22:38 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/33555079.shtml)
+- 2026-06-29 22:53 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/654659.shtml)
+- 2026-06-29 22:47 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/952411.shtml)
+- 2026-06-29 22:48 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/232322357.shtml)
+- 2026-06-29 22:27 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/60643223116.shtml)
+- 2026-06-29 22:25 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/43588545.shtml)

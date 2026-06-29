@@ -1,57 +1,57 @@
-# 14亿部手机、1亿台车！北斗全面进入规模化产业化新阶段
+# 走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-今天(18日)，《2026中国北斗时空产业发展白皮书》发布。白皮书显示，2025年我国北斗时空产业总体产值达到13323亿元，稳步迈入高质量发展的新阶段。 2025年我国北斗时空产业总体产值超1.3万亿 首次发布的《2026中国北斗时空产业发展白皮书》全面总结了2025年我国北斗时空产业发展的整体情况。 北斗时空产业，是以北斗卫星导航系统为核心，深度融合遥感地理信息、移动通信、
+中新网哈尔滨5月9日电 题：走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山 作者 史轶夫 高春梅 五月的哈尔滨暖风拂面、草木葳蕤，初夏的东北林业大学(以下简称“东林”)校园绿意盎然。又一届即将出征的学子齐聚校园，怀揣着对林海原野的赤诚向往，收拾行囊奔赴全国各大林区一线，将青春理想深深扎根在绿水青山之间。 2021年，东北林业大学在全国高校率先推出推免研究生“支林计
 
 ## 正文
 
-今天(18日)，《2026中国北斗时空产业发展白皮书》发布。
+中新网哈尔滨5月9日电 题：走，到林区一线去！
 
-白皮书显示，2025年我国北斗时空产业总体产值达到13323亿元，稳步迈入高质量发展的新阶段。
+东林“支林计划”近五百学子以青春守绿水青山 作者 史轶夫 高春梅 五月的哈尔滨暖风拂面、草木葳蕤，初夏的东北林业大学(以下简称“东林”)校园绿意盎然。
 
-2025年我国北斗时空产业总体产值超1.3万亿 首次发布的《2026中国北斗时空产业发展白皮书》全面总结了2025年我国北斗时空产业发展的整体情况。
+又一届即将出征的学子齐聚校园，怀揣着对林海原野的赤诚向往，收拾行囊奔赴全国各大林区一线，将青春理想深深扎根在绿水青山之间。
 
-北斗时空产业，是以北斗卫星导航系统为核心，深度融合遥感地理信息、移动通信、室内定位等多种技术手段的综合性产业体系。
+2021年，东北林业大学在全国高校率先推出推免研究生“支林计划”，开辟“基层实践+学术深造”的绿色成才新路。
 
-白皮书显示，2025年我国北斗时空产业总体产值达到13323亿元。
+项目落地至今，已有499名东林学子奔赴五省区百余个林场、林业和草原局及自然保护区，服务期满考核合格即可获得推免读研资格，让青年在一线历练、在实践中成才。
 
-其中，作为北斗时空产业基础的卫星导航产业总体产值达6290亿元，同比增长9.24%，展现出强劲的发展韧性和巨大的增长潜力。
+“‘支林计划’聚焦林区建设、生态整治，和我的专业方向高度契合，我想用所学为林场建设出一份力。
 
-中国卫星导航定位协会会长 张辉峰：2025年北斗时空产业最鲜明的特征就是实现了从“卫星导航”到“时空服务”的跨越，呈现出技术融合化、应用场景化、生态多元化的发展态势，产业迭代升级速度持续加快，核心竞争力不断提升。
+”首批支林学子段佳楠坦言。
 
-截至目前，我国已构建起从芯片、模组、天线、终端到系统集成、应用服务的完整北斗时空产业链、供应链，自主可控水平持续提升。
+怀揣这样的初心，一批又一批东林青年告别校园繁华，奔赴偏远林区，开启从书生到林业新兵的蜕变。
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 22:36 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 22:22 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 22:29 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 22:46 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 22:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 22:30 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 22:45 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 22:31 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 22:45 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 22:44 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 22:51 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 22:41 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 22:45 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 22:32 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 22:54 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 22:47 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 22:42 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 22:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 22:40 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 22:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 22:45 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:23 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/9053045.shtml)
-- 2026-06-29 22:41 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/501948187.shtml)
-- 2026-06-29 22:31 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/27586545.shtml)
-- 2026-06-29 22:41 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/104369517.shtml)
-- 2026-06-29 22:27 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/86536000.shtml)
-- 2026-06-29 22:41 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/803638706079.shtml)
-- 2026-06-29 22:46 - [周生如故](http://www.blog.kurohicncr.top/Article/details/043387.shtml)
-- 2026-06-29 22:41 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/148556158734.shtml)
-- 2026-06-29 22:27 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/82910643.shtml)
-- 2026-06-29 22:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/259676824893.shtml)
-- 2026-06-29 22:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/67854.shtml)
-- 2026-06-29 22:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/471555.shtml)
-- 2026-06-29 22:43 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/6291753080.shtml)
-- 2026-06-29 22:43 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/21928.shtml)
-- 2026-06-29 22:36 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/1532261442.shtml)
+- 2026-06-29 22:42 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/17762652.shtml)
+- 2026-06-29 22:33 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/35898141.shtml)
+- 2026-06-29 22:37 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/2112322.shtml)
+- 2026-06-29 22:53 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/850568456.shtml)
+- 2026-06-29 22:53 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/73310953.shtml)
+- 2026-06-29 22:27 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/366530897.shtml)
+- 2026-06-29 22:30 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/700637420.shtml)
+- 2026-06-29 22:32 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/147467494234.shtml)
+- 2026-06-29 22:31 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/761524771587.shtml)
+- 2026-06-29 22:32 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/28354970.shtml)
+- 2026-06-29 22:45 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/08159373.shtml)
+- 2026-06-29 22:42 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/9868888294.shtml)
+- 2026-06-29 22:44 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/226787391.shtml)
+- 2026-06-29 22:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/3850569426.shtml)
+- 2026-06-29 22:37 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/59528.shtml)

@@ -1,56 +1,52 @@
-# 《唐东杰布生平研究》新书座谈会在拉萨举办
+# “人民至上——政党的使命和担当”中外政党专题对话举行
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新网拉萨5月18日电 (贡嘎来松)16日，《唐东杰布生平研究》新书发布座谈会在西藏拉萨举行。本次活动由西藏自治区作家协会主办，汇聚了西藏众多专家学者，集中展示西藏本地学术研究成果，助力中华优秀传统文化传承创新，推动本地文艺与科研事业高质量发展。 该书由拉萨师范学院白玛次仁博士耗时八年潜心调研、考据撰写而成。唐东杰布是西藏历史上极具影响力的先驱人物，横跨建筑、艺术、医学等多个领
+中新网石家庄5月8日电 (记者 郭超凯)5月8日，由中共中央对外联络部和中共河北省委共同主办的“人民至上——政党的使命和担当”中外政党专题对话在河北行唐举行。汤加议长瓦伊阿等来自20多个国家的政党、议会、政府代表等约180人与会。中联部部长刘海星表示，在习近平总书记领航掌舵下，中国脱贫攻坚取得全面胜利，为全球减贫事业作出巨大贡献。新征程上，中国共产党将坚持以人民为中心的发展理念
 
 ## 正文
 
-中新网拉萨5月18日电 (贡嘎来松)16日，《唐东杰布生平研究》新书发布座谈会在西藏拉萨举行。
+中新网石家庄5月8日电 (记者 郭超凯)5月8日，由中共中央对外联络部和中共河北省委共同主办的“人民至上——政党的使命和担当”中外政党专题对话在河北行唐举行。
 
-本次活动由西藏自治区作家协会主办，汇聚了西藏众多专家学者，集中展示西藏本地学术研究成果，助力中华优秀传统文化传承创新，推动本地文艺与科研事业高质量发展。
+汤加议长瓦伊阿等来自20多个国家的政党、议会、政府代表等约180人与会。
 
-该书由拉萨师范学院白玛次仁博士耗时八年潜心调研、考据撰写而成。
+中联部部长刘海星表示，在习近平总书记领航掌舵下，中国脱贫攻坚取得全面胜利，为全球减贫事业作出巨大贡献。
 
-唐东杰布是西藏历史上极具影响力的先驱人物，横跨建筑、艺术、医学等多个领域，在各民族交往交流交融历程中留下了宝贵印记，拥有深远的跨民族影响力。
+新征程上，中国共产党将坚持以人民为中心的发展理念，以高质量发展全面推进中国式现代化，同各国政党加强交流互鉴，做人民幸福的筑基者、捍卫者、守望者、护航者。
 
-全书以四大篇章构建研究体系，系统考证了唐东杰布推动各民族经济文化交融的历史功绩，梳理其在铁桥建造技术革新领域的突破性成就，厘清藏戏“阿吉拉姆”的起源与发展脉络，同时全面总结其在藏医学领域的多元贡献，深度挖掘非遗的传承价值，填补了学界关于唐东杰布系统性、综合性研究的空白。
+与会外宾高度评价以习近平同志为核心的中共中央坚持人民至上，带领中国人民推进脱贫攻坚和乡村振兴取得的巨大成就，表示愿同中方深化治党治国经验交流，推动构建人类命运共同体。
 
-与会专家学者认为，该书立足跨学科视角，结合文献考据与田野调查，研究视角新颖、学术功底扎实。
-
-此次新书发布座谈会的举办，是西藏推动藏学研究、活化本地传统文化的重要实践。
-
-未来，西藏自治区将继续鼓励和支持更多学者投身优秀传统文化研究，推出一批立得住、传得开、留得下的学术精品，为建设社会主义现代化新西藏贡献智慧与力量。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:34 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 22:27 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 22:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 22:31 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 22:28 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 22:44 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 22:35 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 22:21 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 22:23 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 22:46 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 22:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 22:53 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 22:34 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 22:27 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 22:44 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 22:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 22:37 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 22:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 22:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 22:52 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:35 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/543247.shtml)
-- 2026-06-29 22:30 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.kurohicncr.top/Article/details/941423411.shtml)
-- 2026-06-29 22:40 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/69618616412.shtml)
-- 2026-06-29 22:32 - [返利科技盘中上演“天地板”](https://www.share.minike.top/Article/details/72688.shtml)
-- 2026-06-29 22:35 - [女心理师](http://www.blog.minike.top/Article/details/5033552083.shtml)
-- 2026-06-29 22:27 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/560910082064.shtml)
-- 2026-06-29 22:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/479023.shtml)
-- 2026-06-29 22:40 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/83283991851.shtml)
-- 2026-06-29 22:26 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/620743.shtml)
-- 2026-06-29 22:23 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/848780.shtml)
-- 2026-06-29 22:43 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/586610675110.shtml)
-- 2026-06-29 22:29 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/804528967.shtml)
-- 2026-06-29 22:33 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/506223.shtml)
-- 2026-06-29 22:46 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/531737022978.shtml)
-- 2026-06-29 22:31 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/71776498451.shtml)
+- 2026-06-29 22:44 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/97195034374.shtml)
+- 2026-06-29 22:45 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/41786740422.shtml)
+- 2026-06-29 22:34 - [送你一朵小红花](http://www.blog.minike.top/Article/details/0794642933.shtml)
+- 2026-06-29 22:50 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/86885183.shtml)
+- 2026-06-29 22:49 - [世界杯高票价为何没劝退球迷](https://www.share.minike.top/Article/details/3415677977.shtml)
+- 2026-06-29 22:52 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/2536280568.shtml)
+- 2026-06-29 22:47 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/190021710860.shtml)
+- 2026-06-29 22:50 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/0469624128.shtml)
+- 2026-06-29 22:31 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/54499316.shtml)
+- 2026-06-29 22:48 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/933331.shtml)
+- 2026-06-29 22:29 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/74288805.shtml)
+- 2026-06-29 22:34 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/86180817700.shtml)
+- 2026-06-29 22:39 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/1090276.shtml)
+- 2026-06-29 22:26 - [急先锋](http://www.blog.kurohicncr.top/Article/details/41333486.shtml)
+- 2026-06-29 22:49 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/107902.shtml)

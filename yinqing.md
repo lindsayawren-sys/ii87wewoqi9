@@ -1,49 +1,58 @@
-# 铁翼振翅！直击直升机野外跨昼夜飞行训练
+# 剑指虚假宣传，市场监管部门开展网售食品专项整治
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月18日 14:31 来源：中国新闻网 近日，陆军第76集团军某旅采取多课目连贯、多特情融合的方法，组织展开跨昼夜飞行训练，重点对野外场地起降、低空救援搜索等课目进行专攻精练，着力提升飞行机组持续作战能力和对夜间战场态势的感知能力。(作者：王涵 蔡鹏飞 张瑞岩 姚天宝) 责任编辑：【魏聪聪】
+平台决不能当“甩手掌柜”，直播间不是“法外之地” 剑指虚假宣传，市场监管部门开展网售食品专项整治 本报讯 (记者蒋菡)记者从市场监管总局举行的食品安全专题新闻发布会上获悉，近日，市场监管总局正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，在全国范围内开展为期半年的专项整治行动。 近年来，网络食品销量快速增长。根据国家统计局公布的数据，2025年，全国吃类商品网上零售
 
 ## 正文
 
-发布时间：2026年05月18日 14:31 来源：中国新闻网 近日，陆军第76集团军某旅采取多课目连贯、多特情融合的方法，组织展开跨昼夜飞行训练，重点对野外场地起降、低空救援搜索等课目进行专攻精练，着力提升飞行机组持续作战能力和对夜间战场态势的感知能力。
+平台决不能当“甩手掌柜”，直播间不是“法外之地” 剑指虚假宣传，市场监管部门开展网售食品专项整治 本报讯 (记者蒋菡)记者从市场监管总局举行的食品安全专题新闻发布会上获悉，近日，市场监管总局正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，在全国范围内开展为期半年的专项整治行动。
 
-(作者：王涵 蔡鹏飞 张瑞岩 姚天宝) 责任编辑：【魏聪聪】
+近年来，网络食品销量快速增长。
+
+根据国家统计局公布的数据，2025年，全国吃类商品网上零售额同比增长14.5%。
+
+与此同时，网售食品虚假宣传、违法广告等突出问题屡禁不止，消费者对此反映强烈、叫苦不迭。
+
+比如，涉嫌原产地造假、虚假宣传的“优思益”保健品；虚假标注相关成分、打品牌“擦边球”的同仁堂南极磷虾油等，都是近期翻车的“网红产品”，让老百姓“舌尖上的期待”变成了“舌尖上的上当”。
+
+“这些产品的共同点就是，针对公众减肥、降压、保健等需求，用营销话术和虚假宣传大肆‘收割’消费者。
+
+”市场监管总局食品安全总监孙会川表示，明明是普通食品，却把功效吹得如同神药；明明是国内生产，却摇身一变成了“海外直邮”；明明是掺杂使假，却吹嘘为“纯天然、零添加”；明明是“三无”作坊，却靠刷单成了“金牌店铺”。
+
+这次专项整治，市场监管部门将实施精准锁定、靶向打击。
 
 ## 相关推荐
 
-- 2026-06-29 22:34 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 22:46 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 22:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 22:25 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 22:22 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 22:24 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 22:47 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 22:41 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 22:26 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 22:44 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 22:35 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 22:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 22:30 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 22:22 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 22:23 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 22:29 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 22:28 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 22:29 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 22:31 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 22:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 22:50 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 22:51 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 22:36 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 22:46 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 22:43 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 22:39 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 22:28 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:21 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/879852182900.shtml)
-- 2026-06-29 22:33 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/920791.shtml)
-- 2026-06-29 22:47 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/8906303711.shtml)
-- 2026-06-29 22:42 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/672484211.shtml)
-- 2026-06-29 22:24 - [小娘惹](https://www.blog.minike.top/Article/details/49792925.shtml)
-- 2026-06-29 22:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/764573.shtml)
-- 2026-06-29 22:33 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/000134642.shtml)
-- 2026-06-29 22:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/8686113883.shtml)
-- 2026-06-29 22:27 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/617520399326.shtml)
-- 2026-06-29 22:46 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/949800554153.shtml)
-- 2026-06-29 22:18 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/9148489028.shtml)
-- 2026-06-29 22:29 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/103566.shtml)
-- 2026-06-29 22:45 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/85015336925.shtml)
-- 2026-06-29 22:31 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/614888.shtml)
-- 2026-06-29 22:24 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/53458524.shtml)
+- 2026-06-29 22:40 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/770685151.shtml)
+- 2026-06-29 22:47 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/38263833071.shtml)
+- 2026-06-29 22:36 - [记者乘坐无人驾驶汽车去采访](https://www.share.kurohicncr.top/Article/details/2543340214.shtml)
+- 2026-06-29 22:46 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/409137.shtml)
+- 2026-06-29 22:34 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/39068052007.shtml)
+- 2026-06-29 22:38 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/80059040.shtml)
+- 2026-06-29 22:28 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/1948856130.shtml)
+- 2026-06-29 22:36 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/46605.shtml)
+- 2026-06-29 22:51 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/0063539024.shtml)
+- 2026-06-29 22:30 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/42252.shtml)
+- 2026-06-29 22:39 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/8507998.shtml)
+- 2026-06-29 22:46 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/4621162170.shtml)
+- 2026-06-29 22:29 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.minike.top/Article/details/7210037447.shtml)
+- 2026-06-29 22:27 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/5948908355.shtml)
+- 2026-06-29 22:49 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/19895917515.shtml)

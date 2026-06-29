@@ -1,52 +1,56 @@
-# 贝恩资本完成105亿美元亚洲基金的募集
+# 寻亲35年心愿得偿 四川失散父子相认团圆
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-美国投资公司贝恩资本表示，其第六支泛亚私募股权基金已完成募资，规模约为105亿美元，超出了70亿美元的募资目标。媒体今年3月曾报道称，贝恩资本亚洲基金VI（Bain Capital Asia Fund VI）的募资工作已接近尾声。这家总部位于波士顿的公司表示，此次募集的资金中包括约91亿美元的外部承诺。在市场波动和地缘政治不确定性加剧的背景下，该公司的顺利募资凸显了投资者对亚洲
+中新网绵阳5月8日电 (唐超)“儿子，35年来，爸爸一直在找你。我没有能力支持你，知道你活着，过得好，我就高兴了。以后，我们常联系，常往来。”5月8日，在四川省绵阳市公安局刑侦支队认亲仪式现场，67岁的四川广安男子邓昌华紧紧拥抱着失散35年的儿子，三句朴素而深情的话语，道尽了半生的思念与牵挂。 邓昌华于1959年出生在四川广安武胜县，1984年成家后，与妻子先后育有一女一儿，一
 
 ## 正文
 
-美国投资公司贝恩资本表示，其第六支泛亚私募股权基金已完成募资，规模约为105亿美元，超出了70亿美元的募资目标。
+中新网绵阳5月8日电 (唐超)“儿子，35年来，爸爸一直在找你。
 
-媒体今年3月曾报道称，贝恩资本亚洲基金VI（Bain Capital Asia Fund VI）的募资工作已接近尾声。
+我没有能力支持你，知道你活着，过得好，我就高兴了。
 
-这家总部位于波士顿的公司表示，此次募集的资金中包括约91亿美元的外部承诺。
+以后，我们常联系，常往来。
 
-在市场波动和地缘政治不确定性加剧的背景下，该公司的顺利募资凸显了投资者对亚洲地区——尤其是该公司重点布局的日本——的浓厚兴趣。
+”5月8日，在四川省绵阳市公安局刑侦支队认亲仪式现场，67岁的四川广安男子邓昌华紧紧拥抱着失散35年的儿子，三句朴素而深情的话语，道尽了半生的思念与牵挂。
 
-该基金公司在2023年为其第五只泛亚收购基金筹集了71亿美元，在大中华区和印度也拥有强大的业务布局。
+邓昌华于1959年出生在四川广安武胜县，1984年成家后，与妻子先后育有一女一儿，一家四口靠种地和打零工维持生计。
 
-责任编辑：王永生
+尽管家境清贫，但儿女绕膝的温暖，让夫妻俩对未来充满期盼。
+
+然而，幸福的日子并未持续太久，命运的打击接踵而至。
+
+1989年，邓昌华的妻子突然病逝，留下他独自抚养两个孩子。
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 22:29 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 22:20 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 22:34 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 22:33 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 22:45 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 22:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 22:28 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 22:24 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 22:26 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 22:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 22:51 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 22:49 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 22:41 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 22:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 22:44 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 22:39 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 22:40 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 22:51 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 22:41 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:28 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/6801727799.shtml)
-- 2026-06-29 22:47 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/71253.shtml)
-- 2026-06-29 22:33 - [周生如故](http://www.share.minike.top/Article/details/947740.shtml)
-- 2026-06-29 22:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/828699824480.shtml)
-- 2026-06-29 22:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/12192516.shtml)
-- 2026-06-29 22:35 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/8350666477.shtml)
-- 2026-06-29 22:44 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/858164.shtml)
-- 2026-06-29 22:26 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/5596586.shtml)
-- 2026-06-29 22:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/9129060.shtml)
-- 2026-06-29 22:42 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/082929.shtml)
-- 2026-06-29 22:24 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/122873184945.shtml)
-- 2026-06-29 22:47 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/983830555.shtml)
-- 2026-06-29 22:20 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/7159720.shtml)
-- 2026-06-29 22:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/696867084.shtml)
-- 2026-06-29 22:46 - [女心理师](http://www.blog.minike.top/Article/details/203182896769.shtml)
+- 2026-06-29 22:46 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/0638715889.shtml)
+- 2026-06-29 22:31 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/697795.shtml)
+- 2026-06-29 22:48 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/35998933.shtml)
+- 2026-06-29 22:36 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/812020502051.shtml)
+- 2026-06-29 22:46 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/572764532066.shtml)
+- 2026-06-29 22:26 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/48154298576.shtml)
+- 2026-06-29 22:26 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/516949.shtml)
+- 2026-06-29 22:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/45595.shtml)
+- 2026-06-29 22:36 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/896973.shtml)
+- 2026-06-29 22:48 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/1547745.shtml)
+- 2026-06-29 22:29 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/077973937930.shtml)
+- 2026-06-29 22:26 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/080570784167.shtml)
+- 2026-06-29 22:31 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/1563833582.shtml)
+- 2026-06-29 22:39 - [任泽平：AI浪潮刚刚开始](http://www.share.kurohicncr.top/Article/details/7364178259.shtml)
+- 2026-06-29 22:29 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/32650.shtml)

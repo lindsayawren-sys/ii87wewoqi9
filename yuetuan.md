@@ -1,56 +1,56 @@
-# “老登”回归？地产股显著反弹，机构：当前是布局好时机
+# 中国男乒3:0完胜韩国挺进伦敦世乒赛半决赛
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-在“光”飞“芯”跃的火热行情下，近几年市场一直避之不及的地产板块，似乎迎来了一些机构的青睐。 随着近期上海等一线城市火热二手房成交数据披露，二级市场的地产股也有所表现，Wind房地产指数过去一个月上涨了5.45%，大幅领先沪深300。 “当前地产板块估值水平较为合理，已充分反映出政策面和基本面的悲观预期，板块中枢的继续下跌需要市场加速恶化，而上涨仅需要二手房价跌幅收窄成为市场共
+中新社伦敦5月8日电 (记者 欧阳开宇)当地时间5月8日，2026伦敦世乒赛男团1/4决赛焦点大战打响，中国男乒迎战老对手韩国队，全队气势如虹、沉着应战，以3:0横扫对手，成功“复仇”强势晋级半决赛。 在此前小组赛排位赛中，中韩两队交手，国乒1:3不敌韩国，遭遇球队罕见失利。此番交锋双方尽遣主力，全力争夺四强席位。 首场较量，王楚钦迎战韩国小将吴晙诚。世界第一先下两局后被对手顽
 
 ## 正文
 
-在“光”飞“芯”跃的火热行情下，近几年市场一直避之不及的地产板块，似乎迎来了一些机构的青睐。
+中新社伦敦5月8日电 (记者 欧阳开宇)当地时间5月8日，2026伦敦世乒赛男团1/4决赛焦点大战打响，中国男乒迎战老对手韩国队，全队气势如虹、沉着应战，以3:0横扫对手，成功“复仇”强势晋级半决赛。
 
-随着近期上海等一线城市火热二手房成交数据披露，二级市场的地产股也有所表现，Wind房地产指数过去一个月上涨了5.45%，大幅领先沪深300。
+在此前小组赛排位赛中，中韩两队交手，国乒1:3不敌韩国，遭遇球队罕见失利。
 
-“当前地产板块估值水平较为合理，已充分反映出政策面和基本面的悲观预期，板块中枢的继续下跌需要市场加速恶化，而上涨仅需要二手房价跌幅收窄成为市场共识，当前是布局减值充分、拿地改善强的优质房企的较好时点。
+此番交锋双方尽遣主力，全力争夺四强席位。
 
-”国信证券在近期的一份研究报告中指出。
+首场较量，王楚钦迎战韩国小将吴晙诚。
 
-地产股显著反弹 地产股反弹的趋势已经比较明显。
+世界第一先下两局后被对手顽强追平，决胜局王楚钦稳住心态，开局强势领跑，最终以11:7拿下关键一分。
 
-4月7日，行业龙头保利发展摸到了低点5.47元/股，随后震荡上行，盘中一度上涨至6.86元/股，近期虽然随着大盘下行，但截至5月15日也仍有6.21元/股。
+至此他本届赛事豪取七战全胜，扛起队伍大旗。
 
-低点以来累计涨幅超过13.5%，显著跑赢同期大盘。
+第二盘林诗栋对阵韩国主力张禹珍，彻底走出低迷。
 
-万科A、招商蛇口等头部房企股价也同步回升，其中万科A自低点反弹超12%。
+小将开局势如破竹，以悬殊比分速胜首局，后续鏖战顶住对手反扑，攻防兼备、出手果断，直落三局零封强敌，为国乒扩大领先优势。
 
 ## 相关推荐
 
-- 2026-06-29 22:35 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 22:37 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 22:40 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 22:43 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 22:32 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 22:31 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 22:30 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 22:40 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 22:45 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 22:42 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 22:48 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 22:43 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 22:50 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 22:50 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 22:44 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 22:39 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 22:51 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 22:33 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 22:41 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 22:31 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/8039127.shtml)
-- 2026-06-29 22:36 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/718273.shtml)
-- 2026-06-29 22:26 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/6749589377.shtml)
-- 2026-06-29 22:28 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/667126.shtml)
-- 2026-06-29 22:23 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/12973787622.shtml)
-- 2026-06-29 22:28 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/540536620762.shtml)
-- 2026-06-29 22:26 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/61435968.shtml)
-- 2026-06-29 22:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/74135802.shtml)
-- 2026-06-29 22:45 - [毒液2](https://www.share.minike.top/Article/details/8019762.shtml)
-- 2026-06-29 22:20 - [温网](http://www.share.kurohicncr.top/Article/details/7143425.shtml)
-- 2026-06-29 22:22 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/13872.shtml)
-- 2026-06-29 22:39 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/265792338877.shtml)
-- 2026-06-29 22:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/379327.shtml)
-- 2026-06-29 22:45 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/26251563.shtml)
-- 2026-06-29 22:31 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/543171.shtml)
+- 2026-06-29 22:50 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/8293454.shtml)
+- 2026-06-29 22:28 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/1875850254.shtml)
+- 2026-06-29 22:41 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/4237745126.shtml)
+- 2026-06-29 22:40 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/80741599336.shtml)
+- 2026-06-29 22:49 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/30879137.shtml)
+- 2026-06-29 22:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/247940238544.shtml)
+- 2026-06-29 22:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/4369894.shtml)
+- 2026-06-29 22:25 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/768139568.shtml)
+- 2026-06-29 22:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/20339.shtml)
+- 2026-06-29 22:26 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/05924162.shtml)
+- 2026-06-29 22:50 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/359939.shtml)
+- 2026-06-29 22:43 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/478360985.shtml)
+- 2026-06-29 22:42 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/45674455408.shtml)
+- 2026-06-29 22:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/997853.shtml)
+- 2026-06-29 22:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/9993299721.shtml)

@@ -1,59 +1,57 @@
-# 7年7任CEO，华林证券秦湘因个人原因辞职
+# 投资大佬：新任美联储主席或放弃降息甚至考虑加息
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-来源：南方都市报 日前，华林证券发布了一则重要的人事变动公告。据悉，华林证券董事会近日收到秦湘的书面辞职报告。秦湘因个人原因申请辞去首席执行官职务，辞职后，不再在华林证券及控股子公司担任任何职务。 秦湘辞职后，华林证券董事会任命董东代行CEO职责。据公开数据显示，自2019年以来，华林证券已经有过7任CEO。在CEO频繁变动之外，湾财社还注意到华林证券的高管亦存在频繁变动。 “
+汇通财经APP讯——美国知名资深投资人公开抛出重磅观点，预判即将上任的美联储新任主席不会推行降息举措，反而存在启动加息的可能性。当前美联储基准利率维持高位不变，内部政策分歧达到近三十四年峰值，叠加通胀居高不下、外部地缘局势与关税政策扰动市场，美联储利率走向变得扑朔迷离，市场对年内货币政策的博弈也愈发激烈。 投资大佬直言新任美联储主席降息无望 知名投资人保罗·都铎·琼斯（Paul
 
 ## 正文
 
-来源：南方都市报 日前，华林证券发布了一则重要的人事变动公告。
+汇通财经APP讯——美国知名资深投资人公开抛出重磅观点，预判即将上任的美联储新任主席不会推行降息举措，反而存在启动加息的可能性。
 
-据悉，华林证券董事会近日收到秦湘的书面辞职报告。
+当前美联储基准利率维持高位不变，内部政策分歧达到近三十四年峰值，叠加通胀居高不下、外部地缘局势与关税政策扰动市场，美联储利率走向变得扑朔迷离，市场对年内货币政策的博弈也愈发激烈。
 
-秦湘因个人原因申请辞去首席执行官职务，辞职后，不再在华林证券及控股子公司担任任何职务。
+投资大佬直言新任美联储主席降息无望 知名投资人保罗·都铎·琼斯（Paul Tudor Jones）在周四（5月7日）公开发表观点表示，即将履新的美联储主席凯文·沃什（Kevin Warsh）并不会倾向于降息政策，从政策倾向来看，其甚至有可能把加息纳入考量范围。
 
-秦湘辞职后，华林证券董事会任命董东代行CEO职责。
+保罗·都铎·琼斯表示，自己完全不认为新任美联储主席会推出降息举措，这种可能性几乎不存在。
 
-据公开数据显示，自2019年以来，华林证券已经有过7任CEO。
+凯文·沃什（Kevin Warsh）此前早已公开表达自身立场，明确认为美联储应当适时考虑下调基准利率。
 
-在CEO频繁变动之外，湾财社还注意到华林证券的高管亦存在频繁变动。
+现阶段美联储基准隔夜利率维持在3.5%至3.75%区间，自2025年12月起便一直保持这一水平，未有调整。
 
-“科技女将”执掌两年 2024年5月，秦湘正式接任华林证券首席执行官，距今接近2年时间。
+美联储内部分歧加剧 政策推行阻力重重 虽然沃什本身倾向于走货币宽松、降息调控的路线，但他上任后将要面对的联邦公开市场委员会在刚刚落幕的议息会议上创下了近34年来最多异议投票纪录。
 
-秦湘是券业稀缺的 “技术+资管+实业” 复合型高管。
+多数反对声音来自各地区联储主席，他们对会议结束后发布的政策声明措辞持有不同意见。
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 22:25 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 22:31 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 22:44 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 22:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 22:43 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 22:19 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 22:26 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 22:33 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 22:34 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 22:36 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 22:47 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 22:28 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 22:46 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 22:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 22:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 22:46 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 22:32 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 22:46 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 22:30 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 22:53 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 22:41 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 22:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 22:49 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:22 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/09661099.shtml)
-- 2026-06-29 22:24 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/53600710378.shtml)
-- 2026-06-29 22:38 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/93989073923.shtml)
-- 2026-06-29 22:32 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/5703918967.shtml)
-- 2026-06-29 22:45 - [乔家的儿女](http://www.blog.minike.top/Article/details/8914282.shtml)
-- 2026-06-29 22:41 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/27166811.shtml)
-- 2026-06-29 22:39 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/69205.shtml)
-- 2026-06-29 22:45 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/37259792088.shtml)
-- 2026-06-29 22:34 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/71685491.shtml)
-- 2026-06-29 22:44 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/503059989708.shtml)
-- 2026-06-29 22:29 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/703042467806.shtml)
-- 2026-06-29 22:44 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/711980.shtml)
-- 2026-06-29 22:22 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/905503328.shtml)
-- 2026-06-29 22:47 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/91946040.shtml)
-- 2026-06-29 22:38 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/2440386104.shtml)
+- 2026-06-29 22:37 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/0410748.shtml)
+- 2026-06-29 22:46 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/476545675416.shtml)
+- 2026-06-29 22:37 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/4571178926.shtml)
+- 2026-06-29 22:43 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/923461.shtml)
+- 2026-06-29 22:34 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/55771302.shtml)
+- 2026-06-29 22:47 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/462765.shtml)
+- 2026-06-29 22:53 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/402367.shtml)
+- 2026-06-29 22:43 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/736906740.shtml)
+- 2026-06-29 22:31 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/7733626857.shtml)
+- 2026-06-29 22:41 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/09324899077.shtml)
+- 2026-06-29 22:25 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/8610088165.shtml)
+- 2026-06-29 22:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/11608.shtml)
+- 2026-06-29 22:46 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/60612.shtml)
+- 2026-06-29 22:37 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/280994.shtml)
+- 2026-06-29 22:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/639230.shtml)

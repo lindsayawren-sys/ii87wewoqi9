@@ -1,58 +1,56 @@
-# 内蒙古3名厅官同日被双开
+# 两家上市公司收到终止上市事先告知书
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新网呼和浩特5月16日电 (记者 李爱平)内蒙古自治区纪委监委16日对外发布消息称，内蒙古乌兰察布市委原副书记、政法委原书记、组织部原部长李勇，内蒙古自治区兴安盟政协原党组成员、副主席赵田喜，内蒙古自治区乌兰察布市政协原一级巡视员杨印3名厅官被开除党籍和公职。日前，经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古自治区乌兰察布市委原副书记、政法委原书记、组织部原部长李勇严
+中新网北京5月7日电 (记者 陈康亮)赛隆药业集团股份有限公司(下称*ST赛隆)和江苏华盛天龙光电设备股份有限公司(下称*ST天龙)7日相继发布公告称，收到深圳证券交易所的终止上市事先告知书。 *ST赛隆公告称，公司收到深交所《终止上市事先告知书》，公司2025年度财务会计报告、财务报告内部控制均被出具无法表示意见的审计报告，触及交易所相关规则规定的股票终止上市情形，深交所拟决
 
 ## 正文
 
-中新网呼和浩特5月16日电 (记者 李爱平)内蒙古自治区纪委监委16日对外发布消息称，内蒙古乌兰察布市委原副书记、政法委原书记、组织部原部长李勇，内蒙古自治区兴安盟政协原党组成员、副主席赵田喜，内蒙古自治区乌兰察布市政协原一级巡视员杨印3名厅官被开除党籍和公职。
+中新网北京5月7日电 (记者 陈康亮)赛隆药业集团股份有限公司(下称*ST赛隆)和江苏华盛天龙光电设备股份有限公司(下称*ST天龙)7日相继发布公告称，收到深圳证券交易所的终止上市事先告知书。
 
-日前，经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古自治区乌兰察布市委原副书记、政法委原书记、组织部原部长李勇严重违纪违法问题进行了立案审查调查。
+*ST赛隆公告称，公司收到深交所《终止上市事先告知书》，公司2025年度财务会计报告、财务报告内部控制均被出具无法表示意见的审计报告，触及交易所相关规则规定的股票终止上市情形，深交所拟决定终止公司股票上市交易。
 
-经查，李勇丧失理想信念，背弃初心使命，对党不忠诚不老实，对抗组织审查；无视中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡；违背组织原则，在干部选拔任用等工作中为他人谋取利益并收受财物；廉洁底线失守、以权谋私，借用管理服务对象钱款长期未还，通过民间借贷获取大额回报，利用职权为他人谋取利益并收受财物；将手中权力异化为谋取私利的工具，为他人在工程承揽、干部选拔任用、岗位调整等方面谋利，并非法收受巨额财物。
+公司有权申请听证或者提出书面陈述和申辩。
 
-经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古自治区兴安盟政协原党组成员、副主席赵田喜严重违纪违法问题进行了立案审查调查。
+*ST天龙公告称，公司收到深交所下发的《事先告知书》，因公司2025年度经审计的期末净资产为负值，且财务报告内部控制被出具否定意见的审计报告，触及交易所相关规则规定的股票终止上市情形，深交所拟决定终止公司股票上市交易。
 
-经查，赵田喜丧失理想信念，背弃初心使命，对抗组织审查，伪造证据；无视中央八项规定精神，由他人支付应当由本人支付的费用，接受可能影响公正执行公务的旅游安排，违规组织宴请并由他人支付费用，收受可能影响公正执行公务的礼品、礼金；违反组织原则，不按规定报告个人有关事项；廉洁底线失守，利用职权或职务上的影响为他人谋取利益，其亲属收受财物；不正确履行职责，安排企业主支付有关款项；将公权力异化为攫取私利的工具，为他人在工程承揽、工程款拨付等方面谋利，并非法收受巨额财物。
-
-经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古自治区乌兰察布市政协原一级巡视员杨印严重违纪违法问题进行了立案审查调查。
-
-经查，杨印丧失理想信念，背弃初心使命，违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金，借用管理和服务对象车辆；违反组织原则，不按规定报告个人有关事项，在职工调动工作中利用职权为他人谋取利益并收受财物；廉洁底线失守，利用职权为亲属经营活动谋利；目无法纪，毫无敬畏，利用职务便利为他人在项目承揽等方面谋利，非法收受他人财物，数额特别巨大。
+公司有权申请听证或者提出书面陈述和申辩。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 22:47 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 22:42 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 22:24 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 22:38 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 22:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 22:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 22:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 22:40 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 22:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 22:35 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 22:23 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 22:37 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 22:41 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 22:38 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 22:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 22:49 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 22:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 22:40 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 22:28 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 22:31 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 22:26 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 22:49 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 22:43 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 22:24 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 22:48 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 22:31 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/5426938.shtml)
-- 2026-06-29 22:32 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/992780.shtml)
-- 2026-06-29 22:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/94115152368.shtml)
-- 2026-06-29 22:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/5330178788.shtml)
-- 2026-06-29 22:20 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/9666678.shtml)
-- 2026-06-29 22:41 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/8082928.shtml)
-- 2026-06-29 22:30 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/01569299.shtml)
-- 2026-06-29 22:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/86811807939.shtml)
-- 2026-06-29 22:21 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/4439251960.shtml)
-- 2026-06-29 22:24 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/91272140368.shtml)
-- 2026-06-29 22:39 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/981360105790.shtml)
-- 2026-06-29 22:27 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/282309077.shtml)
-- 2026-06-29 22:47 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/098190649048.shtml)
-- 2026-06-29 22:42 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/75098.shtml)
-- 2026-06-29 22:20 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/12365.shtml)
+- 2026-06-29 22:33 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/105221601.shtml)
+- 2026-06-29 22:53 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/515223.shtml)
+- 2026-06-29 22:43 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/737863421.shtml)
+- 2026-06-29 22:50 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/10339409384.shtml)
+- 2026-06-29 22:43 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/00248824385.shtml)
+- 2026-06-29 22:31 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/393734.shtml)
+- 2026-06-29 22:37 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/22320.shtml)
+- 2026-06-29 22:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/03169374215.shtml)
+- 2026-06-29 22:51 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/07021557.shtml)
+- 2026-06-29 22:35 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/2981010.shtml)
+- 2026-06-29 22:30 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/385533.shtml)
+- 2026-06-29 22:32 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/7516341646.shtml)
+- 2026-06-29 22:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/578179289.shtml)
+- 2026-06-29 22:47 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/2834719.shtml)
+- 2026-06-29 22:32 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/550732781.shtml)

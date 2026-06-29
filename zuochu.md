@@ -1,57 +1,58 @@
-# 黄磷厂事故引发供给担忧！化工板块再回调，华宝基金化工ETF（516020）收跌1.89%！机构高呼板块进入击球区
+# 宁夏西夏区教育发展联盟大会举行 深化厅校企地协同共育共赢
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-化工板块今日（5月18日）深度回调，反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速下探，而后持续低位震荡，盘中场内价格一度跌超2%，截至收盘，跌1.89%。 成份股方面，氨纶、氟化工、磷化工等板块部分个股跌幅居前。截至收盘，华峰化学、三美股份双双跌超7%，荣盛石化、巨化股份、博源化工等亦跌幅居前，拖累板块走势。 值得注意的是，尽管近几日出现了较大幅度回调，化工板
+中新网银川5月8日电 (记者 李佩珊)5月8日，2026年宁夏银川市西夏区教育发展联盟大会在宁夏财经职业技术学院开幕。会上正式启动“厅-校-企-地”协同发展机制、宁夏高校法律援助志愿服务联盟及市域产教联合体项目。 本届大会以“产教融合·智创新城”为主题，采用“1+4+X”办会模式，同步开展大学生专场招聘会、创新创业路演、科技成果体验及多场行业专题座谈，并举行院士专家产业行活动，
 
 ## 正文
 
-化工板块今日（5月18日）深度回调，反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速下探，而后持续低位震荡，盘中场内价格一度跌超2%，截至收盘，跌1.89%。
+中新网银川5月8日电 (记者 李佩珊)5月8日，2026年宁夏银川市西夏区教育发展联盟大会在宁夏财经职业技术学院开幕。
 
-成份股方面，氨纶、氟化工、磷化工等板块部分个股跌幅居前。
+会上正式启动“厅-校-企-地”协同发展机制、宁夏高校法律援助志愿服务联盟及市域产教联合体项目。
 
-截至收盘，华峰化学、三美股份双双跌超7%，荣盛石化、巨化股份、博源化工等亦跌幅居前，拖累板块走势。
+本届大会以“产教融合·智创新城”为主题，采用“1+4+X”办会模式，同步开展大学生专场招聘会、创新创业路演、科技成果体验及多场行业专题座谈，并举行院士专家产业行活动，全方位深化政校企地务实联动。
 
-值得注意的是，尽管近几日出现了较大幅度回调，化工板块年内表现仍优于大盘。
+现场集中发布政策清单、需求清单、资源清单，分批开展合作项目签约，覆盖产教园区建设、校企人才共育、产学研协同创新等重点内容。
 
-数据显示，截至今日收盘，化工ETF（516020）标的指数细分化工指数年内累计涨幅为6.81%，跑赢同期上证指数（4.1%）、沪深300指数（4.4%）等A股主要指数。
+大会完成会旗交接，明确2027年联盟大会由宁夏大学新华学院承办。
 
-数据来源：Wind，取值区间为2026.1.1-2026.5.18，细分化工指数近5个完整年度涨跌幅分别为：2021年，15.72%；2022年，-26.89%；2023年，-23.17%；2024年，-3.83%；2025年，41.09%。
+中国科学院专家围绕装备制造、葡萄酒等特色产业，分享产学研融合发展思路。
 
-指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
+西夏区教育发展联盟自2019年成立以来，深耕科教融汇、产教协同发展，已累计落地860项校企地合作项目，240项产学研成果实现转化应用，建成启用123个工程技术研究中心，西夏区实现人才总量突破8万人，校地联动、产业赋能、人才集聚效应持续凸显。
 
-消息面上，2026年5月14日晚，贵州一黄磷工厂发生突发事故，从供应看，该厂有4万吨黄磷产能，事故前正常开工，日产约100吨，事故发生后，据悉4台黄磷电炉全部停产。
+本次活动梳理形成政策139项、合作需求690条、优质资源117条，涵盖人才引育、技术攻关、实训合作、成果转化等事项。
 
 ## 相关推荐
 
-- 2026-06-29 22:36 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 22:45 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 22:40 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 22:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 22:19 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 22:37 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 22:28 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 22:35 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 22:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 22:38 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 22:18 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 22:29 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 22:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 22:37 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 22:26 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 22:34 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 22:42 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 22:35 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 22:53 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 22:39 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 22:52 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 22:39 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 22:39 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:42 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/04909.shtml)
-- 2026-06-29 22:38 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/40591.shtml)
-- 2026-06-29 22:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/795249.shtml)
-- 2026-06-29 22:24 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/8439501784.shtml)
-- 2026-06-29 22:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/077695.shtml)
-- 2026-06-29 22:28 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/04941941268.shtml)
-- 2026-06-29 22:26 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/946114.shtml)
-- 2026-06-29 22:32 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/938120877624.shtml)
-- 2026-06-29 22:35 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/967990922.shtml)
-- 2026-06-29 22:22 - [斛珠夫人](http://www.share.minike.top/Article/details/31749991.shtml)
-- 2026-06-29 22:27 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/07583.shtml)
-- 2026-06-29 22:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/973753446257.shtml)
-- 2026-06-29 22:18 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/9861874777.shtml)
-- 2026-06-29 22:27 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/990408.shtml)
-- 2026-06-29 22:24 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/448982.shtml)
+- 2026-06-29 22:38 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/0859275443.shtml)
+- 2026-06-29 22:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/56052.shtml)
+- 2026-06-29 22:48 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/81452414523.shtml)
+- 2026-06-29 22:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/320992.shtml)
+- 2026-06-29 22:47 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/36412467302.shtml)
+- 2026-06-29 22:32 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/71206793.shtml)
+- 2026-06-29 22:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/62104.shtml)
+- 2026-06-29 22:28 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/15078001118.shtml)
+- 2026-06-29 22:34 - [流金岁月](https://www.share.minike.top/Article/details/87734991975.shtml)
+- 2026-06-29 22:31 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/5768484882.shtml)
+- 2026-06-29 22:36 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/3700976.shtml)
+- 2026-06-29 22:32 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/89539.shtml)
+- 2026-06-29 22:25 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/90052367.shtml)
+- 2026-06-29 22:25 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/740714534078.shtml)
+- 2026-06-29 22:46 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/810382.shtml)

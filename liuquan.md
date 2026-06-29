@@ -1,57 +1,46 @@
-# 亚洲首座专业货运机场连开两条洲际货运航线
+# 周黑鸭于5月8日耗资约109.05万港元回购72.7万股
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新社湖北鄂州5月17日电 (武一力 刘小进 王星予)亚洲首座专业货运机场——湖北鄂州花湖国际机场16日至17日连续开通两条洲际货运航线，分别飞往捷克布拉格和德国哈恩，进一步织密对欧航空物流网络，联通中东欧、西欧核心经济腹地。 “鄂州—布拉格”航线16日首航，由中州航空执飞，计划每周执飞一班，单程可运载近100吨货物。出港货物以跨境电商商品和出口消费品为主，进港货物主要包括普货
+周黑鸭（01458）公布，2026年5月8日耗资约109.05万港元回购72.7万股股份。责任编辑：卢昱君
 
 ## 正文
 
-中新社湖北鄂州5月17日电 (武一力 刘小进 王星予)亚洲首座专业货运机场——湖北鄂州花湖国际机场16日至17日连续开通两条洲际货运航线，分别飞往捷克布拉格和德国哈恩，进一步织密对欧航空物流网络，联通中东欧、西欧核心经济腹地。
+周黑鸭（01458）公布，2026年5月8日耗资约109.05万港元回购72.7万股股份。
 
-“鄂州—布拉格”航线16日首航，由中州航空执飞，计划每周执飞一班，单程可运载近100吨货物。
-
-出港货物以跨境电商商品和出口消费品为主，进港货物主要包括普货、光谱仪等机械设备。
-
-布拉格瓦茨拉夫·哈维尔机场出港量在中东欧居前列，铁路与公路网络可将货物快速分拨至周边多国。
-
-17日凌晨5时32分，“鄂州—哈恩”航线货机从花湖机场直飞德国哈恩。
-
-该航线采用B777F全货机执飞，每周飞行两班，预计每年可为花湖机场提供超1万吨航空运力。
-
-出港货物以电商货、电子产品为主，进港货物包括普货、生鲜等。
-
-哈恩机场是亚欧货运进入欧洲的核心门户节点。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:39 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 22:19 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 22:34 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 22:34 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 22:26 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 22:29 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 22:40 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 22:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 22:33 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 22:26 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 22:41 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 22:44 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 22:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 22:31 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 22:35 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 22:29 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 22:32 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 22:52 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 22:34 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 22:47 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 22:30 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 22:48 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 22:27 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/44112.shtml)
-- 2026-06-29 22:19 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/97648782.shtml)
-- 2026-06-29 22:33 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/01577059974.shtml)
-- 2026-06-29 22:42 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/9522883629.shtml)
-- 2026-06-29 22:28 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/5322835230.shtml)
-- 2026-06-29 22:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/703797864506.shtml)
-- 2026-06-29 22:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/75793314.shtml)
-- 2026-06-29 22:33 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/5625928427.shtml)
-- 2026-06-29 22:44 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.kurohicncr.top/Article/details/9463790438.shtml)
-- 2026-06-29 22:26 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/2907875.shtml)
-- 2026-06-29 22:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/637742114.shtml)
-- 2026-06-29 22:29 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/8060227218.shtml)
-- 2026-06-29 22:46 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/63914564174.shtml)
-- 2026-06-29 22:31 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/443479982.shtml)
-- 2026-06-29 22:18 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/6369793.shtml)
+- 2026-06-29 22:47 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/102938.shtml)
+- 2026-06-29 22:45 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/230603.shtml)
+- 2026-06-29 22:25 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/148855023831.shtml)
+- 2026-06-29 22:25 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/481121060.shtml)
+- 2026-06-29 22:47 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/33934.shtml)
+- 2026-06-29 22:29 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/073328208258.shtml)
+- 2026-06-29 22:44 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/0133579.shtml)
+- 2026-06-29 22:27 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/1530395.shtml)
+- 2026-06-29 22:26 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/35187485483.shtml)
+- 2026-06-29 22:32 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/385700021.shtml)
+- 2026-06-29 22:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/07052052378.shtml)
+- 2026-06-29 22:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/705275.shtml)
+- 2026-06-29 22:26 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/982879.shtml)
+- 2026-06-29 22:31 - [我们的少年时代2](http://www.blog.minike.top/Article/details/101883663905.shtml)
+- 2026-06-29 22:45 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/7306010.shtml)

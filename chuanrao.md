@@ -1,52 +1,59 @@
-# “中国哲学社会科学自主知识体系丛书”首批成果发布
+# “新债王”冈拉克警告美股估值过高：建议提高现金与实物资产配置，黄金回调仍是买点
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-中新网北京5月16日电 (记者 李京泽)“中国哲学社会科学自主知识体系丛书”发布会15日在北京举办。会上正式发布了“中国哲学社会科学自主知识体系丛书”(以下简称丛书)首批成果，中国社会科学院学部委员蔡昉、中国社会科学院科研局副局长周丹、中国社会科学出版社社长季为民为成果揭幕。据悉，丛书首批成果涵盖《新时代中国经济学》《新时代中国哲学》《新时代中国法学》《新时代中国社会学》《新时
+文章来源：智通财经网 DoubleLine Capital首席投资官、有“新债王”之称的杰弗里·冈拉克（Jeffrey Gundlach）近日在接受彭博采访时表示，当前金融市场估值处于高位，投资者不宜过度押注风险资产。他认为，市场此前依赖美联储降息预期推动上涨，但在通胀压力仍存、利率前景不确定的背景下，这一交易逻辑正面临挑战。 冈拉克表示，年初市场一度预期美联储今年可能降息两到
 
 ## 正文
 
-中新网北京5月16日电 (记者 李京泽)“中国哲学社会科学自主知识体系丛书”发布会15日在北京举办。
+文章来源：智通财经网 DoubleLine Capital首席投资官、有“新债王”之称的杰弗里·冈拉克（Jeffrey Gundlach）近日在接受彭博采访时表示，当前金融市场估值处于高位，投资者不宜过度押注风险资产。
 
-会上正式发布了“中国哲学社会科学自主知识体系丛书”(以下简称丛书)首批成果，中国社会科学院学部委员蔡昉、中国社会科学院科研局副局长周丹、中国社会科学出版社社长季为民为成果揭幕。
+他认为，市场此前依赖美联储降息预期推动上涨，但在通胀压力仍存、利率前景不确定的背景下，这一交易逻辑正面临挑战。
 
-据悉，丛书首批成果涵盖《新时代中国经济学》《新时代中国哲学》《新时代中国法学》《新时代中国社会学》《新时代中国新闻学》《新时代中国人口学》《新时代中国宗教学》(全二卷)《新时代中国国际关系学》等多部著作，系统梳理新时代中国哲学社会科学创新发展过程中形成的原创性概念、范畴、原理与方法，集中总结了新中国成立70多年特别是新时代中国式现代化建设的基本经验，为加快构建中国哲学社会科学自主知识体系提供重要学术探索。
+冈拉克表示，年初市场一度预期美联储今年可能降息两到三次，但这一判断如今已明显弱化。
 
-本次会议由中国社会科学出版社总编辑吕薇洲、中国社会科学出版社副社长郑文斌主持。
+他直言，如果投资者买入风险资产的核心理由只是“今年会有两次降息”，那么可能押错了方向。
 
-(完)
+他认为，2026年美联储未必会降息，甚至不能排除加息风险。
+
+受中东局势、油价上涨以及通胀反复影响，市场对降息的信心已经下降。
+
+在资产配置方面，冈拉克建议投资者提高防御性仓位。
+
+他最新提出的组合思路包括：持有20%现金，以及配置20%实物资产，例如大宗商品等。
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 22:33 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 22:36 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 22:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 22:36 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 22:42 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 22:32 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 22:46 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 22:25 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 22:19 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 22:24 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 22:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 22:26 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 22:31 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 22:52 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 22:42 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 22:33 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 22:40 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 22:24 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 22:24 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 22:43 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 22:34 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 22:44 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 22:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 22:30 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:41 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/22059697131.shtml)
-- 2026-06-29 22:32 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.minike.top/Article/details/6411772816.shtml)
-- 2026-06-29 22:20 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/29124.shtml)
-- 2026-06-29 22:42 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/55295804.shtml)
-- 2026-06-29 22:23 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/423807879.shtml)
-- 2026-06-29 22:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/791116261386.shtml)
-- 2026-06-29 22:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/35218919139.shtml)
-- 2026-06-29 22:34 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/9352326688.shtml)
-- 2026-06-29 22:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/767427.shtml)
-- 2026-06-29 22:35 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/68572.shtml)
-- 2026-06-29 22:40 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/34566.shtml)
-- 2026-06-29 22:36 - [毒液2](https://www.blog.kurohicncr.top/Article/details/93001421.shtml)
-- 2026-06-29 22:35 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/69753501.shtml)
-- 2026-06-29 22:44 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/33304.shtml)
-- 2026-06-29 22:18 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/47893532005.shtml)
+- 2026-06-29 22:34 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/738599.shtml)
+- 2026-06-29 22:30 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/70427.shtml)
+- 2026-06-29 22:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/53113585678.shtml)
+- 2026-06-29 22:26 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/163391566251.shtml)
+- 2026-06-29 22:25 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/73446472960.shtml)
+- 2026-06-29 22:25 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/39266689.shtml)
+- 2026-06-29 22:28 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/205871389.shtml)
+- 2026-06-29 22:29 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/528528.shtml)
+- 2026-06-29 22:28 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/6443750.shtml)
+- 2026-06-29 22:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/90012.shtml)
+- 2026-06-29 22:29 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/25481980793.shtml)
+- 2026-06-29 22:27 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/4311077.shtml)
+- 2026-06-29 22:51 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/31255588.shtml)
+- 2026-06-29 22:24 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/943191372.shtml)
+- 2026-06-29 22:51 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/51295611320.shtml)

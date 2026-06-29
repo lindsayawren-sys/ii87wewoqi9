@@ -1,61 +1,52 @@
-# 瑞士经济再度实现增长
+# 挪威方面逮捕一中国女子 中国外交部回应
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-瑞士2026年第一季度经济持续增长，但伊朗局势冲突恐在未来数月阻碍该国经济复苏势头。 瑞士联邦统计局周一公布数据显示，今年一季度（截至3月）国内生产总值环比增长0.5%，延续了2025年四季度0.2%的增长态势。 统计局表示，工业与服务业均为此次经济增长提供助力。 不过中东局势冲突正令瑞士经济前景蒙上阴影。 瑞士经济研究所（KOF）早在3月下旬就发出预警，能源价格上涨已促使企业
+中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：7日，挪威方面逮捕了一名中国女子，并指控其收集卫星相关数据，这涉及欧洲的一个太空项目，中方对此有何回应？ 林剑：我不了解你提到的具体情况，中方坚决反对任何对中方的无端指责和恶意抹黑，相信挪威方面将切实保障中国公民的合法权益。(完)
 
 ## 正文
 
-瑞士2026年第一季度经济持续增长，但伊朗局势冲突恐在未来数月阻碍该国经济复苏势头。
+中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
 
-瑞士联邦统计局周一公布数据显示，今年一季度（截至3月）国内生产总值环比增长0.5%，延续了2025年四季度0.2%的增长态势。
+有记者提问：7日，挪威方面逮捕了一名中国女子，并指控其收集卫星相关数据，这涉及欧洲的一个太空项目，中方对此有何回应？
 
-统计局表示，工业与服务业均为此次经济增长提供助力。
+林剑：我不了解你提到的具体情况，中方坚决反对任何对中方的无端指责和恶意抹黑，相信挪威方面将切实保障中国公民的合法权益。
 
-不过中东局势冲突正令瑞士经济前景蒙上阴影。
-
-瑞士经济研究所（KOF）早在3月下旬就发出预警，能源价格上涨已促使企业缩减投资；尽管居民消费支出依旧坚挺，但冲突若长期持续，或将压制市场需求。
-
-该机构指出，化工与医药行业抗压能力相对较强，而钟表、机械、电子等行业易受全球需求疲软与市场不确定性加剧冲击。
-
-在冲突影响有限的基准情境下，该经济研究机构预测，剔除大型体育赛事拉动因素后，瑞士2026年实际国内生产总值增速为1.0%，2027年达1.7%。
-
-即便在中东局势升级之前，瑞士经济增速就已低于1.8%的长期均值。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 22:26 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 22:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 22:34 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 22:28 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 22:32 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 22:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 22:34 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 22:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 22:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 22:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 22:23 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 22:27 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 22:35 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 22:44 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 22:51 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 22:47 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 22:52 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 22:41 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 22:33 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 22:34 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 22:37 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 22:26 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 22:41 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 22:42 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 22:41 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 22:27 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 22:39 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 22:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/49786.shtml)
-- 2026-06-29 22:19 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/521627.shtml)
-- 2026-06-29 22:19 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/62879.shtml)
-- 2026-06-29 22:32 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/471159363.shtml)
-- 2026-06-29 22:32 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/22597237.shtml)
-- 2026-06-29 22:48 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/181654301906.shtml)
-- 2026-06-29 22:28 - [孙俪开QQ的蛮好生活](http://www.blog.minike.top/Article/details/92594585.shtml)
-- 2026-06-29 22:40 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/412054396202.shtml)
-- 2026-06-29 22:34 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/42741301.shtml)
-- 2026-06-29 22:40 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/726008095.shtml)
-- 2026-06-29 22:21 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/413618995548.shtml)
-- 2026-06-29 22:30 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/87150129848.shtml)
-- 2026-06-29 22:37 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/59030621.shtml)
-- 2026-06-29 22:26 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/66752426014.shtml)
-- 2026-06-29 22:23 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/57499.shtml)
+- 2026-06-29 22:48 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/02343455.shtml)
+- 2026-06-29 22:41 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/9798543453.shtml)
+- 2026-06-29 22:49 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/14104129.shtml)
+- 2026-06-29 22:30 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/77104715185.shtml)
+- 2026-06-29 22:26 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/2047792162.shtml)
+- 2026-06-29 22:50 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/3372481253.shtml)
+- 2026-06-29 22:50 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/14135783.shtml)
+- 2026-06-29 22:28 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/171225163815.shtml)
+- 2026-06-29 22:24 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/31553.shtml)
+- 2026-06-29 22:47 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/910192.shtml)
+- 2026-06-29 22:32 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/112899.shtml)
+- 2026-06-29 22:47 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/4571703036.shtml)
+- 2026-06-29 22:47 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/8735607618.shtml)
+- 2026-06-29 22:28 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/642612030846.shtml)
+- 2026-06-29 22:35 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/31283737.shtml)

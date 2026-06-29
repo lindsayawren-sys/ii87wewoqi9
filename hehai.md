@@ -1,61 +1,54 @@
-# 【在希望的田野上】我国夏油作物收获进入高峰
+# 青海玛沁突发山体崩塌导致227国道部分路段中断
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：我国夏油作物主要是冬油菜，产油量占国产食用植物油的40%多。眼下，主产区冬油菜收获进入高峰。 我国冬油菜种植区域主要集中在长江流域，面积和产量均占全国的85%左右。目前，长江流域冬油菜收获已过四成，进度同比略快。 湖北1900多万亩冬油菜长势良好。今年，当地将产油大县奖励资金的四成用于统一供种和技术示范，高产高油品种面积增至94%。在松滋市，当地首次推广
+新华社西宁5月8日电(记者王浡)记者从青海省交通运输厅获悉，受持续降雨天气影响，5月7日10时09分，G227张(掖)孟(连)公路青海段，果洛藏族自治州玛沁县拉加镇赞根村K748+500米处突发山体崩塌，造成道路全幅中断、车辆滞留，并引发道路交通安全事故。目前，该路段实行全幅封闭、双向交通阻断，暂不具备通行条件。据现场勘查核实，本次崩塌山体地势陡峭，山体近乎垂直呈90度，山体高
 
 ## 正文
 
-央视网消息(新闻联播)：我国夏油作物主要是冬油菜，产油量占国产食用植物油的40%多。
+新华社西宁5月8日电(记者王浡)记者从青海省交通运输厅获悉，受持续降雨天气影响，5月7日10时09分，G227张(掖)孟(连)公路青海段，果洛藏族自治州玛沁县拉加镇赞根村K748+500米处突发山体崩塌，造成道路全幅中断、车辆滞留，并引发道路交通安全事故。
 
-眼下，主产区冬油菜收获进入高峰。
+目前，该路段实行全幅封闭、双向交通阻断，暂不具备通行条件。
 
-我国冬油菜种植区域主要集中在长江流域，面积和产量均占全国的85%左右。
+据现场勘查核实，本次崩塌山体地势陡峭，山体近乎垂直呈90度，山体高度50余米，临路绵延长度200余米。
 
-目前，长江流域冬油菜收获已过四成，进度同比略快。
+经无人机航拍勘查，山体表层覆盖30厘米厚度腐殖土，岩体风化裸露严重，山体顶部存在明显裂隙，地质结构稳定性较差。
 
-湖北1900多万亩冬油菜长势良好。
+本次崩塌起始于距地面2米位置，塌面贯通至山体顶部，塌方总量约2000立方米，受阻路段长度200米，导致双向滞留车辆50余辆。
 
-今年，当地将产油大县奖励资金的四成用于统一供种和技术示范，高产高油品种面积增至94%。
+险情发生后，省、州、县各级交通、应急、自然资源、公安交警等部门快速响应、协同处置，目前，滞留车辆已全部疏散，现场正进行危岩体清理工作。
 
-在松滋市，当地首次推广抗根肿病新品种，增产效果明显。
-
-安徽依托792个农机应急作业队和460家区域性农机服务中心开展机收服务。
+据悉，该路段具体恢复通行时间将根据山体稳定性监测及抢险施工进度另行通告，交通运输部门将持续跟踪险情动态，及时发布最新处置进展，尽快抢通受损道路。
 
 ## 相关推荐
 
-- 2026-06-29 22:42 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 22:28 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 22:34 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 22:30 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 22:20 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 22:47 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 22:30 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 22:45 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 22:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 22:24 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 22:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 22:22 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 22:36 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 22:31 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 22:47 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 22:24 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 22:28 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 22:28 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 22:29 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 22:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 22:38 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 22:41 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 22:49 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 22:38 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 22:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:19 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/24201156.shtml)
-- 2026-06-29 22:20 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/789299982.shtml)
-- 2026-06-29 22:21 - [时光音乐会](https://www.share.minike.top/Article/details/4451307972.shtml)
-- 2026-06-29 22:44 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/96788.shtml)
-- 2026-06-29 22:35 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/432752.shtml)
-- 2026-06-29 22:44 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/94960.shtml)
-- 2026-06-29 22:39 - [返利科技盘中上演“天地板”](http://www.blog.kurohicncr.top/Article/details/998025339412.shtml)
-- 2026-06-29 22:34 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/02626.shtml)
-- 2026-06-29 22:45 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/18437.shtml)
-- 2026-06-29 22:33 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/598227287.shtml)
-- 2026-06-29 22:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/49932101978.shtml)
-- 2026-06-29 22:20 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/261789815906.shtml)
-- 2026-06-29 22:27 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/815679375.shtml)
-- 2026-06-29 22:47 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/536511661.shtml)
-- 2026-06-29 22:29 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/45800068.shtml)
+- 2026-06-29 22:29 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/08667065.shtml)
+- 2026-06-29 22:47 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/207845204296.shtml)
+- 2026-06-29 22:32 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/3583689111.shtml)
+- 2026-06-29 22:28 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/75065.shtml)
+- 2026-06-29 22:33 - [小娘惹](https://www.share.minike.top/Article/details/24811.shtml)
+- 2026-06-29 22:41 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/32203.shtml)
+- 2026-06-29 22:44 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/64825458.shtml)
+- 2026-06-29 22:49 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/77833547209.shtml)
+- 2026-06-29 22:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/0164503042.shtml)
+- 2026-06-29 22:33 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/810570.shtml)
+- 2026-06-29 22:53 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/949535.shtml)
+- 2026-06-29 22:33 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/24274.shtml)
+- 2026-06-29 22:24 - [温网](https://www.share.kurohicncr.top/Article/details/619772101840.shtml)
+- 2026-06-29 22:39 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/7581406.shtml)
+- 2026-06-29 22:44 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/571634.shtml)

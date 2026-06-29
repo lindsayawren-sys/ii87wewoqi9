@@ -1,56 +1,59 @@
-# 2026年亚太经合组织第二次高官会在上海举行
+# 鹏都农牧（002505）、英飞拓（002528）投资者索赔案均再获得法院立案，前期已有胜诉
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-2026年亚太经合组织第二次高官会于今天（18日）下午在上海举行。会期将从18日持续至19日。本次会议将对今年APEC合作进行年中盘点，汇聚早期收获，为下半年各场活动和领导人会议成果做好铺垫。 APEC高官会是为领导人会议准备成果的主渠道，每年举办4至5次。2026年亚太经合组织第一次高官会已于今年2月在广州举行。 （总台央视记者 黄达 高博远）责任编辑：刘万里 SF014
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月8日，上海久诚律师事务所股票索赔律师许峰代理的鹏都农牧（002505）投资者索赔案再获得长沙中院立案，此前已多个批次获得法院立案，目前正在等待法院的下一步安排，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师
 
 ## 正文
 
-2026年亚太经合组织第二次高官会于今天（18日）下午在上海举行。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-会期将从18日持续至19日。
+2026年5月8日，上海久诚律师事务所股票索赔律师许峰代理的鹏都农牧（002505）投资者索赔案再获得长沙中院立案，此前已多个批次获得法院立案，目前正在等待法院的下一步安排，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-本次会议将对今年APEC合作进行年中盘点，汇聚早期收获，为下半年各场活动和领导人会议成果做好铺垫。
+（许峰律师专栏） 鹏都农牧投资者索赔案已有投资者胜诉先例，如果投资者因鹏都农牧虚假陈述受损，目前还可发起索赔。
 
-APEC高官会是为领导人会议准备成果的主渠道，每年举办4至5次。
+2024年11月22日，鹏都农牧发布于公司及相关责任人收到《行政处罚决定书》的公告，经查明，当事人存在以下违法事实： 一、鹏都农牧未依法及时披露控股股东非经营性资金占用。
 
-2026年亚太经合组织第一次高官会已于今年2月在广州举行。
+二、鹏都农牧2020年年度报告、2021年半年度报告、2021年年度报告、2022年半年度报告、2022年年度报告存在重大遗漏。
 
-（总台央视记者 黄达 高博远）责任编辑：刘万里 SF014
+许峰律师认为，根据前期投资者胜诉判决，在2021年4月29日到2024年8月15日之间买入鹏都农牧股票，并且在2024年8月15日后卖出或继续持有股票的投资者，目前还可发起索赔。
+
+除了鹏都农牧投资者索赔案再次获得法院立案，2026年5月7日，许峰律师代理的英飞拓（002528）投资者索赔案也再获得法院立案。
+
+许峰律师代理的英飞拓投资者索赔案部分已经收到法院的判决，投资者获得一审胜诉，此外部分案件还在等待下一步的开庭安排，律师团队同步也还在继续接受其他投资者的索赔委托。
 
 ## 相关推荐
 
-- 2026-06-29 22:35 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 22:24 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 22:37 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 22:43 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 22:45 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 22:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 22:23 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 22:33 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 22:18 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 22:29 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 22:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 22:46 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 22:40 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 22:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 22:39 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 22:27 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 22:25 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 22:34 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 22:32 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 22:37 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 22:24 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 22:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 22:40 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 22:45 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 22:47 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 22:33 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 22:32 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/2667881.shtml)
-- 2026-06-29 22:42 - [恋与深空致歉](http://www.blog.minike.top/Article/details/715888349006.shtml)
-- 2026-06-29 22:26 - [浙江进入梅雨最强“攻击时段”](http://www.blog.minike.top/Article/details/47976476214.shtml)
-- 2026-06-29 22:35 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/673461503207.shtml)
-- 2026-06-29 22:46 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/47087078.shtml)
-- 2026-06-29 22:45 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/849680.shtml)
-- 2026-06-29 22:23 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/81096570105.shtml)
-- 2026-06-29 22:29 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/852090626824.shtml)
-- 2026-06-29 22:45 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/10637191482.shtml)
-- 2026-06-29 22:36 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.minike.top/Article/details/232243294183.shtml)
-- 2026-06-29 22:39 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/9521064692.shtml)
-- 2026-06-29 22:29 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/6184714111.shtml)
-- 2026-06-29 22:35 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/14869953200.shtml)
-- 2026-06-29 22:19 - [月亮](http://www.share.kurohicncr.top/Article/details/5140359956.shtml)
-- 2026-06-29 22:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/86972.shtml)
+- 2026-06-29 22:44 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/03882593449.shtml)
+- 2026-06-29 22:33 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/850043262371.shtml)
+- 2026-06-29 22:42 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/9661673141.shtml)
+- 2026-06-29 22:28 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/7823140445.shtml)
+- 2026-06-29 22:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/9410258.shtml)
+- 2026-06-29 22:29 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/160292131810.shtml)
+- 2026-06-29 22:31 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/0089818.shtml)
+- 2026-06-29 22:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/251350238486.shtml)
+- 2026-06-29 22:46 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/21924.shtml)
+- 2026-06-29 22:44 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/8983536845.shtml)
+- 2026-06-29 22:34 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/27382.shtml)
+- 2026-06-29 22:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/07804780.shtml)
+- 2026-06-29 22:47 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/61933023615.shtml)
+- 2026-06-29 22:27 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/202570446.shtml)
+- 2026-06-29 22:26 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.minike.top/Article/details/272772.shtml)

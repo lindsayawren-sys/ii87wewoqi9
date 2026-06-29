@@ -1,58 +1,61 @@
-# 吃这种水果24小时内别喝酒，可致呼吸衰竭！
+# 兴化股份（002109）遭证监会立案调查，受损股民可索赔
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-眼下，榴莲正集中上市 享受“榴莲自由”的同时 食用禁忌和健康风险 也需关注近日，福建一位女子聚餐时，先吃了两大块榴莲，又喝了约200毫升白酒。随后出现呼吸困难、意识模糊等严重症状。榴莲配酒为何会诱发危险？ “榴莲+酒”危害机制 与头孢类药物类似 首都医科大学附属北京世纪坛医院临床营养科副主任贾平平指出，榴莲搭配酒精的危害机制与头孢类药物类似。 榴莲果肉中含有大量含硫化合物，这类
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月29日晚间，陕西兴化化学股份有限公司（股票代码：002109，简称：兴化股份）发布公告，公司于当日收到中国证监会下发的《立案告知书》（编号：证监立案字0092026002号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案调查。 同日“三连击
 
 ## 正文
 
-眼下，榴莲正集中上市 享受“榴莲自由”的同时 食用禁忌和健康风险 也需关注近日，福建一位女子聚餐时，先吃了两大块榴莲，又喝了约200毫升白酒。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月29日晚间，陕西兴化化学股份有限公司（股票代码：002109，简称：兴化股份）发布公告，公司于当日收到中国证监会下发的《立案告知书》（编号：证监立案字0092026002号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案调查。
 
-随后出现呼吸困难、意识模糊等严重症状。
+同日“三连击”：立案+会计差错更正+ST戴帽 初步索赔范围：实施日2025年4月24日至揭露日2026年4月29日之间买入股票，且在揭露日2026年4月29日收盘时仍持有，于2026年4月30日及之后卖出或继续持有而亏损的投资者。
 
-榴莲配酒为何会诱发危险？
+（最终以法院判决为准）（兴化股份维权入口） 索赔材料 一、买卖兴化股份（002109）股票的对账单原件 （1）对账单原件需要加盖证券公司营业部印章； （2）对账单从第一次买入兴化股份（002109）股票开始打到打印日当天，所有该股票的交易记录，目前仍持有该股票的投资者还须显示剩余持股总数。
 
-“榴莲+酒”危害机制 与头孢类药物类似 首都医科大学附属北京世纪坛医院临床营养科副主任贾平平指出，榴莲搭配酒精的危害机制与头孢类药物类似。
+二、投资者身份证正反面复印件； 三、证券公司营业部出具的证券账户查询单。
 
-榴莲果肉中含有大量含硫化合物，这类物质会强力抑制人体内乙醛脱氢酶活性。
+牛彬律师声明（牛彬律师专栏） 上述预登记条件仅供参考，不涉及任何投资决策和证券买卖建议。
 
-酒精代谢需要乙醛脱氢酶，酶被抑制后，酒精代谢中断，有毒的乙醛大量堆积在体内，从而引发类似像“双硫仑样反应”的症状。
+索赔条件将根据证监会调查结论进一步调整，最终以法院认定为准。
 
-乙醛蓄积会扩张血管、损伤心肌、抑制呼吸，轻则皮肤潮红、心慌心悸、恶心呕吐，重则血压骤降、呼吸困难、休克、呼吸循环衰竭，救治不及时可危及生命。
+（本文由上海百悦律师事务所牛彬律师供稿，不代表新浪财经立场。
 
-吃完榴莲后多久能饮酒？
+牛彬律师，已执业25年。
 
 ## 相关推荐
 
-- 2026-06-29 22:28 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 22:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 22:26 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 22:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 22:46 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 22:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 22:35 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 22:22 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 22:42 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 22:18 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 22:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 22:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 22:47 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 22:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 22:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 22:53 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 22:26 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 22:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 22:24 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 22:46 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 22:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 22:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 22:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 22:43 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 22:43 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 22:44 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 22:44 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:30 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/32046.shtml)
-- 2026-06-29 22:41 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/6146786.shtml)
-- 2026-06-29 22:37 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/21703.shtml)
-- 2026-06-29 22:40 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/359144460.shtml)
-- 2026-06-29 22:46 - [我和我的家乡](https://www.blog.minike.top/Article/details/5887985.shtml)
-- 2026-06-29 22:26 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/317294645130.shtml)
-- 2026-06-29 22:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/457107241.shtml)
-- 2026-06-29 22:25 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/9576000778.shtml)
-- 2026-06-29 22:24 - [王鸿薇要求删陆委会百余万特别费](http://www.share.minike.top/Article/details/396939447.shtml)
-- 2026-06-29 22:23 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/48223434711.shtml)
-- 2026-06-29 22:33 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/13557.shtml)
-- 2026-06-29 22:36 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/521630977119.shtml)
-- 2026-06-29 22:44 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/90786.shtml)
-- 2026-06-29 22:30 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/168274.shtml)
-- 2026-06-29 22:22 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/3716678.shtml)
+- 2026-06-29 22:50 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/66119.shtml)
+- 2026-06-29 22:35 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/5428963.shtml)
+- 2026-06-29 22:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/6307813.shtml)
+- 2026-06-29 22:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/520703438973.shtml)
+- 2026-06-29 22:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/156978254.shtml)
+- 2026-06-29 22:39 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/81126946.shtml)
+- 2026-06-29 22:52 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/101135404.shtml)
+- 2026-06-29 22:40 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/5429937539.shtml)
+- 2026-06-29 22:50 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/99223.shtml)
+- 2026-06-29 22:41 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/248952412981.shtml)
+- 2026-06-29 22:32 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/441526154.shtml)
+- 2026-06-29 22:31 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/3191192.shtml)
+- 2026-06-29 22:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/86277969.shtml)
+- 2026-06-29 22:26 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/27745924302.shtml)
+- 2026-06-29 22:44 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/34715799.shtml)

@@ -1,57 +1,55 @@
-# 国家统计局：1—4月份国民经济保持稳中有进发展态势
+# 翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-今天上午，国务院新闻办召开新闻发布会，国家统计局新闻发言人表示，今年1—4月份，我国有效实施更加积极有为的宏观政策，着力稳就业、稳企业、稳市场、稳预期，生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显，就业物价总体稳定，新动能成长壮大，高质量发展向新向优。 具体来看，工业生产较快增长，装备制造业和高技术制造业增长较快，1—4月份，全国规模以上工业增加值同比增长5.6%。服务
+发布时间：2026年05月08日 19:19 来源：中国新闻网 5月8日清晨，翡翠千里眼、顺风耳雕像捐赠揭幕仪式在福建莆田湄洲妈祖祖庙举行。 翡翠千里眼、顺风耳雕像，长48公分、宽32公分、高108公分，每尊重量166千克。该组雕像将与此前安座于弘仁普济天妃宫的翡翠妈祖像、翡翠侍女像配套安座。 此次翡翠千里眼、顺风耳雕像由湄洲妈祖祖庙荣誉董事长赵柳成向湄洲妈祖祖庙捐赠，以此助力
 
 ## 正文
 
-今天上午，国务院新闻办召开新闻发布会，国家统计局新闻发言人表示，今年1—4月份，我国有效实施更加积极有为的宏观政策，着力稳就业、稳企业、稳市场、稳预期，生产供给平稳增长，市场销售继续扩大，外贸韧性持续彰显，就业物价总体稳定，新动能成长壮大，高质量发展向新向优。
+发布时间：2026年05月08日 19:19 来源：中国新闻网 5月8日清晨，翡翠千里眼、顺风耳雕像捐赠揭幕仪式在福建莆田湄洲妈祖祖庙举行。
 
-具体来看，工业生产较快增长，装备制造业和高技术制造业增长较快，1—4月份，全国规模以上工业增加值同比增长5.6%。
+翡翠千里眼、顺风耳雕像，长48公分、宽32公分、高108公分，每尊重量166千克。
 
-服务业平稳增长，现代服务业发展向好，1—4月份，全国服务业生产指数同比增长4.9%。
+该组雕像将与此前安座于弘仁普济天妃宫的翡翠妈祖像、翡翠侍女像配套安座。
 
-市场销售规模扩大，服务零售增长加快，1—4月份，社会消费品零售总额164941亿元，同比增长1.9%。
+此次翡翠千里眼、顺风耳雕像由湄洲妈祖祖庙荣誉董事长赵柳成向湄洲妈祖祖庙捐赠，以此助力妈祖文化的传承与传播。
 
-货物进出口较快增长，贸易结构继续优化，1—4月份，货物进出口总额162252亿元，同比增长14.9%。
-
-（总台央视记者 吴昊 宋菀）责任编辑：韦子蓉
+(记者 吴晟炜 视频来源 湄洲妈祖祖庙） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 22:40 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 22:47 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 22:28 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 22:27 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 22:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 22:30 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 22:46 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 22:45 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 22:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 22:25 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 22:22 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 22:29 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 22:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 22:25 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 22:45 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 22:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 22:39 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 22:30 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 22:33 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 22:32 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 22:46 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 22:51 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 22:48 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 22:39 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 22:40 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 22:41 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 22:37 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 22:35 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 22:40 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:26 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/45449.shtml)
-- 2026-06-29 22:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/778418124543.shtml)
-- 2026-06-29 22:43 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/16248051.shtml)
-- 2026-06-29 22:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/83683970234.shtml)
-- 2026-06-29 22:44 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/5787988768.shtml)
-- 2026-06-29 22:39 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/898010141289.shtml)
-- 2026-06-29 22:43 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/7899376963.shtml)
-- 2026-06-29 22:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/1909592.shtml)
-- 2026-06-29 22:42 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/06031.shtml)
-- 2026-06-29 22:19 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/92923354972.shtml)
-- 2026-06-29 22:22 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/210179.shtml)
-- 2026-06-29 22:32 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/29461351.shtml)
-- 2026-06-29 22:45 - [速度与激情9](https://www.share.minike.top/Article/details/043584693222.shtml)
-- 2026-06-29 22:40 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/51266120.shtml)
-- 2026-06-29 22:22 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/7325102195.shtml)
+- 2026-06-29 22:27 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/40813917476.shtml)
+- 2026-06-29 22:35 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/467485546888.shtml)
+- 2026-06-29 22:33 - [第一炉香](http://www.share.minike.top/Article/details/953473757.shtml)
+- 2026-06-29 22:27 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/17881221.shtml)
+- 2026-06-29 22:49 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/465522690123.shtml)
+- 2026-06-29 22:31 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/64088566.shtml)
+- 2026-06-29 22:44 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/416577.shtml)
+- 2026-06-29 22:36 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/1946979.shtml)
+- 2026-06-29 22:41 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/5309440670.shtml)
+- 2026-06-29 22:46 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/818488762513.shtml)
+- 2026-06-29 22:25 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/35318.shtml)
+- 2026-06-29 22:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/10948.shtml)
+- 2026-06-29 22:26 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/1595263610.shtml)
+- 2026-06-29 22:44 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/6770389.shtml)
+- 2026-06-29 22:30 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/01086664130.shtml)

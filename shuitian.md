@@ -1,60 +1,55 @@
-# 创新药跌跌不休，什么原因？华宝基金药ETF、港股通创新药ETF（520880）历史新低，还能买吗？
+# 中国企业自主研制的无人车全链路补能体系发布 可实现自动充电
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-创新药继续磨底。5月18日，AH创新药延续跌势，重仓A股创新药的药ETF华宝（562050）、100%创新药研发标的——港股通创新药ETF华宝（520880）场内价格均创历史新低。 A股方面，百济神州挫5%领跌板块，新和成、华东医药跌超3%，恒瑞医药跌2.89%。场内唯一药ETF华宝（562050）*收跌2.21%四连阴，此前3日连获百万级资金增仓。 港股通创新药波动更大，权重
+发布时间：2026年05月09日 10:28 来源：中国新闻网 5月8日，面向无人驾驶领域的全链路自动充电与无人运营体系“来电岛1号”在山东青岛发布。该体系通过充电机器人、泊车机器人与AI智能体的融合技术架构，实现无人驾驶车辆从泊车、补能到运维的全流程无人化闭环，为无人驾驶产业规模化落地提供系统性的解决方案。 该体系中，多车型通用的自动充电机器人大幅压缩设备成本，打破了自动补能
 
 ## 正文
 
-创新药继续磨底。
+发布时间：2026年05月09日 10:28 来源：中国新闻网 5月8日，面向无人驾驶领域的全链路自动充电与无人运营体系“来电岛1号”在山东青岛发布。
 
-5月18日，AH创新药延续跌势，重仓A股创新药的药ETF华宝（562050）、100%创新药研发标的——港股通创新药ETF华宝（520880）场内价格均创历史新低。
+该体系通过充电机器人、泊车机器人与AI智能体的融合技术架构，实现无人驾驶车辆从泊车、补能到运维的全流程无人化闭环，为无人驾驶产业规模化落地提供系统性的解决方案。
 
-A股方面，百济神州挫5%领跌板块，新和成、华东医药跌超3%，恒瑞医药跌2.89%。
+该体系中，多车型通用的自动充电机器人大幅压缩设备成本，打破了自动补能设备规模化应用的价格壁垒；自动泊车机器人将单车存取时间大幅缩减，显著提升了高频密集停车场景的适配性；基于海量充电数据打造的AI智能体，可实现电池安全风险提前预警与车网互动智能调度，有效降低无人车运营能耗成本。
 
-场内唯一药ETF华宝（562050）*收跌2.21%四连阴，此前3日连获百万级资金增仓。
+特来电副总裁、首席科学家穆晓鹏表示，通过来电岛，可以将无人车的充电无人化，摆脱现在人工插枪的模式，同时通过自动泊车和自动充电的体系，让无人车的运营效率提升30%。
 
-港股通创新药波动更大，权重龙头康方生物跌5.32%，信达生物、百济神州、石药集团等齐跌逾2%。
-
-100%创新药研发标的——港股通创新药ETF华宝（520880）跌2.4%收出五连阴。
-
-场内再现宽幅溢价，显示买盘态度仍积极。
-
-近期板块连跌区间，巨量资金逆市吸筹，截至5月15日，520880近10日累获逾6.2亿元净申购，基金份额升至55.7亿新高。
+(王禹 制作 刘鹏） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 22:29 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 22:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 22:34 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 22:21 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 22:38 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 22:26 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 22:25 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 22:27 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 22:31 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 22:31 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 22:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 22:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 22:33 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 22:31 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 22:35 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 22:28 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 22:49 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 22:32 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 22:43 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 22:36 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 22:45 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 22:40 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 22:46 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 22:53 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 22:29 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 22:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 22:51 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 22:33 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 22:28 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:19 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/6970470.shtml)
-- 2026-06-29 22:35 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/86402972718.shtml)
-- 2026-06-29 22:40 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/3305684.shtml)
-- 2026-06-29 22:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/32867.shtml)
-- 2026-06-29 22:39 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/60679.shtml)
-- 2026-06-29 22:27 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/6945505.shtml)
-- 2026-06-29 22:28 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/565022.shtml)
-- 2026-06-29 22:40 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/349818783243.shtml)
-- 2026-06-29 22:30 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/480470858004.shtml)
-- 2026-06-29 22:18 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/2882726.shtml)
-- 2026-06-29 22:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/19995834.shtml)
-- 2026-06-29 22:23 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/44249.shtml)
-- 2026-06-29 22:26 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/04153119.shtml)
-- 2026-06-29 22:18 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/93726392008.shtml)
-- 2026-06-29 22:21 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/19203.shtml)
+- 2026-06-29 22:48 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/7301617645.shtml)
+- 2026-06-29 22:27 - [请回答王牌2019](https://www.share.minike.top/Article/details/650324.shtml)
+- 2026-06-29 22:44 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/571436183801.shtml)
+- 2026-06-29 22:51 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/82820957558.shtml)
+- 2026-06-29 22:30 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/87713234.shtml)
+- 2026-06-29 22:49 - [勇敢的心第二部](http://www.share.minike.top/Article/details/491162.shtml)
+- 2026-06-29 22:45 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/360007593.shtml)
+- 2026-06-29 22:39 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/2423458.shtml)
+- 2026-06-29 22:47 - [月亮](http://www.share.kurohicncr.top/Article/details/593762.shtml)
+- 2026-06-29 22:32 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/67015235056.shtml)
+- 2026-06-29 22:51 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/45541728326.shtml)
+- 2026-06-29 22:26 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/369353.shtml)
+- 2026-06-29 22:33 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/03046.shtml)
+- 2026-06-29 22:25 - [极限挑战第一季](https://www.blog.minike.top/Article/details/42292530846.shtml)
+- 2026-06-29 22:31 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/126565790913.shtml)

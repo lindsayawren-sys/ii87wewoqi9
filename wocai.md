@@ -1,60 +1,58 @@
-# 中国4月银行结售汇顺差401亿美元 跨境资金恢复净流入
+# 最高法公布5起典型案例 侵犯公民个人信息犯罪有哪些新趋势？
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 中国国家外汇管理局18日公布的统计数据显示，2026年4月，按美元计值，银行结汇2573亿美元，售汇2172亿美元，结售汇顺差401亿美元。 中国国家外汇管理局副局长李斌表示，近期，地缘政治局势引发国际金融市场波动，中国外汇市场运行总体稳健。受外部扰动影响，3月跨境资金出现一定净流出，4月恢复净流入。 综合3月和4月情况看，跨境资金月均净流入149亿美元
+新闻1+1丨最高法公布5起典型案例 侵犯公民个人信息犯罪有哪些新趋势？ 你的隐私信息安全吗？最近，最高法公布了5起跟侵犯公民个人信息犯罪相关的案例，引发了很多媒体的关注。这些案例当中有涉及医院和铁路这样本身就拥有着大量居民个人信息的单位。同时，也有像6亿条公民信息被“开盒”这样让人瞠目结舌的惊人数字。还有两个人购买了木马程序植入HPV疫苗预约网站，获取了女性个人信息29万多条用
 
 ## 正文
 
-中新社北京5月18日电 中国国家外汇管理局18日公布的统计数据显示，2026年4月，按美元计值，银行结汇2573亿美元，售汇2172亿美元，结售汇顺差401亿美元。
+新闻1+1丨最高法公布5起典型案例 侵犯公民个人信息犯罪有哪些新趋势？
 
-中国国家外汇管理局副局长李斌表示，近期，地缘政治局势引发国际金融市场波动，中国外汇市场运行总体稳健。
+你的隐私信息安全吗？
 
-受外部扰动影响，3月跨境资金出现一定净流出，4月恢复净流入。
+最近，最高法公布了5起跟侵犯公民个人信息犯罪相关的案例，引发了很多媒体的关注。
 
-综合3月和4月情况看，跨境资金月均净流入149亿美元，银行月均净结汇280亿美元，低于去年末和今年初的月度顺差规模。
+这些案例当中有涉及医院和铁路这样本身就拥有着大量居民个人信息的单位。
 
-同时，涉外交易保持活跃。
+同时，也有像6亿条公民信息被“开盒”这样让人瞠目结舌的惊人数字。
 
-4月，企业、个人等非银行部门跨境收支合计1.6万亿美元，同比增长15%。
+还有两个人购买了木马程序植入HPV疫苗预约网站，获取了女性个人信息29万多条用于电诈。
 
-中国外汇市场交易量为3.7万亿美元，继续处于较高水平。
+五起典型案例反映出什么样的问题？
 
-李斌指出，企业汇率风险管理能力逐步增强，外汇交易更趋理性。
+现在侵犯公民个人信息又出现了哪些新趋势和新特点？
 
 ## 相关推荐
 
-- 2026-06-29 22:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 22:28 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 22:22 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 22:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 22:31 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 22:32 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 22:18 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 22:46 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 22:30 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 22:42 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 22:47 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 22:36 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 22:33 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 22:26 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 22:45 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 22:44 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 22:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 22:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 22:44 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 22:40 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 22:38 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 22:36 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 22:37 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 22:38 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 22:28 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 22:48 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:21 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/37032628.shtml)
-- 2026-06-29 22:40 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/15845291.shtml)
-- 2026-06-29 22:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/961395180.shtml)
-- 2026-06-29 22:48 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/254313582.shtml)
-- 2026-06-29 22:31 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/5285149210.shtml)
-- 2026-06-29 22:24 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/608804922815.shtml)
-- 2026-06-29 22:42 - [返利科技盘中上演“天地板”](http://www.blog.kurohicncr.top/Article/details/206255616698.shtml)
-- 2026-06-29 22:43 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/118958176.shtml)
-- 2026-06-29 22:19 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/79982253665.shtml)
-- 2026-06-29 22:46 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/7589375284.shtml)
-- 2026-06-29 22:32 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/95493156603.shtml)
-- 2026-06-29 22:43 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/067557.shtml)
-- 2026-06-29 22:21 - [毒液2](http://www.blog.kurohicncr.top/Article/details/92389745.shtml)
-- 2026-06-29 22:37 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/39669066991.shtml)
-- 2026-06-29 22:32 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/51289692.shtml)
+- 2026-06-29 22:46 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/197034086.shtml)
+- 2026-06-29 22:36 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/54940415.shtml)
+- 2026-06-29 22:53 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.minike.top/Article/details/7572638450.shtml)
+- 2026-06-29 22:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/03582075.shtml)
+- 2026-06-29 22:47 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/143529.shtml)
+- 2026-06-29 22:40 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/881310.shtml)
+- 2026-06-29 22:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/7846067729.shtml)
+- 2026-06-29 22:27 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/33764978864.shtml)
+- 2026-06-29 22:41 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/7687936.shtml)
+- 2026-06-29 22:40 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/25426878636.shtml)
+- 2026-06-29 22:28 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/2820097.shtml)
+- 2026-06-29 22:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/65496659.shtml)
+- 2026-06-29 22:36 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/3216784830.shtml)
+- 2026-06-29 22:39 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/74456512565.shtml)
+- 2026-06-29 22:35 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/575086549.shtml)

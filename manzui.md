@@ -1,61 +1,55 @@
-# 解锁“书适”生活 城市特色图书馆让“诗和远方”就在身旁
+# 5月8日24时起国内汽、柴油价格每吨分别上调320元、310元
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-央视网消息：近年来，“旅游+书店”成为文旅融合的重要创新方向，各地以实体书店为载体，联动商圈、景区、文博等资源，打造复合型文化消费空间，展现书店从单一阅读场所转向城市文旅地标。上海的徐家汇书院作为免费向市民开放的复合型文化空间，凭借现代建筑美学与深厚海派底蕴，已经成为上海闹中取静的文化新地标。 如果你想在繁华的都市里，寻找一处远离喧嚣、安放心灵的文化空间，那你一定不能错过我身后
+中新网5月8日电 据国家发展改革委网站消息，4月21日国内成品油价格下调以来，国际市场原油价格剧烈震荡，前期大幅上涨后近日有所回落，本次调价的前10个工作日平均价格高于上次调价前10个工作日平均价格。根据国际市场油价变化情况，自5月8日24时起，国内汽、柴油(标准品)价格每吨分别上调320元、310元。 中石油、中石化、中海油公司及其他原油加工企业要组织好成品油生产和调运，确保
 
 ## 正文
 
-央视网消息：近年来，“旅游+书店”成为文旅融合的重要创新方向，各地以实体书店为载体，联动商圈、景区、文博等资源，打造复合型文化消费空间，展现书店从单一阅读场所转向城市文旅地标。
+中新网5月8日电 据国家发展改革委网站消息，4月21日国内成品油价格下调以来，国际市场原油价格剧烈震荡，前期大幅上涨后近日有所回落，本次调价的前10个工作日平均价格高于上次调价前10个工作日平均价格。
 
-上海的徐家汇书院作为免费向市民开放的复合型文化空间，凭借现代建筑美学与深厚海派底蕴，已经成为上海闹中取静的文化新地标。
+根据国际市场油价变化情况，自5月8日24时起，国内汽、柴油(标准品)价格每吨分别上调320元、310元。
 
-如果你想在繁华的都市里，寻找一处远离喧嚣、安放心灵的文化空间，那你一定不能错过我身后的徐家汇书院。
+中石油、中石化、中海油公司及其他原油加工企业要组织好成品油生产和调运，确保市场稳定供应，严格执行国家价格政策。
 
-这里被市民亲切地称作城市的“公共之家”。
+各地相关部门要加大市场监督检查力度，严厉查处不执行国家价格政策的行为，维护正常市场秩序。
 
-徐家汇书院为什么能够圈粉无数？
+消费者可通过12315平台举报价格违法行为。
 
-接下来，我们就跟随镜头去一探究竟。
-
-进入书院内部，中庭的“光启之门”格外亮眼。
-
-这是一座用3D打印技术制作的室内雕塑，基于土山湾中国牌楼的形象进行艺术化再造。
+附：各省(区、市)和中心城市汽、柴油最高零售价格
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 22:27 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 22:20 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 22:23 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 22:29 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 22:43 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 22:25 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 22:18 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 22:21 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 22:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 22:32 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 22:24 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 22:28 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 22:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 22:29 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 22:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 22:29 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 22:44 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 22:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 22:47 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 22:33 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 22:40 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 22:31 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 22:31 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 22:53 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 22:43 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 22:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 22:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:32 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/47902400.shtml)
-- 2026-06-29 22:25 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/404591053.shtml)
-- 2026-06-29 22:27 - [斛珠夫人](https://www.share.minike.top/Article/details/726625079169.shtml)
-- 2026-06-29 22:39 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/6700139.shtml)
-- 2026-06-29 22:44 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/046537.shtml)
-- 2026-06-29 22:39 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/727191.shtml)
-- 2026-06-29 22:31 - [李思潼：不会介意大家夸我运气好](http://www.share.minike.top/Article/details/1121547514.shtml)
-- 2026-06-29 22:33 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/136527.shtml)
-- 2026-06-29 22:25 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/632658829.shtml)
-- 2026-06-29 22:32 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.minike.top/Article/details/750286536945.shtml)
-- 2026-06-29 22:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/40579251.shtml)
-- 2026-06-29 22:46 - [我和我的家乡](http://www.share.minike.top/Article/details/496877884617.shtml)
-- 2026-06-29 22:25 - [TOP Prada](https://www.blog.minike.top/Article/details/77327.shtml)
-- 2026-06-29 22:26 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/89281212821.shtml)
-- 2026-06-29 22:32 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/1748201484.shtml)
+- 2026-06-29 22:33 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/71704.shtml)
+- 2026-06-29 22:45 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/92211.shtml)
+- 2026-06-29 22:37 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/9515330.shtml)
+- 2026-06-29 22:50 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/20059233900.shtml)
+- 2026-06-29 22:50 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/751453292665.shtml)
+- 2026-06-29 22:37 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/9534704.shtml)
+- 2026-06-29 22:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/034808610.shtml)
+- 2026-06-29 22:35 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/31348107.shtml)
+- 2026-06-29 22:45 - [时光音乐会](http://www.share.minike.top/Article/details/685659.shtml)
+- 2026-06-29 22:52 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/92609320928.shtml)
+- 2026-06-29 22:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/637920584.shtml)
+- 2026-06-29 22:24 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/33991391.shtml)
+- 2026-06-29 22:43 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/02141.shtml)
+- 2026-06-29 22:27 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/620465.shtml)
+- 2026-06-29 22:53 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/232223637993.shtml)

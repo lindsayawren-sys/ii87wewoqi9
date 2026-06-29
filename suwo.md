@@ -1,54 +1,58 @@
-# 第六届“投资辽宁”大会亮成绩单 数字平台5年引资超40亿元
+# 【理响中国·幸福有“理”】数字技术赋能乡村全面振兴——以福建实践为镜鉴
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-中新网大连5月16日电 (李晛 杨毅)第六届“投资辽宁”大会15日在大连召开。115家驻华及驻辽境外商协会和组织机构代表等线上线下参会。 为使全球投资者更好地了解辽宁、走进辽宁，自2021年5月起，辽宁省贸促会每年举办“投资辽宁”大会，并以“会企合作”方式主办“投资辽宁”数字化公共服务平台。 据本届大会消息，“投资辽宁”平台成立5年来，已向国内外投资者精准推送辽宁招商引资信息约
+作者：胡冰川(中国社会科学院农村发展研究所农产品贸易与政策研究室主任、研究员) 在新时代推进中国式现代化进程中，数字技术正成为驱动农业农村高质量发展的新质生产力。习近平总书记深刻指出，要把握数字化、网络化、智能化方向，推动制造业、服务业、农业等产业数字化，利用互联网新技术对传统产业进行全方位、全链条的改造，提高全要素生产率，发挥数字技术对经济发展的放大、叠加、倍增作用。这一重要
 
 ## 正文
 
-中新网大连5月16日电 (李晛 杨毅)第六届“投资辽宁”大会15日在大连召开。
+作者：胡冰川(中国社会科学院农村发展研究所农产品贸易与政策研究室主任、研究员) 在新时代推进中国式现代化进程中，数字技术正成为驱动农业农村高质量发展的新质生产力。
 
-115家驻华及驻辽境外商协会和组织机构代表等线上线下参会。
+习近平总书记深刻指出，要把握数字化、网络化、智能化方向，推动制造业、服务业、农业等产业数字化，利用互联网新技术对传统产业进行全方位、全链条的改造，提高全要素生产率，发挥数字技术对经济发展的放大、叠加、倍增作用。
 
-为使全球投资者更好地了解辽宁、走进辽宁，自2021年5月起，辽宁省贸促会每年举办“投资辽宁”大会，并以“会企合作”方式主办“投资辽宁”数字化公共服务平台。
+这一重要论述为数字农业发展指明了方向。
 
-据本届大会消息，“投资辽宁”平台成立5年来，已向国内外投资者精准推送辽宁招商引资信息约650万次，提供线上投资咨询服务8万余次、线下咨询服务8200余次，已吸引4678家国内外企业来辽注册，投资企业在辽注册资本金超过40亿元(人民币，下同)，累计纳税额近7亿元。
+数字农业以物联网、大数据、人工智能、5G等现代信息技术为支撑，重塑农业生产、流通与服务方式，不仅能提升生产效率、降低成本，还为小农户对接大市场、乡村治理现代化提供有力支撑。
 
-“投资辽宁”平台充分发挥其作为境内外企业身边的政策专家、投资顾问、企业管家作用，不断服务辽宁招商引资工作取得了实打实的成效，成了辽宁招商引资和服务外资外贸的重要门户窗口。
+近年来，我国农村网络基础设施加速覆盖，智慧农业应用场景不断丰富，为全面乡村振兴注入强劲动能。
 
-此外，大会发布了《第六届“投资辽宁”大会招商引资项目名录》《辽宁省工商联辽宁省贸促会助力辽商出海若干举措》；对沈抚改革创新示范区、大连长兴岛经济技术开发区、辽宁自贸试验区沈阳片区等进行专场招商推介；为辽宁省贸促会“外贸服务实践基地”授牌；“辽宁文创出海馆”正式上线；辽宁省贸促会与中国海外港口控股(巴基斯坦)有限公司、俄罗斯中西伯利亚工商会等签署合作协议。
+数字农业：农业现代化的必然选择 传统农业依赖经验和人力，面临劳动力短缺、资源利用效率低、产业链附加值不高等挑战。
 
-(完)
+数字农业通过“数据＋算法＋硬件”的融合，实现信息感知数字化、管理决策科学化、装备控制智能化和要素投入精准化，显著提升农业全要素生产率。
+
+要推动互联网、大数据、人工智能同产业深度融合，加快培育一批“专精特新”企业和制造业单项冠军企业。
 
 ## 相关推荐
 
-- 2026-06-29 22:32 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 22:32 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 22:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 22:25 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 22:45 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 22:28 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 22:21 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 22:35 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 22:40 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 22:44 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 22:43 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 22:37 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 22:41 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 22:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 22:47 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 22:32 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 22:38 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 22:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 22:38 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 22:33 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 22:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 22:25 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/434210039.shtml)
-- 2026-06-29 22:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/16612187234.shtml)
-- 2026-06-29 22:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/27265917.shtml)
-- 2026-06-29 22:44 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/838860076962.shtml)
-- 2026-06-29 22:31 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/12841469.shtml)
-- 2026-06-29 22:21 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/20369362144.shtml)
-- 2026-06-29 22:35 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/4759969.shtml)
-- 2026-06-29 22:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/341368246.shtml)
-- 2026-06-29 22:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/647156717.shtml)
-- 2026-06-29 22:20 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/5290170066.shtml)
-- 2026-06-29 22:20 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/69054613362.shtml)
-- 2026-06-29 22:23 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/669026.shtml)
-- 2026-06-29 22:37 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/89215234.shtml)
-- 2026-06-29 22:24 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/458322711033.shtml)
-- 2026-06-29 22:24 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/8023083.shtml)
+- 2026-06-29 22:46 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/987201767196.shtml)
+- 2026-06-29 22:42 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/7876334152.shtml)
+- 2026-06-29 22:40 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/963063.shtml)
+- 2026-06-29 22:38 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/6748118.shtml)
+- 2026-06-29 22:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/837561757.shtml)
+- 2026-06-29 22:44 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/066249539868.shtml)
+- 2026-06-29 22:49 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/3499486.shtml)
+- 2026-06-29 22:50 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/068283574251.shtml)
+- 2026-06-29 22:43 - [急先锋](http://www.share.minike.top/Article/details/869200761245.shtml)
+- 2026-06-29 22:48 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/30288770478.shtml)
+- 2026-06-29 22:33 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/93763523812.shtml)
+- 2026-06-29 22:39 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/8260250.shtml)
+- 2026-06-29 22:25 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/132740.shtml)
+- 2026-06-29 22:52 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/47635.shtml)
+- 2026-06-29 22:33 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/1948104476.shtml)

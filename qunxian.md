@@ -1,57 +1,59 @@
-# 开局之年看中国｜千年窑火映壮美，“老手艺”变身“新潮流”
+# 彩讯股份：语音智能体Voice Agent已在多个行业实现规模化落地，推动企业降本增效与智能化升级
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新网钦州5月17日电(记者 刘越)“当、当、当——”广西钦州坭兴陶博物馆内，讲解员轻敲着一件高约2米的巨型陶瓶，声如金石，余音绕梁。 “这就是我们广西钦州‘响当当’的坭兴陶。” 不止敲击之声清脆，坭兴陶的名头同样“响当当”。作为中国四大名陶之一、国家级非物质文化遗产，钦州坭兴陶承载着四千余年岭南制陶文明，享誉中外。5月16日，“开局之年看中国·共此壮美广西”媒体采风团走进钦州
+新浪科技讯 5月9日下午消息，在近日的2026移动云大会上，彩讯股份在展区呈现了从算力底座、平台构建到AI应用落地的全栈 AI能力。在展会路演发布现场，彩讯语音智能体 Voice Agent 以语音交互能力与“感知-规划-执行”智能闭环引发关注。它打破了传统规则式语音机器人的局限，为企业打造听得懂业务、具备长效执行力的专属“数字员工”。 据悉，该产品已在多个行业实现规模化落地，
 
 ## 正文
 
-中新网钦州5月17日电(记者 刘越)“当、当、当——”广西钦州坭兴陶博物馆内，讲解员轻敲着一件高约2米的巨型陶瓶，声如金石，余音绕梁。
+新浪科技讯 5月9日下午消息，在近日的2026移动云大会上，彩讯股份在展区呈现了从算力底座、平台构建到AI应用落地的全栈 AI能力。
 
-“这就是我们广西钦州‘响当当’的坭兴陶。
+在展会路演发布现场，彩讯语音智能体 Voice Agent 以语音交互能力与“感知-规划-执行”智能闭环引发关注。
 
-” 不止敲击之声清脆，坭兴陶的名头同样“响当当”。
+它打破了传统规则式语音机器人的局限，为企业打造听得懂业务、具备长效执行力的专属“数字员工”。
 
-作为中国四大名陶之一、国家级非物质文化遗产，钦州坭兴陶承载着四千余年岭南制陶文明，享誉中外。
+据悉，该产品已在多个行业实现规模化落地，推动企业降本增效与智能化升级。
 
-5月16日，“开局之年看中国·共此壮美广西”媒体采风团走进钦州，在泥与火的交融中，探寻一门古老手艺的青春蝶变。
+依托“感知-规划-执行”智能闭环能力，彩讯Voice Agent从企业高频通用场景切入，聚焦招聘、资源调度、故障排查与信息引导等场景需求，为客户提供轻量化、高适配的解决方案。
 
-四千年窑火，铸就“响当当”的陶 走进钦州坭兴陶博物馆，古朴雅致的陶韵扑面而来。
+在展会现场，彩讯Voice Agent 展示了针对招聘场景的全流程闭环交互能力。
 
-各式千年陶品、古窑模型与珍贵史料有序陈列，完整勾勒出钦州陶文化从新石器时代延续至今的发展长卷，诉说着岭南大地生生不息的制陶文明。
+基于大多数企业招聘场景中所面临的候选人触达慢、初筛效率低、重复沟通耗时等问题，彩讯Voice Agent实现全流程自动化赋能 ：可批量导入候选人简历，联动知识库实现动态排期查询，自动生成标准化话术并主动外呼 。
 
-钦州陶文化始于史前、兴于明清、盛于当代，是融合岭南与中原文化、承载多民族文化认同的珍贵瑰宝。
+依托端到端延迟≤200ms的响应能力，彩讯Voice Agent支持候选人实时打断、自然插话，对话节奏完全贴合人类习惯 。
 
 ## 相关推荐
 
-- 2026-06-29 22:21 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 22:35 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 22:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 22:41 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 22:34 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 22:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 22:28 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 22:30 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 22:28 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 22:33 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 22:40 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 22:38 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 22:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 22:47 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 22:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 22:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 22:51 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 22:46 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 22:25 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 22:36 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 22:46 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 22:31 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 22:40 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 22:26 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:25 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/835630284428.shtml)
-- 2026-06-29 22:18 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/575561792281.shtml)
-- 2026-06-29 22:28 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/86563938504.shtml)
-- 2026-06-29 22:29 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/0466780.shtml)
-- 2026-06-29 22:24 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/6372869.shtml)
-- 2026-06-29 22:43 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/232573504966.shtml)
-- 2026-06-29 22:28 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/996961275.shtml)
-- 2026-06-29 22:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/8489087292.shtml)
-- 2026-06-29 22:34 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/42683336726.shtml)
-- 2026-06-29 22:33 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/086148072450.shtml)
-- 2026-06-29 22:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/7168765.shtml)
-- 2026-06-29 22:22 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/4475835.shtml)
-- 2026-06-29 22:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/9070184252.shtml)
-- 2026-06-29 22:20 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/09491387273.shtml)
-- 2026-06-29 22:26 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/17878.shtml)
+- 2026-06-29 22:36 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/722661728.shtml)
+- 2026-06-29 22:31 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/319667695943.shtml)
+- 2026-06-29 22:27 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/238066189081.shtml)
+- 2026-06-29 22:53 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/380281423936.shtml)
+- 2026-06-29 22:35 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/653383.shtml)
+- 2026-06-29 22:49 - [一见倾心](https://www.share.kurohicncr.top/Article/details/3480293.shtml)
+- 2026-06-29 22:40 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/32083.shtml)
+- 2026-06-29 22:50 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/138598300.shtml)
+- 2026-06-29 22:50 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/420778918656.shtml)
+- 2026-06-29 22:34 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/60602430013.shtml)
+- 2026-06-29 22:43 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/635602.shtml)
+- 2026-06-29 22:44 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/1562901.shtml)
+- 2026-06-29 22:38 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/94216.shtml)
+- 2026-06-29 22:28 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/6930548.shtml)
+- 2026-06-29 22:36 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/19201545054.shtml)

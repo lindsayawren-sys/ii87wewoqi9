@@ -1,55 +1,59 @@
-# 广西柳州市地震区域搜救出2名被困人员 已无生命体征
+# 宠物经济“下沉”记：浙江如何接住这波流量？
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-中新网柳州5月18日电 (林馨)广西柳州市抗震救灾指挥部介绍，截至5月18日8时14分，救援队伍在该市柳南区太阳村镇太阳村社区受灾现场搜救出2名被困人员，经医务人员确认已无生命体征。 经核实，遇难者分别为：蓝某(男，63岁)，蓝某鸾(女，53岁，系第一名遇难者蓝某的配偶)。剩余1名失联人员搜救工作持续进行中。 据中国地震台网正式测定，2026年5月18日00时21分，在柳州市柳
+中新网杭州5月9日电(林波 孙琳茹)从浙江宁波奉化陶坑村的宠物中草药徒步道，到绍兴新昌下岩贝村八成民宿可携宠，再到杭州皋亭山千桃园里的宠物T台秀——越来越多浙江乡村及景区，正将“毛孩子”视为撬动文旅消费的新支点。 然而，宠物旅游已不再是“让进就行”的1.0阶段，而是进入了拼服务、重体验的2.0时代。 浙江，如何接住这波“萌宠流量”？在政策红利下，如何将流量转化为可持续的“留量”
 
 ## 正文
 
-中新网柳州5月18日电 (林馨)广西柳州市抗震救灾指挥部介绍，截至5月18日8时14分，救援队伍在该市柳南区太阳村镇太阳村社区受灾现场搜救出2名被困人员，经医务人员确认已无生命体征。
+中新网杭州5月9日电(林波 孙琳茹)从浙江宁波奉化陶坑村的宠物中草药徒步道，到绍兴新昌下岩贝村八成民宿可携宠，再到杭州皋亭山千桃园里的宠物T台秀——越来越多浙江乡村及景区，正将“毛孩子”视为撬动文旅消费的新支点。
 
-经核实，遇难者分别为：蓝某(男，63岁)，蓝某鸾(女，53岁，系第一名遇难者蓝某的配偶)。
+然而，宠物旅游已不再是“让进就行”的1.0阶段，而是进入了拼服务、重体验的2.0时代。
 
-剩余1名失联人员搜救工作持续进行中。
+浙江，如何接住这波“萌宠流量”？
 
-据中国地震台网正式测定，2026年5月18日00时21分，在柳州市柳南区发生5.2级地震。
+在政策红利下，如何将流量转化为可持续的“留量”？
 
-此前，共发生4次2.0级以上地震。
+近日，作者走访多地，倾听行业协会、景区运营者、乡村目的地、普通养宠人的答案。
 
-(完)
+需求倒逼供给升级：乡村走出差异化新路 宠物经济下沉乡村，首先源于城市养宠人的需求。
+
+杭州游客李可心带着两只柯基犬在新昌下岩贝村的观景台上拍照。
+
+“以前假期出行，‘毛孩子’只能寄养在宠物店，现在能一起看风景了”。
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 22:35 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 22:20 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 22:22 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 22:24 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 22:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 22:36 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 22:26 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 22:42 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 22:26 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 22:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 22:32 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 22:42 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 22:35 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 22:44 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 22:25 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 22:31 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 22:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 22:50 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 22:46 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 22:48 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 22:48 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 22:25 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 22:45 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 22:43 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 22:28 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:47 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/96107.shtml)
-- 2026-06-29 22:36 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/39906271.shtml)
-- 2026-06-29 22:28 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/604442939324.shtml)
-- 2026-06-29 22:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/594201.shtml)
-- 2026-06-29 22:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/1817472.shtml)
-- 2026-06-29 22:45 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/270939474.shtml)
-- 2026-06-29 22:31 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/77830971197.shtml)
-- 2026-06-29 22:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/9732963.shtml)
-- 2026-06-29 22:18 - [我们的少年时代2](https://www.blog.minike.top/Article/details/21982648796.shtml)
-- 2026-06-29 22:34 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/58066982.shtml)
-- 2026-06-29 22:45 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/296707493.shtml)
-- 2026-06-29 22:29 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/02159216304.shtml)
-- 2026-06-29 22:38 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/7870354729.shtml)
-- 2026-06-29 22:24 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/6543413.shtml)
-- 2026-06-29 22:47 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/41975.shtml)
+- 2026-06-29 22:46 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/314678.shtml)
+- 2026-06-29 22:28 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/31206250.shtml)
+- 2026-06-29 22:36 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/1797374562.shtml)
+- 2026-06-29 22:51 - [起风了](http://www.share.kurohicncr.top/Article/details/69355993668.shtml)
+- 2026-06-29 22:43 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/324351937694.shtml)
+- 2026-06-29 22:35 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/71159439433.shtml)
+- 2026-06-29 22:44 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/893225.shtml)
+- 2026-06-29 22:52 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/4566977122.shtml)
+- 2026-06-29 22:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/8728421.shtml)
+- 2026-06-29 22:25 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/54021523.shtml)
+- 2026-06-29 22:30 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/319580.shtml)
+- 2026-06-29 22:51 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/084217761.shtml)
+- 2026-06-29 22:41 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/165528654.shtml)
+- 2026-06-29 22:27 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/97872563.shtml)
+- 2026-06-29 22:44 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/3876668453.shtml)

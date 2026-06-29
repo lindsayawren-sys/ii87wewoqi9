@@ -1,61 +1,61 @@
-# 2026世界电信和信息社会日大会在武汉召开
+# 演员拿赛车事故当“梗”？脱口秀表演岂能拿生死灾难博噱头
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新网武汉5月17日电 (记者 刘亮)2026世界电信和信息社会日大会17日在湖北省武汉市召开。工业和信息化部总工程师钟志红，湖北省副省长黎东辉，中国通信学会名誉理事长、原国际电信联盟秘书长赵厚麟出席大会并致辞。 钟志红表示，信息通信是互联世界中的数字生命线。近年来，中国信息通信业现代化发展迈出坚实步伐，建成全球规模最大、覆盖广泛、技术先进、性能优良的信息通信网络，5G、千兆光
+演员拿F1赛车事故当“梗”打广告引争议 脱口秀表演岂能拿生死灾难博噱头 5月7日，脱口秀演员周奇墨在综艺《今夜喜友秀》中的表演片段引发了广泛争议，在这段表演中，他用2020年F1赛车巴林站罗曼·格罗斯让赛车事故当“梗”，被质疑是玩“地狱笑话”。 在这段脱口秀表演中，周奇墨先是聊起了自己喜欢的运动赛车，首先提出了自己的观点，认为赛车运动很危险，但是现在科技发达，车手的赛车服短时间
 
 ## 正文
 
-中新网武汉5月17日电 (记者 刘亮)2026世界电信和信息社会日大会17日在湖北省武汉市召开。
+演员拿F1赛车事故当“梗”打广告引争议 脱口秀表演岂能拿生死灾难博噱头 5月7日，脱口秀演员周奇墨在综艺《今夜喜友秀》中的表演片段引发了广泛争议，在这段表演中，他用2020年F1赛车巴林站罗曼·格罗斯让赛车事故当“梗”，被质疑是玩“地狱笑话”。
 
-工业和信息化部总工程师钟志红，湖北省副省长黎东辉，中国通信学会名誉理事长、原国际电信联盟秘书长赵厚麟出席大会并致辞。
+在这段脱口秀表演中，周奇墨先是聊起了自己喜欢的运动赛车，首先提出了自己的观点，认为赛车运动很危险，但是现在科技发达，车手的赛车服短时间内可以防火。
 
-钟志红表示，信息通信是互联世界中的数字生命线。
+紧接着他开始举例子证明自己的观点，引入了2020年F1赛车巴林站事故，赛车手格罗斯让的赛车撞击栏杆后起火，28秒后他逃脱起火赛车生还。
 
-近年来，中国信息通信业现代化发展迈出坚实步伐，建成全球规模最大、覆盖广泛、技术先进、性能优良的信息通信网络，5G、千兆光网、工业互联网等助力企业降本、提质、增效、节能作用显著，一系列解民忧、暖民心的务实举措落地落细，为加快发展新质生产力、推进新型工业化提供了有力支撑。
+接下来进入“抛梗”环节，周奇墨说：“这个车手在车里待了足足28秒，然后从火里走出来，没大事。
 
-当前，“十五五”已全面开局，信息通信业要坚持高质量发展主线，坚持赋能实体经济数字化转型，持续夯实网络基础，提升产业科技创新能力，不断激发市场活力，切实增进民生福祉，筑牢网络安全和数据安全防线，为建设制造强国和网络强国作出新的更大贡献。
+我想他在里面干啥了，是不是在里面给家里打了个电话。
 
-大会发布2026信息通信暖心服务十件实事、国家应急通信融合接入平台全国应用等重要成果，来自政产学研用等领域的专家学者开展深入的交流研讨。
+”在扯了一段“吃没吃饭”的闲话后，第一个“地狱笑话”出来了：“不说了，我这个手机从指缝里往下淌。
 
-工业和信息化部有关司局、部属单位负责人，湖北省工业和信息化厅、通信管理局负责人参加大会。
+”紧随其后的是第二个更加令人不适的“地狱笑话”：“挂了电话以后，然后从座位底下，掏出了一瓶×××酸奶(节目赞助商品牌)。
 
-(完)
+”2020年F1赛车巴林站事故是一起非常严重的赛车事故，令不少F1赛车迷心有余悸，这起事故使格罗斯让的手部留下了永久性烧伤疤痕。
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 22:47 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 22:32 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 22:18 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 22:18 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 22:25 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 22:28 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 22:37 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 22:22 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 22:28 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 22:20 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 22:24 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 22:33 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 22:24 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 22:43 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 22:32 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 22:51 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 22:32 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 22:42 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 22:44 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 22:40 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 22:28 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 22:48 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 22:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 22:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 22:40 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 22:30 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 22:33 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 22:45 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 22:30 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:39 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/07481916.shtml)
-- 2026-06-29 22:41 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/46086.shtml)
-- 2026-06-29 22:45 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/675109817.shtml)
-- 2026-06-29 22:19 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/632378107.shtml)
-- 2026-06-29 22:18 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/791978136.shtml)
-- 2026-06-29 22:40 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/60239.shtml)
-- 2026-06-29 22:29 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/633800945910.shtml)
-- 2026-06-29 22:24 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/767277.shtml)
-- 2026-06-29 22:26 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/76134784822.shtml)
-- 2026-06-29 22:35 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/405257112.shtml)
-- 2026-06-29 22:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/06651.shtml)
-- 2026-06-29 22:42 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/29921885.shtml)
-- 2026-06-29 22:31 - [宜宾地震已转移安置225人](http://www.share.minike.top/Article/details/6868277137.shtml)
-- 2026-06-29 22:27 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/4417425974.shtml)
-- 2026-06-29 22:24 - [《贺子珍》](https://www.share.minike.top/Article/details/72178727.shtml)
+- 2026-06-29 22:34 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/814824.shtml)
+- 2026-06-29 22:53 - [世界杯](https://www.share.minike.top/Article/details/559837191.shtml)
+- 2026-06-29 22:49 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/855312959.shtml)
+- 2026-06-29 22:49 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/011750468.shtml)
+- 2026-06-29 22:30 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/47544.shtml)
+- 2026-06-29 22:28 - [绘画区你赢了](http://www.blog.minike.top/Article/details/35698212.shtml)
+- 2026-06-29 22:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/836828489252.shtml)
+- 2026-06-29 22:41 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/05882467520.shtml)
+- 2026-06-29 22:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/8026447133.shtml)
+- 2026-06-29 22:38 - [扬名立万](http://www.share.minike.top/Article/details/4163473996.shtml)
+- 2026-06-29 22:37 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/32668.shtml)
+- 2026-06-29 22:36 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/88136.shtml)
+- 2026-06-29 22:33 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/534678.shtml)
+- 2026-06-29 22:42 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/599434272.shtml)
+- 2026-06-29 22:53 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/4468766366.shtml)

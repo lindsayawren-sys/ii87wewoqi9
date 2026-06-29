@@ -1,59 +1,48 @@
-# 芯片分级复用模式落地见效 苹果入门级产品销量火爆倒逼补单
+# 本周镍铁价格上移 重心进一步走高
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-苹果公司素来以高端定价产品著称，在多数数码厂商深陷成本上涨冲击之际，该企业成功凭借平价设备业务实现营收大涨。 其制胜秘诀之一，就是启用原本面临报废的轻微瑕疵芯片。 这一策略在新款售价599美元的MacBook Neo笔记本上体现得淋漓尽致，初期市场数据显示这款产品广受消费者青睐。 该机型搭载A18 Pro芯片，这款芯片两年前率先应用于iPhone 16 Pro机型，二者存在一处
+【SMM镍快讯】SMM10-12%高镍生铁均价较上周上升30.5元/镍点至1150.5元/镍点（出厂含税），印尼NPI FOB指数价格均价较上周上升3.58美金/镍点录得146.78美金/镍点。本周政策与盘面带动价格稳步上移，镍铁价格重心进一步走高。责任编辑：陈平
 
 ## 正文
 
-苹果公司素来以高端定价产品著称，在多数数码厂商深陷成本上涨冲击之际，该企业成功凭借平价设备业务实现营收大涨。
+【SMM镍快讯】SMM10-12%高镍生铁均价较上周上升30.5元/镍点至1150.5元/镍点（出厂含税），印尼NPI FOB指数价格均价较上周上升3.58美金/镍点录得146.78美金/镍点。
 
-其制胜秘诀之一，就是启用原本面临报废的轻微瑕疵芯片。
+本周政策与盘面带动价格稳步上移，镍铁价格重心进一步走高。
 
-这一策略在新款售价599美元的MacBook Neo笔记本上体现得淋漓尽致，初期市场数据显示这款产品广受消费者青睐。
-
-该机型搭载A18 Pro芯片，这款芯片两年前率先应用于iPhone 16 Pro机型，二者存在一处核心差异：MacBook Neo所用版本搭载五核图形处理器，比2024款苹果手机搭载的版本少一核。
-
-这意味着苹果将部分存在核心瑕疵的A18 Pro芯片留存下来另行利用。
-
-厂商可屏蔽芯片故障核心，剩余完好性能足以平稳适配各类平价终端设备，这款入门级笔记本，便是这类芯片的适配载体，而非专供顶配旗舰手机。
-
-这也是苹果沿用芯片行业老牌运营思路的最新体现：将性能层级不同的处理器划分等级、分级售卖，如同鸡蛋、燃油、钻石、酒店客房划分档次一般，充分盘活中端及次一等芯片，进一步增厚利润。
-
-行业分析师表示，这种最初用于盘活闲置移动端芯片的降本方式，如今已然成为苹果产品设计布局的核心思路。
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 22:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 22:18 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 22:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 22:40 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 22:46 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 22:41 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 22:23 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 22:44 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 22:25 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 22:40 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 22:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 22:45 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 22:40 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 22:52 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 22:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 22:28 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 22:33 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 22:25 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 22:51 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 22:39 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 22:36 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 22:51 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 22:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 22:41 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:27 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/4974406045.shtml)
-- 2026-06-29 22:24 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/05028.shtml)
-- 2026-06-29 22:40 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/438435552505.shtml)
-- 2026-06-29 22:18 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/838860049635.shtml)
-- 2026-06-29 22:37 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/6430682423.shtml)
-- 2026-06-29 22:45 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/0031163220.shtml)
-- 2026-06-29 22:24 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/7802061.shtml)
-- 2026-06-29 22:29 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/601803516.shtml)
-- 2026-06-29 22:29 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/312933877.shtml)
-- 2026-06-29 22:42 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/75599.shtml)
-- 2026-06-29 22:26 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/959554.shtml)
-- 2026-06-29 22:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/356328962894.shtml)
-- 2026-06-29 22:19 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/8462136.shtml)
-- 2026-06-29 22:23 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/774779852.shtml)
-- 2026-06-29 22:24 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/281791.shtml)
+- 2026-06-29 22:45 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/4693597.shtml)
+- 2026-06-29 22:48 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/6243756.shtml)
+- 2026-06-29 22:31 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/4548997.shtml)
+- 2026-06-29 22:38 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/004273393.shtml)
+- 2026-06-29 22:48 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/8635641.shtml)
+- 2026-06-29 22:24 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/15978426.shtml)
+- 2026-06-29 22:33 - [恋与深空致歉](https://www.blog.minike.top/Article/details/766189.shtml)
+- 2026-06-29 22:52 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/22785375.shtml)
+- 2026-06-29 22:38 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/52923514.shtml)
+- 2026-06-29 22:28 - [女心理师](https://www.share.minike.top/Article/details/257562.shtml)
+- 2026-06-29 22:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/91748124.shtml)
+- 2026-06-29 22:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/674339055.shtml)
+- 2026-06-29 22:27 - [小娘惹](http://www.share.kurohicncr.top/Article/details/63578479.shtml)
+- 2026-06-29 22:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/4197299041.shtml)
+- 2026-06-29 22:43 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/01347.shtml)

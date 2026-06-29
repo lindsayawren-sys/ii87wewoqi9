@@ -1,57 +1,59 @@
-# 中国水利部：珠江流域旱情基本解除
+# 创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新社北京5月18日电 (记者 陈溯)记者18日从中国水利部获悉，珠江流域旱情基本解除。 据水利部消息，2026年1月至4月中旬，珠江流域降雨量较常年偏少四成。其中，海南省降雨持续偏少，累计降雨量仅34.6毫米，较常年同期偏少七成，为1961年有完整气象资料以来最少。受降水偏少影响，海南省18个市县出现不同程度的气象干旱，部分水源水库蓄水不足，生活供水与农业用水面临严峻挑战；云
+创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关 基于公开数据不完全统计，2026年4月新增私募股权、创业投资基金管理人6家，同比“腰斩”、环比翻番；新增备案私募股权基金159只、创业投资基金506只，合计新增665只，环比虽微降2.2%，但较2025年同期增长59.5%。 投资端活跃度同样走高。4月国内共发生股权投资事件680起，同比提高
 
 ## 正文
 
-中新社北京5月18日电 (记者 陈溯)记者18日从中国水利部获悉，珠江流域旱情基本解除。
+创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关 基于公开数据不完全统计，2026年4月新增私募股权、创业投资基金管理人6家，同比“腰斩”、环比翻番；新增备案私募股权基金159只、创业投资基金506只，合计新增665只，环比虽微降2.2%，但较2025年同期增长59.5%。
 
-据水利部消息，2026年1月至4月中旬，珠江流域降雨量较常年偏少四成。
+投资端活跃度同样走高。
 
-其中，海南省降雨持续偏少，累计降雨量仅34.6毫米，较常年同期偏少七成，为1961年有完整气象资料以来最少。
+4月国内共发生股权投资事件680起，同比提高31.3%，环比回落14.8%；披露投资总额达748.60亿元，再次刷新近一年内纪录，与3月相比增加7.8%，约为2025年4月的3.22倍。
 
-受降水偏少影响，海南省18个市县出现不同程度的气象干旱，部分水源水库蓄水不足，生活供水与农业用水面临严峻挑战；云南东南部部分地区出现土壤中度缺墒，发生局地阶段性旱情。
+创投Plus本月聚焦市场活跃度较高的3家机构，围绕其投资节奏、阶段、行业偏好以及被投项目等方面展开解读。
 
-旱情最严重时，流域有近8万人因旱饮水困难、31.8万亩农作物受旱。
+4月投资同比激增500% 天使轮项目占比三分之一 结合中国证券投资基金业协会和天眼查公开披露的信息显示，高瓴创投是高瓴资本旗下专注投资早期创业公司的机构，聚焦生物医药及医疗器械、软件服务和原发科技创新、消费互联网及科技、新兴消费品牌及服务四大领域。
 
-旱情发展以来，水利部珠江水利委员会充分运用珠江水旱灾害防御“四预”平台，实时监控水库蓄水、土壤墒情和旱情遥感数据，滚动研判旱情发展态势、影响范围。
+截至目前，机构管理资本规模超100亿元，以美元和人民币双币种模式运营。
 
-截至5月15日，珠江流域内云南、海南等地因旱饮水困难人口、农作物受旱面积基本实现动态清零，受旱地区主要供水水库蓄水情况得到改善，流域旱情有效缓解。
+截至2026年4月，高瓴创投仅登记备案了珠海桐恒股权投资合伙企业（有限合伙）1只新基金，注册出资额为2150万元。
 
-当前，珠江流域即将进入“龙舟水”防御期，降雨将显著增多。
+该基金的主要出资方LP为熙诚金睿，持股比例高达90.7%，是由北京金融街资本运营集团有限公司联合中国国有企业结构调整基金股份有限公司、中国国新基金管理有限公司共同发起设立的市场化投资机构。
 
 ## 相关推荐
 
-- 2026-06-29 22:36 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 22:25 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 22:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 22:36 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 22:22 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 22:34 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 22:42 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 22:44 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 22:26 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 22:28 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 22:33 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 22:49 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 22:35 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 22:35 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 22:28 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 22:50 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 22:33 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 22:30 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 22:43 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 22:49 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 22:47 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 22:25 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 22:28 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 22:49 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:45 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/0091721135.shtml)
-- 2026-06-29 22:36 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/84257268.shtml)
-- 2026-06-29 22:42 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/7157062540.shtml)
-- 2026-06-29 22:33 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/3817469970.shtml)
-- 2026-06-29 22:34 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/1002969372.shtml)
-- 2026-06-29 22:21 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/288361230.shtml)
-- 2026-06-29 22:32 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/07742.shtml)
-- 2026-06-29 22:43 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/5544634033.shtml)
-- 2026-06-29 22:38 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/54821.shtml)
-- 2026-06-29 22:42 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/142426355392.shtml)
-- 2026-06-29 22:39 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/33893149.shtml)
-- 2026-06-29 22:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/349465.shtml)
-- 2026-06-29 22:36 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/68710.shtml)
-- 2026-06-29 22:29 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/5121599831.shtml)
-- 2026-06-29 22:43 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/34391078.shtml)
+- 2026-06-29 22:35 - [宜宾地震已转移安置225人](http://www.share.kurohicncr.top/Article/details/16091117181.shtml)
+- 2026-06-29 22:32 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/5682189.shtml)
+- 2026-06-29 22:27 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/975391476.shtml)
+- 2026-06-29 22:49 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/3572645.shtml)
+- 2026-06-29 22:36 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/18383670168.shtml)
+- 2026-06-29 22:50 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/283583876.shtml)
+- 2026-06-29 22:43 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/3014242640.shtml)
+- 2026-06-29 22:27 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/89672228.shtml)
+- 2026-06-29 22:26 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/2150552.shtml)
+- 2026-06-29 22:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/2817327.shtml)
+- 2026-06-29 22:36 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/60772428.shtml)
+- 2026-06-29 22:36 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/7771560.shtml)
+- 2026-06-29 22:49 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/5200638.shtml)
+- 2026-06-29 22:39 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/26522.shtml)
+- 2026-06-29 22:45 - [返利科技盘中上演“天地板”](https://www.share.kurohicncr.top/Article/details/9852916.shtml)

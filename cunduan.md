@@ -1,49 +1,56 @@
-# 南京银行：注册资本完成变更登记，由约100.07亿元变更为约123.64亿元
+# 外交部：中美双方就特朗普总统访华事保持着沟通
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-5月18日金融一线消息，南京银行公告称，公司于2025 年11 月21 日披露了《南京银行股份有限公司关于变更注册资本获监管机构核准的公告》（公告编号：2025-080），国家金融监督管理总局江苏监管局同意公司变更注册资本。 近日，公司已完成注册资本的变更登记手续，并取得南京市市场监督管理局换发的《营业执照》，公司注册资本由 10，007，016，973 元人民币变更为12，3
+中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：美国总统特朗普日前表示，中美元首会谈将按计划进行。请问中方将何时发布消息？对此访有何期待？将重点讨论哪些议题？ 林剑：中美双方就特朗普总统访华事保持着沟通，我目前没有可以进一步提供的信息。(完)
 
 ## 正文
 
-5月18日金融一线消息，南京银行公告称，公司于2025 年11 月21 日披露了《南京银行股份有限公司关于变更注册资本获监管机构核准的公告》（公告编号：2025-080），国家金融监督管理总局江苏监管局同意公司变更注册资本。
+中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
 
-近日，公司已完成注册资本的变更登记手续，并取得南京市市场监督管理局换发的《营业执照》，公司注册资本由 10，007，016，973 元人民币变更为12，363，567，245 元人民币。
+有记者提问：美国总统特朗普日前表示，中美元首会谈将按计划进行。
 
-公司修订后的《南京银行股份有限公司章程》已完成备案。
+请问中方将何时发布消息？
 
-责任编辑：李琳琳
+对此访有何期待？
+
+将重点讨论哪些议题？
+
+林剑：中美双方就特朗普总统访华事保持着沟通，我目前没有可以进一步提供的信息。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:30 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 22:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 22:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 22:23 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 22:40 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 22:21 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 22:29 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 22:23 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 22:35 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 22:29 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 22:39 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 22:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 22:26 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 22:46 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 22:31 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 22:29 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 22:25 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 22:31 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 22:37 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 22:39 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 22:37 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 22:40 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 22:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:39 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/78373031.shtml)
-- 2026-06-29 22:26 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/72760951617.shtml)
-- 2026-06-29 22:32 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/7662099.shtml)
-- 2026-06-29 22:34 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/4923634.shtml)
-- 2026-06-29 22:26 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/471040.shtml)
-- 2026-06-29 22:42 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/8900778962.shtml)
-- 2026-06-29 22:30 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/56844083602.shtml)
-- 2026-06-29 22:37 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/37165.shtml)
-- 2026-06-29 22:33 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/9276699.shtml)
-- 2026-06-29 22:38 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/516416361534.shtml)
-- 2026-06-29 22:39 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/9471544.shtml)
-- 2026-06-29 22:25 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/66401907222.shtml)
-- 2026-06-29 22:47 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/72019967.shtml)
-- 2026-06-29 22:34 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/84483.shtml)
-- 2026-06-29 22:20 - [青春环游记第三季](https://www.share.minike.top/Article/details/34359901465.shtml)
+- 2026-06-29 22:37 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/05333.shtml)
+- 2026-06-29 22:34 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/656024471.shtml)
+- 2026-06-29 22:48 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/69427.shtml)
+- 2026-06-29 22:30 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/04398152946.shtml)
+- 2026-06-29 22:27 - [毒液2](https://www.share.minike.top/Article/details/4956037450.shtml)
+- 2026-06-29 22:32 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/10067.shtml)
+- 2026-06-29 22:34 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/5530640.shtml)
+- 2026-06-29 22:34 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/390876728482.shtml)
+- 2026-06-29 22:31 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/851479.shtml)
+- 2026-06-29 22:27 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/88250648143.shtml)
+- 2026-06-29 22:50 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/10240496994.shtml)
+- 2026-06-29 22:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/9073254.shtml)
+- 2026-06-29 22:37 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/032726350.shtml)
+- 2026-06-29 22:26 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/52110599817.shtml)
+- 2026-06-29 22:50 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/247220081.shtml)

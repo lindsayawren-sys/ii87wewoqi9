@@ -1,57 +1,58 @@
-# 古巴：美国捏造虚假文件 为制裁和侵略找借口
+# 原油：油价小幅上涨 海湾冲突威胁停火协议
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-新华社哈瓦那5月17日电(记者吴昊 蒋彪)古巴外交部长罗德里格斯17日指责美国政府捏造虚假文件，为收紧对古制裁以及可能的军事侵略寻找借口。 罗德里格斯在社交媒体发文说，美国政府“日复一日地编造虚假文件”，为其对古巴人民发动残酷的经济战和最终的军事侵略提供“正当性”。他批评部分美国媒体散布相关谣言，强调古巴不以战争威胁他国，坚持捍卫和平，同时会依据《联合国宪章》承认的合法自卫权，
+油价小幅上涨，交易员权衡美国与伊朗的最新冲突是否会破坏脆弱的停火，从而削弱短期内达成和平协议的希望。 全球基准布伦特上涨1.2%，收于每桶约101美元，但本周仍下跌约6%。 尽管美国官员表示期望伊朗将很快回应最新提议，但波斯湾再度爆发冲突仍令市场不安。 市场关注点仍集中在自2月底战争爆发以来陷入瘫痪的霍尔木兹海峡航运。 伊朗批评美国违反停火协议，据塔斯尼姆通讯社报道，伊朗准备制
 
 ## 正文
 
-新华社哈瓦那5月17日电(记者吴昊 蒋彪)古巴外交部长罗德里格斯17日指责美国政府捏造虚假文件，为收紧对古制裁以及可能的军事侵略寻找借口。
+油价小幅上涨，交易员权衡美国与伊朗的最新冲突是否会破坏脆弱的停火，从而削弱短期内达成和平协议的希望。
 
-罗德里格斯在社交媒体发文说，美国政府“日复一日地编造虚假文件”，为其对古巴人民发动残酷的经济战和最终的军事侵略提供“正当性”。
+全球基准布伦特上涨1.2%，收于每桶约101美元，但本周仍下跌约6%。
 
-他批评部分美国媒体散布相关谣言，强调古巴不以战争威胁他国，坚持捍卫和平，同时会依据《联合国宪章》承认的合法自卫权，做好应对外来侵略的准备。
+尽管美国官员表示期望伊朗将很快回应最新提议，但波斯湾再度爆发冲突仍令市场不安。
 
-古巴外交部副部长德科西奥也在社交媒体上发文说，反古势力为军事侵略而编造的借口“愈发荒诞”。
+市场关注点仍集中在自2月底战争爆发以来陷入瘫痪的霍尔木兹海峡航运。
 
-他强调，美国是侵略者，古巴将对侵略行为行使合法自卫权。
+伊朗批评美国违反停火协议，据塔斯尼姆通讯社报道，伊朗准备制定有关霍尔木兹海峡“法律制度”的计划。
 
-美国阿克西奥斯新闻网站当天早些时候援引美国机密情报文件报道称，古巴军方在俄罗斯和伊朗协助下采购了300多架军用无人机，并于近期开始讨论利用这些无人机袭击关塔那摩美军基地、美军舰船及佛罗里达州基韦斯特市的可能性。
+“对霍尔木兹海峡的控制已成为伊朗最有力的谈判筹码，”法兴银行分析师Ben Hoff等在报告中写道。
 
-一名美国高级官员说，美国政府将古巴视为威胁，这些情报文件可能成为美国对古巴采取军事行动的借口。
+“近期对船只的扣押和骚扰表明，尽管外交是基准情景，但存在冲突重燃的实质性风险。
 
-美方近期加大对古巴制裁，并多次威胁对古巴动武，包括声称将在美军结束对伊朗战事返回之际“接管古巴”。
+” 美国总统特朗普周五下午宣布俄罗斯和乌克兰将实施为期三天的停火，这推动油价短暂回落。
 
 ## 相关推荐
 
-- 2026-06-29 22:35 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 22:29 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 22:18 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 22:25 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 22:27 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 22:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 22:42 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 22:37 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 22:42 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 22:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 22:35 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 22:24 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 22:45 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 22:36 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 22:24 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 22:53 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 22:39 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 22:49 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 22:39 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 22:44 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 22:29 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 22:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 22:43 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:43 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/95319229514.shtml)
-- 2026-06-29 22:45 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/843272028.shtml)
-- 2026-06-29 22:30 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/554820099.shtml)
-- 2026-06-29 22:47 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/204294546067.shtml)
-- 2026-06-29 22:41 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/59233.shtml)
-- 2026-06-29 22:46 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/8767444013.shtml)
-- 2026-06-29 22:28 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/6236225.shtml)
-- 2026-06-29 22:28 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/20578030219.shtml)
-- 2026-06-29 22:29 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/906248.shtml)
-- 2026-06-29 22:20 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/11879668975.shtml)
-- 2026-06-29 22:24 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/86285363482.shtml)
-- 2026-06-29 22:27 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/3253575.shtml)
-- 2026-06-29 22:41 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/3265716.shtml)
-- 2026-06-29 22:42 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/1982066.shtml)
-- 2026-06-29 22:30 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/602452243.shtml)
+- 2026-06-29 22:27 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/13230754917.shtml)
+- 2026-06-29 22:47 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/630223.shtml)
+- 2026-06-29 22:39 - [女心理师](https://www.blog.minike.top/Article/details/6850744.shtml)
+- 2026-06-29 22:25 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/1772729101.shtml)
+- 2026-06-29 22:34 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/209134934405.shtml)
+- 2026-06-29 22:26 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/17770976154.shtml)
+- 2026-06-29 22:44 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/593040.shtml)
+- 2026-06-29 22:48 - [天道](http://www.blog.minike.top/Article/details/865212.shtml)
+- 2026-06-29 22:35 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/328569345.shtml)
+- 2026-06-29 22:44 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/143524481.shtml)
+- 2026-06-29 22:52 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/50754694555.shtml)
+- 2026-06-29 22:47 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/02405911.shtml)
+- 2026-06-29 22:49 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/650821248.shtml)
+- 2026-06-29 22:53 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/73774.shtml)
+- 2026-06-29 22:40 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/06932928.shtml)

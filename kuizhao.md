@@ -1,56 +1,59 @@
-# 香港赛马会2026年广州市“飞人杯”田径接力赛收官
+# IP Strategy Holdings推介Numo应用，旨在扩大人工智能合规训练数据规模
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新网广州5月18日电 (记者 张璐)香港赛马会2026年广州市“飞人杯”田径接力赛(简称“赛事”)17日在广州天河体育中心体育场收官。 据悉，赛事为期两天，设4×100米、4×400米两大经典组别，覆盖小学、初中、高中、青年、中年组等共33个小项，吸引广州市内中小学、体校、田径俱乐部及社会人士等报名，共214支队伍、766名运动员参赛，是广州本土知名田径IP重启后的全新亮相。
+IP Strategy Holdings， Inc．宣布，由Poseidon开发的消费者应用程序Numo已上线抢先体验版。该应用旨在通过授权收集真实世界数据，扩大人工智能（AI）系统训练数据集规模，以应对行业日益增长的高质量数据需求。 当前，人工智能行业的数据需求正面临供应瓶颈。新一代AI系统的研发高度依赖反映人类真实言语、行为与互动的数据，此类高质量数据难以从开放互联网直接获
 
 ## 正文
 
-中新网广州5月18日电 (记者 张璐)香港赛马会2026年广州市“飞人杯”田径接力赛(简称“赛事”)17日在广州天河体育中心体育场收官。
+IP Strategy Holdings， Inc．宣布，由Poseidon开发的消费者应用程序Numo已上线抢先体验版。
 
-据悉，赛事为期两天，设4×100米、4×400米两大经典组别，覆盖小学、初中、高中、青年、中年组等共33个小项，吸引广州市内中小学、体校、田径俱乐部及社会人士等报名，共214支队伍、766名运动员参赛，是广州本土知名田径IP重启后的全新亮相。
+该应用旨在通过授权收集真实世界数据，扩大人工智能（AI）系统训练数据集规模，以应对行业日益增长的高质量数据需求。
 
-赛事创新采用复活赛机制，符合条件的队伍均获二次竞技机会，提升群众参赛体验。
+当前，人工智能行业的数据需求正面临供应瓶颈。
 
-赛事严格执行世界田联及中国田径协会竞赛规则，由国际级裁判团队全程执裁，沿用世界田联接力赛标准场地，专业度对标省级高水平赛事。
+新一代AI系统的研发高度依赖反映人类真实言语、行为与互动的数据，此类高质量数据难以从开放互联网直接获取。
 
-同时，赛事正式设立赛会纪录与城市飞人挑战纪录，各项目最佳成绩纳入城市纪录库，推动赛事品牌长效传承。
+针对这一行业痛点，Numo应用允许用户通过移动设备完成简单任务以贡献数据，初期项目重点聚焦于代表性不足语言的语音采集。
 
-赛场上，各年龄组别选手奋勇争先、默契配合，充分展现速度与协作之美。
+在合规性与可追溯性方面，相关数据一经提交，即通过Story平台进行来源核实与权利厘清，并依托链上授权机制，确保数据集具备即时商业应用价值与透明溯源能力。
 
-经过两天激烈角逐，各组别奖项悉数决出。
+此举有效规避了AI系统在实际生产应用中的所有权与合规争议。
 
-据介绍，赛事的举办，进一步夯实了广州田径后备人才根基，丰富了全民健身赛事供给，推动粤港澳大湾区体育文化交流走深走实，助力广州体育强市建设。
+初步市场数据显示，Numo平台上线首周已吸引逾1.5万名贡献者参与，生成四种语言共计17万余条语音录制。
 
 ## 相关推荐
 
-- 2026-06-29 22:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 22:20 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 22:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 22:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 22:19 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 22:35 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 22:31 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 22:19 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 22:29 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 22:44 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 22:49 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 22:48 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 22:29 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 22:34 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 22:49 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 22:41 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 22:36 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 22:38 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 22:48 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 22:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 22:51 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 22:26 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 22:50 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/4152049493.shtml)
-- 2026-06-29 22:30 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/34103937.shtml)
-- 2026-06-29 22:46 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/674123.shtml)
-- 2026-06-29 22:44 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/4279070.shtml)
-- 2026-06-29 22:24 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/92788.shtml)
-- 2026-06-29 22:23 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/7420669.shtml)
-- 2026-06-29 22:25 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/0643634836.shtml)
-- 2026-06-29 22:20 - [温网](http://www.share.minike.top/Article/details/303722415026.shtml)
-- 2026-06-29 22:31 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/096466412612.shtml)
-- 2026-06-29 22:22 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/91501545682.shtml)
-- 2026-06-29 22:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/63117296.shtml)
-- 2026-06-29 22:21 - [巴西10号球衣是天才传承史](https://www.blog.minike.top/Article/details/815716547.shtml)
-- 2026-06-29 22:40 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/4292808.shtml)
-- 2026-06-29 22:44 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/921324179321.shtml)
-- 2026-06-29 22:34 - [温网](http://www.share.minike.top/Article/details/044032424.shtml)
+- 2026-06-29 22:32 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/316900519555.shtml)
+- 2026-06-29 22:26 - [金牌调解](http://www.share.minike.top/Article/details/6376326.shtml)
+- 2026-06-29 22:26 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/076862174.shtml)
+- 2026-06-29 22:46 - [温网](http://www.share.kurohicncr.top/Article/details/01311.shtml)
+- 2026-06-29 22:28 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/37781.shtml)
+- 2026-06-29 22:37 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/87642751.shtml)
+- 2026-06-29 22:44 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/7328447.shtml)
+- 2026-06-29 22:24 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/22055444.shtml)
+- 2026-06-29 22:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/1142245204.shtml)
+- 2026-06-29 22:34 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/59947487.shtml)
+- 2026-06-29 22:26 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/50840665.shtml)
+- 2026-06-29 22:50 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/67592145699.shtml)
+- 2026-06-29 22:51 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/469777824378.shtml)
+- 2026-06-29 22:24 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/2724820978.shtml)
+- 2026-06-29 22:48 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/465966.shtml)

@@ -1,55 +1,58 @@
-# “赌王”何鸿燊女儿何超蕸追思会香港举行
+# 美国一季度生产率增速进一步放缓
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月17日 18:15 来源：中国新闻网 5月17日，“赌王”何鸿燊女儿何超蕸追思会在香港君悦酒店举行。中新社记者在现场看到，包括何超琼等在内的一众何家成员、霍启刚夫妇等前来送别。香港特区政府财政司司长陈茂波、艺人杨千嬅等来自香港各界人士亦参加了此次哀悼活动。 公开资料显示，何超蕸生于1966年，系何鸿燊与蓝琼缨之三女，毕业于美国佩珀代因大学，获大众传播与
+美国工人生产率增速在一季度进一步放缓，但随着企业在人工智能领域大力投资，这一趋势可能出现逆转。 美国劳工部劳工统计局周四表示，衡量每小时工人产出的非农生产率在一季度环比年化增长0.8%。 四季度数据被下修，显示生产率年化增长率为1.6%，而此前报告为1.8%。这一增速自三季度5.2%的激增后已有所降温。此前预计一季度生产率年化增长率为1.0%。 生产率同比增长2.9%。经济学家
 
 ## 正文
 
-发布时间：2026年05月17日 18:15 来源：中国新闻网 5月17日，“赌王”何鸿燊女儿何超蕸追思会在香港君悦酒店举行。
+美国工人生产率增速在一季度进一步放缓，但随着企业在人工智能领域大力投资，这一趋势可能出现逆转。
 
-中新社记者在现场看到，包括何超琼等在内的一众何家成员、霍启刚夫妇等前来送别。
+美国劳工部劳工统计局周四表示，衡量每小时工人产出的非农生产率在一季度环比年化增长0.8%。
 
-香港特区政府财政司司长陈茂波、艺人杨千嬅等来自香港各界人士亦参加了此次哀悼活动。
+四季度数据被下修，显示生产率年化增长率为1.6%，而此前报告为1.8%。
 
-公开资料显示，何超蕸生于1966年，系何鸿燊与蓝琼缨之三女，毕业于美国佩珀代因大学，获大众传播与心理学双文学学士学位；曾任信德集团有限公司执行董事及薪酬委员会成员，香港辽宁社团总会会长。
+这一增速自三季度5.2%的激增后已有所降温。
 
-此前媒体报道表示，何超蕸于4月12日逝世，临终前家人陪伴在侧。
+此前预计一季度生产率年化增长率为1.0%。
 
-(记者 陈子彦） 责任编辑：【刘湃】
+生产率同比增长2.9%。
+
+经济学家认为，人工智能的采用将提升生产率并抑制劳动力成本。
+
+单位劳动力成本（即每单位产出的劳动力价格）在一季度环比年化增长2.3%。
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 22:34 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 22:18 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 22:32 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 22:34 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 22:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 22:43 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 22:42 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 22:29 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 22:35 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 22:45 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 22:32 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 22:23 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 22:24 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 22:45 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 22:30 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 22:29 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 22:38 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 22:24 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 22:37 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 22:43 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 22:47 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 22:26 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 22:51 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 22:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/4506094.shtml)
-- 2026-06-29 22:31 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/8465255.shtml)
-- 2026-06-29 22:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/5568189528.shtml)
-- 2026-06-29 22:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/64895.shtml)
-- 2026-06-29 22:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/5330381531.shtml)
-- 2026-06-29 22:39 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/56562279.shtml)
-- 2026-06-29 22:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/070826218.shtml)
-- 2026-06-29 22:39 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/63121576.shtml)
-- 2026-06-29 22:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/70137.shtml)
-- 2026-06-29 22:21 - [新官上任三把火](http://www.blog.minike.top/Article/details/991426883.shtml)
-- 2026-06-29 22:43 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/87623968989.shtml)
-- 2026-06-29 22:41 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/783908.shtml)
-- 2026-06-29 22:40 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/57321529.shtml)
-- 2026-06-29 22:40 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/495624.shtml)
-- 2026-06-29 22:40 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/588541.shtml)
+- 2026-06-29 22:45 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/06157.shtml)
+- 2026-06-29 22:48 - [请回答王牌2019](https://www.blog.minike.top/Article/details/2069311.shtml)
+- 2026-06-29 22:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/60070725.shtml)
+- 2026-06-29 22:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/2378036043.shtml)
+- 2026-06-29 22:38 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/11286905.shtml)
+- 2026-06-29 22:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/41689.shtml)
+- 2026-06-29 22:28 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/704532.shtml)
+- 2026-06-29 22:45 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/96484.shtml)
+- 2026-06-29 22:28 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/33140327895.shtml)
+- 2026-06-29 22:29 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/027998735874.shtml)
+- 2026-06-29 22:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/77423.shtml)
+- 2026-06-29 22:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/063775954.shtml)
+- 2026-06-29 22:38 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/5740931411.shtml)
+- 2026-06-29 22:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/4589072.shtml)
+- 2026-06-29 22:39 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/56768.shtml)

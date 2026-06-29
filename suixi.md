@@ -1,58 +1,60 @@
-# 2026中国国际露营大会举行
+# 基层卫生健康综合试验区见闻：家门口便捷智慧就医成常态
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-中新网金华5月17日电 16日至17日，2026中国国际露营大会在浙江金华山双龙风景旅游区举办。大会以“新场景新消费新生活”为主题，旨在推动文旅产业与户外装备产业深度融合。 露营作为山地旅游、户外休闲最具活力的业态之一，是连接自然、健康与大众美好生活的重要载体。金华山是国际山地旅游联盟会员和中国国际露营大会永久会址。 本次大会吸引来自西班牙、马来西亚、韩国、尼泊尔、越南等7个国
+中新网山东寿光5月8日电(记者 赵晓)近年来，国家卫生健康委员会不断加强基层医疗卫生服务体系和能力建设，推进基层卫生服务更加公平可及，创新探索基层卫生健康综合试验区建设，打造基层卫生健康工作样板，形成示范带动效应。 潍坊寿光是12个国家基层卫生健康综合试验区之一。5月8日，国家卫生健康委员会在当地召开“基层卫生健康综合试验区改革创新经验”主题新闻发布会，并组织记者深入基层医疗机
 
 ## 正文
 
-中新网金华5月17日电 16日至17日，2026中国国际露营大会在浙江金华山双龙风景旅游区举办。
+中新网山东寿光5月8日电(记者 赵晓)近年来，国家卫生健康委员会不断加强基层医疗卫生服务体系和能力建设，推进基层卫生服务更加公平可及，创新探索基层卫生健康综合试验区建设，打造基层卫生健康工作样板，形成示范带动效应。
 
-大会以“新场景新消费新生活”为主题，旨在推动文旅产业与户外装备产业深度融合。
+潍坊寿光是12个国家基层卫生健康综合试验区之一。
 
-露营作为山地旅游、户外休闲最具活力的业态之一，是连接自然、健康与大众美好生活的重要载体。
+5月8日，国家卫生健康委员会在当地召开“基层卫生健康综合试验区改革创新经验”主题新闻发布会，并组织记者深入基层医疗机构调研。
 
-金华山是国际山地旅游联盟会员和中国国际露营大会永久会址。
+“一张网”打通生命急救通道 走进寿光市洛城街道尧水村中心村卫生室，一间标有“胸痛驿站”的小屋，率先映入调研组一行的眼帘。
 
-本次大会吸引来自西班牙、马来西亚、韩国、尼泊尔、越南等7个国家，北京、上海、江苏、广西、海南等15个省区市约300名嘉宾参会，涵盖国际组织、行业专家、海内外企业及协会代表，同期150余家企业参展，大会达成意向合作金额预计4.85亿元。
+现场，一位外来务工的60岁老人刚刚做完心电图检查，数据随即通过卫生室医师的手机，传到寿光市人民医院心电诊断中心，院内专家在五六分钟内给出判读结果。
 
-在本次大会开幕式上，国际山地旅游联盟“国际山地休闲运动装备示范中心”正式落户金华山，国内外户外露营产业项目集中签约，金华山“户外新生活·五大古道徒步线路”同步发布，进一步丰富户外产品体系。
+尧水村中心村卫生室所长王静介绍，“胸痛驿站”于2024年投用，日常主要为高血压、冠心病等慢性病患者提供检查。
 
-行业专家围绕金华山露营模式、户外运动消费趋势、全球供应链布局等作主旨演讲；来自迪士尼、韩国露营产业协会等嘉宾分享了国际经验与实践案例。
+驿站内的心电设备与寿光市人民医院搭建的“心电一张网”系统相连，村民在村卫生室做检查，由市医院专家出诊断，对发现的红色预警病例立即展开抢救。
 
-圆桌对话以“营地运营的创新与突破”为主题，业内人士共商产业升级与生态共建路径。
+“去年9月份，一位有心脏病史的老人，因劳累过度突发心痛，在‘胸痛驿站’检查发现异常。
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 22:45 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 22:46 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 22:29 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 22:38 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 22:18 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 22:18 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 22:35 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 22:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 22:37 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 22:18 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 22:47 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 22:36 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 22:50 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 22:36 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 22:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 22:41 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 22:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 22:52 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 22:36 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 22:35 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 22:53 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 22:53 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 22:33 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 22:41 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 22:27 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/23672.shtml)
-- 2026-06-29 22:42 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/429093.shtml)
-- 2026-06-29 22:28 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/9420326.shtml)
-- 2026-06-29 22:40 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/321274.shtml)
-- 2026-06-29 22:43 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/246594361.shtml)
-- 2026-06-29 22:24 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/0960095.shtml)
-- 2026-06-29 22:41 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/370002.shtml)
-- 2026-06-29 22:35 - [毒液2](https://www.share.minike.top/Article/details/999824396312.shtml)
-- 2026-06-29 22:26 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/980470694.shtml)
-- 2026-06-29 22:38 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/73051722.shtml)
-- 2026-06-29 22:32 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/34241367420.shtml)
-- 2026-06-29 22:24 - [田曦薇没招了](http://www.share.minike.top/Article/details/6451655.shtml)
-- 2026-06-29 22:18 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/82802.shtml)
-- 2026-06-29 22:47 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/602873.shtml)
-- 2026-06-29 22:41 - [任泽平：AI浪潮刚刚开始](http://www.share.kurohicncr.top/Article/details/27411788565.shtml)
+- 2026-06-29 22:29 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/17799.shtml)
+- 2026-06-29 22:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/537826380176.shtml)
+- 2026-06-29 22:51 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/713632954160.shtml)
+- 2026-06-29 22:37 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/387660.shtml)
+- 2026-06-29 22:46 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/7900009.shtml)
+- 2026-06-29 22:53 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/3873537.shtml)
+- 2026-06-29 22:50 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/30803001.shtml)
+- 2026-06-29 22:29 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/500739894.shtml)
+- 2026-06-29 22:47 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/61468.shtml)
+- 2026-06-29 22:51 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/7993382887.shtml)
+- 2026-06-29 22:45 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/12862603.shtml)
+- 2026-06-29 22:41 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/130871160579.shtml)
+- 2026-06-29 22:27 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/2466079937.shtml)
+- 2026-06-29 22:24 - [明星大侦探第一季](http://www.share.minike.top/Article/details/524978.shtml)
+- 2026-06-29 22:43 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/20248240.shtml)

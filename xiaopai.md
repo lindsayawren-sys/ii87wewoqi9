@@ -1,57 +1,56 @@
-# 美国得州周末发生至少10起随机枪击事件 致4人受伤
+# 美国国务卿鲁比奥：壮大黎巴嫩政府实力 是对抗真主党的关键
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-中新网5月18日电 据美联社报道，当地时间17日，美国得克萨斯州首府奥斯汀市官员表示，该市周末发生至少10起随机枪击事件，造成4人受伤。 报道称，当地警方官员称，枪击案发生于16日下午至17日早晨，嫌疑人驾驶盗窃的车辆对两个消防站、多栋公寓楼以及多处住宅进行抢劫和枪击。 截至目前，已有2名青少年被拘留，年龄分别为15岁和17岁，他们在驾驶一辆被盗车辆被拦下后试图逃跑，随后被捕。
+美国国务卿鲁比奥表示，强化黎巴嫩政府力量是抗衡伊朗支持的真主党的关键，并证实美国将于下周主持以色列与黎巴嫩政府的新一轮会谈。 他在罗马对记者称：“我们有着共同目标，那就是建立一个强有力的黎巴嫩政府，不再让武装组织真主党在其境内活动、对周边国家构成威胁。想要实现这一目标，我们必须扶持黎巴嫩政府、为其提供支持，使其有能力应对这一威胁。” 鲁比奥还称，伊朗不应参与以黎两国之间的谈判。
 
 ## 正文
 
-中新网5月18日电 据美联社报道，当地时间17日，美国得克萨斯州首府奥斯汀市官员表示，该市周末发生至少10起随机枪击事件，造成4人受伤。
+美国国务卿鲁比奥表示，强化黎巴嫩政府力量是抗衡伊朗支持的真主党的关键，并证实美国将于下周主持以色列与黎巴嫩政府的新一轮会谈。
 
-报道称，当地警方官员称，枪击案发生于16日下午至17日早晨，嫌疑人驾驶盗窃的车辆对两个消防站、多栋公寓楼以及多处住宅进行抢劫和枪击。
+他在罗马对记者称：“我们有着共同目标，那就是建立一个强有力的黎巴嫩政府，不再让武装组织真主党在其境内活动、对周边国家构成威胁。
 
-截至目前，已有2名青少年被拘留，年龄分别为15岁和17岁，他们在驾驶一辆被盗车辆被拦下后试图逃跑，随后被捕。
+想要实现这一目标，我们必须扶持黎巴嫩政府、为其提供支持，使其有能力应对这一威胁。
 
-车内还有第三人仍在逃。
+” 鲁比奥还称，伊朗不应参与以黎两国之间的谈判。
 
-警方表示，尚不清楚该人是否参与了枪击事件。
+“我们不会就真主党问题与伊朗展开谈判，除非伊朗愿意停止对该组织的资金与扶持。
 
-据报道，4名伤者已被送往医院，其中一人伤势严重。
+”责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 22:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 22:20 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 22:27 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 22:19 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 22:44 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 22:20 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 22:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 22:41 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 22:18 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 22:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 22:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 22:42 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 22:19 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 22:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 22:18 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 22:50 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 22:24 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 22:53 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 22:27 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 22:30 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 22:39 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 22:24 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 22:25 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 22:29 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 22:47 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 22:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 22:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 22:41 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 22:49 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:39 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/44590508725.shtml)
-- 2026-06-29 22:37 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/033375244921.shtml)
-- 2026-06-29 22:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/880212588.shtml)
-- 2026-06-29 22:41 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/00103855.shtml)
-- 2026-06-29 22:20 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/7672542.shtml)
-- 2026-06-29 22:35 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/498327304.shtml)
-- 2026-06-29 22:35 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/718293.shtml)
-- 2026-06-29 22:20 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/240838497679.shtml)
-- 2026-06-29 22:29 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/962687.shtml)
-- 2026-06-29 22:33 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/9369292.shtml)
-- 2026-06-29 22:35 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/606018067734.shtml)
-- 2026-06-29 22:23 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/676462431598.shtml)
-- 2026-06-29 22:27 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/712117010.shtml)
-- 2026-06-29 22:25 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/0244365238.shtml)
-- 2026-06-29 22:29 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/80622.shtml)
+- 2026-06-29 22:33 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/69860.shtml)
+- 2026-06-29 22:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/81938610086.shtml)
+- 2026-06-29 22:49 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/366134.shtml)
+- 2026-06-29 22:48 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/7639988168.shtml)
+- 2026-06-29 22:25 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/59055131179.shtml)
+- 2026-06-29 22:30 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/9244691245.shtml)
+- 2026-06-29 22:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/802856884.shtml)
+- 2026-06-29 22:46 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/15455.shtml)
+- 2026-06-29 22:48 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/0890786122.shtml)
+- 2026-06-29 22:28 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/65742584319.shtml)
+- 2026-06-29 22:28 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/1019324648.shtml)
+- 2026-06-29 22:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/12015.shtml)
+- 2026-06-29 22:39 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/16906.shtml)
+- 2026-06-29 22:42 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/086783.shtml)
+- 2026-06-29 22:43 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/99683.shtml)

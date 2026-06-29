@@ -1,50 +1,61 @@
-# 探访西藏昌都怒江大桥 为何鸣笛声不断？
+# 10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月17日 20:07 来源：中国新闻网 在西藏昌都境内的第三代怒江大桥上，路过的游客会专门停车，在护栏上摆放零食饮料，缅怀牺牲的筑桥者和养护者们。近日，中新社记者探访怒江大桥，看到76岁的老兵周双弟，借着来西藏旅游的机会，特意到怒江大桥上向建设者致敬。从1953年建成第一代大桥，到2018年第三代大桥建成通车，三代怒江大桥将天堑变通途，驶过的车辆纷纷鸣笛
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：南方财经 记者 翁榕涛 广州报道 随着去年以来A股市场交投火热，证券行业整体迎来业绩修复周期，广东作为国内资本市场的核心腹地，辖内16家持牌证券公司的经营表现备受市场关注。 南方财经全媒体记者梳理Wind数据及上市公司公告发现，2025年广东16家券商合计实现营业收入2070.54亿元，同比增长近20
 
 ## 正文
 
-发布时间：2026年05月17日 20:07 来源：中国新闻网 在西藏昌都境内的第三代怒江大桥上，路过的游客会专门停车，在护栏上摆放零食饮料，缅怀牺牲的筑桥者和养护者们。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-近日，中新社记者探访怒江大桥，看到76岁的老兵周双弟，借着来西藏旅游的机会，特意到怒江大桥上向建设者致敬。
+来源：南方财经 记者 翁榕涛 广州报道 随着去年以来A股市场交投火热，证券行业整体迎来业绩修复周期，广东作为国内资本市场的核心腹地，辖内16家持牌证券公司的经营表现备受市场关注。
 
-从1953年建成第一代大桥，到2018年第三代大桥建成通车，三代怒江大桥将天堑变通途，驶过的车辆纷纷鸣笛以示敬意。
+南方财经全媒体记者梳理Wind数据及上市公司公告发现，2025年广东16家券商合计实现营业收入2070.54亿元，同比增长近20%，合计实现净利润845.25亿元，同比增长超39%，行业整体盈利水平显著回升。
 
-(记者 陈舒一 陈欣怡 制作 刘鹏 部分视频来源 昌都市委宣传部） 责任编辑：【刘湃】
+若以中国证券业协会提供的数据计算，广东16家券商虽然数量仅占全行业的10%左右，但累计营收占整个证券行业总营收的38.26%，净利润占全行业比重为38.51%，是国内当之无愧的“资本高地”。
+
+不过，亮眼数据背后是行业内愈发显著的业绩分化：头部券商凭借规模优势与多元业务布局持续巩固龙头地位，中小券商则呈现出盈亏两极分化的格局，部分机构净利润增速超100%，也有机构净利润同比下滑近九成。
+
+与此同时，以AI战略为核心的数字化转型、财富管理升级、深耕特色赛道，正成为广东券商战略布局的核心方向，行业竞争格局正在迎来新一轮重塑。
+
+业绩分化加剧 自营业务成关键变量 随着2026年4月底A股上市公司一季报披露收官，广东已披露一季报的6家券商，交出了“温差”显著的业绩答卷，也折射出行业马太效应持续强化的发展现状。
+
+从两家头部券商表现来看，营收与净利润均实现两位数以上的稳健高增。
 
 ## 相关推荐
 
-- 2026-06-29 22:45 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 22:24 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 22:19 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 22:33 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 22:24 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 22:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 22:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 22:23 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 22:42 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 22:32 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 22:33 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 22:45 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 22:52 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 22:24 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 22:49 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 22:52 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 22:52 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 22:51 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 22:29 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 22:38 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 22:45 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 22:39 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 22:49 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 22:41 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 22:26 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 22:43 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 22:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/739880547.shtml)
-- 2026-06-29 22:42 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/96704474975.shtml)
-- 2026-06-29 22:29 - [《贺子珍》](http://www.blog.minike.top/Article/details/16279641543.shtml)
-- 2026-06-29 22:22 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/93274538.shtml)
-- 2026-06-29 22:46 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/816037022094.shtml)
-- 2026-06-29 22:21 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/836624.shtml)
-- 2026-06-29 22:44 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/898690.shtml)
-- 2026-06-29 22:30 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/8694899.shtml)
-- 2026-06-29 22:25 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/6037854.shtml)
-- 2026-06-29 22:22 - [扬名立万](http://www.share.minike.top/Article/details/312844481.shtml)
-- 2026-06-29 22:29 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/010781862.shtml)
-- 2026-06-29 22:35 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/25561281899.shtml)
-- 2026-06-29 22:37 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/9019948.shtml)
-- 2026-06-29 22:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/80541011047.shtml)
-- 2026-06-29 22:40 - [上世纪90年代玩具成新宠](http://www.blog.kurohicncr.top/Article/details/42078889950.shtml)
+- 2026-06-29 22:30 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/2653250883.shtml)
+- 2026-06-29 22:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/034793.shtml)
+- 2026-06-29 22:32 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/6280138875.shtml)
+- 2026-06-29 22:46 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/49920293.shtml)
+- 2026-06-29 22:51 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/0937639.shtml)
+- 2026-06-29 22:28 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/86516840.shtml)
+- 2026-06-29 22:37 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/155080308.shtml)
+- 2026-06-29 22:45 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/95231672351.shtml)
+- 2026-06-29 22:33 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/74525849.shtml)
+- 2026-06-29 22:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/240316994.shtml)
+- 2026-06-29 22:25 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/66542452498.shtml)
+- 2026-06-29 22:51 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/24470522688.shtml)
+- 2026-06-29 22:41 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/891467.shtml)
+- 2026-06-29 22:28 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/3735081259.shtml)
+- 2026-06-29 22:37 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/467582158.shtml)

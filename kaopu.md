@@ -1,61 +1,49 @@
-# 特朗普的股票投资除了大型科技公司 还有寿司连锁店的股份
+# 索尼在PS5疲软情况下仍寻求利润增长
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-在第一季度美国总统唐纳德·特朗普的交易包括英伟达公司、亚马逊公司和苹果公司等股市巨头。他还买入了一家价值6亿美元回转寿司连锁店的股份。 根据特朗普的最新财务披露，他在2月2日买入了Kura Sushi USA的股份，交易金额介于约100万至500万美元之间。这家餐饮集团由日本Kura寿司控股。 与他的前任们不同，特朗普既没有剥离资产，也没有将资产转移到由独立监管人管理的盲目信托
+索尼预计全年利润增长13%，并宣布最高5000亿日元的股票回购计划，以抵消第四季度PS5硬件销售放缓的影响；公司同时指出，在AI数据中心需求推动下，内存价格飙升将造成300亿日元的冲击。责任编辑：张俊 SF065
 
 ## 正文
 
-在第一季度美国总统唐纳德·特朗普的交易包括英伟达公司、亚马逊公司和苹果公司等股市巨头。
+索尼预计全年利润增长13%，并宣布最高5000亿日元的股票回购计划，以抵消第四季度PS5硬件销售放缓的影响；公司同时指出，在AI数据中心需求推动下，内存价格飙升将造成300亿日元的冲击。
 
-他还买入了一家价值6亿美元回转寿司连锁店的股份。
-
-根据特朗普的最新财务披露，他在2月2日买入了Kura Sushi USA的股份，交易金额介于约100万至500万美元之间。
-
-这家餐饮集团由日本Kura寿司控股。
-
-与他的前任们不同，特朗普既没有剥离资产，也没有将资产转移到由独立监管人管理的盲目信托中。
-
-文件显示，他或其投资顾问在第一季度进行了超过3700笔交易，再次引发了人们对特朗普政府利益冲突的担忧。
-
-特朗普集团一位发言人曾表示，总统的所有资产均由负责所有投资决策的第三方金融机构独立管理，特朗普本人、他的家人以及公司均不参与交易决策。
-
-这项投资在日本引起了人们的惊讶，人们猜测特朗普是否真的吃过生鱼片和米饭。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 22:34 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 22:33 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 22:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 22:27 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 22:19 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 22:45 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 22:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 22:25 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 22:46 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 22:37 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 22:47 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 22:44 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 22:28 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 22:44 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 22:36 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 22:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 22:34 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 22:32 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 22:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 22:41 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 22:37 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 22:35 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 22:40 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 22:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 22:49 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 22:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 22:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 22:36 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 22:32 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 22:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/7043950137.shtml)
-- 2026-06-29 22:43 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/40800238857.shtml)
-- 2026-06-29 22:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/672295.shtml)
-- 2026-06-29 22:28 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/05504475537.shtml)
-- 2026-06-29 22:40 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/692541.shtml)
-- 2026-06-29 22:33 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/27129.shtml)
-- 2026-06-29 22:36 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/7402148059.shtml)
-- 2026-06-29 22:34 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/55850839.shtml)
-- 2026-06-29 22:26 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/287483083.shtml)
-- 2026-06-29 22:47 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/41844.shtml)
-- 2026-06-29 22:30 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/893780.shtml)
-- 2026-06-29 22:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/435686050.shtml)
-- 2026-06-29 22:28 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/7724341.shtml)
-- 2026-06-29 22:22 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/33461.shtml)
-- 2026-06-29 22:26 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/3994950399.shtml)
+- 2026-06-29 22:39 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/6135369015.shtml)
+- 2026-06-29 22:35 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/25195.shtml)
+- 2026-06-29 22:51 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/690605.shtml)
+- 2026-06-29 22:45 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/4474622.shtml)
+- 2026-06-29 22:49 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/260188887417.shtml)
+- 2026-06-29 22:39 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/443121677.shtml)
+- 2026-06-29 22:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/555701718694.shtml)
+- 2026-06-29 22:49 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/15441968.shtml)
+- 2026-06-29 22:31 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/051827687456.shtml)
+- 2026-06-29 22:50 - [锐评T1零封KC](https://www.share.minike.top/Article/details/123792593834.shtml)
+- 2026-06-29 22:47 - [天道](http://www.share.minike.top/Article/details/2327303.shtml)
+- 2026-06-29 22:44 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/15779.shtml)
+- 2026-06-29 22:25 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.minike.top/Article/details/23359.shtml)
+- 2026-06-29 22:52 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/21687507604.shtml)
+- 2026-06-29 22:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/76064554.shtml)

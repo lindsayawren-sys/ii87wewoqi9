@@ -1,57 +1,59 @@
-# 广东520所学校采取停课措施应对强降雨
+# 高低切换热点轮动，A股后市谁是主线？机构研判来了
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-中新网广州5月17日电 (记者 王坚)据广东省应急管理厅17日消息，此轮强降雨期间，全省520所学校采取停课措施，涉及学生共计26万余人；截至16日17时，全省各江河均在警戒水位以下；未接报灾情险情报告，全省平安。 据气象部门监测显示，15日17时至16日17时，湛江东部、阳江南部、肇庆北部、韶关北部和河源北部出现了大雨到暴雨局部大暴雨，全省平均雨量10.2毫米，韶关仁化董塘镇
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月8日，A股市场出现小幅调整，三大股指集体下跌。从行业板块表现看，电子、电力设备等近期热门板块调整幅度居前，国防军工、轻工制造、房地产等今年以来涨幅相对靠后的板块表现活跃，市场热点轮动态势明显。 如何看待A股后市行情？业内机构认为，外部冲突反复可能阶段性影响市场风险偏好，但不会改变市场整体方向，5月至7月
 
 ## 正文
 
-中新网广州5月17日电 (记者 王坚)据广东省应急管理厅17日消息，此轮强降雨期间，全省520所学校采取停课措施，涉及学生共计26万余人；截至16日17时，全省各江河均在警戒水位以下；未接报灾情险情报告，全省平安。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据气象部门监测显示，15日17时至16日17时，湛江东部、阳江南部、肇庆北部、韶关北部和河源北部出现了大雨到暴雨局部大暴雨，全省平均雨量10.2毫米，韶关仁化董塘镇录得最大累积雨量171毫米，肇庆德庆马圩镇录得最大小时雨量86.3毫米。
+5月8日，A股市场出现小幅调整，三大股指集体下跌。
 
-此轮强降雨期间，广东省消防救援总队全力做好抢险救援准备，全省3.8万名指战员、5700余辆消防车、1174艘舟艇保持待命状态。
+从行业板块表现看，电子、电力设备等近期热门板块调整幅度居前，国防军工、轻工制造、房地产等今年以来涨幅相对靠后的板块表现活跃，市场热点轮动态势明显。
 
-广东消防救援机动总队调集780名指战员进入临战状态，调用排涝车6台、排涝泵10台、橡皮艇30艘前置到重点区域。
+如何看待A股后市行情？
 
-广东省教育厅指导全省520所学校采取停课措施，涉及学生共计26万余人。
+业内机构认为，外部冲突反复可能阶段性影响市场风险偏好，但不会改变市场整体方向，5月至7月市场板块分化有望继续加剧。
 
-广东省自然资源厅组织全省出动地质灾害巡查5721人次，巡查地质灾害隐患点2152处。
+在具体配置上，资金将持续围绕业绩趋势向好、景气度改善的方向布局，受益于涨价逻辑的顺周期板块有望获得更好表现。
 
-广东省住房城乡建设厅组织全省出动人员5129人、工程抢险车辆948辆、移动泵车419辆，布防易涝积水点778处。
+市场短期波动不改整体方向 5月8日，A股行业板块呈现出较为明显的高低切换、热点轮动的态势。
 
-省交通运输厅部署督促各路段单位持续关注气象信息，加强安全防范，组织受强降雨影响的274个路段落实安全措施。
+近期领涨的部分板块迎来调整，而此前关注度有所降温的板块再度受到市场资金追捧。
 
 ## 相关推荐
 
-- 2026-06-29 22:23 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 22:36 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 22:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 22:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 22:34 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 22:22 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 22:46 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 22:20 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 22:43 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 22:39 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 22:33 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 22:43 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 22:45 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 22:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 22:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 22:28 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 22:28 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 22:30 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 22:51 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 22:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 22:50 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 22:39 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 22:25 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 22:41 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:33 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/9193204.shtml)
-- 2026-06-29 22:24 - [天道](https://www.share.minike.top/Article/details/2571652.shtml)
-- 2026-06-29 22:30 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/455556336.shtml)
-- 2026-06-29 22:31 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/68585806.shtml)
-- 2026-06-29 22:27 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/36370927343.shtml)
-- 2026-06-29 22:36 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/99682547220.shtml)
-- 2026-06-29 22:31 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/47779307713.shtml)
-- 2026-06-29 22:32 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/69242012.shtml)
-- 2026-06-29 22:23 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/62056.shtml)
-- 2026-06-29 22:38 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/736403386400.shtml)
-- 2026-06-29 22:22 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/8354899103.shtml)
-- 2026-06-29 22:47 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/335711.shtml)
-- 2026-06-29 22:18 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/06964586.shtml)
-- 2026-06-29 22:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/718536414.shtml)
-- 2026-06-29 22:47 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/4914886388.shtml)
+- 2026-06-29 22:30 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/221501424.shtml)
+- 2026-06-29 22:37 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/921707336878.shtml)
+- 2026-06-29 22:49 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/6812753032.shtml)
+- 2026-06-29 22:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/470917272.shtml)
+- 2026-06-29 22:52 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/572465164.shtml)
+- 2026-06-29 22:29 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/47514.shtml)
+- 2026-06-29 22:47 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/14887057323.shtml)
+- 2026-06-29 22:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/134304945879.shtml)
+- 2026-06-29 22:39 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/8536476.shtml)
+- 2026-06-29 22:39 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/7223278.shtml)
+- 2026-06-29 22:36 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/141474076680.shtml)
+- 2026-06-29 22:26 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/32713.shtml)
+- 2026-06-29 22:27 - [存储三巨头被告了](https://www.share.minike.top/Article/details/655992599284.shtml)
+- 2026-06-29 22:44 - [锐评T1零封KC](https://www.share.minike.top/Article/details/62941458.shtml)
+- 2026-06-29 22:48 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/0939021.shtml)

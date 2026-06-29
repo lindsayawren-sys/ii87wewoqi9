@@ -1,59 +1,56 @@
-# 广东持续强降雨 水利系统提前转移群众1300余人
+# 专家：心源性猝死、中风并非“猝不及防” 呼吸防护非简单“戴个口罩”
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-中新网广州5月16日电 (记者 王坚)广东省水利厅16日通报称，全省持续强降雨，据初步统计，目前共提前转移群众1300余人，成功避免了人员伤亡。根据当前强降雨形势，该厅维持水利防汛Ⅳ级应急响应。 广东省水利厅介绍，根据预测预报，15日夜间至18日，粤西、珠江三角洲和粤东沿海地区有新一轮大到暴雨降水过程，并伴有局地强对流天气。预计全省珠江三角洲、粤东粤西沿海和西江下游部分中小河流
+中新网上海5月8日电(记者 陈静)心源性猝死与脑卒中(中风)是威胁民众健康的两大“杀手”，具有起病急、进展快、抢救窗口极短、院外救治成功率低等特点。上海的急诊医学科专家李艳艳8日对记者介绍，上述急症中绝大多数并非毫无征兆，忽视信号、延误呼救，才是悲剧发生的主要原因。 李艳艳表示，心源性猝死的典型预警信号有持续不缓解的胸闷胸痛、心悸、气短、头晕黑蒙、出冷汗、晕厥；活动后加重、休息
 
 ## 正文
 
-中新网广州5月16日电 (记者 王坚)广东省水利厅16日通报称，全省持续强降雨，据初步统计，目前共提前转移群众1300余人，成功避免了人员伤亡。
+中新网上海5月8日电(记者 陈静)心源性猝死与脑卒中(中风)是威胁民众健康的两大“杀手”，具有起病急、进展快、抢救窗口极短、院外救治成功率低等特点。
 
-根据当前强降雨形势，该厅维持水利防汛Ⅳ级应急响应。
+上海的急诊医学科专家李艳艳8日对记者介绍，上述急症中绝大多数并非毫无征兆，忽视信号、延误呼救，才是悲剧发生的主要原因。
 
-广东省水利厅介绍，根据预测预报，15日夜间至18日，粤西、珠江三角洲和粤东沿海地区有新一轮大到暴雨降水过程，并伴有局地强对流天气。
+李艳艳表示，心源性猝死的典型预警信号有持续不缓解的胸闷胸痛、心悸、气短、头晕黑蒙、出冷汗、晕厥；活动后加重、休息无法缓解的胸部压迫感；感冒后出现胸闷、乏力、心跳加快，需警惕暴发性心肌炎；突发撕裂样、刀割样胸痛，并向后背、腰部放射，提示主动脉夹层。
 
-预计全省珠江三角洲、粤东粤西沿海和西江下游部分中小河流将出现2至6米左右的涨水过程，部分水文站点可能超过警戒水位，需重点防范局地短历时强降雨可能引发的山洪灾害、中小河流洪水、城乡积涝等风险。
+这位专家提醒，心肌梗死并非都是剧烈胸痛，也可能表现为上腹不适、牙痛、咽喉痛、单纯气短、恶心冷汗，女性、老年人、糖尿病患者的症状更不典型。
 
-针对本轮强降雨，广东省水利厅按照广东省委、省政府工作要求和省防总工作部署，及早安排部署防御工作。
+一旦出现上述症状，应立即拨打120急救电话，绝不能抱有“忍一忍就好”“休息一下再说”的侥幸心理。
 
-首先，及时启动应急响应。
+以“高水平安全服务高质量发展——应急就在你我身边”为主题的上海健康大讲堂公共应急卫生专场活动(下称：专场活动)8日在上海举行。
 
-5月12日印发通知部署本轮强降雨防御工作。
+专场活动聚焦呼吸防护与突发心脑血管急症急救两大核心内容，邀请上海市疾病预防控制中心健康危害因素监测与控制所职业健康与中毒控制科专家李传奇副主任医师、复旦大学附属闵行医院急诊医学科专家李艳艳副主任医师带来科普讲解，推动公共应急知识走进民众、融入日常。
 
-14日启动水利防汛Ⅳ级应急响应，各个值班专岗迅速上岗到位。
+脑卒中分为缺血性与出血性。
 
 ## 相关推荐
 
-- 2026-06-29 22:34 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 22:41 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 22:32 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 22:19 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 22:23 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 22:29 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 22:41 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 22:44 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 22:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 22:42 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 22:40 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 22:22 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 22:32 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 22:40 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 22:42 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 22:25 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 22:46 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 22:24 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 22:38 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 22:41 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 22:40 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 22:27 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 22:31 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:25 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/922552563653.shtml)
-- 2026-06-29 22:23 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/006233139666.shtml)
-- 2026-06-29 22:43 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/163538004.shtml)
-- 2026-06-29 22:46 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/9708840.shtml)
-- 2026-06-29 22:44 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/914352167.shtml)
-- 2026-06-29 22:39 - [世界杯](https://www.share.minike.top/Article/details/1937355178.shtml)
-- 2026-06-29 22:28 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/871404.shtml)
-- 2026-06-29 22:44 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/787118.shtml)
-- 2026-06-29 22:39 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/220988375587.shtml)
-- 2026-06-29 22:43 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/50494177.shtml)
-- 2026-06-29 22:46 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/25674370553.shtml)
-- 2026-06-29 22:47 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/21693742764.shtml)
-- 2026-06-29 22:47 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/695675344.shtml)
-- 2026-06-29 22:29 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/4808390.shtml)
-- 2026-06-29 22:20 - [明星大侦探第四季](http://www.share.minike.top/Article/details/598349.shtml)
+- 2026-06-29 22:36 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/18453653286.shtml)
+- 2026-06-29 22:33 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/6530334.shtml)
+- 2026-06-29 22:47 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/8501761.shtml)
+- 2026-06-29 22:48 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/14688635.shtml)
+- 2026-06-29 22:51 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/746416847290.shtml)
+- 2026-06-29 22:42 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/502105.shtml)
+- 2026-06-29 22:38 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/79487797.shtml)
+- 2026-06-29 22:40 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/02633536961.shtml)
+- 2026-06-29 22:46 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/288824.shtml)
+- 2026-06-29 22:39 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/3377506.shtml)
+- 2026-06-29 22:32 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/6533642.shtml)
+- 2026-06-29 22:43 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/392393.shtml)
+- 2026-06-29 22:52 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/81741.shtml)
+- 2026-06-29 22:35 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/553678107952.shtml)
+- 2026-06-29 22:24 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/8835572.shtml)

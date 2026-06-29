@@ -1,57 +1,50 @@
-# 北京老佛爷百货即将“落幕” 消费者前往打卡告别
+# 新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月16日 21:08 来源：中国新闻网 全球知名高端百货品牌老佛爷百货日前宣布，其北京门店将于5月27日正式结束营业。这意味着，这家陪伴了北京市民十余年的老牌地标性商场即将退出其所在的西单商圈。商场里许多店铺正在进行打折促销，不少消费者前来购物、打卡告别。 老佛爷百货早在1997年就曾首次进驻北京王府井商圈，但因彼时国内高端零售市场不成熟、品牌定位与本土
+发布时间：2026年05月09日 17:45 来源：中国新闻网 近日，新疆，一女子酒后欲将车辆从地库门口挪至停车位，不料被丈夫当场举报酒驾。面对十二师公安局交警，女子辩解只是短距离挪车，并未上路行驶，殊不知小区地库、公共停车场均属于法律界定的道路范畴，只要酒后启动车辆并行驶，就属于酒驾违法行为。十二师公安交警现场检测取证后，依法对其作出相应处罚。(作者：姜瑞） 责任编辑：【魏聪
 
 ## 正文
 
-发布时间：2026年05月16日 21:08 来源：中国新闻网 全球知名高端百货品牌老佛爷百货日前宣布，其北京门店将于5月27日正式结束营业。
+发布时间：2026年05月09日 17:45 来源：中国新闻网 近日，新疆，一女子酒后欲将车辆从地库门口挪至停车位，不料被丈夫当场举报酒驾。
 
-这意味着，这家陪伴了北京市民十余年的老牌地标性商场即将退出其所在的西单商圈。
+面对十二师公安局交警，女子辩解只是短距离挪车，并未上路行驶，殊不知小区地库、公共停车场均属于法律界定的道路范畴，只要酒后启动车辆并行驶，就属于酒驾违法行为。
 
-商场里许多店铺正在进行打折促销，不少消费者前来购物、打卡告别。
+十二师公安交警现场检测取证后，依法对其作出相应处罚。
 
-老佛爷百货早在1997年就曾首次进驻北京王府井商圈，但因彼时国内高端零售市场不成熟、品牌定位与本土消费习惯脱节，仅运营一年便仓促撤店。
-
-2013年，其选定北京西单商圈重新归来，开启了第二轮市场探索，一度成为北京代表性商业地标。
-
-(记者 吕少威 制作 乐小敏） 责任编辑：【吉翔】
+(作者：姜瑞） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 22:19 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 22:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 22:25 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 22:40 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 22:44 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 22:47 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 22:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 22:45 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 22:25 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 22:27 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 22:33 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 22:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 22:43 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 22:45 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 22:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 22:46 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 22:25 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 22:44 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 22:24 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 22:45 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 22:48 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 22:44 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 22:47 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 22:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 22:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 22:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 22:41 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/279427599.shtml)
-- 2026-06-29 22:24 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/284897929.shtml)
-- 2026-06-29 22:45 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/153412.shtml)
-- 2026-06-29 22:28 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/00189.shtml)
-- 2026-06-29 22:35 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/2657008865.shtml)
-- 2026-06-29 22:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/64110941804.shtml)
-- 2026-06-29 22:38 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/781758435956.shtml)
-- 2026-06-29 22:31 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/865490676.shtml)
-- 2026-06-29 22:36 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/81495.shtml)
-- 2026-06-29 22:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/98785233.shtml)
-- 2026-06-29 22:23 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/09504953.shtml)
-- 2026-06-29 22:21 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/033883.shtml)
-- 2026-06-29 22:46 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/837459498.shtml)
-- 2026-06-29 22:33 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/70680.shtml)
-- 2026-06-29 22:32 - [国际清算银行警告AI投资热潮](https://www.blog.kurohicncr.top/Article/details/62184.shtml)
+- 2026-06-29 22:47 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/29564989802.shtml)
+- 2026-06-29 22:52 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/66476677.shtml)
+- 2026-06-29 22:40 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.kurohicncr.top/Article/details/96200619532.shtml)
+- 2026-06-29 22:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/981088042760.shtml)
+- 2026-06-29 22:27 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/026315.shtml)
+- 2026-06-29 22:53 - [佛得角队长门德斯被控强奸](http://www.blog.minike.top/Article/details/7833567558.shtml)
+- 2026-06-29 22:32 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/2460786920.shtml)
+- 2026-06-29 22:34 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/149027.shtml)
+- 2026-06-29 22:31 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/292753546071.shtml)
+- 2026-06-29 22:47 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/78374986.shtml)
+- 2026-06-29 22:47 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/851766.shtml)
+- 2026-06-29 22:30 - [新官上任三把火](https://www.blog.minike.top/Article/details/21037896769.shtml)
+- 2026-06-29 22:24 - [记者：预计热火将追求小哈达威和康利](https://www.share.kurohicncr.top/Article/details/95418286519.shtml)
+- 2026-06-29 22:48 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/10850169097.shtml)
+- 2026-06-29 22:48 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/172196428.shtml)

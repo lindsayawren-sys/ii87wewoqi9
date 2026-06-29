@@ -1,50 +1,57 @@
-# 以色列空袭黎巴嫩南部及东部城镇 造成7人死亡
+# 光模块年报&一季报：天孚通信存在大客户依赖毛利率下滑 流动性“两头堵”净现比达到近五年最低点
 
-> 更新时间：2026-06-29 22:48:02 UTC+8
+> 更新时间：2026-06-29 22:54:03 UTC+8
 
 ## 摘要
 
-中新网5月18日电 据法新社报道，黎巴嫩卫生部和国家通讯社表示，当地时间17日，以色列空袭黎巴嫩南部及东部城镇，造成7人死亡，另有多人受伤。 据报道，此次袭击发生在以色列与黎巴嫩代表在美国华盛顿举行第三轮谈判并同意延长停火之后。尽管停火存在，以色列仍在黎巴嫩南部进行大范围空袭，并频繁向各城镇发出疏散警告。 报道称，以色列地面部队自最新战事开始后进入黎南部，持续控制边境附近部分区
+出品：新浪财经上市公司研究院 作者：光心 随着A股上市公司财报季收官，作为算力“底座”的光通信行业也交出优异的成绩单。这主要是2025年国内外AI基建资本开支大跨步上行，光模块需求迎来全面爆发。 从出货结构来看，2025年800G产品成为主导市场的绝对主力，同时1.6T高速产品进入导入期，预计2026年开始出货放量，其商用化节奏或将成为下一阶段的竞争分水岭。 在需求放量和技术切
 
 ## 正文
 
-中新网5月18日电 据法新社报道，黎巴嫩卫生部和国家通讯社表示，当地时间17日，以色列空袭黎巴嫩南部及东部城镇，造成7人死亡，另有多人受伤。
+出品：新浪财经上市公司研究院 作者：光心 随着A股上市公司财报季收官，作为算力“底座”的光通信行业也交出优异的成绩单。
 
-据报道，此次袭击发生在以色列与黎巴嫩代表在美国华盛顿举行第三轮谈判并同意延长停火之后。
+这主要是2025年国内外AI基建资本开支大跨步上行，光模块需求迎来全面爆发。
 
-尽管停火存在，以色列仍在黎巴嫩南部进行大范围空袭，并频繁向各城镇发出疏散警告。
+从出货结构来看，2025年800G产品成为主导市场的绝对主力，同时1.6T高速产品进入导入期，预计2026年开始出货放量，其商用化节奏或将成为下一阶段的竞争分水岭。
 
-报道称，以色列地面部队自最新战事开始后进入黎南部，持续控制边境附近部分区域。
+在需求放量和技术切换的双重驱动下，光模块头部企业迎来业绩高增。
 
-黎巴嫩当局称，自冲突开始以来，以色列空袭已造成超过2900人死亡，其中停火后至今已超过400人死亡。
+2025年，中际旭创、新易盛、天孚通信营收分别同比增长60.25%、187.29%、58.79%。
+
+2026年一季度，三家营收分别同比增长192.12%、105.76%、40.82%，其中中际旭创2026年一季度收入已超越2025年上半年。
+
+值得注意的是，天孚通信的业务底色与其他两家有所不同。
+
+中际旭创、新易盛产品主要是光模块整机，下游对接云厂商和IDC客户，而天孚通信产品主要是光器件、光芯片等零组件，更偏上游。
 
 ## 相关推荐
 
-- 2026-06-29 22:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 22:30 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 22:37 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 22:34 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 22:32 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 22:35 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 22:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 22:45 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 22:38 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 22:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 22:34 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 22:33 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 22:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 22:35 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 22:48 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 22:38 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 22:25 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 22:34 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 22:25 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 22:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 22:53 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:34 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/5066589.shtml)
-- 2026-06-29 22:39 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/53943837684.shtml)
-- 2026-06-29 22:33 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/25201219.shtml)
-- 2026-06-29 22:42 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/844211.shtml)
-- 2026-06-29 22:42 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/152720045.shtml)
-- 2026-06-29 22:28 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/86947057.shtml)
-- 2026-06-29 22:24 - [新官上任三把火](https://www.share.minike.top/Article/details/37439686371.shtml)
-- 2026-06-29 22:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/72783312308.shtml)
-- 2026-06-29 22:25 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/404869.shtml)
-- 2026-06-29 22:28 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/5863047479.shtml)
-- 2026-06-29 22:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/9783400757.shtml)
-- 2026-06-29 22:23 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/4489752728.shtml)
-- 2026-06-29 22:43 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/7673655.shtml)
-- 2026-06-29 22:24 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/558603020.shtml)
-- 2026-06-29 22:25 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/867494311.shtml)
+- 2026-06-29 22:45 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/3168478463.shtml)
+- 2026-06-29 22:43 - [沙丘](https://www.share.kurohicncr.top/Article/details/690259.shtml)
+- 2026-06-29 22:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/423501666.shtml)
+- 2026-06-29 22:43 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/62396612.shtml)
+- 2026-06-29 22:36 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/94410272.shtml)
+- 2026-06-29 22:27 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/481322771509.shtml)
+- 2026-06-29 22:38 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/30790623.shtml)
+- 2026-06-29 22:26 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/238920759.shtml)
+- 2026-06-29 22:50 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/1501756.shtml)
+- 2026-06-29 22:50 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/00516.shtml)
+- 2026-06-29 22:28 - [锐评T1零封KC](https://www.share.minike.top/Article/details/83196.shtml)
+- 2026-06-29 22:25 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/1646890.shtml)
+- 2026-06-29 22:53 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/15724210284.shtml)
+- 2026-06-29 22:38 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/94685953990.shtml)
+- 2026-06-29 22:48 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/148001447454.shtml)
