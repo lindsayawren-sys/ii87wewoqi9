@@ -1,56 +1,57 @@
-# 学习进行时｜感悟总书记的“三农情怀”
+# 亚朵集团一季度营收28.11亿元，以创新为引擎实现可持续高质增长
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-【学习进行时】“三夏”是全年粮食生产的关键时期。6月24日上午，习近平总书记来到山东省德州市陵城区边临镇东于架村，听取当地“三夏”生产工作汇报，了解小麦收成、玉米种植、农资供应等情况。 习近平总书记一直心系“三农”工作。党的十八大以来，习近平总书记在地方考察调研时一次次来到田间地头，察看粮食生产，关心丰收情况，同基层干部群众亲切交流。让我们一道感悟总书记的“三农情怀”。 策划：
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间5月13日，亚朵集团（NASDAQ： ATAT）发布2026年第一季度财务报告。在“中国体验，品牌领航”新战略的指引下，亚朵凭借持续的产品创新与体验升级，实现业绩高质量开局。 一季度，亚朵实现营业收入28.11亿元（人民币，下同），同比增长47.5%；调整后净利润4.90亿元，同比增长42.0%；调
 
 ## 正文
 
-【学习进行时】“三夏”是全年粮食生产的关键时期。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-6月24日上午，习近平总书记来到山东省德州市陵城区边临镇东于架村，听取当地“三夏”生产工作汇报，了解小麦收成、玉米种植、农资供应等情况。
+北京时间5月13日，亚朵集团（NASDAQ： ATAT）发布2026年第一季度财务报告。
 
-习近平总书记一直心系“三农”工作。
+在“中国体验，品牌领航”新战略的指引下，亚朵凭借持续的产品创新与体验升级，实现业绩高质量开局。
 
-党的十八大以来，习近平总书记在地方考察调研时一次次来到田间地头，察看粮食生产，关心丰收情况，同基层干部群众亲切交流。
+一季度，亚朵实现营业收入28.11亿元（人民币，下同），同比增长47.5%；调整后净利润4.90亿元，同比增长42.0%；调整后EBITDA为7.16亿元，同比增长51.1%。
 
-让我们一道感悟总书记的“三农情怀”。
+同时，亚朵上调2026年收入指引，预计全年收入同比增长24%至28%。
 
-策划：金佳绪 设计：邓豪俣
+酒店经营指标逐季改善，管道储备项目751家蓄力健康增长 第一季度，亚朵住宿业务的经营表现延续逐季改善趋势。
+
+一季度，集团大盘平均可出租客房收入（RevPAR）为312元，恢复至2025年同期的102.4%；入住率（OCC）和日均房价（ADR）分别恢复至去年同期的100.6%和102.1%。
+
+在规模拓展上，亚朵坚持“品质优先”原则，一季度新开业酒店110家。
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:34 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:28 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:22 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:40 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:25 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:24 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:23 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:36 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:36 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:37 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:48 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:43 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:45 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:43 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:19 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:21 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:26 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:25 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:18 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:28 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:28 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:37 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:46 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:21 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:36 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:39 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:20 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:33 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:24 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:25 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:33 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:26 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:29 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://www.blog.kurohicncr.top/Article/details/6040250001.shtml)
+- 2026-06-29 11:37 - [埃博拉为何再次袭击非洲](http://www.share.kurohicncr.top/Article/details/3686731.shtml)
+- 2026-06-29 11:29 - [TEC官宣Muggle加入](http://www.blog.kurohicncr.top/Article/details/884308.shtml)
+- 2026-06-29 11:40 - [跑步机上“爬坡”减肥公式爆火](http://www.blog.minike.top/Article/details/291058620.shtml)
+- 2026-06-29 11:32 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/880887386805.shtml)
+- 2026-06-29 11:22 - [这位猫咪，请你自重！](https://www.blog.kurohicncr.top/Article/details/668841270604.shtml)
+- 2026-06-29 11:29 - [张杰下沉市场](http://www.share.kurohicncr.top/Article/details/2736302446.shtml)
+- 2026-06-29 11:35 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/49545.shtml)
+- 2026-06-29 11:25 - [凯恩何时能拿到国际大赛冠军](http://www.blog.minike.top/Article/details/74364.shtml)
+- 2026-06-29 11:44 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/1132107886.shtml)
+- 2026-06-29 11:33 - [天道](https://www.blog.minike.top/Article/details/631239583.shtml)
+- 2026-06-29 11:36 - [农业谣言岂能如此“变态”](http://www.blog.minike.top/Article/details/1524010.shtml)
+- 2026-06-29 11:30 - [急先锋](http://www.blog.kurohicncr.top/Article/details/336600.shtml)
+- 2026-06-29 11:33 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/15760572075.shtml)
+- 2026-06-29 11:41 - [为什么欧洲人不装空调](https://www.share.minike.top/Article/details/8804179.shtml)

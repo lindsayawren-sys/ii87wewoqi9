@@ -1,61 +1,60 @@
-# 花旗银行提议整顿信息不透明的特殊目的载体（SPV）市场
+# Logansport Financial宣布每股0.45美元季度股息
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-随着大量特殊目的载体（SPV）不断涌现，号称能为投资者对接头部热门初创企业，众多民营科技企业股权归属模糊的乱象愈发泛滥，花旗集团计划着手解决这一行业痛点。 本月，这家银行宣布推出一项全新服务，允许投资者在区块链上交易非上市公司股权。该服务初期仅面向境外投资者开放，后续会拓展至美国市场，同时需要获得企业本身的授权许可，目前仅有一家企业达成合作意向。 这家合作企业是企业级区块链技术
+印第安纳州社区银行控股公司Logansport Financial Corp．今日宣布，将向股东派发每股0.45美元的季度现金股息。 股息详情与支付安排 根据公司公告，本次股息将于2026年7月14日支付，除息日和登记日均定于6月12日。此次派息延续了公司长期稳定的季度分红政策，年化股息为每股1.80美元。 持续稳定的股东回报 Logansport Financial自2024
 
 ## 正文
 
-随着大量特殊目的载体（SPV）不断涌现，号称能为投资者对接头部热门初创企业，众多民营科技企业股权归属模糊的乱象愈发泛滥，花旗集团计划着手解决这一行业痛点。
+印第安纳州社区银行控股公司Logansport Financial Corp．今日宣布，将向股东派发每股0.45美元的季度现金股息。
 
-本月，这家银行宣布推出一项全新服务，允许投资者在区块链上交易非上市公司股权。
+股息详情与支付安排 根据公司公告，本次股息将于2026年7月14日支付，除息日和登记日均定于6月12日。
 
-该服务初期仅面向境外投资者开放，后续会拓展至美国市场，同时需要获得企业本身的授权许可，目前仅有一家企业达成合作意向。
+此次派息延续了公司长期稳定的季度分红政策，年化股息为每股1.80美元。
 
-这家合作企业是企业级区块链技术服务商卡莱多（Kaleido），该企业本身就对这套业务模式抱有浓厚兴趣。
+持续稳定的股东回报 Logansport Financial自2024年以来已连续多个季度维持每股0.45美元的季度派息水平。
 
-倘若其他民营科技企业纷纷采纳花旗的方案，不仅能拓宽行业的投资者准入渠道，还可以帮助企业规避股权未经授权私下交易带来的各类风险。
+公司的股息政策体现了其稳健的财务实力，当前股息率约为5.63%。
 
-该项业务的运作模式为：花旗为非上市公司发行存托凭证 —— 这是企业面向境外投资者募资常用的金融工具。
+一季度业绩增长支撑分红 此次股息公告正值公司一季度财报发布之后。
 
-每一份凭证都会分配专属序列号，无论是在区块链系统还是现有传统市场基础设施中，都可以清晰追溯、流转股权归属。
+截至2026年3月31日的第一季度，Logansport Financial实现净利息收入222万美元，净利润54.2万美元，每股收益0.88美元，均较去年同期显著增长。
 
-这一业务推出恰逢其时。
+健康的盈利状况为持续分红提供了有力支撑。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:36 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:38 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:31 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:43 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:18 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:26 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:19 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:19 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:21 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:19 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:40 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:45 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:27 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:24 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:23 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:24 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:29 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:33 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:23 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:42 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:31 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:41 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:34 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:27 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:29 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:35 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:43 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:19 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:44 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:39 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:39 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:31 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:18 - [哈尔滨“全城追菠萝蜜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:32 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:29 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:29 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:34 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:35 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/0386383.shtml)
+- 2026-06-29 11:39 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](http://www.blog.minike.top/Article/details/939187037716.shtml)
+- 2026-06-29 11:47 - [《给阿嬷的情书》里的情义与守望](http://www.share.kurohicncr.top/Article/details/22691326809.shtml)
+- 2026-06-29 11:20 - [为什么欧洲人不装空调](http://www.blog.minike.top/Article/details/32629.shtml)
+- 2026-06-29 11:37 - [爱很美味](https://www.share.minike.top/Article/details/6791352.shtml)
+- 2026-06-29 11:22 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/502769655.shtml)
+- 2026-06-29 11:39 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/619164549164.shtml)
+- 2026-06-29 11:31 - [加拿大1比0南非挺进16强](http://www.blog.kurohicncr.top/Article/details/64960.shtml)
+- 2026-06-29 11:29 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/569515.shtml)
+- 2026-06-29 11:33 - [韩国政府将对世界杯出局追责](https://www.share.kurohicncr.top/Article/details/350964514933.shtml)
+- 2026-06-29 11:40 - [网友偶遇胡军和李乃文](https://www.blog.minike.top/Article/details/37453433166.shtml)
+- 2026-06-29 11:30 - [男子吃半根变苦黄瓜致肝衰竭](http://www.share.minike.top/Article/details/659824.shtml)
+- 2026-06-29 11:21 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/703212.shtml)
+- 2026-06-29 11:19 - [双高胎](http://www.blog.kurohicncr.top/Article/details/313562646.shtml)
+- 2026-06-29 11:43 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/64175104.shtml)

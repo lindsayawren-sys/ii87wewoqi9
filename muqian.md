@@ -1,60 +1,55 @@
-# 中国海警去年以来缴获各类毒品11.6吨 侦破多起特大海上毒品案
+# 英国大使邮轮公司一邮轮发生诺如病毒感染事件
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新社北京6月26日电 (记者 阮煜琳)中国海警局26日消息，去年以来，中国海警局侦破多起特大海上毒品案件，缴获各类毒品11.6吨。 其中，联合公安机关破获的“2.24”专案现场缴获甲基苯丙胺4.973吨，有效净化海上治安环境。 近年来，中国海警局全力推动涉海毒品问题综合治理，形成打击防控并重、海域陆地并治的良好禁毒态势。优化重点海域、重点航线、重点方向的力量部署，加强态势感知
+中新网5月14日电 据英国广播公司(BBC)14日报道，由英国大使邮轮公司运营的“雄心”号邮轮因暴发诺如病毒感染滞留法国，目前部分乘客已获准下船。此前因49人出现胃肠感染症状，超过1000名乘客被滞留在法国波尔多市。法国当局表示，无症状乘客获准离船，邮轮公司补充称将恢复常规行程，包括岸上观光活动。法国当局补充称，感染者仍需继续接受隔离，“同时船上将加强预防措施和卫生防疫流程”。
 
 ## 正文
 
-中新社北京6月26日电 (记者 阮煜琳)中国海警局26日消息，去年以来，中国海警局侦破多起特大海上毒品案件，缴获各类毒品11.6吨。
+中新网5月14日电 据英国广播公司(BBC)14日报道，由英国大使邮轮公司运营的“雄心”号邮轮因暴发诺如病毒感染滞留法国，目前部分乘客已获准下船。
 
-其中，联合公安机关破获的“2.24”专案现场缴获甲基苯丙胺4.973吨，有效净化海上治安环境。
+此前因49人出现胃肠感染症状，超过1000名乘客被滞留在法国波尔多市。
 
-近年来，中国海警局全力推动涉海毒品问题综合治理，形成打击防控并重、海域陆地并治的良好禁毒态势。
+法国当局表示，无症状乘客获准离船，邮轮公司补充称将恢复常规行程，包括岸上观光活动。
 
-优化重点海域、重点航线、重点方向的力量部署，加强态势感知能力建设，全力封堵海上贩毒通道，提升禁毒综合管控质效。
+法国当局补充称，感染者仍需继续接受隔离，“同时船上将加强预防措施和卫生防疫流程”。
 
-同时，突出以打促防，按照“破大案、摧团伙、堵源头”的打击策略，瞄准幕后组织、团伙主犯、深挖扩线、重拳出击，连续侦破一系列特大走私毒品案；密切与公安、海关、海事、渔业等部门协作配合，推进案件线索、情报信息互通共享，凝聚禁毒工作合力，全力守护海上平安。
+波尔多卫生部门13日晚间发布的最新通报称，样本检测结果证实了诺如病毒感染，该病毒可通过人际接触或环境传播。
 
-今年4月26日，中国海警局南海分局组织直属第三局、第四局舰艇编队，在东沙群岛以南海域成功缉获一起特大海上走私毒品案，查扣涉案渔船1艘、大麻毒品43包，涉案毒品总重量735千克，现场抓获犯罪嫌疑人5名，一举斩断一条跨境毒品走私链条。
-
-中国海警局称，下一步将按照国家禁毒委统一部署，持续强化常态化巡查与精准打击力度，织密筑牢海上禁毒防线。
-
-(完)
+目前尚未报告严重病例。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:30 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:28 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:34 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:47 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:33 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:23 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:36 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:25 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:28 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:32 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:29 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:44 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:39 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:26 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:30 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:23 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:29 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:28 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:33 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:34 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:39 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:44 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:23 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:39 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:31 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:38 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:31 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:31 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:47 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:41 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:47 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:22 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:32 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:37 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:28 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:47 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:47 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:25 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:18 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:38 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/4212536726.shtml)
+- 2026-06-29 11:28 - [2025年人口增长10强城市出炉](http://www.blog.kurohicncr.top/Article/details/25557619320.shtml)
+- 2026-06-29 11:21 - [韩媒称韩国队遭中国网民嘲讽](http://www.blog.minike.top/Article/details/49231702714.shtml)
+- 2026-06-29 11:38 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/851633317.shtml)
+- 2026-06-29 11:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/683860408.shtml)
+- 2026-06-29 11:42 - [老虎瘦成纸片还吃草 园方回应](https://www.share.minike.top/Article/details/54747364.shtml)
+- 2026-06-29 11:47 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.blog.kurohicncr.top/Article/details/9049028765.shtml)
+- 2026-06-29 11:19 - [球迷玩人浪手机飞了](http://www.share.kurohicncr.top/Article/details/70109.shtml)
+- 2026-06-29 11:43 - [日本和澳大利亚能代表亚洲足球走多远](http://www.share.minike.top/Article/details/46737533.shtml)
+- 2026-06-29 11:32 - [詹姆斯下赛季会在哪里](https://www.share.minike.top/Article/details/273671075394.shtml)
+- 2026-06-29 11:45 - [细节之中抓作风](https://www.share.kurohicncr.top/Article/details/4833720414.shtml)
+- 2026-06-29 11:47 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.minike.top/Article/details/977639216.shtml)
+- 2026-06-29 11:19 - [黄博文：坚持这样打下去会成强队](http://www.blog.minike.top/Article/details/7410903.shtml)
+- 2026-06-29 11:42 - [拄拐少年高考663分：用行动回报社会](http://www.share.minike.top/Article/details/009599.shtml)
+- 2026-06-29 11:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/509604614213.shtml)

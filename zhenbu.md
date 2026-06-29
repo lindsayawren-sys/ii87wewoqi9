@@ -1,51 +1,57 @@
-# 亚马逊拟于2030年前在印度新增130亿美元投资 用于AI领域
+# 锡林郭勒草原深处，有一位化解牧区矛盾的“金牌调解员”
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-据一份公司声明，亚马逊宣布将增加130亿美元投资，用于扩展和支持印度的人工智能（AI）及云基础设施。 这笔新增投资将扩大AWS在孟买和海得拉巴的数据中心容量。 今年将在印度各地新建20多个物流中心和100多个配送站。 2010年至2030年间，该公司在印度的累计投资额将超过880亿美元。责任编辑：刘明亮
+中新网锡林郭勒5月13日电 题：锡林郭勒草原深处，有一位化解牧区矛盾的“金牌调解员” 作者 奥蓝 乌伊罕 初夏的锡林郭勒草原已泛青。一大早，那布其带队驱车56公里，来到都日布勒吉嘎查回访调解案件的当事人巴图(化名)。两年前，因一兽药店工作人员操作失误，巴图家22头牛死亡、21头牛出现中毒症状。后经调解，兽药店经营者秀秀(化名)支付巴图经济损失赔偿金共计25万元。 “基层调解工作
 
 ## 正文
 
-据一份公司声明，亚马逊宣布将增加130亿美元投资，用于扩展和支持印度的人工智能（AI）及云基础设施。
+中新网锡林郭勒5月13日电 题：锡林郭勒草原深处，有一位化解牧区矛盾的“金牌调解员” 作者 奥蓝 乌伊罕 初夏的锡林郭勒草原已泛青。
 
-这笔新增投资将扩大AWS在孟买和海得拉巴的数据中心容量。
+一大早，那布其带队驱车56公里，来到都日布勒吉嘎查回访调解案件的当事人巴图(化名)。
 
-今年将在印度各地新建20多个物流中心和100多个配送站。
+两年前，因一兽药店工作人员操作失误，巴图家22头牛死亡、21头牛出现中毒症状。
 
-2010年至2030年间，该公司在印度的累计投资额将超过880亿美元。
+后经调解，兽药店经营者秀秀(化名)支付巴图经济损失赔偿金共计25万元。
 
-责任编辑：刘明亮
+“基层调解工作中，案结并非终点，常态化回访跟进是定纷止争、化解矛盾、筑牢基层平安防线的关键举措。
+
+”那布其在巴图家不仅核查了赔偿款项落实、双方后续相处情况，还仔细了解了巴图家当下的生产生活状况。
+
+那布其是“85后”，自2014年入职西乌珠穆沁旗司法局之后，一直扎根基层从事司法行政工作。
+
+这样在牧区走家串户调解奔波，是她10多年基层工作的日常。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:41 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:26 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:36 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:27 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:18 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:22 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:40 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:42 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:34 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:46 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:29 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:41 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:48 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:39 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:23 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:26 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:32 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:39 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:30 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:41 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:44 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:44 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:24 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:39 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:31 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:35 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:25 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:23 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:19 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:21 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:37 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:39 - [医护人员观影《四渡》传承长征精神](https://www.share.minike.top/Article/details/4170460400.shtml)
+- 2026-06-29 11:33 - [凯恩何时能拿到国际大赛冠军](https://www.blog.minike.top/Article/details/0224278268.shtml)
+- 2026-06-29 11:22 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/5464684.shtml)
+- 2026-06-29 11:44 - [户外吃烧烤多人头发变炸毛](http://www.blog.minike.top/Article/details/679411437.shtml)
+- 2026-06-29 11:20 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.share.minike.top/Article/details/1203808335.shtml)
+- 2026-06-29 11:20 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/422296719.shtml)
+- 2026-06-29 11:46 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/8574001788.shtml)
+- 2026-06-29 11:29 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/8388550.shtml)
+- 2026-06-29 11:42 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/775601410883.shtml)
+- 2026-06-29 11:43 - [加拿大92分钟绝杀南非](http://www.blog.minike.top/Article/details/455974728197.shtml)
+- 2026-06-29 11:19 - [老虎瘦成纸片还吃草 园方回应](http://www.share.minike.top/Article/details/997852994199.shtml)
+- 2026-06-29 11:26 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.minike.top/Article/details/96701.shtml)
+- 2026-06-29 11:22 - [浦玮：阿根廷所在半区对手实力偏弱](http://www.blog.kurohicncr.top/Article/details/71822909.shtml)
+- 2026-06-29 11:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/32244.shtml)
+- 2026-06-29 11:41 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/1466203.shtml)

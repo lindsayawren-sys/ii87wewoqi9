@@ -1,55 +1,61 @@
-# 富德生命人寿接连减持重庆银行H股股份 合并持股比例降至5%以下
+# 阿里首次披露！吴泳铭：AI投资回报高度确定
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-人民财讯6月26日电，港交所披露易最新信息显示，6月24日，富德资源投资控股集团以大宗交易方式出售3000万股重庆银行H股股份，此番减持后，富德生命人寿及其子公司富德资源投资控股集团合计持有的该行H股数量降至1.7亿股以内。 据了解，富德生命人寿及其子公司富德资源投资控股集团于2015年通过参与重庆银行定增完成入股，耗资约16.6亿港元取得该行约2.18亿股H股股份，截至202
+21世纪经济报道记者 董静怡 5月13日，阿里巴巴发布2026财年第四季度及全年业绩。第四财季，阿里收入为人民币2433.80亿元，同比增长3%。若不考虑高鑫零售和银泰的已处置业务的收入，同口径收入同比增长将为11%。全年收入达到10236.7亿元，同比增长3%。 数据显示，阿里云外部商业化收入同比增长40%，创下近9个季度以来的最快增速。AI相关产品收入在云外部商业化收入中的
 
 ## 正文
 
-人民财讯6月26日电，港交所披露易最新信息显示，6月24日，富德资源投资控股集团以大宗交易方式出售3000万股重庆银行H股股份，此番减持后，富德生命人寿及其子公司富德资源投资控股集团合计持有的该行H股数量降至1.7亿股以内。
+21世纪经济报道记者 董静怡 5月13日，阿里巴巴发布2026财年第四季度及全年业绩。
 
-据了解，富德生命人寿及其子公司富德资源投资控股集团于2015年通过参与重庆银行定增完成入股，耗资约16.6亿港元取得该行约2.18亿股H股股份，截至2025年6月末持股数量保持不变。
+第四财季，阿里收入为人民币2433.80亿元，同比增长3%。
 
-这意味着，近一年内，富德生命人寿及富德资源投资控股集团合计持有的重庆银行H股数量已累计减少0.48亿股以上，在该行总股本中的占比已由6.26%悄然降至4.67%。
+若不考虑高鑫零售和银泰的已处置业务的收入，同口径收入同比增长将为11%。
 
-以区间成交均价计算，已合计套现约3.9亿港元。
+全年收入达到10236.7亿元，同比增长3%。
 
-责任编辑：曹睿潼
+数据显示，阿里云外部商业化收入同比增长40%，创下近9个季度以来的最快增速。
+
+AI相关产品收入在云外部商业化收入中的占比已提升至30%，对应季度收入约89.71亿元，年化经常性收入（ARR）突破358亿元。
+
+在当晚的分析师电话会上，集团CEO吴泳铭宣布，阿里AI已跨越初期投入阶段，正式迈入商业化回报周期。
+
+不过，高投入也让利润明显承压。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:20 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:38 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:46 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:20 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:36 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:27 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:24 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:30 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:38 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:33 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:27 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:22 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:44 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:22 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:42 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:19 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:46 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:45 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:42 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:23 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:33 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:23 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:25 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:20 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:44 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:27 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:23 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:34 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:30 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:19 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:44 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:33 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:34 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:23 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:37 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:37 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:32 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:22 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:45 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:21 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:24 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:37 - [韩国记者：解码“合肥模式”](http://www.blog.minike.top/Article/details/802598.shtml)
+- 2026-06-29 11:46 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/70751.shtml)
+- 2026-06-29 11:47 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/63771.shtml)
+- 2026-06-29 11:28 - [《给阿嬷的情书》里的情义与守望](https://www.share.kurohicncr.top/Article/details/6026718498.shtml)
+- 2026-06-29 11:29 - [【自制动画】佐鸣抖肩舞！！！](http://www.blog.kurohicncr.top/Article/details/15085411.shtml)
+- 2026-06-29 11:32 - [【独家】牧神记 第89集 明心](http://www.share.minike.top/Article/details/538381857.shtml)
+- 2026-06-29 11:22 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/3523771.shtml)
+- 2026-06-29 11:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/19525689.shtml)
+- 2026-06-29 11:22 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/15765026.shtml)
+- 2026-06-29 11:31 - [毕业典礼整活 梗密到不知先笑哪个](https://www.blog.kurohicncr.top/Article/details/02809.shtml)
+- 2026-06-29 11:39 - [日本和澳大利亚能代表亚洲足球走多远](http://www.blog.minike.top/Article/details/889424213.shtml)
+- 2026-06-29 11:39 - [双高胎](https://www.share.minike.top/Article/details/666036421.shtml)
+- 2026-06-29 11:28 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.minike.top/Article/details/4581558158.shtml)
+- 2026-06-29 11:41 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/19300364.shtml)
+- 2026-06-29 11:47 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.share.minike.top/Article/details/07719817.shtml)

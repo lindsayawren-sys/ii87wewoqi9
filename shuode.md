@@ -1,60 +1,60 @@
-# ETF日报：本周的冲高回落进一步强化了后市的震荡预期，指数层面的震荡调整预计将维持一段时间
+# 2025信托冷暖分明：合计盈利330.8亿元，6家头部机构贡献过半，万亿梯队扩容
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-今日A股跳空低开低走后略有反弹，整体较为弱势。截止收盘，上证指数报4027.36点，下跌2.26%，深证成指下跌3.44%，创业板指下跌4.07%。个股层面跌多涨少，不足800家上涨，超4600家下跌。成交方面，沪深两市成交额超3.5万亿，下跌动能仍然偏强。 板块层面，仅半导体设备、养殖等板块较为抗跌，通信、电网、软件等板块跌幅居前。 近期市场主要呈现反弹见顶后快速回落的走势。
+来源：北京商报 作者：廖蒙 董晗萱 2025年年报陆续出炉，信托业的经营轮廓逐渐清晰。5月14日，北京商报记者统计发现，国内67家持牌信托公司中，共计58家信托公司披露2025年度财报，其余9家未公开相关情况。 从已披露的58家信托公司财报核心数据来看，2025年信托行业整体呈现盈利温和修复、分化加剧的结构性特征，58家机构合计盈利330.8亿元。其中，平安信托以165.03亿
 
 ## 正文
 
-今日A股跳空低开低走后略有反弹，整体较为弱势。
+来源：北京商报 作者：廖蒙 董晗萱 2025年年报陆续出炉，信托业的经营轮廓逐渐清晰。
 
-截止收盘，上证指数报4027.36点，下跌2.26%，深证成指下跌3.44%，创业板指下跌4.07%。
+5月14日，北京商报记者统计发现，国内67家持牌信托公司中，共计58家信托公司披露2025年度财报，其余9家未公开相关情况。
 
-个股层面跌多涨少，不足800家上涨，超4600家下跌。
+从已披露的58家信托公司财报核心数据来看，2025年信托行业整体呈现盈利温和修复、分化加剧的结构性特征，58家机构合计盈利330.8亿元。
 
-成交方面，沪深两市成交额超3.5万亿，下跌动能仍然偏强。
+其中，平安信托以165.03亿元的营业收入位居全行业首位，同比增幅16.65%，也是58家机构中唯一营收突破百亿元的信托公司，报告期内平安信托净利润达到45.8亿元，同样居于首位。
 
-板块层面，仅半导体设备、养殖等板块较为抗跌，通信、电网、软件等板块跌幅居前。
+而盈利能力处于垫底位置的爱建信托，2025年净亏损16.25亿元。
 
-近期市场主要呈现反弹见顶后快速回落的走势。
+营收与净利润梯队差距持续拉大的同时，信托资产规模版图同步重构。
 
-上周，受美伊局势缓和及外围科技股火爆等利好因素影响，指数快速反弹并回到前期筹码密集区。
+2025年末信托资产规模排名中，中信信托以37939亿元居于首位，也是业内唯一一家管理规模突破3万亿元的机构。
 
-本周一，沪指短暂下探后强势拉升，单日最大涨幅近百点。
+58家机构中，共有9家信托公司资产规模达到万亿级别水平。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:41 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:33 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:44 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:31 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:23 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:24 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:46 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:30 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:44 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:28 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:34 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:41 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:22 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:33 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:22 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:37 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:42 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:32 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:42 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:44 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:23 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:22 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:23 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:38 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:40 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:27 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:33 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:23 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:37 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:35 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:44 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:25 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:24 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:39 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:32 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:43 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:46 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:24 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:19 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:23 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:23 - [恋与深空底线不该被娱乐化](http://www.blog.kurohicncr.top/Article/details/239044312.shtml)
+- 2026-06-29 11:44 - [Gucci全球首席营销官发肖战](https://www.blog.kurohicncr.top/Article/details/56479760.shtml)
+- 2026-06-29 11:25 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://www.blog.kurohicncr.top/Article/details/189386164424.shtml)
+- 2026-06-29 11:20 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.kurohicncr.top/Article/details/58625510.shtml)
+- 2026-06-29 11:27 - [世界杯打成了欧洲杯和美洲杯](http://www.share.kurohicncr.top/Article/details/66248179392.shtml)
+- 2026-06-29 11:18 - [Gucci全球首席营销官发肖战](http://www.share.minike.top/Article/details/6883399042.shtml)
+- 2026-06-29 11:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/650219.shtml)
+- 2026-06-29 11:40 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.blog.minike.top/Article/details/0082337.shtml)
+- 2026-06-29 11:33 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/7163971240.shtml)
+- 2026-06-29 11:37 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/4433378776.shtml)
+- 2026-06-29 11:33 - [杨紫李现16年情谊藏于行动](https://www.share.kurohicncr.top/Article/details/53615591940.shtml)
+- 2026-06-29 11:43 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/244306815.shtml)
+- 2026-06-29 11:19 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/86724.shtml)
+- 2026-06-29 11:18 - [腾讯回应做独立支付APP](http://www.share.minike.top/Article/details/2712408303.shtml)
+- 2026-06-29 11:34 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/73447593.shtml)

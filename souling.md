@@ -1,60 +1,59 @@
-# 何以中国·行走陵水：一座博物馆，藏着疍家人的耕海记忆
+# 用AI、大蒜鉴别野生菌毒性靠谱吗？专家提示
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网海南陵水6月26日电 题：何以中国·行走陵水：一座博物馆，藏着疍家人的耕海记忆 中新网记者 张茜翼 海为田，船是家。千百年来，疍家人逐水而居，在碧波之上筑起漂浮的村庄，于潮汐之间耕耘生计。他们没有土地，便将大海视为沃野；没有固定的根基，便把木船当作故土。 6月25日，参加“何以中国·行走陵水”陵水旅游文化国际传播活动的海外媒体人走进海南疍家博物馆，近距离了解这一独特的水上
+眼下正值食菌季，各地预警接连发布。如何分辨毒蘑菇？网传的大蒜试毒法靠谱吗？ 每年5月，野生菌开始大量上市。但尝鲜的同时大家需要留心，有些看着眼熟的菌子，也可能藏着风险。最近，云南昆明一家医院收治了两名野生菌中毒的患者，两人都出现了面部、双手瘙痒疼痛、皮肤红肿等症状，被确诊为菌中毒引起的光敏性皮炎。 无独有偶，广西贵港的一位村民在路边采了野生蘑菇做给家人吃，结果不到半小时，全家就
 
 ## 正文
 
-中新网海南陵水6月26日电 题：何以中国·行走陵水：一座博物馆，藏着疍家人的耕海记忆 中新网记者 张茜翼 海为田，船是家。
+眼下正值食菌季，各地预警接连发布。
 
-千百年来，疍家人逐水而居，在碧波之上筑起漂浮的村庄，于潮汐之间耕耘生计。
+如何分辨毒蘑菇？
 
-他们没有土地，便将大海视为沃野；没有固定的根基，便把木船当作故土。
+网传的大蒜试毒法靠谱吗？
 
-6月25日，参加“何以中国·行走陵水”陵水旅游文化国际传播活动的海外媒体人走进海南疍家博物馆，近距离了解这一独特的水上文化。
+每年5月，野生菌开始大量上市。
 
-变迁：从“海上村庄”到岸上人家 疍家人，是中国南方江河湖海上一个独特的水上族群。
+但尝鲜的同时大家需要留心，有些看着眼熟的菌子，也可能藏着风险。
 
-自秦汉时期起，海南疍家人的祖先便从东南沿海辗转南迁，最终停泊在渔业资源丰饶的海湾滩涂，造舟为屋，傍海而居。
+最近，云南昆明一家医院收治了两名野生菌中毒的患者，两人都出现了面部、双手瘙痒疼痛、皮肤红肿等症状，被确诊为菌中毒引起的光敏性皮炎。
 
-史料记载，至明代，疍民已广泛分布于海南岛沿海和江河地带。
+无独有偶，广西贵港的一位村民在路边采了野生蘑菇做给家人吃，结果不到半小时，全家就开始腹痛、腹泻、呕吐，还有人意识模糊，被紧急送医。
 
-靠海吃海，疍民世代以捕捞为主业，水即是耕作的“田地”。
+眼下正值食菌季，各地接连发布预警，提醒广大群众不要采摘、出售、购买、食用自己不熟悉的野生菌。
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:18 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:32 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:26 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:18 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:26 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:46 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:46 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:25 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:47 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:42 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:30 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:34 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:35 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:41 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:42 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:31 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:40 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:30 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:44 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:36 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:38 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:37 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:36 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:42 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:32 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:39 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:25 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:26 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:39 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:37 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:24 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:25 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:38 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:37 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:33 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:43 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:36 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:23 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:31 - [功率半导体缺货涨价](https://www.share.minike.top/Article/details/916449025828.shtml)
+- 2026-06-29 11:24 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/82253990.shtml)
+- 2026-06-29 11:34 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/723222433.shtml)
+- 2026-06-29 11:41 - [美加墨世界杯首支16强诞生](http://www.blog.kurohicncr.top/Article/details/395425735.shtml)
+- 2026-06-29 11:26 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/74056575709.shtml)
+- 2026-06-29 11:36 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/88822311999.shtml)
+- 2026-06-29 11:46 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/37046047.shtml)
+- 2026-06-29 11:41 - [某高校学生被辅导员等人扭送至公安](https://www.share.minike.top/Article/details/2024222.shtml)
+- 2026-06-29 11:25 - [李维嘉回应“人老了做什么都心酸”](http://www.share.minike.top/Article/details/2154995433.shtml)
+- 2026-06-29 11:42 - [热穹顶来了](http://www.blog.kurohicncr.top/Article/details/742682.shtml)
+- 2026-06-29 11:44 - [大罗力挺内马尔](https://www.blog.kurohicncr.top/Article/details/43126024.shtml)
+- 2026-06-29 11:31 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/8138367598.shtml)
+- 2026-06-29 11:19 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/815522.shtml)
+- 2026-06-29 11:19 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/949084150.shtml)
+- 2026-06-29 11:40 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/6737510.shtml)

@@ -1,56 +1,58 @@
-# “网安阵线”育人共同体在西电成立
+# （经济观察）长春打造“中国光电城”推动中国“光电版图”向北延伸
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网西安6月28日电 (阿琳娜 唐羽琴)西安电子科技大学联合全国多所高校、科研院所及行业龙头企业，26日共同发起成立“网安阵线”育人共同体，旨在深入贯彻总体国家安全观，锚定教育强国、网络强国战略目标，全面推进新时代立德树人工程，着力探索全域协同网安育人新范式。 西安电子科技大学党委书记任小龙表示，西电诞生于革命烽火，深耕密码与网络安全领域，始终主动服务国家网络安全战略。作为共
+中新网长春5月13日电 (记者 郭佳)“中国光电城”是长春现代化都市圈的“白菜心”——吉林省委书记黄强近日的这一表述，让长春在新一轮地方产业竞争中的方向愈发清晰。 最近一个月，从本土企业登陆资本市场，到新技术、新产品密集发布，“中国光电城”建设持续升温。第三届长春光博会临近，长春市官方13日组织媒体团走访当地光电信息企业，了解这颗“白菜心”如何加速生长。 前不久在港交所主板挂牌
 
 ## 正文
 
-中新网西安6月28日电 (阿琳娜 唐羽琴)西安电子科技大学联合全国多所高校、科研院所及行业龙头企业，26日共同发起成立“网安阵线”育人共同体，旨在深入贯彻总体国家安全观，锚定教育强国、网络强国战略目标，全面推进新时代立德树人工程，着力探索全域协同网安育人新范式。
+中新网长春5月13日电 (记者 郭佳)“中国光电城”是长春现代化都市圈的“白菜心”——吉林省委书记黄强近日的这一表述，让长春在新一轮地方产业竞争中的方向愈发清晰。
 
-西安电子科技大学党委书记任小龙表示，西电诞生于革命烽火，深耕密码与网络安全领域，始终主动服务国家网络安全战略。
+最近一个月，从本土企业登陆资本市场，到新技术、新产品密集发布，“中国光电城”建设持续升温。
 
-作为共同体首届理事长单位，学校将赓续红色血脉筑牢育人根基，打通校际、行业资源壁垒，推进课程、师资、实践基地共建共享，紧扣实战导向攻坚核心技术，构建“思政实战双驱、产教研学共育、校社资源联动、育人报国同向”协同育人体系，持续为国家培育“政治强、业务精、作风好”的网信铁军。
+第三届长春光博会临近，长春市官方13日组织媒体团走访当地光电信息企业，了解这颗“白菜心”如何加速生长。
 
-西安电子科技大学校长高新波表示，协同育人是破解网安人才培养瓶颈、服务网络强国战略的必然选择。
+前不久在港交所主板挂牌上市的长春长光辰芯微电子股份有限公司，近期又与高端相机品牌徕卡达成战略合作，将为下一代徕卡相机定制高性能CMOS图像传感器芯片。
 
-共同体立足总体国家安全观，面向网络安全实战需求和人才培养规律，以机制创新为核心抓手，整体推进共同体各项建设，着力构建深度融合、全面支撑的网安育人新格局。
+连日来，企业正开足马力生产。
 
-共同体将聚焦“人民防线、技术主线、联合战线”三条主线全面发力，系统部署六大专项行动与十二项培育计划，为网安领域拔尖创新人才培养提供系统性支撑，全力打造可复制推广的网安育人示范模式。
+该公司联合创始人、研发副总经理李扬表示，中国工业与科学成像行业起步稍晚，但随着国家政策持续赋能、国内企业技术实力稳步提升，国产高端图像传感器产业正迎来高速发展机遇。
 
-大会发布了共同体行动任务，举行了一系列发布仪式，以扎实行动推动政产学研用育人资源向高校汇聚。
+记者在长春长光精瓷复合材料有限公司了解到，近年来随着企业突破超轻量化碳化硅反射镜坯快速制造等关键技术，产品已应用于商业航天、航空遥感以及半导体设备领域。
 
-华为、奇安信、安恒信息等企业代表，共同点亮“网络安全校企赛事”联盟标志。
+该公司总经理助理王笑天介绍，目前，企业还积极开发碳化硅作为光电系统的焦面基板、背板、框架等新构件，扩展先进材料的应用场景，为新型光电装备的设计开发提供更丰富的方案选择。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:33 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:40 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:26 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:34 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:38 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:44 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:37 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:27 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:26 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:29 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:27 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:39 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:23 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:45 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:47 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:44 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:47 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:25 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:38 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:21 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:24 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:45 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:43 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:38 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:43 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:28 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:31 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:26 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:22 - [鬼畜区全明星拼接遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:25 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:40 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:24 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:35 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:19 - [薛之谦演唱会](https://www.share.minike.top/Article/details/141416.shtml)
+- 2026-06-29 11:33 - [夏粮收购陆续展开 质优价稳购销两旺](http://www.share.minike.top/Article/details/852545563.shtml)
+- 2026-06-29 11:31 - [王楚钦美国大满贯晋级32强](https://www.share.kurohicncr.top/Article/details/13281654.shtml)
+- 2026-06-29 11:43 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/65691.shtml)
+- 2026-06-29 11:46 - [亚洲成世界杯最大失意者联盟](http://www.share.kurohicncr.top/Article/details/08430.shtml)
+- 2026-06-29 11:23 - [下半年A股怎么走](https://www.share.minike.top/Article/details/035397873723.shtml)
+- 2026-06-29 11:47 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/96394544048.shtml)
+- 2026-06-29 11:34 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/87394783655.shtml)
+- 2026-06-29 11:36 - [周生如故](https://www.share.kurohicncr.top/Article/details/008792859.shtml)
+- 2026-06-29 11:22 - [特里：法国是世界杯夺冠热门](https://www.share.kurohicncr.top/Article/details/27677.shtml)
+- 2026-06-29 11:37 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/581539437127.shtml)
+- 2026-06-29 11:20 - [为何加快“扩编”成欧盟战略要务](https://www.share.kurohicncr.top/Article/details/7997237481.shtml)
+- 2026-06-29 11:46 - [三只羊线下课已下架](http://www.share.kurohicncr.top/Article/details/883749015055.shtml)
+- 2026-06-29 11:36 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/9599486185.shtml)
+- 2026-06-29 11:41 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.blog.kurohicncr.top/Article/details/3999018432.shtml)

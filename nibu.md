@@ -1,61 +1,60 @@
-# 委内瑞拉地震已致188人死亡、1520人受伤
+# 翼菲科技港股IPO：火爆超购难掩基本面压力 无基石无绿鞋裸奔 营收同比增长40% 但毛利率下滑亏损扩大
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新社北京6月26日电 加拉加斯消息：委内瑞拉全国代表大会主席豪尔赫·罗德里格斯当地时间25日下午说，地震已造成至少188人死亡，上千人受伤。 据委内瑞拉国家电视台报道，豪尔赫·罗德里格斯25日在新闻发布会上表示，截至当地时间25日12时，24日傍晚发生的两次强震已引发138次余震。地震目前已造成188人死亡、1520人受伤、157人失踪，逾200人被困废墟，近3000个家庭受
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：喜乐 翼菲科技（6871.HK）作为专注轻工业场景的工业机器人企业，以全系列机器人本体与综合解决方案登陆港股市场，凭借细分赛道定位与高速收入增长引发市场追捧，公开发售超额认购倍数刷新纪录，成为港股新晋“超购王”。然而在火热认购的背后，公司毛利率下滑、亏损扩大、现金流持续净
 
 ## 正文
 
-中新社北京6月26日电 加拉加斯消息：委内瑞拉全国代表大会主席豪尔赫·罗德里格斯当地时间25日下午说，地震已造成至少188人死亡，上千人受伤。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据委内瑞拉国家电视台报道，豪尔赫·罗德里格斯25日在新闻发布会上表示，截至当地时间25日12时，24日傍晚发生的两次强震已引发138次余震。
+出品：新浪财经上市公司研究院 作者：喜乐 翼菲科技（6871.HK）作为专注轻工业场景的工业机器人企业，以全系列机器人本体与综合解决方案登陆港股市场，凭借细分赛道定位与高速收入增长引发市场追捧，公开发售超额认购倍数刷新纪录，成为港股新晋“超购王”。
 
-地震目前已造成188人死亡、1520人受伤、157人失踪，逾200人被困废墟，近3000个家庭受到影响。
+然而在火热认购的背后，公司毛利率下滑、亏损扩大、现金流持续净流出、行业格局分散、竞争压力加剧等问题突出，叠加无基石、无绿鞋的“裸奔”发行结构，其长期价值与短期股价均面临严峻考验。
 
-此外，地震还造成346处建筑毁坏或受损，其中有8家医院，部分医院已开始疏散。
+排名第四市占率仅1.4% 在巨头布局的工业机器人市场中夹缝求生 翼菲科技的故事根植于中国快速增长的轻工业机器人市场。
 
-他说，受灾最严重的为拉瓜伊拉州，阿拉瓜州、卡拉沃沃州等多地也受到影响。
+根据弗若斯特沙利文报告，按2025年收入计，公司是中国专注于轻工业应用场景的工业机器人及相关解决方案供应商中排名第四的国内企业，市场份额约为1.4%。
 
-据悉，委代总统德尔西·罗德里格斯已宣布拉瓜伊拉州为“灾区”。
+公司产品广泛应用于消费电子、汽车零部件、医疗健康、快消品及半导体等领域，客户遍布全球25个国家和地区。
 
-豪尔赫·罗德里格斯还表示，预计国际救援力量将很快抵达。
+从更大的中国工业机器人市场来看，行业竞争格局极为分散，且已有多家成熟的上市公司在更广泛的工业领域布局。
 
-他同时呼吁委内瑞拉内部团结起来。
+例如，汇川技术按2025年销量计，在中国工业机器人市场整体排名第四，其SCARA机器人市占率高达28.1%；埃斯顿按2024年收入计，在全球工业机器人解决方案市场国内供应商中排名第一。
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:23 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:40 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:37 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:45 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:47 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:21 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:21 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:35 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:39 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:35 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:20 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:32 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:19 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:25 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:42 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:19 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:23 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:48 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:19 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:38 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:21 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:39 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:32 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:40 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:37 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:40 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:45 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:47 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:37 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:32 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:24 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:21 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:40 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:42 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:38 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:35 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:23 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:19 - [Mrbeast的30天不吃饭挑战](http://www.blog.kurohicncr.top/Article/details/0055281.shtml)
+- 2026-06-29 11:47 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/24796861692.shtml)
+- 2026-06-29 11:46 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/48875025.shtml)
+- 2026-06-29 11:41 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/1131786.shtml)
+- 2026-06-29 11:28 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/27796385396.shtml)
+- 2026-06-29 11:33 - [DeepSeek联合北京大学发布论文](http://www.blog.kurohicncr.top/Article/details/81796200845.shtml)
+- 2026-06-29 11:20 - [小学生叠纸青蛙跳2.52米 创世界纪录](http://www.blog.minike.top/Article/details/53756.shtml)
+- 2026-06-29 11:31 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.share.kurohicncr.top/Article/details/10536501021.shtml)
+- 2026-06-29 11:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/95544451.shtml)
+- 2026-06-29 11:24 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/0209709666.shtml)
+- 2026-06-29 11:26 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/888166189657.shtml)
+- 2026-06-29 11:28 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/881488.shtml)
+- 2026-06-29 11:47 - [【独家】牧神记 第89集 明心](https://www.blog.kurohicncr.top/Article/details/9377345616.shtml)
+- 2026-06-29 11:45 - [加拿大92分钟绝杀南非](https://www.blog.kurohicncr.top/Article/details/1389521937.shtml)
+- 2026-06-29 11:28 - [韩红携4000万物资抵呼和浩特](https://www.blog.minike.top/Article/details/71939295.shtml)

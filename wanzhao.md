@@ -1,61 +1,61 @@
-# 算力出海提速，有企业高端光模块出口暴增100倍
+# 本田汽车，史上首次年度亏损
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！财联社 据央视财经，今年前5个月，我国机电产品出口额7.58万亿元，占我国出口总值的比重达到63.6%。自2025年3月起，连续15个月刷新同期月度最高值。 记者在浙江嘉兴的一家工厂看到，这里有近1000台织布机正在织布，它是人工智能服务器中的电子布。电子布，是电子信息产业当中的关键材料。随着算力需求爆发，
+来源：央视财经 近日，日本两大汽车制造商——本田公司和日产汽车公司相继发布财报，两家公司在2025财年均出现净亏损。其中，本田公司2025财年净亏损4239亿日元（约合人民币182亿元），是该公司自1957年在东京证券交易所上市以来首次出现年度净亏损。 当地时间14日，本田公司发布的财报显示，2025财年，也就是2025年4月至2026年3月，其销售收入为21.8万亿日元（约合
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：央视财经 近日，日本两大汽车制造商——本田公司和日产汽车公司相继发布财报，两家公司在2025财年均出现净亏损。
 
-财联社 据央视财经，今年前5个月，我国机电产品出口额7.58万亿元，占我国出口总值的比重达到63.6%。
+其中，本田公司2025财年净亏损4239亿日元（约合人民币182亿元），是该公司自1957年在东京证券交易所上市以来首次出现年度净亏损。
 
-自2025年3月起，连续15个月刷新同期月度最高值。
+当地时间14日，本田公司发布的财报显示，2025财年，也就是2025年4月至2026年3月，其销售收入为21.8万亿日元（约合人民币9366亿元），同比增长0.5%；净亏损4239亿日元（约合人民币182亿元），而上一财年则实现净利润8358亿日元。
 
-记者在浙江嘉兴的一家工厂看到，这里有近1000台织布机正在织布，它是人工智能服务器中的电子布。
+出现净亏损的主要原因包括电动化战略调整、美国关税政策冲击等。
 
-电子布，是电子信息产业当中的关键材料。
+本田当天公布的业绩预测显示，电动化调整带来的损失将继续侵蚀公司利润，但幅度明显收窄，2026财年公司有望扭亏为盈。
 
-随着算力需求爆发，电子布需求也随之增加。
+此前一天，日产汽车公司发布的财报显示，受全球销量低迷、美国关税政策冲击以及通胀压力加剧等因素影响，该公司已连续两个财年出现巨额亏损。
 
-企业车间里，产线24小时满产运行。
+2025年4月至2026年3月的财年内，日产汽车净亏损5331亿日元（约合人民币230亿元）。
 
-今年以来，和算力有关的相关产品加速出海。
+上一财年净亏损为6709亿日元。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:20 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:41 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:18 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:42 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:41 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:43 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:45 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:24 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:33 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:36 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:20 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:25 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:27 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:29 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:43 - [换个角度打开世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:23 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:40 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:20 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:46 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:25 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:24 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:24 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:29 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:28 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:24 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:45 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:20 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:34 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:43 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:22 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:37 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:38 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:41 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:45 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:21 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:43 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:26 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:34 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/1787288874.shtml)
+- 2026-06-29 11:21 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/21551.shtml)
+- 2026-06-29 11:45 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/1860489.shtml)
+- 2026-06-29 11:38 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/675524.shtml)
+- 2026-06-29 11:31 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/188808944757.shtml)
+- 2026-06-29 11:39 - [世界杯打成了欧洲杯和美洲杯](http://www.blog.kurohicncr.top/Article/details/957272524215.shtml)
+- 2026-06-29 11:46 - [《给阿嬷的情书》里的情义与守望](https://www.share.kurohicncr.top/Article/details/73378945.shtml)
+- 2026-06-29 11:38 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/376434572.shtml)
+- 2026-06-29 11:35 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/3493217994.shtml)
+- 2026-06-29 11:19 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/9009466.shtml)
+- 2026-06-29 11:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/78742008612.shtml)
+- 2026-06-29 11:37 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/36737243.shtml)
+- 2026-06-29 11:38 - [韩红携4000万物资抵呼和浩特](https://www.share.kurohicncr.top/Article/details/82266500309.shtml)
+- 2026-06-29 11:31 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/9236464.shtml)
+- 2026-06-29 11:47 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/15588811071.shtml)

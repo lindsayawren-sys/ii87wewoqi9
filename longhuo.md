@@ -1,56 +1,57 @@
-# 上海浦东首发三项气候韧性产品
+# 本田放弃电动汽车销售目标，无限期暂停加拿大电动汽车项目
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网上海6月25日电 (高志苗 李姝徵)“融绿赋能 韧性筑基”浦东新区气候投融资推介会暨“碳·气象”产品首发会25日举行。本次大会集中发布的三项气候韧性创新成果，涵盖保险创新、气候风险管理与韧性挂钩贷款等领域，分别从风险对冲、风险管理和价值激励三个维度，构建起覆盖企业全生命周期的气候金融服务链条。 三项成果着力打通金融资本与绿色产业的通道，让资金精准流向气候韧性项目，让资源高
+本田汽车周四公布了其上市近70年来的首次年度亏损，主要原因是受到美国关税以及超过90亿美元的电动汽车业务重组成本的影响。 截至3月份的财年，本田汽车的营业亏损总额为4143亿日元（约合26.3亿美元），而上年同期为盈利1.2万亿日元。 本田汽车首席执行官三部敏宏周四表示，该公司将放弃原定的2030年电动汽车销量占新车销量五分之一的目标，以及到2040年全面转型为电动或燃料电池汽
 
 ## 正文
 
-中新网上海6月25日电 (高志苗 李姝徵)“融绿赋能 韧性筑基”浦东新区气候投融资推介会暨“碳·气象”产品首发会25日举行。
+本田汽车周四公布了其上市近70年来的首次年度亏损，主要原因是受到美国关税以及超过90亿美元的电动汽车业务重组成本的影响。
 
-本次大会集中发布的三项气候韧性创新成果，涵盖保险创新、气候风险管理与韧性挂钩贷款等领域，分别从风险对冲、风险管理和价值激励三个维度，构建起覆盖企业全生命周期的气候金融服务链条。
+截至3月份的财年，本田汽车的营业亏损总额为4143亿日元（约合26.3亿美元），而上年同期为盈利1.2万亿日元。
 
-三项成果着力打通金融资本与绿色产业的通道，让资金精准流向气候韧性项目，让资源高效衔接，让投资经得起气候风险检验。
+本田汽车首席执行官三部敏宏周四表示，该公司将放弃原定的2030年电动汽车销量占新车销量五分之一的目标，以及到2040年全面转型为电动或燃料电池汽车销售的目标。
 
-据介绍，这是浦东新区在气候投融资领域的持续深耕，也是以金融创新赋能超大城市韧性治理的又一次“浦东突破”。
+三部敏宏还表示，本田将无限期暂停其在加拿大的电动汽车项目。
 
-“光伏项目挂钩高温指数碳资产损失保障保险”—针对光伏项目因极端高温导致发电效率下降、碳资产收益缩水的痛点，将高温指数与碳资产损失挂钩，实现“高温触发、自动赔付”，让气候风险“有价可保、有险可防”。
+该项目是一项投资110亿美元的计划，旨在生产电动汽车和电池，原本将成为这家日本公司在加拿大的最大投资项目。
 
-该产品实现了上海市碳资产气象风险市场化对冲工具“从无到有”的突破，可覆盖上海碳普惠已公示的17批近千个分布式光伏项目，未来有望拓展至全国范围，为全国超51%的可再生能源提供气候风险保障。
+本田在截至3月份的财年计入了与电动汽车相关的1.45万亿日元亏损，并预计本财年将面临5000亿日元的额外成本。
 
-“天枢”金融机构气候物理风险管理服务—在全国率先实现气象数据、征信数据与金融信贷的体系化融合，将高精度气候风险评估嵌入银行贷前、贷中、贷后全流程，让过去“看不见、说不清”的气候风险变得可量化、可追踪、可管控。
+该公司预计，原材料价格上涨（包括中东冲突的影响）将导致其本财年营业利润减少3130亿日元。
 
-未来将面向银行、保险、资管等金融机构提供服务。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:18 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:44 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:19 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:43 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:36 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:25 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:22 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:27 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:20 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:25 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:47 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:44 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:33 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:25 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:45 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:44 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:33 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:39 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:40 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:18 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:26 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:44 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:43 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:28 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:44 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:35 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:25 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:41 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:39 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:25 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:23 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:28 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:35 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/52264681.shtml)
+- 2026-06-29 11:26 - [韩国队是怎么把自己“作死”的](https://www.blog.minike.top/Article/details/005695.shtml)
+- 2026-06-29 11:20 - [天津打雷](http://www.blog.kurohicncr.top/Article/details/002606015.shtml)
+- 2026-06-29 11:42 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/15751084.shtml)
+- 2026-06-29 11:27 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.kurohicncr.top/Article/details/233946.shtml)
+- 2026-06-29 11:47 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/33865505.shtml)
+- 2026-06-29 11:33 - [男子在家一丝不挂 邻居拍照发业主群](http://www.blog.kurohicncr.top/Article/details/95517.shtml)
+- 2026-06-29 11:31 - [中国U17男篮78-87加拿大U17男篮](https://www.blog.kurohicncr.top/Article/details/1610862.shtml)
+- 2026-06-29 11:33 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/531755.shtml)
+- 2026-06-29 11:23 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/19535215.shtml)
+- 2026-06-29 11:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/311174766757.shtml)
+- 2026-06-29 11:40 - [去美国加油？部分加拿大球迷陷入纠结](https://www.share.minike.top/Article/details/68786.shtml)
+- 2026-06-29 11:33 - [河南一考生高考703分](https://www.blog.minike.top/Article/details/7287053.shtml)
+- 2026-06-29 11:42 - [换个角度打开世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/25362717460.shtml)
+- 2026-06-29 11:45 - [白玉兰最佳女主角提名片段](https://www.share.kurohicncr.top/Article/details/60386001.shtml)

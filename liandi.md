@@ -1,52 +1,59 @@
-# 美国称对伊朗目标发动打击 以回应此前船只遇袭
+# 夏国治同志逝世
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-美国中央司令部在社交平台X发文称，美军于“6月26日对伊朗实施打击，以有力回应前一日一艘途经霍尔木兹海峡的商船遭袭”。 贴文称，美国“战机打击了伊朗的导弹和无人机储存地点以及沿海雷达站”。 贴文还称，美国“军方保持存在并保持警惕，以确保与伊朗协议的所有方面都得到遵守和执行，并全面有效”。责任编辑：丁文武
+新华社北京5月13日电 原地质矿产部副部长、党组成员夏国治同志，因病于2026年4月28日在北京逝世，享年97岁。 夏国治同志逝世后，中央有关领导同志以不同方式表示哀悼并向其亲属表示慰问。 夏国治，1928年6月生，河北唐山人。1949年1月加入中国共产党并参加革命工作。1949年1月至1952年9月先后任北平市立第二高中学生党支部书记，清华大学理学院党支部书记、团总支书记等。
 
 ## 正文
 
-美国中央司令部在社交平台X发文称，美军于“6月26日对伊朗实施打击，以有力回应前一日一艘途经霍尔木兹海峡的商船遭袭”。
+新华社北京5月13日电 原地质矿产部副部长、党组成员夏国治同志，因病于2026年4月28日在北京逝世，享年97岁。
 
-贴文称，美国“战机打击了伊朗的导弹和无人机储存地点以及沿海雷达站”。
+夏国治同志逝世后，中央有关领导同志以不同方式表示哀悼并向其亲属表示慰问。
 
-贴文还称，美国“军方保持存在并保持警惕，以确保与伊朗协议的所有方面都得到遵守和执行，并全面有效”。
+夏国治，1928年6月生，河北唐山人。
 
-责任编辑：丁文武
+1949年1月加入中国共产党并参加革命工作。
+
+1949年1月至1952年9月先后任北平市立第二高中学生党支部书记，清华大学理学院党支部书记、团总支书记等。
+
+1952年9月至1969年3月先后任地质部物探学习班学员、科技司技术处主任工程师等。
+
+1969年3月至1970年9月下放地质部“五七”干校劳动。
+
+1970年9月至1974年7月先后任黑龙江省地质局物探工程师、地质组负责人等。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:31 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:26 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:46 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:24 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:29 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:44 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:19 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:46 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:22 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:36 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:35 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:30 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:28 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:38 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:27 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:45 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:35 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:28 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:31 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:37 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:40 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:31 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:48 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:26 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:26 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:44 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:39 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:18 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:29 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:38 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:20 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:31 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:47 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:31 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:34 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:45 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:22 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:20 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:45 - [刘烨赶紧蹭个热度宣传四渡](http://www.blog.kurohicncr.top/Article/details/012358810860.shtml)
+- 2026-06-29 11:47 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/7749932232.shtml)
+- 2026-06-29 11:23 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/46252245.shtml)
+- 2026-06-29 11:24 - [温峥嵘直播回应恶评](https://www.share.minike.top/Article/details/55628045817.shtml)
+- 2026-06-29 11:19 - [三只羊大杨哥不直播改卖课](http://www.share.minike.top/Article/details/4641228950.shtml)
+- 2026-06-29 11:23 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/63246180.shtml)
+- 2026-06-29 11:29 - [初心如磐 红色足迹](https://www.blog.kurohicncr.top/Article/details/8488571016.shtml)
+- 2026-06-29 11:26 - [林诗栋晋级WTT美国大满贯男单32强](https://www.share.minike.top/Article/details/5339664403.shtml)
+- 2026-06-29 11:37 - [这位猫咪，请你自重！](https://www.blog.minike.top/Article/details/9363689952.shtml)
+- 2026-06-29 11:39 - [DSpark论文深度解读](http://www.share.kurohicncr.top/Article/details/41416554.shtml)
+- 2026-06-29 11:44 - [宜宾地震后顾客折返用餐0人逃单](https://www.blog.minike.top/Article/details/6143304509.shtml)
+- 2026-06-29 11:32 - [三轮车被自家狗“推”进池塘](http://www.blog.kurohicncr.top/Article/details/766472890569.shtml)
+- 2026-06-29 11:43 - [立陶宛为何此时生变](https://www.blog.kurohicncr.top/Article/details/6138285.shtml)
+- 2026-06-29 11:24 - [美加墨世界杯首支16强诞生](https://www.blog.minike.top/Article/details/03210185.shtml)
+- 2026-06-29 11:19 - [韩国队启程回国众将回避镜头](http://www.blog.minike.top/Article/details/6012649134.shtml)

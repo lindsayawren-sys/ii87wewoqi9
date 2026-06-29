@@ -1,60 +1,61 @@
-# 重要突破！周末利好来了！万亿赛道核聚变堆超导磁体，传出重磅消息
+# 河南发布微短剧行业AI技术应用自律公约
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！万亿级赛道迎来好消息！ 据央视新闻、新华社等媒体报道，我国核聚变堆超导磁体研发取得重要突破。今日（6月27日），国家重大科技基础设施“聚变堆主机关键系统综合研究设施”最大的超导部件——环向场磁体完成最后制备工艺，并通过专家验收。同时，高温超导中心螺管线圈磁体也完成满工况参数测试，核心性能达到国际领先水准。
+中新网郑州5月13日电 (记者 韩章云)《河南省微短剧行业AI技术应用自律公约》(以下简称《公约》)13日在河南郑州发布，旨在引领河南微短剧产业迈入规范、健康发展新阶段。 近年来，河南微短剧发展势头迅猛。当前，AI技术在微短剧行业广泛应用，在多个环节实现降本增效。不过，AI技术应用在版权保护、伦理道德方面的争议不断。 基于此，由河南省视听业协会短视频短片工作委员会制定的《公约》
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网郑州5月13日电 (记者 韩章云)《河南省微短剧行业AI技术应用自律公约》(以下简称《公约》)13日在河南郑州发布，旨在引领河南微短剧产业迈入规范、健康发展新阶段。
 
-万亿级赛道迎来好消息！
+近年来，河南微短剧发展势头迅猛。
 
-据央视新闻、新华社等媒体报道，我国核聚变堆超导磁体研发取得重要突破。
+当前，AI技术在微短剧行业广泛应用，在多个环节实现降本增效。
 
-今日（6月27日），国家重大科技基础设施“聚变堆主机关键系统综合研究设施”最大的超导部件——环向场磁体完成最后制备工艺，并通过专家验收。
+不过，AI技术应用在版权保护、伦理道德方面的争议不断。
 
-同时，高温超导中心螺管线圈磁体也完成满工况参数测试，核心性能达到国际领先水准。
+基于此，由河南省视听业协会短视频短片工作委员会制定的《公约》出台，旨在规范人工智能技术在微短剧、漫剧、微综艺等领域的健康向善、有序创新应用，有效防范技术滥用、内容失范、权益侵害等风险。
 
-核聚变能被认为是未来的“终极能源”，虽然距离大规模商业发电还有技术难关需要攻克，但未来市场规模预期将达到万亿级别。
+《公约》由总则与导向、版权保护与原创尊重、人格权益与技术边界、用工规范与权益保障、公开明示与用户知情等部分组成。
 
-有券商指出，可控核聚变已进入政策支持、技术突破、资本涌入三重共振的产业化加速期。
+《公约》明确，严禁利用AI技术实施抄袭、洗稿、盗版、盗播、无授权改编、侵权搬运等行为，积极倡导原创、尊重原创、保护原创。
 
-重要突破 据新华社报道，6月27日，中国科学院合肥物质科学研究院等离子体物理研究所“人造太阳”项目取得最新进展，环向场超导磁体、高温超导中心螺管线圈等两套聚变堆关键超导磁体先后完成研制验收与满参数测试，核心技术实现100%国产化，综合性能跃升至国际前列。
+严格保护自然人肖像权、姓名权、声音权、名誉权等人格权益。
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:39 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:32 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:38 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:35 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:44 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:22 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:29 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:24 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:29 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:37 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:29 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:37 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:31 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:25 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:20 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:40 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:44 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:26 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:32 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:48 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:45 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:39 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:44 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:42 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:45 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:33 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:45 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:19 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:40 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:29 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:42 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:44 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:19 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:23 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:30 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:26 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:24 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:32 - [宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/043895963511.shtml)
+- 2026-06-29 11:38 - [三只羊线下课已下架](https://www.share.kurohicncr.top/Article/details/36438.shtml)
+- 2026-06-29 11:24 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/329767066082.shtml)
+- 2026-06-29 11:44 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/043725172.shtml)
+- 2026-06-29 11:32 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/92478038.shtml)
+- 2026-06-29 11:28 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/6704972881.shtml)
+- 2026-06-29 11:25 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/16495.shtml)
+- 2026-06-29 11:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/714037710546.shtml)
+- 2026-06-29 11:21 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/6338131.shtml)
+- 2026-06-29 11:43 - [晋城暴雨车辆被淹冰箱在水中漂](http://www.share.minike.top/Article/details/93648242.shtml)
+- 2026-06-29 11:36 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/53671172444.shtml)
+- 2026-06-29 11:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/9337539.shtml)
+- 2026-06-29 11:48 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/633387412476.shtml)
+- 2026-06-29 11:46 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/172586.shtml)
+- 2026-06-29 11:37 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/7897357613.shtml)

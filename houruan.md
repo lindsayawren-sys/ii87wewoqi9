@@ -1,57 +1,61 @@
-# 哈铁“悠享龙江·球迷专列”再出发 铁旅融合服务“东北超”
+# 澳门中学师生走进华侨大学体验中华传统文化
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月27日电 (孙涛)27日9时41分，近500名黑龙江球迷乘坐D544/5次动车组列车从黑龙江哈尔滨西站出发，前往吉林延吉西站，为“东北超”联赛哈尔滨队客场对阵延吉队的比赛加油助威。这是中国铁路哈尔滨局集团有限公司(以下简称“哈尔滨局集团公司”)继保障首轮赛事期间球迷顺利出行，再次为“东北超”球迷量身定制的专属运输服务。 随着暑期文旅消费旺季的到来，民众出行意愿持
+中新社泉州5月14日电 (记者 孙虹)澳门濠江中学逾500名师生14日到访华侨大学泉州校区，体验内地高校丰富多彩的校园文化。 澳门濠江中学副校长陈虹告诉中新社记者，此次共组织480多名中学生和20多名老师参观走访华侨大学、体验感受中华优秀传统文化，在交流互动中增进彼此的了解。 作为华侨大学中文系1985级校友，陈虹还担任华侨大学第七届至第九届董事会董事。她说，华大以包容开放的校
 
 ## 正文
 
-中新网哈尔滨6月27日电 (孙涛)27日9时41分，近500名黑龙江球迷乘坐D544/5次动车组列车从黑龙江哈尔滨西站出发，前往吉林延吉西站，为“东北超”联赛哈尔滨队客场对阵延吉队的比赛加油助威。
+中新社泉州5月14日电 (记者 孙虹)澳门濠江中学逾500名师生14日到访华侨大学泉州校区，体验内地高校丰富多彩的校园文化。
 
-这是中国铁路哈尔滨局集团有限公司(以下简称“哈尔滨局集团公司”)继保障首轮赛事期间球迷顺利出行，再次为“东北超”球迷量身定制的专属运输服务。
+澳门濠江中学副校长陈虹告诉中新社记者，此次共组织480多名中学生和20多名老师参观走访华侨大学、体验感受中华优秀传统文化，在交流互动中增进彼此的了解。
 
-随着暑期文旅消费旺季的到来，民众出行意愿持续增强，文体旅融合消费需求旺盛。
+作为华侨大学中文系1985级校友，陈虹还担任华侨大学第七届至第九届董事会董事。
 
-恰逢“东北超”联赛激战正酣，球迷跨城观赛热情高涨。
+她说，华大以包容开放的校园氛围融通中外并重视中华优秀传统文化传承，希望此行能带给澳门中学生不一样的体验。
 
-哈尔滨局集团公司精准对接需求，再次开行“悠享龙江·球迷专列”，通过定制化运输服务激活暑期消费市场。
+当天，澳门中学生们观看了华侨大学二十四节令鼓、舞龙、舞狮、街舞等表演，并参与互动体验。
 
-为保障此次球迷团体顺畅出行，哈尔滨局集团公司对哈尔滨西——延吉西的D544/5次列车实施动车组重联运行，有效扩充运能。
+华大舞龙队队员带着澳门小朋友合作舞龙，“巨龙”时而腾空而起，时而俯冲而下，时而盘旋飞舞，引起阵阵欢呼。
 
-为确保球迷团队有序、快速乘车，哈尔滨西站优化进站流线，开辟专用安检通道和候车区域，并组织青年志愿者在站台、电梯口等关键点位提供全程引导。
+今年14岁的古乐怡告诉中新社记者，这是她第一次到泉州，通过与华侨大学的哥哥姐姐们合作，既体会到团结协作的力量，也加深了对中华传统文化的喜爱。
 
-列车上，担当乘务工作的哈尔滨客运段精心打造足球主题车厢。
+作为中国拥有港澳台侨学生最多的高校之一，华侨大学目前有在校澳门学生1197名。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:24 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:20 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:47 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:23 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:42 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:25 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:32 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:30 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:29 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:42 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:39 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:24 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:25 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:24 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:44 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:29 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:24 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:35 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:27 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:35 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:39 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:45 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:29 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:43 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:41 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:26 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:25 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:29 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:22 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:43 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:29 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:21 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:36 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:28 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:37 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:39 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:29 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/2170356458.shtml)
+- 2026-06-29 11:42 - [球迷玩人浪手机飞了](https://www.share.kurohicncr.top/Article/details/7966832.shtml)
+- 2026-06-29 11:38 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/838317620.shtml)
+- 2026-06-29 11:27 - [《给阿嬷的情书》里的情义与守望](https://www.share.kurohicncr.top/Article/details/60110.shtml)
+- 2026-06-29 11:34 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/28382.shtml)
+- 2026-06-29 11:48 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/03259888.shtml)
+- 2026-06-29 11:34 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/9698365930.shtml)
+- 2026-06-29 11:41 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/1224142.shtml)
+- 2026-06-29 11:19 - [韩国政府将对世界杯出局追责](http://www.share.kurohicncr.top/Article/details/1765651.shtml)
+- 2026-06-29 11:19 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.minike.top/Article/details/0840260767.shtml)
+- 2026-06-29 11:24 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/32641.shtml)
+- 2026-06-29 11:32 - [李在明要调查韩国队出局原因](http://www.share.kurohicncr.top/Article/details/2408242.shtml)
+- 2026-06-29 11:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/84334879.shtml)
+- 2026-06-29 11:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/580143683300.shtml)
+- 2026-06-29 11:42 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/568085.shtml)

@@ -1,56 +1,56 @@
-# 密歇根大学调查：消费者信心回升，通胀预期有所好转
+# 旺季预期点燃行情！氟化工集体飙涨，华宝基金化工ETF（516020）逆市涨超1%！资金抢筹势头凶猛
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-密歇根大学于周四发布的数据显示，6 月末美国消费者信心指数有所回升，但仍处于低位，同时长期通胀预期大幅回落。 该校消费者调查数据显示，消费者信心总指数录得 49.5，略高于道琼斯一致预期的 49.0，较 5 月数值上涨 10.5%。现况指数与未来预期指数两项分项指标同样悉数走高。 五年期长期通胀预期大幅下行，降至 3.3%，较上月回落 0.6 个百分点；受短期价格波动影响较大的
+化工板块今日（5月15日）吹响反攻号角。反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速拉升，盘中场内价格最高涨幅达到1.68%，随后有所回落，截至发稿，逆市涨0.63%。 成份股方面，氟化工集体飙涨，锂电、磷化工等板块部分个股亦表现亮眼。截至发稿，多氟多飙涨超9%，巨化股份涨超6%，三美股份涨超5%，天赐材料、云天化等亦涨幅居前。 资金面上，基础化工板块今日大举
 
 ## 正文
 
-密歇根大学于周四发布的数据显示，6 月末美国消费者信心指数有所回升，但仍处于低位，同时长期通胀预期大幅回落。
+化工板块今日（5月15日）吹响反攻号角。
 
-该校消费者调查数据显示，消费者信心总指数录得 49.5，略高于道琼斯一致预期的 49.0，较 5 月数值上涨 10.5%。
+反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速拉升，盘中场内价格最高涨幅达到1.68%，随后有所回落，截至发稿，逆市涨0.63%。
 
-现况指数与未来预期指数两项分项指标同样悉数走高。
+成份股方面，氟化工集体飙涨，锂电、磷化工等板块部分个股亦表现亮眼。
 
-五年期长期通胀预期大幅下行，降至 3.3%，较上月回落 0.6 个百分点；受短期价格波动影响较大的一年期通胀预期为 4.6%，较 5 月下降 0.2 个百分点。
+截至发稿，多氟多飙涨超9%，巨化股份涨超6%，三美股份涨超5%，天赐材料、云天化等亦涨幅居前。
 
-调查负责人乔安妮・许表示：“随着消费者对伊朗冲突长期负面影响的担忧逐步缓解，民众对未来五年商业景气度的预期大幅攀升 16%。
+资金面上，基础化工板块今日大举吸金。
 
-不过当前消费者信心依旧偏弱，较伊朗冲突爆发前 2026 年 2 月的数值低 13%，同比去年更是回落近 20%。
+数据显示，截至发稿，基础化工板块单日获主力资金净流入额已超过53亿元，净流入额在30个中信一级行业中高居首位。
 
-”责任编辑：郭明煜
+消息面上，当前制冷剂市场维持高位盘整格局，厂商挺价心态坚决。
+
+随着传统旺季脚步临近，终端需求回暖预期强烈，为行情上行提供支撑。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:34 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:21 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:19 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:29 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:36 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:34 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:41 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:31 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:21 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:28 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:33 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:34 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:26 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:34 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:20 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:36 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:20 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:25 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:20 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:35 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:19 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:21 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:27 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:19 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:27 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:28 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:24 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:32 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:22 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:28 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:20 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:35 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:41 - [《昨夜将至》为何是悬疑黑马](https://www.blog.minike.top/Article/details/39998.shtml)
+- 2026-06-29 11:25 - [啊啊啊](https://www.share.minike.top/Article/details/8783626012.shtml)
+- 2026-06-29 11:32 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/47756.shtml)
+- 2026-06-29 11:48 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.kurohicncr.top/Article/details/32587749.shtml)
+- 2026-06-29 11:40 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/4645216424.shtml)
+- 2026-06-29 11:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/02582706.shtml)
+- 2026-06-29 11:34 - [小娘惹](https://www.share.minike.top/Article/details/1811988.shtml)
+- 2026-06-29 11:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/242571338946.shtml)
+- 2026-06-29 11:47 - [女心理师](http://www.blog.kurohicncr.top/Article/details/13254817006.shtml)
+- 2026-06-29 11:29 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/5025658724.shtml)
+- 2026-06-29 11:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/989802627436.shtml)
+- 2026-06-29 11:31 - [黄灿灿恭喜自己拿到全季通告费](https://www.share.kurohicncr.top/Article/details/852203.shtml)
+- 2026-06-29 11:36 - [大罗力挺内马尔](http://www.blog.minike.top/Article/details/09683392.shtml)
+- 2026-06-29 11:32 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/219568.shtml)
+- 2026-06-29 11:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/607469955.shtml)

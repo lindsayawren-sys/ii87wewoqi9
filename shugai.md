@@ -1,56 +1,54 @@
-# MBA薪酬不断下滑，学位需求亦随之降温
+# 福特大涨13% 创逾六年最大涨幅 分析师看好其与宁德时代合作带来的优势
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-在这个毕业季，许多新晋MBA毕业生发现，职位空缺变少了，起薪也降了。一份新报告显示，今年工商管理硕士（MBA）学位持有者的起薪中位数预计将从2025年的12.5万美元降至12万美元。该数据来自管理专业研究生入学委员会（Graduate Management Admission Council）对600多名企业招聘人员进行的一项调查；该委员会是一个由228所商学院组成的非营利协会
+福特汽车周三股价大涨，此前摩根士丹利分析师表示，看好这家汽车制造商的储能业务可能很快会与超大规模数据中心运营商达成协议。 该股收涨13%，创2020年3月以来最大单日涨幅，并帮助该股今年以来变幅转为正值。 摩根士丹利分析师Andrew Percoco表示，“我们认为，福特在未来几个月内与大型商业客户，甚至可能是超大规模数据中心运营商签署储能系统供应协议的可能性相当高。” 分析师
 
 ## 正文
 
-在这个毕业季，许多新晋MBA毕业生发现，职位空缺变少了，起薪也降了。
+福特汽车周三股价大涨，此前摩根士丹利分析师表示，看好这家汽车制造商的储能业务可能很快会与超大规模数据中心运营商达成协议。
 
-一份新报告显示，今年工商管理硕士（MBA）学位持有者的起薪中位数预计将从2025年的12.5万美元降至12万美元。
+该股收涨13%，创2020年3月以来最大单日涨幅，并帮助该股今年以来变幅转为正值。
 
-该数据来自管理专业研究生入学委员会（Graduate Management Admission Council）对600多名企业招聘人员进行的一项调查；该委员会是一个由228所商学院组成的非营利协会。
+摩根士丹利分析师Andrew Percoco表示，“我们认为，福特在未来几个月内与大型商业客户，甚至可能是超大规模数据中心运营商签署储能系统供应协议的可能性相当高。
 
-招聘人员还预测，其他商科硕士学位持有者的年薪将下滑约10%，从9.25万美元降至8.25万美元。
+” 分析师在周二晚些时候发布的一份致客户的报告中写道，这家总部位于密歇根州迪尔伯恩的公司与宁德时代的协议“为其储能业务提供了被低估的战略竞争优势”。
 
-新晋MBA毕业生的就业前景也充满了不确定性。
+Percoco估计福特能源业务的价值可能达到100亿美元，并且认为随着该公司执行产能扩张计划并开始建立稳定的订单储备，其估值有机会接近特斯拉能源业务的水平。
 
-去年毕业季过后，即使是一些顶尖的MBA毕业生在离校数月后也难以找到工作。
+福特首席财务官Sherry House在4月29日与分析师的财报电话会议上表示，该公司今年将在储能业务投资15亿美元，她将之描述为“高回报增长机会”。
 
-今年，超过三分之一的受访雇主表示，他们计划招聘比去年更多的MBA毕业生。
-
-而在2025年，受访雇主中最终实际招聘MBA人数超过前一年的比例只有13%。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:23 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:44 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:27 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:32 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:46 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:36 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:32 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:23 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:47 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:24 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:43 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:31 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:48 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:25 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:35 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:43 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:41 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:38 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:28 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:41 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:41 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:32 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:44 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:45 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:37 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:24 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:25 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:43 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:30 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:42 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:28 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:40 - [世界杯用球成部分门将噩梦](http://www.blog.kurohicncr.top/Article/details/750846834383.shtml)
+- 2026-06-29 11:24 - [流金岁月](https://www.blog.minike.top/Article/details/71399.shtml)
+- 2026-06-29 11:45 - [恋与深空底线不该被娱乐化](http://www.blog.minike.top/Article/details/1505559.shtml)
+- 2026-06-29 11:46 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/2645329.shtml)
+- 2026-06-29 11:42 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/80661.shtml)
+- 2026-06-29 11:46 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/99797152813.shtml)
+- 2026-06-29 11:31 - [刘宇宁现偶我就不要了](https://www.share.kurohicncr.top/Article/details/00499.shtml)
+- 2026-06-29 11:44 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/3983064.shtml)
+- 2026-06-29 11:19 - [换个角度打开世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/306655864640.shtml)
+- 2026-06-29 11:32 - [TOP 无畏契约](http://www.share.minike.top/Article/details/6987270.shtml)
+- 2026-06-29 11:41 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/96601715046.shtml)
+- 2026-06-29 11:21 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.share.minike.top/Article/details/39911053037.shtml)
+- 2026-06-29 11:21 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/9261556672.shtml)
+- 2026-06-29 11:44 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/0877812294.shtml)
+- 2026-06-29 11:36 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/60163759.shtml)

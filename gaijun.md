@@ -1,60 +1,60 @@
-# 定位生态高地中心城市 青海西宁布局“十五五”生态保护新路径
+# 创新的力量：视听传播如何实现“从点到链”的变革？
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网西宁6月27日电 (记者 孙睿)26日，青海省“开局起步‘十五五’”主题系列新闻发布会西宁市专场召开。青海省西宁市副市长韩兴斌详解未来五年，西宁生态环保整体布局。 据悉，“十四五”期间，西宁市生态环境改善成效显著。立足新阶段，西宁明确了“打造生态文明高地上的中心城市”核心定位。 韩兴斌介绍，西宁将统筹推进山水林田湖草沙一体化保护与修复，实施“三北”工程六期及国土绿化行动，
+中新网北京5月13日电(记者 郎朗)随着技术的发展，视听传播的系统性变革也进入新阶段。5月12日，第六届中国(北京)广电媒体融合发展大会上，“创新的力量——视听传播创新主题研讨”汇聚多位专家学者，围绕视听传播的系统性变革展开深入对话。 内容创新：在变革中坚守价值内核 无论技术如何迭代，内容的高价值与正能量始终是视听传播的根基。 北京大学视听传播研究中心主任陆地教授提出，中国媒体
 
 ## 正文
 
-中新网西宁6月27日电 (记者 孙睿)26日，青海省“开局起步‘十五五’”主题系列新闻发布会西宁市专场召开。
+中新网北京5月13日电(记者 郎朗)随着技术的发展，视听传播的系统性变革也进入新阶段。
 
-青海省西宁市副市长韩兴斌详解未来五年，西宁生态环保整体布局。
+5月12日，第六届中国(北京)广电媒体融合发展大会上，“创新的力量——视听传播创新主题研讨”汇聚多位专家学者，围绕视听传播的系统性变革展开深入对话。
 
-据悉，“十四五”期间，西宁市生态环境改善成效显著。
+内容创新：在变革中坚守价值内核 无论技术如何迭代，内容的高价值与正能量始终是视听传播的根基。
 
-立足新阶段，西宁明确了“打造生态文明高地上的中心城市”核心定位。
+北京大学视听传播研究中心主任陆地教授提出，中国媒体经历了自身融合、与互联网融合、与社会融合三次大规模变革，但“万变不离其宗，内容要是高价值、正能量”。
 
-韩兴斌介绍，西宁将统筹推进山水林田湖草沙一体化保护与修复，实施“三北”工程六期及国土绿化行动，持续提升森林覆盖率与水土保持率。
+他认为，内容创新的核心在于通过新连接、新转化、新表达为用户创造深刻体验，而价值观则是“内容产业的操作系统和终极过滤器”，决定着创新的方向与用户的认同。
 
-推动城市优质生态资源与治理成果向乡村延伸，加快城镇污水管网向农村覆盖。
+在技术冲击下，纪实表达并未被削弱，反而获得新的可能。
 
-巩固全域原生生活垃圾“零填埋”成果，完善环青海湖地区生活垃圾跨区域协同处理机制。
+国家广电总局发展研究中心战略研究所所长赵捷指出，人工智能正在推动纪录片从“局部优化”走向“系统重构”。
 
-持续攻坚“西宁蓝”提质行动，推进湟水流域水环境综合治理，实施国家“美丽河湖”保护与建设工程，精心打造南川河“幸福河湖”项目；加快雨污分流改造与排污口精细化管理，不断提升污水污泥处理效能，确保国省控断面水质稳定达标，将湟水河打造成全国流域生态治理标杆；深化“无废城市”建设，推动工业固体废物综合利用率持续跃升，全方位筑牢高原生态安全屏障。
+他举例说，《吴越国》《神遇：当苏格拉底遇上孔子》等作品借助AI让历史场景和思想对话变得可感可及。
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:22 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:40 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:44 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:37 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:37 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:39 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:33 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:34 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:43 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:36 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:47 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:29 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:41 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:38 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:47 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:35 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:33 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:38 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:44 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:20 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:41 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:18 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:33 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:22 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:20 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:23 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:23 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:43 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:25 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:32 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:32 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:22 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:37 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:39 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:37 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:24 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:19 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/370378.shtml)
+- 2026-06-29 11:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/4621764002.shtml)
+- 2026-06-29 11:22 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/44809861591.shtml)
+- 2026-06-29 11:37 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/11199.shtml)
+- 2026-06-29 11:35 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.kurohicncr.top/Article/details/757110.shtml)
+- 2026-06-29 11:37 - [伊朗队球员哭诉：这届世界杯是场灾难](http://www.blog.kurohicncr.top/Article/details/463536956116.shtml)
+- 2026-06-29 11:24 - [加拿大队史淘汰赛首胜](http://www.blog.kurohicncr.top/Article/details/1150274.shtml)
+- 2026-06-29 11:24 - [全球首发核电站彩蛋攻略](http://www.share.kurohicncr.top/Article/details/3379553.shtml)
+- 2026-06-29 11:45 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/20839636.shtml)
+- 2026-06-29 11:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/3971861.shtml)
+- 2026-06-29 11:34 - [乌拉圭出局之路](http://www.share.minike.top/Article/details/38057993.shtml)
+- 2026-06-29 11:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/90006397.shtml)
+- 2026-06-29 11:21 - [委内瑞拉地震死亡人数升至1450人](https://www.blog.kurohicncr.top/Article/details/453907724080.shtml)
+- 2026-06-29 11:33 - [李维嘉回应“人老了做什么都心酸”](http://www.share.kurohicncr.top/Article/details/6288996.shtml)
+- 2026-06-29 11:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/151274380.shtml)

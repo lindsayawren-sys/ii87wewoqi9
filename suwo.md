@@ -1,57 +1,61 @@
-# *ST益通索赔新进展 部分股民提交起诉
+# “5·18国际博物馆日”浙江主会场活动在德清举行
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-近日，投资者诉北京诚益通控制技术集团股份有限公司（简称：诚益通、*ST益通（维权），代码：300430）证券虚假陈述责任纠纷案取得新进展。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，诚益通涉嫌证券虚假陈述，部分股民已提交起诉材料。（厉健律师专栏） 案情回溯，2026年4 月30日，诚益通披露了《关于公司股票交易被实施退市风险警示叠加
+中新网湖州5月13日电(林波)5月13日，2026年“5·18国际博物馆日”浙江主会场活动启动仪式在湖州德清瓷之源博物馆举行。活动现场，发布了“万年文明溯源”“青瓷文化”等7条精品博物馆研学路线，引导公众“在行走中触摸历史”。 浙江省文化广电和旅游厅党组成员、浙江省文物局局长朱海闵在致辞中指出，2025年，浙江全省备案博物馆总数达452家，国家一级博物馆达21家，稳居全国前列。
 
 ## 正文
 
-近日，投资者诉北京诚益通控制技术集团股份有限公司（简称：诚益通、*ST益通（维权），代码：300430）证券虚假陈述责任纠纷案取得新进展。
+中新网湖州5月13日电(林波)5月13日，2026年“5·18国际博物馆日”浙江主会场活动启动仪式在湖州德清瓷之源博物馆举行。
 
-曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据相关公告，诚益通涉嫌证券虚假陈述，部分股民已提交起诉材料。
+活动现场，发布了“万年文明溯源”“青瓷文化”等7条精品博物馆研学路线，引导公众“在行走中触摸历史”。
 
-（厉健律师专栏） 案情回溯，2026年4 月30日，诚益通披露了《关于公司股票交易被实施退市风险警示叠加其他风险警示暨停 牌的公告》。
+浙江省文化广电和旅游厅党组成员、浙江省文物局局长朱海闵在致辞中指出，2025年，浙江全省备案博物馆总数达452家，国家一级博物馆达21家，稳居全国前列。
 
-2026年5月8日，诚益通发布《关于股票交易严重异常波动的公告》。
+千座乡村博物馆如繁星洒落之江大地，成为优质文化资源直达基层的“浙江样板”。
 
-公告显示：因信永中和会计师事务所（特殊普通合伙） 出具了无法表示意见的审计报告以及否定意见的内部控制审计报告，触及《深圳 证券交易所创业板股票上市规则》第10.3.1条、第9.4条的规定，公司股票自2026 年5月6日开市起被实行“退市风险警示”、“其他风险警示”，股票简称由“诚益通”变更为“*ST益通”，证券代码仍为“300430”，敬请广大投资者注意投资风险。
+与此同时，“良渚论坛”、国际博物馆高级别论坛、“2025丝绸之路周”等重大活动次第花开，浙江博物馆的国际影响力如春潮涌动。
 
-公司股票交易价格连续三个交易日（2026年5月6日、2026年5月7日、2026年5月8日）收盘价格跌幅偏离值累计超过50%以上，根据深圳证券交易所有关规定，属于股票交易严重异常波动。
+朱海闵表示，今年国际博物馆日的主题是“博物馆：联结世界的桥梁”。
 
-根据最高人民法院虚假陈述司法解释，上市公司等因证券虚假陈述行为导致投资者权益受损，投资者可以依法起诉索赔，索赔范围包括投资差额损失、佣金和印花税损失。
+浙江要以此为航标，联结历史与未来，守护中华文脉的精神根脉，推动延时开放、错峰服务，让博物馆的光照进每一个寻常日子，实施“博物馆共同体”计划等，让藏品、展陈、社教等资源如溪流汇成江河，惠及更广大的人群。
 
-“我们正在分批代理股民起诉。
+据悉，“撷英揽胜——浙江省‘十四五’时期馆藏文物定级珍品展”在瓷之源博物馆同步举行。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:33 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:43 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:18 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:47 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:44 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:40 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:45 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:23 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:48 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:22 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:29 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:45 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:48 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:37 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:39 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:41 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:27 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:34 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:43 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:47 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:46 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:23 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:42 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:38 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:38 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:47 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:26 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:32 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:19 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:28 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:25 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/474726565475.shtml)
+- 2026-06-29 11:43 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.kurohicncr.top/Article/details/0019185.shtml)
+- 2026-06-29 11:20 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/49043068333.shtml)
+- 2026-06-29 11:22 - [南非门将单场77次成功传球](https://www.blog.minike.top/Article/details/6197181.shtml)
+- 2026-06-29 11:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/08388.shtml)
+- 2026-06-29 11:46 - [比亚迪市值为何蒸发8000亿](https://www.share.kurohicncr.top/Article/details/3623886899.shtml)
+- 2026-06-29 11:47 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/61205472706.shtml)
+- 2026-06-29 11:26 - [河南一考生高考703分](https://www.blog.minike.top/Article/details/86647959.shtml)
+- 2026-06-29 11:26 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/01170404144.shtml)
+- 2026-06-29 11:28 - [法国过去5日死亡人数飙升](https://www.blog.kurohicncr.top/Article/details/34796051.shtml)
+- 2026-06-29 11:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/74231.shtml)
+- 2026-06-29 11:38 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/041692729299.shtml)
+- 2026-06-29 11:41 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/954870.shtml)
+- 2026-06-29 11:18 - [特里：法国是世界杯夺冠热门](http://www.share.kurohicncr.top/Article/details/828421.shtml)
+- 2026-06-29 11:25 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/9598986.shtml)

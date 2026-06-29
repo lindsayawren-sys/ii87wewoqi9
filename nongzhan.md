@@ -1,56 +1,57 @@
-# 以色列总统搭乘的直升机紧急迫降
+# 5月15日收盘：道指重新站上5万点关口 纳指与标普指数再创新高
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网6月26日电 据《以色列时报》报道，以色列总统赫尔佐格搭乘的一架以空军直升机当地时间25日撞上鸟群后紧急迫降。 以色列国防军在一份声明中称，这架直升机当时正载着赫尔佐格从耶路撒冷赫茨尔山飞往以色列北部。飞行途中，直升机遭到鸟群撞击，随后被迫降落在以色列中部的帕勒马希姆空军基地。 以军表示，此事未造成任何损坏或人员伤亡。赫尔佐格和机组人员随后转乘另一架直升机，按原计划继续飞
+北京时间5月15日凌晨，美股周四收高，道指重新站上5万点关口。纳指与标普500指数再创历史新高。市场关注思科强劲财报以及中美高层会谈。美国4月进出口价格均创下多年新高。 道指涨370.26点，涨幅为0.75%，报50063.46点；纳指涨232.88点，涨幅为0.88%，报26635.22点；标普500指数涨56.99点，涨幅为0.77%，报7501.24点。 思科股价大涨提振
 
 ## 正文
 
-中新网6月26日电 据《以色列时报》报道，以色列总统赫尔佐格搭乘的一架以空军直升机当地时间25日撞上鸟群后紧急迫降。
+北京时间5月15日凌晨，美股周四收高，道指重新站上5万点关口。
 
-以色列国防军在一份声明中称，这架直升机当时正载着赫尔佐格从耶路撒冷赫茨尔山飞往以色列北部。
+纳指与标普500指数再创历史新高。
 
-飞行途中，直升机遭到鸟群撞击，随后被迫降落在以色列中部的帕勒马希姆空军基地。
+市场关注思科强劲财报以及中美高层会谈。
 
-以军表示，此事未造成任何损坏或人员伤亡。
+美国4月进出口价格均创下多年新高。
 
-赫尔佐格和机组人员随后转乘另一架直升机，按原计划继续飞行。
+道指涨370.26点，涨幅为0.75%，报50063.46点；纳指涨232.88点，涨幅为0.88%，报26635.22点；标普500指数涨56.99点，涨幅为0.77%，报7501.24点。
 
-涉事直升机“已移交以色列空军技术人员进行检修”。
+思科股价大涨提振了道指，使其重新站上今年早些时候触及的50000点水平。
 
-目前，这起事件正在进一步调查中。
+纳指与标普500指数均创盘中与收盘历史新高。
 
-以色列总统府方面暂未作出回应。
+思科股价收盘大涨13.4%，此前这家软件巨头公布的第三财季业绩和指引均超出华尔街预期，并宣布将裁减近4000个工作岗位。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:19 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:24 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:29 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:22 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:29 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:24 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:41 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:35 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:30 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:20 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:33 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:33 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:37 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:39 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:41 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:34 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:37 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:32 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:39 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:21 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:47 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:35 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:47 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:41 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:37 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:26 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:45 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:23 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:43 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:47 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:38 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:43 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:21 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:36 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](http://www.share.minike.top/Article/details/46583212.shtml)
+- 2026-06-29 11:29 - [白玉兰下沉市场](https://www.blog.minike.top/Article/details/59706852201.shtml)
+- 2026-06-29 11:22 - [世界杯用球成部分门将噩梦](http://www.blog.kurohicncr.top/Article/details/123816060.shtml)
+- 2026-06-29 11:47 - [金刚川](http://www.share.minike.top/Article/details/842390376.shtml)
+- 2026-06-29 11:24 - [复盘葡萄牙逼平哥伦比亚](https://www.blog.kurohicncr.top/Article/details/30024136562.shtml)
+- 2026-06-29 11:22 - [恋与深空女玩家不该被冒犯](https://www.blog.minike.top/Article/details/540860710092.shtml)
+- 2026-06-29 11:33 - [周生如故](https://www.share.kurohicncr.top/Article/details/98428127.shtml)
+- 2026-06-29 11:18 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/4366261283.shtml)
+- 2026-06-29 11:24 - [法国过去5日死亡人数飙升](https://www.share.kurohicncr.top/Article/details/068703734505.shtml)
+- 2026-06-29 11:46 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/09792657.shtml)
+- 2026-06-29 11:35 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/5229607465.shtml)
+- 2026-06-29 11:27 - [伊朗队球员哭诉：这届世界杯是场灾难](https://www.blog.minike.top/Article/details/20404597.shtml)
+- 2026-06-29 11:42 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/686580.shtml)
+- 2026-06-29 11:33 - [毒液2](http://www.blog.kurohicncr.top/Article/details/045981283341.shtml)
+- 2026-06-29 11:34 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](http://www.share.kurohicncr.top/Article/details/3804941366.shtml)

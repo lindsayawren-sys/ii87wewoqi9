@@ -1,56 +1,48 @@
-# 红色旅游何以破圈生长？业界代表韶山共探融合“破局”
+# 伊朗称逾30艘船只经协调通过霍尔木兹海峡
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网韶山6月27日电 (张雪盈)红色旅游融合发展创新交流活动27日在湖南韶山启幕。来自全国红色旅游重点场馆负责人、专家学者、革命老区高校师生等齐聚一堂，通过青年主题展演、经验交流分享、专题研讨等多元形式，共探红色文旅融合创新路径。 思政铸魂：从“走马观花”到“入脑入心” 湘潭红色资源底蕴深厚，现有红色资源339处、革命遗址90余处。近年来，当地持续深耕“我的韶山行”红色研学品
+伊朗国家电视台报道，自当地时间13日晚间以来，已有30多艘船只在与伊朗当局及伊斯兰革命卫队（IRGC）海军进行预先协调后，获准顺利通行霍尔木兹海峡。 伊朗伊斯兰革命卫队海军官员对此表示，霍尔木兹海峡的航行管理已进入“新阶段”。该官员强调，目前全球多国及航运船队已普遍认可，与伊朗海军力量保持实时协调是确保安全、快速通过这一战略水道的最优路径。责任编辑：龙运翔
 
 ## 正文
 
-中新网韶山6月27日电 (张雪盈)红色旅游融合发展创新交流活动27日在湖南韶山启幕。
+伊朗国家电视台报道，自当地时间13日晚间以来，已有30多艘船只在与伊朗当局及伊斯兰革命卫队（IRGC）海军进行预先协调后，获准顺利通行霍尔木兹海峡。
 
-来自全国红色旅游重点场馆负责人、专家学者、革命老区高校师生等齐聚一堂，通过青年主题展演、经验交流分享、专题研讨等多元形式，共探红色文旅融合创新路径。
+伊朗伊斯兰革命卫队海军官员对此表示，霍尔木兹海峡的航行管理已进入“新阶段”。
 
-思政铸魂：从“走马观花”到“入脑入心” 湘潭红色资源底蕴深厚，现有红色资源339处、革命遗址90余处。
+该官员强调，目前全球多国及航运船队已普遍认可，与伊朗海军力量保持实时协调是确保安全、快速通过这一战略水道的最优路径。
 
-近年来，当地持续深耕“我的韶山行”红色研学品牌，打造“韶山大课堂”思政教育示范载体，为全国红色研学提供了一个可复制的范本。
-
-“我们把立德树人作为根本任务，把整座韶山打造为一座实景课堂。
-
-”中共韶山市委常委、宣传部部长何浪介绍，韶山精心构建“1+4+4”课程体系，打磨推出《恰是风华正茂》思政大课及50余堂特色课程，还将AI、裸眼3D、全息投影等新技术融入教学场景，让思政课更具吸引力和感染力。
-
-数据显示，3年来韶山共接待公益研学125万人次，带动社会化研学超294.6万人次。
-
-“我要更加努力，让大山的孩子也拥有和我们同样的机会和视野。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:36 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:30 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:33 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:47 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:35 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:29 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:40 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:29 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:44 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:22 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:48 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:21 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:24 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:33 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:31 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:39 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:26 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:33 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:26 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:44 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:19 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:47 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:22 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:32 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:34 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:46 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:26 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:18 - [当地回应多辆“百吨王”强行冲卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:28 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:26 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:20 - [特里：法国是世界杯夺冠热门](http://www.share.kurohicncr.top/Article/details/975431349464.shtml)
+- 2026-06-29 11:34 - [陈垣宇晋级WTT美国大满贯男单32强](https://www.share.kurohicncr.top/Article/details/032016.shtml)
+- 2026-06-29 11:45 - [李在明要调查韩国队出局原因](https://www.share.minike.top/Article/details/1036771855.shtml)
+- 2026-06-29 11:32 - [本届世界杯黑马扎堆](http://www.blog.minike.top/Article/details/31202365.shtml)
+- 2026-06-29 11:19 - [韩国主帅辞职报告5分钟 双手插兜离场](http://www.share.minike.top/Article/details/622745686338.shtml)
+- 2026-06-29 11:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/0080378259.shtml)
+- 2026-06-29 11:21 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/191687469430.shtml)
+- 2026-06-29 11:24 - [埃博拉为何再次袭击非洲](http://www.share.minike.top/Article/details/5108004857.shtml)
+- 2026-06-29 11:43 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/515507.shtml)
+- 2026-06-29 11:26 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/92228.shtml)
+- 2026-06-29 11:24 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/569403010.shtml)
+- 2026-06-29 11:33 - [流金岁月](http://www.share.kurohicncr.top/Article/details/255606.shtml)
+- 2026-06-29 11:35 - [扬名立万](http://www.share.kurohicncr.top/Article/details/20595434.shtml)
+- 2026-06-29 11:36 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/1660140.shtml)
+- 2026-06-29 11:44 - [韩国记者：解码“合肥模式”](http://www.blog.minike.top/Article/details/96213576.shtml)

@@ -1,59 +1,48 @@
-# 外国参展商齐聚链博会“挖宝”：中国已成全球创新源泉 | 世界观
+# 喜相逢集团拟折让约2.38%先旧后新配股 净筹约1.26亿港元
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网北京6月27日电(张东方 林卓玮)第四届中国国际供应链促进博览会(简称“链博会”)期间，多位外国参展商在接受中新网专访时表示，中国是个充满活力的国家，已成为全球创新源泉。他们希望在链博会挖掘更多宝贵的合作机遇，与中国伙伴交朋友，共同创造更多价值。 视频：波兰参展商：我喜欢中国，期待在链博会找商机、交朋友 | 世界观来源：中国新闻网 “中国充满活力，是全球创新源泉” 本届链
+喜相逢集团（02473）公布，于2026年5月13日（交易时段后），公司、卖方明珠资本资源有限公司及配售代理订立配售及认购协议，据此，卖方拟透过配售代理向不少于六名承配人配售约1.55亿股现有股份，每股配售股份0.82港元，较股份于最后交易日在联交所所报收市价每股0.84港元折让约2.38%；而该公司将按每股0.82港元的价格向卖方发行同等数量的新股，净筹约1.26亿港元，拟用
 
 ## 正文
 
-中新网北京6月27日电(张东方 林卓玮)第四届中国国际供应链促进博览会(简称“链博会”)期间，多位外国参展商在接受中新网专访时表示，中国是个充满活力的国家，已成为全球创新源泉。
+喜相逢集团（02473）公布，于2026年5月13日（交易时段后），公司、卖方明珠资本资源有限公司及配售代理订立配售及认购协议，据此，卖方拟透过配售代理向不少于六名承配人配售约1.55亿股现有股份，每股配售股份0.82港元，较股份于最后交易日在联交所所报收市价每股0.84港元折让约2.38%；而该公司将按每股0.82港元的价格向卖方发行同等数量的新股，净筹约1.26亿港元，拟用于就集团主营业务进一步采购汽车及作相关用途。
 
-他们希望在链博会挖掘更多宝贵的合作机遇，与中国伙伴交朋友，共同创造更多价值。
-
-视频：波兰参展商：我喜欢中国，期待在链博会找商机、交朋友 | 世界观来源：中国新闻网 “中国充满活力，是全球创新源泉” 本届链博会以“链接世界，共创未来”为主题，吸引了来自85个国家、地区和国际组织的600多家企业参展。
-
-来自波兰、塞尔维亚和日本的三位参展商，向中新网分享了他们对中国市场的观察。
-
-波兰参展商莫伟杰(Pawel Moskala)称赞中国是一个充满活力的国家，他对中国在数字化领域的发展成就，印象尤为深刻。
-
-莫伟杰回忆，几年前，他到上海参加首届中国国际进口博览会(简称“进博会”)时，体验了人脸识别、数字支付等技术。
-
-看到自己的名字、注册照片显示在屏幕上，他感到很新奇。
-
-而此次来到链博会，他特别提及中国在人形机器人领域的迅猛发展，期待未来人形机器人更多地帮助人类。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:40 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:23 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:46 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:43 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:43 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:29 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:18 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:47 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:30 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:23 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:40 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:26 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:39 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:41 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:29 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:38 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:40 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:23 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:31 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:25 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:22 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:29 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:41 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:42 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:21 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:26 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:35 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:33 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:37 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:21 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:42 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:18 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:20 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:21 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:27 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:43 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:34 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:19 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:41 - [小娘惹](http://www.share.minike.top/Article/details/4079782.shtml)
+- 2026-06-29 11:30 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/62072938077.shtml)
+- 2026-06-29 11:29 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.kurohicncr.top/Article/details/70857283.shtml)
+- 2026-06-29 11:35 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/619654687697.shtml)
+- 2026-06-29 11:47 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/8001857.shtml)
+- 2026-06-29 11:30 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/216739582895.shtml)
+- 2026-06-29 11:33 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/823936022288.shtml)
+- 2026-06-29 11:19 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/466651193.shtml)
+- 2026-06-29 11:48 - [曝韩国球员目睹出局时正吃饭](http://www.blog.minike.top/Article/details/67208549.shtml)
+- 2026-06-29 11:46 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/20636147004.shtml)
+- 2026-06-29 11:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/3165146223.shtml)
+- 2026-06-29 11:30 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.minike.top/Article/details/10994571682.shtml)
+- 2026-06-29 11:47 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.share.minike.top/Article/details/911120147.shtml)
+- 2026-06-29 11:27 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/1248358750.shtml)
+- 2026-06-29 11:25 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/515190.shtml)

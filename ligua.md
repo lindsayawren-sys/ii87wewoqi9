@@ -1,47 +1,58 @@
-# 伊朗高官：特朗普不遵守谈判和停火原则
+# 中国外交部发言人就美国总统特朗普访华情况答记者问
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网6月27日电 伊朗伊斯兰议会国家安全委员会主席易卜拉欣·阿齐兹27日在社交媒体发文表示，美国在与伊朗谈判期间再次袭击伊朗，美国总统特朗普既不遵守谈判原则，也不遵守停火原则。 阿齐兹指出，美国违反停火协议的行为“鲁莽”，伊方“将一如既往地令其退缩与后悔”，“推卸责任的把戏已不再奏效”。 此前，据伊朗塔斯尼姆通讯社当天报道，美国违反与伊朗的停火协议和谅解备忘录，袭击锡里克地区
+中新社北京5月15日电 中国外交部发言人15日就美国总统特朗普访华情况答记者问。 有记者提问，5月14日，中国国家主席习近平为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。中方能否进一步介绍相关情况？ 发言人说，应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。5月14日，习近平
 
 ## 正文
 
-中新网6月27日电 伊朗伊斯兰议会国家安全委员会主席易卜拉欣·阿齐兹27日在社交媒体发文表示，美国在与伊朗谈判期间再次袭击伊朗，美国总统特朗普既不遵守谈判原则，也不遵守停火原则。
+中新社北京5月15日电 中国外交部发言人15日就美国总统特朗普访华情况答记者问。
 
-阿齐兹指出，美国违反停火协议的行为“鲁莽”，伊方“将一如既往地令其退缩与后悔”，“推卸责任的把戏已不再奏效”。
+有记者提问，5月14日，中国国家主席习近平为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。
 
-此前，据伊朗塔斯尼姆通讯社当天报道，美国违反与伊朗的停火协议和谅解备忘录，袭击锡里克地区。
+中方能否进一步介绍相关情况？
+
+发言人说，应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。
+
+这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。
+
+5月14日，习近平主席为特朗普总统举行欢迎仪式和欢迎宴会，同特朗普总统举行会谈，并共同参观天坛。
+
+两国元首就事关两国和世界的重大问题深入交换意见，达成一系列新共识。
+
+发言人指出，两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，为未来3年乃至更长时间的中美关系提供战略指引，推动两国关系稳定、健康、可持续发展，为世界带来更多和平、繁荣、进步。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:39 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:28 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:24 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:23 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:34 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:30 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:46 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:33 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:33 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:29 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:24 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:42 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:31 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:44 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:46 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:39 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:41 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:41 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:40 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:34 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:40 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:42 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:38 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:48 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:33 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:42 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:36 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:36 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:20 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:33 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:26 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:25 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:29 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:34 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:47 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:23 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://www.blog.kurohicncr.top/Article/details/91438899427.shtml)
+- 2026-06-29 11:35 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.share.minike.top/Article/details/543096587.shtml)
+- 2026-06-29 11:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/20111236505.shtml)
+- 2026-06-29 11:29 - [韩媒破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/622649167306.shtml)
+- 2026-06-29 11:24 - [一生一世](https://www.share.kurohicncr.top/Article/details/72977353224.shtml)
+- 2026-06-29 11:35 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/75170277289.shtml)
+- 2026-06-29 11:28 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/7257033.shtml)
+- 2026-06-29 11:37 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/6178349.shtml)
+- 2026-06-29 11:25 - [南非门将单场77次成功传球](http://www.blog.kurohicncr.top/Article/details/25025.shtml)
+- 2026-06-29 11:41 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.minike.top/Article/details/1849879561.shtml)
+- 2026-06-29 11:46 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/6223395.shtml)
+- 2026-06-29 11:24 - [以前不让妆女二可以艳压女主](https://www.blog.minike.top/Article/details/2791430.shtml)
+- 2026-06-29 11:19 - [未来5年 充电供热供暖将有大变化](https://www.blog.kurohicncr.top/Article/details/95915145.shtml)
+- 2026-06-29 11:47 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/858489397.shtml)
+- 2026-06-29 11:27 - [媒体人：警惕日本再次成战争加害国](https://www.share.minike.top/Article/details/64898.shtml)

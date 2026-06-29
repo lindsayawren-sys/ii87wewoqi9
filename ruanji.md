@@ -1,57 +1,57 @@
-# 韩国股市：“外资卖、散户加杠杆接”
+# 网易云音乐午前上涨4% 近日宣布全面接入DeepSeek-V4
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财联社 据央视财经消息，韩国股市近期屡创新高，韩国综合股价指数今年以来近乎翻倍。然而，就在周五（26日），韩国综合股指盘中一度大跌超8%，本周内第二次触发熔断机制。短短一周内，韩国股市经历了两次“过山车”行情，引发全球市场关注。 数据显示，韩国散户交易占比极高。截至6月24日，韩国本土股票交易账户总数
+网易云音乐（09899）早盘涨超4%，截至发稿，股价上涨4%，现报130港元，成交额7989.80万港元。 据市场媒体报道，近日，网易云音乐宣布全面接入DeepSeek-V4，进一步提升听歌找歌、社区互动、创作服务及各类个性化场景体验，为用户带来更优质、更沉浸的音乐服务。2025年，网易云音乐已全面接入DeepSeek能力，此次网易云音乐进一步接入具备世界顶级推理性能的全新De
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+网易云音乐（09899）早盘涨超4%，截至发稿，股价上涨4%，现报130港元，成交额7989.80万港元。
 
-来源：财联社 据央视财经消息，韩国股市近期屡创新高，韩国综合股价指数今年以来近乎翻倍。
+据市场媒体报道，近日，网易云音乐宣布全面接入DeepSeek-V4，进一步提升听歌找歌、社区互动、创作服务及各类个性化场景体验，为用户带来更优质、更沉浸的音乐服务。
 
-然而，就在周五（26日），韩国综合股指盘中一度大跌超8%，本周内第二次触发熔断机制。
+2025年，网易云音乐已全面接入DeepSeek能力，此次网易云音乐进一步接入具备世界顶级推理性能的全新DeepSeek-V4。
 
-短短一周内，韩国股市经历了两次“过山车”行情，引发全球市场关注。
+据悉，作为国内最早布局AI技术的音乐平台，网易云音乐此前已推出多项行业创新应用。
 
-数据显示，韩国散户交易占比极高。
+其自研的Climber推荐模型通过多模态学习实现“千人千面”的精准推荐；网易天音系统支持AI辅助作曲，用户输入关键词即可生成完整旋律；DeepSeek锐评功能则通过分析用户收藏歌单，生成专业音乐品味报告。
 
-截至6月24日，韩国本土股票交易账户总数为1.0877亿，而韩国总人口仅为5000多万人，人均持有两个以上股票账户，且大量资金通过高杠杆ETF涌入。
+这些技术积累为此次升级奠定了坚实基础。
 
-上周，美联储的货币政策转向鹰派直接压制了高估值科技板块。
-
-摩根大通发布的报告显示，今年以来外资已从韩国股市净流出约950亿美元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:43 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:30 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:24 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:29 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:36 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:42 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:44 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:32 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:25 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:28 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:30 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:25 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:27 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:37 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:24 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:38 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:35 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:34 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:31 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:47 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:19 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:45 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:32 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:31 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:35 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:35 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:29 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:37 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:18 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:20 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:33 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:35 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:44 - [这位猫咪，请你自重！](http://www.share.kurohicncr.top/Article/details/212130258.shtml)
+- 2026-06-29 11:48 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/71359.shtml)
+- 2026-06-29 11:32 - [天道](https://www.blog.minike.top/Article/details/036841366.shtml)
+- 2026-06-29 11:24 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/326042.shtml)
+- 2026-06-29 11:25 - [韩国主教练连夜下课](http://www.share.minike.top/Article/details/048909706.shtml)
+- 2026-06-29 11:32 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/2019757444.shtml)
+- 2026-06-29 11:21 - [中气爱：吐鲁番快50度了](https://www.share.kurohicncr.top/Article/details/0969047548.shtml)
+- 2026-06-29 11:31 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/1245518.shtml)
+- 2026-06-29 11:48 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/376062.shtml)
+- 2026-06-29 11:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/40431.shtml)
+- 2026-06-29 11:44 - [中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/5549946204.shtml)
+- 2026-06-29 11:28 - [和阿根廷球员家属一起看球](http://www.blog.minike.top/Article/details/8882008760.shtml)
+- 2026-06-29 11:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/65845742623.shtml)
+- 2026-06-29 11:24 - [T1 3-0 TLAW数据雷达图](http://www.share.minike.top/Article/details/16347.shtml)
+- 2026-06-29 11:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/58687278.shtml)

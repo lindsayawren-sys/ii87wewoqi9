@@ -1,53 +1,58 @@
-# 美国陆军与企业达成协议 首度开放军事基地建设关键矿产加工厂
+# 美国铁路运输巨头CSX董事会批准新增50亿美元股票回购计划
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-美国陆军与多家公司达成协议，将在全美各地的军事基地建设关键矿产加工厂，这是特朗普政府为提高关键材料国内产量而发起的一项首创举措。 美国陆军周四在声明中表示，REalloys Inc．、Titan Mining Corp．、ioneer Ltd．和Energy X与国防部达成协议，将建设加工稀土矿物、石墨、锂和硼的设施。 声明显示，REalloys将在犹他州Tooele Army
+美国铁路运输巨头CSX公司宣布，董事会已批准一项新的50亿美元股票回购计划，在截至2026年3月31日现有计划剩余约9.89亿美元授权额度的基础上大幅追加。新授权将与此前剩余额度合并，为公司未来资本配置提供更大灵活性。 回购方案细节 根据公告，股票回购可通过公开市场购买、10b5-1交易计划、加速股份回购及协议大宗交易等多种方式进行，具体时机和金额由董事会根据市场条件自行决定。
 
 ## 正文
 
-美国陆军与多家公司达成协议，将在全美各地的军事基地建设关键矿产加工厂，这是特朗普政府为提高关键材料国内产量而发起的一项首创举措。
+美国铁路运输巨头CSX公司宣布，董事会已批准一项新的50亿美元股票回购计划，在截至2026年3月31日现有计划剩余约9.89亿美元授权额度的基础上大幅追加。
 
-美国陆军周四在声明中表示，REalloys Inc．、Titan Mining Corp．、ioneer Ltd．和Energy X与国防部达成协议，将建设加工稀土矿物、石墨、锂和硼的设施。
+新授权将与此前剩余额度合并，为公司未来资本配置提供更大灵活性。
 
-声明显示，REalloys将在犹他州Tooele Army Depot建设一座稀土分离厂，产品将在基地内储备供军方使用。
+回购方案细节 根据公告，股票回购可通过公开市场购买、10b5-1交易计划、加速股份回购及协议大宗交易等多种方式进行，具体时机和金额由董事会根据市场条件自行决定。
 
-Titan Mining将在阿肯色州Pine Bluff Arsenal或阿拉巴马州Anniston Army Depot建设并运营一座石墨提纯厂。
+公司表示，此决策体现了董事会对CSX财务状况及长期增长前景的信心。
 
-这些安排证实了媒体早些时候的报道。
+高管变动同步公布 同日，CSX宣布执行副总裁兼首席数字与技术官Stephen Fortune即时离职，其职责由原铁路运营产品管理副总裁Steve Watkins接任，后者将直接向执行副总裁兼首席财务官Kevin S． Boone汇报。
 
-责任编辑：江学思
+稳健的股东回报记录 CSX在股东回报方面保持良好记录，已连续21年提高股息。
+
+今年一季度，公司交出超预期成绩单：营收34.8亿美元，同比增长2%；每股收益0.43美元，同比增长26%，净利润达8.07亿美元。
+
+公司此前已上调2026全年业绩指引，预计营收可实现中个位数增长。
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:35 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:36 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:26 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:18 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:30 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:37 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:30 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:29 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:34 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:29 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:28 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:34 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:19 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:46 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:47 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:37 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:26 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:45 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:30 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:35 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:24 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:41 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:23 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:38 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:41 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:32 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:26 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:31 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:43 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:29 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:19 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:37 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:40 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:24 - [王祖蓝现场观看美加墨世界杯](http://www.blog.minike.top/Article/details/044074648.shtml)
+- 2026-06-29 11:23 - [陈丽君演出结束后饭撒](http://www.blog.kurohicncr.top/Article/details/1188327895.shtml)
+- 2026-06-29 11:40 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/51024.shtml)
+- 2026-06-29 11:29 - [海清白玉兰奖运](http://www.blog.kurohicncr.top/Article/details/5111563928.shtml)
+- 2026-06-29 11:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/7234840826.shtml)
+- 2026-06-29 11:33 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/09294178.shtml)
+- 2026-06-29 11:26 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/6948555617.shtml)
+- 2026-06-29 11:19 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/10022.shtml)
+- 2026-06-29 11:31 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/539775276292.shtml)
+- 2026-06-29 11:47 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/617864898.shtml)
+- 2026-06-29 11:45 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/468977309118.shtml)
+- 2026-06-29 11:28 - [世界杯用球成部分门将噩梦](http://www.share.minike.top/Article/details/6199319.shtml)
+- 2026-06-29 11:36 - [温峥嵘直播回应恶评](https://www.share.minike.top/Article/details/6585286.shtml)
+- 2026-06-29 11:29 - [天津打雷](https://www.blog.minike.top/Article/details/821822.shtml)
+- 2026-06-29 11:20 - [四川宜宾地震](http://www.blog.minike.top/Article/details/3966257352.shtml)

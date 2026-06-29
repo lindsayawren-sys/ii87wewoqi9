@@ -1,60 +1,60 @@
-# （走进中国乡村）黄河上游沙洲变“蓝海” 青海共和沐光“生金”
+# 私募信贷风波冲击BDC声誉 贝莱德等巨头纷纷展开自救
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新社青海海南6月27日电 题：黄河上游沙洲变“蓝海” 青海共和沐光“生金” 作者 李隽 6月高原天高云阔。被誉为“万里黄河第一坝”的黄河上游首座大型梯级水电站——龙羊峡水电站与峭壁岩崖构成“高峡出平湖”奇观。 位于青海省海南藏族自治州共和县的龙羊峡库区属于黄河青海段重要流经区域，“飞沙入黄”曾是库区长期面临的生态难题，流动沙丘持续向库区蔓延，大量泥沙涌入河道，不仅威胁水库水质
+无论从哪个指标衡量，陷入困境的私募信贷基金在KKR、贝莱德、阿波罗全球管理这几个投资巨头的资产版图中都只占到一小部分。 然而，随着这一规模达1.8万亿美元的市场在2026年陷入动荡，这些基金作为相关公司最受外界关注的投资工具，在投资者开始审视整个行业问题之际，已对企业声誉造成巨大冲击。现在，每家资产管理公司都在采取措施应对这些问题，尽管它们使用的工具各不相同。 据知情人士透露，
 
 ## 正文
 
-中新社青海海南6月27日电 题：黄河上游沙洲变“蓝海” 青海共和沐光“生金” 作者 李隽 6月高原天高云阔。
+无论从哪个指标衡量，陷入困境的私募信贷基金在KKR、贝莱德、阿波罗全球管理这几个投资巨头的资产版图中都只占到一小部分。
 
-被誉为“万里黄河第一坝”的黄河上游首座大型梯级水电站——龙羊峡水电站与峭壁岩崖构成“高峡出平湖”奇观。
+然而，随着这一规模达1.8万亿美元的市场在2026年陷入动荡，这些基金作为相关公司最受外界关注的投资工具，在投资者开始审视整个行业问题之际，已对企业声誉造成巨大冲击。
 
-位于青海省海南藏族自治州共和县的龙羊峡库区属于黄河青海段重要流经区域，“飞沙入黄”曾是库区长期面临的生态难题，流动沙丘持续向库区蔓延，大量泥沙涌入河道，不仅威胁水库水质、大坝运行安全，更制约沿岸农牧民生产生活。
+现在，每家资产管理公司都在采取措施应对这些问题，尽管它们使用的工具各不相同。
 
-“此前流动沙丘每年向前推进5米，年输沙量高达3000立方米，泥沙直逼库区。
+据知情人士透露，在资产管理规模为7580亿美元的KKR，规模123亿美元的公开交易基金FS KKR Capital Corp．（交易代码FSK）持续存在的问题已经引起最高层注意。
 
-2021年起，我们开始对库区进行林草生态修复综合治理。
+高管们就如何创造价值进行了深入探讨，并在评估认为市场需求充足后，与FS KKR董事会共同敲定了一项3亿美元的股份回购计划。
 
-”共和县自然资源和林业草原局技术员甘成寅介绍，目前区域造林成活率超75%，植被覆盖度提升10%以上，有效阻挡流沙侵入库区。
+投资者此前一直游说该公司启动回购。
 
-顺着甘成寅所指，库区北岸整齐划一的草方格沙障沿库区绵延铺开，连片的绿植错落呈现。
+因讨论内部事务，该知情人士要求匿名。
 
-近五年，共和县累计治理沙化土地近47万亩，仅龙羊峡北岸铁盖片区治理面积就达13万亩。
+贝莱德旗下规模15亿美元的BlackRock TCP Capital Corp．（交易代码TCPC）过去一年一直令这家全球最大资产管理公司头疼不已。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:33 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:43 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:40 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:22 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:20 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:25 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:40 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:22 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:26 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:29 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:47 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:21 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:24 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:27 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:30 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:28 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:23 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:25 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:46 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:29 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:41 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:37 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:23 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:21 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:26 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:30 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:24 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:44 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:33 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:35 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:23 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:40 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:34 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:24 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:20 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:20 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:23 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:22 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:27 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/406934.shtml)
+- 2026-06-29 11:41 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/5734965930.shtml)
+- 2026-06-29 11:48 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/71023.shtml)
+- 2026-06-29 11:23 - [王楚钦美国大满贯晋级32强](https://www.share.kurohicncr.top/Article/details/63558.shtml)
+- 2026-06-29 11:39 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/325052.shtml)
+- 2026-06-29 11:40 - [美加墨世界杯首支16强诞生](https://www.share.kurohicncr.top/Article/details/657043671.shtml)
+- 2026-06-29 11:25 - [2026年Mac能玩游戏了吗](http://www.blog.kurohicncr.top/Article/details/1095620645.shtml)
+- 2026-06-29 11:39 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.kurohicncr.top/Article/details/54772433415.shtml)
+- 2026-06-29 11:27 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.kurohicncr.top/Article/details/4980465770.shtml)
+- 2026-06-29 11:29 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/8624064704.shtml)
+- 2026-06-29 11:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/45896641422.shtml)
+- 2026-06-29 11:30 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/077567552.shtml)
+- 2026-06-29 11:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/458151255323.shtml)
+- 2026-06-29 11:33 - [细节之中抓作风](https://www.share.kurohicncr.top/Article/details/050603611146.shtml)
+- 2026-06-29 11:31 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/00679287.shtml)

@@ -1,43 +1,58 @@
-# 生态环境部：主汛期水质易波动 上下游协同治水
+# 警惕变身“找兼职”“投简历”的电诈骗局
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 09:07 来源：央视新闻 责任编辑：【韦俊龙】
+湖北省公安机关公布的电诈受骗人群画像显示，青年群体占比最高 警惕变身“找兼职”“投简历”的电诈骗局 “如果不是手机里那一声扣款提示，我还以为只是接到了一份日入150元、无须押金的线上兼职。”小夏寻找兼职时，被对方以审核为由套取信用信息，后被诱导进行扫码操作。最终，小夏被诈骗分子“扣”走千余元。 记者了解到，湖北省公安厅近期公布的2025年该省电信网络诈骗受骗人群画像显示，16岁
 
 ## 正文
 
-发布时间：2026年06月26日 09:07 来源：央视新闻 责任编辑：【韦俊龙】
+湖北省公安机关公布的电诈受骗人群画像显示，青年群体占比最高 警惕变身“找兼职”“投简历”的电诈骗局 “如果不是手机里那一声扣款提示，我还以为只是接到了一份日入150元、无须押金的线上兼职。
+
+”小夏寻找兼职时，被对方以审核为由套取信用信息，后被诱导进行扫码操作。
+
+最终，小夏被诈骗分子“扣”走千余元。
+
+记者了解到，湖北省公安厅近期公布的2025年该省电信网络诈骗受骗人群画像显示，16岁至35岁青年群体在受骗人中的占比为45.86%，为各年龄段最高，其中16岁至25岁的00后占比达21.5%。
+
+此外，从案件类型看，刷单返利类诈骗占比25.01%，居高发类型首位。
+
+年轻人为何被诈骗分子“盯”上？
+
+各类新型诈骗手段如何渗入年轻人的日常生活？
+
+找兼职、刷短视频、做副业、玩游戏、投简历……这些再普通不过的生活场景，何以成为诈骗分子筛选、引流、围猎目标的渠道？
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:41 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:37 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:31 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:32 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:26 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:19 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:35 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:45 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:28 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:28 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:48 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:47 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:33 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:36 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:19 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:25 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:31 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:38 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:43 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:30 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:40 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:29 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:46 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:28 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:22 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:43 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:40 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:22 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:46 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:34 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:44 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:21 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](http://www.share.minike.top/Article/details/58401340391.shtml)
+- 2026-06-29 11:45 - [细节之中抓作风](https://www.blog.kurohicncr.top/Article/details/83641.shtml)
+- 2026-06-29 11:25 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.share.minike.top/Article/details/36134301.shtml)
+- 2026-06-29 11:41 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/131140718.shtml)
+- 2026-06-29 11:28 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/5351275893.shtml)
+- 2026-06-29 11:35 - [啊啊啊](http://www.blog.minike.top/Article/details/8616211.shtml)
+- 2026-06-29 11:42 - [委内瑞拉地震已致1450死3150伤](https://www.share.minike.top/Article/details/837441.shtml)
+- 2026-06-29 11:35 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.kurohicncr.top/Article/details/376978313.shtml)
+- 2026-06-29 11:18 - [杨紫《生命树》播放量破百亿](https://www.blog.minike.top/Article/details/68752624.shtml)
+- 2026-06-29 11:36 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/5177301863.shtml)
+- 2026-06-29 11:28 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/9471833447.shtml)
+- 2026-06-29 11:31 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/390024536707.shtml)
+- 2026-06-29 11:29 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.minike.top/Article/details/708374476.shtml)
+- 2026-06-29 11:20 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/0797060.shtml)
+- 2026-06-29 11:29 - [成都震感](http://www.blog.kurohicncr.top/Article/details/1510683868.shtml)

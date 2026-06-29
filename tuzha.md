@@ -1,57 +1,61 @@
-# 从恒河畔到闽江边：一位孟加拉国青年的“中国故事”
+# Biofrontera目标2026年实现现金流盈亏平衡 毛利率剑指80%-85%
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网海口6月26日电 题：从恒河畔到闽江边：一位孟加拉国青年的“中国故事” 中新网记者 张茜翼 八年，足以让一个异乡人，把中国走成故乡。 2018年，孟加拉国青年吴迪(Mohammad Saiyedul Islam)获得“丝绸之路”中国政府奖学金，来到江西财经大学攻读国际商务硕士。硕士毕业后，他再获中国政府奖学金，在同一所大学攻读国际贸易博士。 如今，他是福建三明学院的一名教
+一季度业绩：营收增长17% 毛利率显著提升至80% Biofrontera近日公布2026年第一季度财报。数据显示，公司一季度产品营收达1010万美元，同比增长17%，主要得益于Ameluz单位销量约16%的增长及2025年第四季度的提价效应。 盈利能力方面，毛利率从上年同期的62%大幅提升至约80%，这得益于2025年10月战略性交易后实施的新特许权使用费结构。根据新协议，公
 
 ## 正文
 
-中新网海口6月26日电 题：从恒河畔到闽江边：一位孟加拉国青年的“中国故事” 中新网记者 张茜翼 八年，足以让一个异乡人，把中国走成故乡。
+一季度业绩：营收增长17% 毛利率显著提升至80% Biofrontera近日公布2026年第一季度财报。
 
-2018年，孟加拉国青年吴迪(Mohammad Saiyedul Islam)获得“丝绸之路”中国政府奖学金，来到江西财经大学攻读国际商务硕士。
+数据显示，公司一季度产品营收达1010万美元，同比增长17%，主要得益于Ameluz单位销量约16%的增长及2025年第四季度的提价效应。
 
-硕士毕业后，他再获中国政府奖学金，在同一所大学攻读国际贸易博士。
+盈利能力方面，毛利率从上年同期的62%大幅提升至约80%，这得益于2025年10月战略性交易后实施的新特许权使用费结构。
 
-如今，他是福建三明学院的一名教师，足迹遍及中国27个省份，撰写了上百篇关于中国发展的文章。
+根据新协议，公司向Biofrontera AG支付净销售额12%至15%的特许权使用费，取代了此前25%至35%的转让定价模式。
 
-从恒河畔到闽江边，这名孟加拉国青年在行走中追问，也在行走中作答。
+公司重申2026年全年毛利率目标为80%至85%。
 
-近日，吴迪来到海南省陵水黎族自治县，深度体验这座滨海小城的山海风光、雨林奇观和人文景致后，向中新网记者分享了这段跨越山海的旅程。
+现金流显著改善 目标全年盈亏平衡 公司一季度经营现金流净流出仅7万美元，较上年同期的410万美元净流出大幅改善。
 
-真实，需要被看见 吴迪坦承，来中国之前，他和许多孟加拉国人一样，对这个国家的认知被西方媒体和宝莱坞电影所塑造——“非常有限，甚至是单一的”。
+调整后EBITDA为亏损360万美元，亦较上年同期亏损440万美元有所收窄。
 
-但他隐约觉得，这个经济快速增长的国家，是研究国际商务的理想样本。
+管理层重申，公司目标在2026年实现现金流盈亏平衡，依托营收增长和成本管控双轮驱动。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [男子吃半根变苦黄瓜致肝衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:20 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:32 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:37 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:38 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:35 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:30 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:34 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:42 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:22 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:41 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:43 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:41 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:43 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:37 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:33 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:44 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:31 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:34 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:47 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:21 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:42 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:20 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:20 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:25 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:36 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:30 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:25 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:40 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:46 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:42 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:30 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:21 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:18 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:23 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:28 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:44 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:43 - [陈露发声引舆论反转](http://www.blog.kurohicncr.top/Article/details/89809.shtml)
+- 2026-06-29 11:42 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/566898278.shtml)
+- 2026-06-29 11:23 - [一见倾心](http://www.share.minike.top/Article/details/843406592246.shtml)
+- 2026-06-29 11:23 - [三只羊大杨哥不直播改卖课](http://www.share.minike.top/Article/details/060824.shtml)
+- 2026-06-29 11:35 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.kurohicncr.top/Article/details/4704055.shtml)
+- 2026-06-29 11:34 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/224066.shtml)
+- 2026-06-29 11:46 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.share.kurohicncr.top/Article/details/790090494.shtml)
+- 2026-06-29 11:21 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/97744485736.shtml)
+- 2026-06-29 11:38 - [宜宾地震监控画面](https://www.share.kurohicncr.top/Article/details/5628090.shtml)
+- 2026-06-29 11:47 - [谢霆锋演唱会变大型呲水现场](http://www.blog.minike.top/Article/details/131783333482.shtml)
+- 2026-06-29 11:26 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/2468487575.shtml)
+- 2026-06-29 11:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/890582588.shtml)
+- 2026-06-29 11:38 - [乌拉圭出局之路](https://www.blog.kurohicncr.top/Article/details/97053354052.shtml)
+- 2026-06-29 11:39 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/768465538798.shtml)
+- 2026-06-29 11:46 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/987193.shtml)

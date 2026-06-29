@@ -1,58 +1,56 @@
-# 三星计划未来十年在高科技产业投资1000万亿韩元
+# Hemisphere Energy宣布派发每股0.025加元季度股息
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-据韩国《每日经济新闻》报道，三星集团将于6月29日在总统府会议上宣布未来十年在高科技产业领域投资1000万亿韩元（6480亿美元）的计划。报道未引述消息来源。 这将是韩国公司宣布的金额最大的投资，相当于韩国国内生产总值的一半左右。 这项投资是一项综合性蓝图，涵盖芯片、人工智能数据中心、储能电池和显示器等关键业务的战略；其中可能包括斥资约300万亿韩元在韩国全罗道建设一座芯片工厂
+加拿大石油天然气公司Hemisphere Energy Corp．于5月12日宣布，董事会已批准派发每股0.025加元的季度现金股息。 股息详情与支付安排 根据公司公告，本次股息将于2026年6月26日支付给6月12日收盘时登记在册的股东。该股息依据公司股息政策发放，并已被指定为符合税收优惠条件的合格股息。 上半年累计分红达0.11加元 值得关注的是，包括4月和5月支付的两次每
 
 ## 正文
 
-据韩国《每日经济新闻》报道，三星集团将于6月29日在总统府会议上宣布未来十年在高科技产业领域投资1000万亿韩元（6480亿美元）的计划。
+加拿大石油天然气公司Hemisphere Energy Corp．于5月12日宣布，董事会已批准派发每股0.025加元的季度现金股息。
 
-报道未引述消息来源。
+股息详情与支付安排 根据公司公告，本次股息将于2026年6月26日支付给6月12日收盘时登记在册的股东。
 
-这将是韩国公司宣布的金额最大的投资，相当于韩国国内生产总值的一半左右。
+该股息依据公司股息政策发放，并已被指定为符合税收优惠条件的合格股息。
 
-这项投资是一项综合性蓝图，涵盖芯片、人工智能数据中心、储能电池和显示器等关键业务的战略；其中可能包括斥资约300万亿韩元在韩国全罗道建设一座芯片工厂。
+上半年累计分红达0.11加元 值得关注的是，包括4月和5月支付的两次每股0.03加元的特别股息，以及2月和6月的季度基础股息，Hemisphere Energy在2026年上半年将向股东支付总计每股0.11加元的股息。
 
-三星将利用芯片行业繁荣带来的利润，保持与竞争对手的显著差距，并寻找未来的增长引擎，同时与总统李在明政府的均衡区域增长政策保持一致步调。
+这一分红水平充分体现了公司强劲的现金流状况和回报股东的承诺。
 
-三星电子执行董事长李在镕周四与李在明会晤，并提到了投资计划。
+公司背景 Hemisphere Energy专注于通过聚合物驱等提高采收率技术开发常规重油资产，其核心资产位于加拿大阿尔伯塔省东南部的Atlee Buffalo产区。
 
-总统府将于6月29日召开会议；预计三星、SK海力士等公司的首席执行官将出席。
+收益率参考 根据近期股价水平计算，该股的年化股息收益率约在3.6%至5.8%区间，具体数值因不同数据平台和汇率换算而有所差异。
 
-责任编辑：王永生
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:18 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:43 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:34 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:27 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:18 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:36 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:19 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:22 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:30 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:30 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:47 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:28 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:33 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:36 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:47 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:21 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:27 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:29 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:41 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:39 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:35 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:29 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:23 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:18 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:45 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:32 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:45 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:25 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:33 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:29 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:38 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:47 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:36 - [灿如繁星定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:25 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.share.kurohicncr.top/Article/details/6442591.shtml)
+- 2026-06-29 11:19 - [网友偶遇胡军和李乃文](https://www.share.kurohicncr.top/Article/details/4111027.shtml)
+- 2026-06-29 11:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/753146125.shtml)
+- 2026-06-29 11:32 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/429029.shtml)
+- 2026-06-29 11:44 - [夏粮收购陆续展开 质优价稳购销两旺](https://www.blog.kurohicncr.top/Article/details/319743596.shtml)
+- 2026-06-29 11:25 - [韩国政府将对世界杯出局追责](https://www.blog.minike.top/Article/details/1687412.shtml)
+- 2026-06-29 11:33 - [河南一考生高考703分](http://www.share.minike.top/Article/details/20220404.shtml)
+- 2026-06-29 11:35 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/042427256566.shtml)
+- 2026-06-29 11:40 - [周生如故](http://www.blog.minike.top/Article/details/06929861.shtml)
+- 2026-06-29 11:42 - [医护人员观影《四渡》传承长征精神](http://www.share.minike.top/Article/details/702280351120.shtml)
+- 2026-06-29 11:24 - [浦玮：阿根廷所在半区对手实力偏弱](http://www.blog.minike.top/Article/details/87206191.shtml)
+- 2026-06-29 11:19 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/74426108.shtml)
+- 2026-06-29 11:20 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/451669.shtml)
+- 2026-06-29 11:32 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/778019889013.shtml)
+- 2026-06-29 11:22 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.minike.top/Article/details/68649104626.shtml)

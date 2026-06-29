@@ -1,56 +1,57 @@
-# 牧原股份午前涨逾6% 拟斥资3亿至5亿港元回购H股
+# 一季度业绩强劲，KeyBanc上调斑马技术评级
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-牧原股份（02714）早盘一度涨超6%，截至发稿，股价上涨5.87%，现报29.60港元，成交额1.57亿港元。 牧原股份昨晚公告，公司部分董事及高级管理人员计划自2026年6月26日起6个月内拟通过集中竞价、大宗交易等方式增持公司股份，增持金额合计不低于4亿元、不超过5亿元。本次参与增持计划包括董事长曹治年，总裁兼首席财务官高曈，董事秦牧原，董事、副总裁杨瑞华，董事苏党林等1
+在交出超预期的一季度财报后，斑马技术公司获得华尔街机构的积极评价。KeyBanc资本市场将这家工业移动计算和自动化解决方案提供商的评级上调至“超配”，目标价定为305美元。 评级上调基于需求拐点信号 KeyBanc分析师指出，斑马技术一季度业绩强劲，且短周期工业需求已出现更广泛的拐点迹象。分析师认为，市场对内存成本趋势的担忧可能已反映在股价中，而公司短周期需求的回暖、成本执行的
 
 ## 正文
 
-牧原股份（02714）早盘一度涨超6%，截至发稿，股价上涨5.87%，现报29.60港元，成交额1.57亿港元。
+在交出超预期的一季度财报后，斑马技术公司获得华尔街机构的积极评价。
 
-牧原股份昨晚公告，公司部分董事及高级管理人员计划自2026年6月26日起6个月内拟通过集中竞价、大宗交易等方式增持公司股份，增持金额合计不低于4亿元、不超过5亿元。
+KeyBanc资本市场将这家工业移动计算和自动化解决方案提供商的评级上调至“超配”，目标价定为305美元。
 
-本次参与增持计划包括董事长曹治年，总裁兼首席财务官高曈，董事秦牧原，董事、副总裁杨瑞华，董事苏党林等12位高管及核心管理人员，增持计划不设定价格区间。
+评级上调基于需求拐点信号 KeyBanc分析师指出，斑马技术一季度业绩强劲，且短周期工业需求已出现更广泛的拐点迹象。
 
-与此同时，公司董事会审议通过H股回购方案，拟回购总金额不低于3亿港元且不超过5亿港元的H股股份，资金来源为自有资金或自筹资金。
+分析师认为，市场对内存成本趋势的担忧可能已反映在股价中，而公司短周期需求的回暖、成本执行的改善以及管理层保守的指引记录，有望带来业绩超预期和估值扩张。
 
-根据H股回购方案，回购的H股股份将作为库存股持有。
+一季度业绩全面超预期 财报数据显示，斑马技术2026年第一季度净销售额达14.95亿美元，同比增长14.3%，超出市场预期。
 
-牧原股份表示，本次回购综合考虑了公司业务发展前景、经营情况、财务状况、未来盈利能力以及近期H股市场表现，旨在进一步维护股东权益，增强投资者信心。
+非GAAP每股收益为4.75美元，同比增长18.2%，远超分析师预期。
 
-责任编辑：卢昱君
+分业务板块看，两大业务部门营收分别增长20.6%和7.4%。
+
+调整后EBITDA利润率扩大90个基点至23.2%。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:47 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:22 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:46 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:38 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:39 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:34 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:42 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:30 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:34 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:47 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:23 - [温州学子高考数学满分 分享学习经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:24 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:39 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:18 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:36 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:22 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:21 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:23 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:47 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:31 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:43 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:27 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:26 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:27 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:37 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:31 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:30 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:20 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:33 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:39 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:41 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:21 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:23 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:39 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:26 - [美人鱼](https://www.share.kurohicncr.top/Article/details/134228.shtml)
+- 2026-06-29 11:44 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/40309.shtml)
+- 2026-06-29 11:45 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/5448516.shtml)
+- 2026-06-29 11:24 - [普京：俄罗斯将坚定捍卫自身根本利益](https://www.blog.minike.top/Article/details/378413787500.shtml)
+- 2026-06-29 11:47 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/465944381138.shtml)
+- 2026-06-29 11:33 - [国乒男单资格赛全员出局](http://www.share.kurohicncr.top/Article/details/38438.shtml)
+- 2026-06-29 11:40 - [男子撸铁后擦汗 脸部感染“脚气”](http://www.share.minike.top/Article/details/2072412533.shtml)
+- 2026-06-29 11:21 - [沙丘](https://www.share.minike.top/Article/details/267177.shtml)
+- 2026-06-29 11:44 - [欧洲极端高温东扩](http://www.share.minike.top/Article/details/166524145586.shtml)
+- 2026-06-29 11:22 - [三轮车被自家狗“推”进池塘](http://www.share.kurohicncr.top/Article/details/469544287.shtml)
+- 2026-06-29 11:35 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/038603614384.shtml)
+- 2026-06-29 11:23 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://www.share.kurohicncr.top/Article/details/045329.shtml)
+- 2026-06-29 11:31 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/61475.shtml)
+- 2026-06-29 11:44 - [四川宜宾发生5.5级地震](https://www.share.kurohicncr.top/Article/details/10762490320.shtml)
+- 2026-06-29 11:33 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/14752257539.shtml)

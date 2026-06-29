@@ -1,56 +1,58 @@
-# 首届广西北部湾船员技能竞赛聚力培育航运人才
+# 中华人民共和国南宁海关2026年5月至12月政府采购意向-南宁海关2026年海关缉私实验室设备更新项目（电子）
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网防城港6月26日电 (李梓媛)首届广西北部湾船员职业技能竞赛近日在防城港举行，来自北海、防城港、钦州3市的航运企业、航海院校的6支代表队，42名船员代表参加。 本次活动由防城港海事局牵头，联合防城港市总工会、防城国际海员俱乐部、防城出入境边防检查站主办，防城港市船员行业党委协同组织，旨在落实广西海事“136”发展战略、落地链接东盟对外开放定位，夯实西部陆海新通道航运人才根
+全网爆火《ENEMY》如何拍出？成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？年轻人的第一台“新家电”，为什么是3D打印机？人这一辈子，一定要去一趟眉山！王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？鸟归巢，人归乡：归
 
 ## 正文
 
-中新网防城港6月26日电 (李梓媛)首届广西北部湾船员职业技能竞赛近日在防城港举行，来自北海、防城港、钦州3市的航运企业、航海院校的6支代表队，42名船员代表参加。
+全网爆火《ENEMY》如何拍出？
 
-本次活动由防城港海事局牵头，联合防城港市总工会、防城国际海员俱乐部、防城出入境边防检查站主办，防城港市船员行业党委协同组织，旨在落实广西海事“136”发展战略、落地链接东盟对外开放定位，夯实西部陆海新通道航运人才根基。
+成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？
 
-据了解，赛事以“技聚北部湾·匠筑航海梦”为主题，紧贴船舶海上实操与应急处置实景，设置团体实操、个人技能两大板块，涵盖撇缆操作、机舱故障排除、海上救生、消防应急处置等实操科目，全面检验船员专业履职能力。
+年轻人的第一台“新家电”，为什么是3D打印机？
 
-作为北部湾首场面向东盟开放的区域性船员技能竞赛，本次赛事创新开设外籍船员观摩交流专场，并邀请越南航运行业代表及东盟国家外籍船员代表现场观赛，切磋技能。
+人这一辈子，一定要去一趟眉山！
 
-越南西贡游艇与码头有限公司首席执行官杜平阳表示，赛事以技能比武为桥梁，搭建起中外海员友好互通平台，是广西海事链接东盟、做实涉外航运服务的务实实践。
+王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？
 
-期待后续搭建更多双向交流平台，实现中外船员互学共进。
+鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！
 
-“本次技能竞赛专业性、实战性很强，既比拼实操本领，也搭建了和东盟船员交流学习的平台，真切感受到社会各界对海员群体的关怀。
+告诉你一个你所不知道的天坛天热了车里别放这些东西！
 
-”参赛船员代表吴沛原说。
+已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:34 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:33 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:18 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:25 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:33 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:35 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:45 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:39 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:36 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:44 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:30 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:31 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:45 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:48 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:39 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:41 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:25 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:34 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:28 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:35 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:35 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:28 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:36 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:45 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:43 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:37 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:30 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:40 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:32 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:40 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:21 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/82675602261.shtml)
+- 2026-06-29 11:21 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/2101277.shtml)
+- 2026-06-29 11:44 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/13697.shtml)
+- 2026-06-29 11:23 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/29833037370.shtml)
+- 2026-06-29 11:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/32132486232.shtml)
+- 2026-06-29 11:18 - [埃博拉为何再次袭击非洲](https://www.blog.minike.top/Article/details/682260351.shtml)
+- 2026-06-29 11:40 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/94559471584.shtml)
+- 2026-06-29 11:43 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/3967342040.shtml)
+- 2026-06-29 11:26 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/766399328.shtml)
+- 2026-06-29 11:36 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.kurohicncr.top/Article/details/203802.shtml)
+- 2026-06-29 11:43 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/514002797742.shtml)
+- 2026-06-29 11:44 - [英国高温已致多人死亡](http://www.blog.minike.top/Article/details/3665981.shtml)
+- 2026-06-29 11:42 - [韩国队启程回国众将回避镜头](http://www.blog.kurohicncr.top/Article/details/62981121.shtml)
+- 2026-06-29 11:46 - [2岁幼童高铁突发惊厥呼吸骤停](https://www.blog.kurohicncr.top/Article/details/20784.shtml)
+- 2026-06-29 11:29 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/948980360803.shtml)

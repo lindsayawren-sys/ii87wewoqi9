@@ -1,57 +1,58 @@
-# （投资中国）阿提哈德航空货运总裁：看好中国和海湾地区在电商领域的合作前景
+# 第七届成龙国际动作电影周将与首届太阳岛电影周双周绽放哈尔滨
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新社上海6月25日电 (记者 姜煜)“我们非常看好中国和海湾地区在电商领域的合作前景，预计两地航空物流业将持续蓬勃发展。”阿提哈德航空货运总裁柏朗天(Stanislas Brun)25日表示。 当天，2026亚洲航空货运博览会在上海举办，柏朗天在展会现场接受了中新社记者采访。他说，为了满足阿联酋与中国之间快速增长的航空货运市场需求，阿提哈德航空与顺丰航空在联营协议(JBA)框
+中新网北京5月14日电 (记者 高凯)5月14日，首届太阳岛电影周、第七届成龙国际动作电影周新闻发布会在中国电影博物馆举办。会上宣布，首届太阳岛电影周将于8月6日至9日在哈尔滨举办，第七届成龙国际动作电影周将于8月10日至12日接续举办，以电影双周的形式在松花江畔打造盛夏光影盛宴。 据了解，自2015年创办以来，由成龙发起的成龙国际动作电影周已成功举办六届，为武行、替身、特技人
 
 ## 正文
 
-中新社上海6月25日电 (记者 姜煜)“我们非常看好中国和海湾地区在电商领域的合作前景，预计两地航空物流业将持续蓬勃发展。
+中新网北京5月14日电 (记者 高凯)5月14日，首届太阳岛电影周、第七届成龙国际动作电影周新闻发布会在中国电影博物馆举办。
 
-”阿提哈德航空货运总裁柏朗天(Stanislas Brun)25日表示。
+会上宣布，首届太阳岛电影周将于8月6日至9日在哈尔滨举办，第七届成龙国际动作电影周将于8月10日至12日接续举办，以电影双周的形式在松花江畔打造盛夏光影盛宴。
 
-当天，2026亚洲航空货运博览会在上海举办，柏朗天在展会现场接受了中新社记者采访。
+据了解，自2015年创办以来，由成龙发起的成龙国际动作电影周已成功举办六届，为武行、替身、特技人等台前幕后的动作电影人提供舞台，成为国际动作电影领域最具价值的文化品牌之一。
 
-他说，为了满足阿联酋与中国之间快速增长的航空货运市场需求，阿提哈德航空与顺丰航空在联营协议(JBA)框架下深化合作，不断提升两地航空货运的运力。
+今年八月，第七届成龙国际动作电影周将落户黑龙江省哈尔滨市，与首届太阳岛电影周皆为“哈尔滨之夏”系列电影活动。
 
-柏朗天表示，作为阿联酋国家航空公司的阿提哈德航空将大幅拓展其在中国的客运航线网络，明年将新增从阿联酋阿布扎比至广州、深圳、成都、杭州的航线，这是公司近年来单一市场规模最大的一次扩张。
+作为成龙国际动作电影周的发起人，演员成龙当日登台亮相，并发布本届成龙国际动作电影周主视觉海报以及奖杯造型。
 
-此外，公司还将大力拓展非洲地区的网点，可助力航空出行并把中国丰富的商品运达非洲，这也是阿提哈德航空支持共建“一带一路”的重要举措。
+据介绍，第七届成龙国际动作电影周的全新视觉形象设计由武汉设计工程学院成龙影视学院师生团队打造，用四种不同颜色的能量线条代表传承、敬佩、勇气、力量等动作电影精神，最终汇聚为一只属于动作电影人的手。
 
-中国很多领域已经开始应用人工智能、无人机等前沿技术，柏朗天称，阿提哈德航空将借鉴中国合作伙伴的经验和技术，在阿布扎比探索无人机送货试点，应用成熟后可能将这一创新技术拓展到整个阿联酋以及海湾其他地区。
+现场，成龙将第七届成龙国际动作电影周签名海报捐赠给中国电影博物馆作为永久馆藏。
 
-在人工智能应用方面，阿提哈德航空也在智能追踪服务、收益管理、客服响应等方面积极探索创新解决方案。
+成龙国际动作电影周持续鼓励坚韧拼搏、勇于担当、精益求精的优秀动作电影人，树立行业榜样。
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:38 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:45 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:45 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:34 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:38 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:37 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:25 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:37 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:42 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:41 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:35 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:26 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:43 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:23 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:33 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:29 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:23 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:31 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:38 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:32 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:24 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:33 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:35 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:33 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:33 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:40 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:19 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:32 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:24 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:42 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:44 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:46 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:34 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:37 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:27 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.kurohicncr.top/Article/details/5462308.shtml)
+- 2026-06-29 11:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/967592.shtml)
+- 2026-06-29 11:31 - [曾挑衅中国的立陶宛“生变”了](https://www.blog.kurohicncr.top/Article/details/14843.shtml)
+- 2026-06-29 11:31 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/76479.shtml)
+- 2026-06-29 11:28 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/0295217.shtml)
+- 2026-06-29 11:20 - [蒸了一锅妃子笑荔枝馒头](http://www.blog.kurohicncr.top/Article/details/79993278793.shtml)
+- 2026-06-29 11:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/625922.shtml)
+- 2026-06-29 11:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/96417.shtml)
+- 2026-06-29 11:23 - [温峥嵘直播回应恶评](http://www.share.kurohicncr.top/Article/details/49372538656.shtml)
+- 2026-06-29 11:44 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/75416518.shtml)
+- 2026-06-29 11:32 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/70893520.shtml)
+- 2026-06-29 11:26 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/45616452388.shtml)
+- 2026-06-29 11:21 - [加拿大队史淘汰赛首胜](http://www.share.minike.top/Article/details/90770077.shtml)
+- 2026-06-29 11:29 - [香港航天员黎家盈带招牌笑容工作](http://www.blog.kurohicncr.top/Article/details/527909257.shtml)
+- 2026-06-29 11:42 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/883371.shtml)

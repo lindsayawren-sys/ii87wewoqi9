@@ -1,59 +1,56 @@
-# 第五届“一带一路”百校结好艺术展开展
+# 光大期货：5月14日金融日报
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-夏季达沃斯观察：全球独角兽企业看好中国创新潜力全链条扩大汽车消费撬动万亿级新蓝海人这一辈子，一定要去一趟德州！警惕盲盒消费陷阱，这份提示请收好“仅退款”变“零元购”？法官解答三个常见法律问题个税汇算本月底结束 收到“补税提醒”后怎么处理停不进、难开门：“车大位小”矛盾如何解新型“银狐”木马病毒出现 警惕“广告”链接“AI幻觉”一本正经地胡编乱造，侵权责任谁担？七队提前出线、五队
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指继续冲高，Wind全A上涨1.26%，成交额3.27万亿元。盘中最高7271.51，超过2015年该指数历史最高值。中证1000指数上涨1.51%，中证500指数上涨1.51%，沪深300指数上涨1.02%，上证50指数上涨0.12%。A股市场2026年一季报表现亮眼。 26Q1
 
 ## 正文
 
-夏季达沃斯观察：全球独角兽企业看好中国创新潜力全链条扩大汽车消费撬动万亿级新蓝海人这一辈子，一定要去一趟德州！
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指继续冲高，Wind全A上涨1.26%，成交额3.27万亿元。
 
-警惕盲盒消费陷阱，这份提示请收好“仅退款”变“零元购”？
+盘中最高7271.51，超过2015年该指数历史最高值。
 
-法官解答三个常见法律问题个税汇算本月底结束 收到“补税提醒”后怎么处理停不进、难开门：“车大位小”矛盾如何解新型“银狐”木马病毒出现 警惕“广告”链接“AI幻觉”一本正经地胡编乱造，侵权责任谁担？
+中证1000指数上涨1.51%，中证500指数上涨1.51%，沪深300指数上涨1.02%，上证50指数上涨0.12%。
 
-七队提前出线、五队提前出局，美加墨世界杯末轮悬念还有多少？
+A股市场2026年一季报表现亮眼。
 
-“中国机遇2.0”打脸“中国冲击2.0”两个“第一部”、三个“首次”，标定民族工作这部基本法的分量“流水线”式造谣，谁在污蔑新疆？
+26Q1全A剔除金融营收同比增速5.2%，大幅高于25Q3的0.6%，是2023年以来的最高值。
 
-厄尔尼诺“进行时”，该如何与极端天气气候共处？
+营收同比增速可以看做是上市公司资产端收益率，该数值过去三年来首次超过主要资金利率，这代表我国实体经济在总量层面进入新的通胀阶段。
 
-世界杯靠AI买彩票，靠谱吗？
+此外，全A剔除金融在一季度的净利润同比增速为11.7%，盈利端同步继续修复。
 
-洪水为啥要编号？
+同时，A股板块间分化严重。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:22 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:40 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:24 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:23 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:41 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:43 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:35 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:41 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:26 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:46 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:36 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:21 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:26 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:42 - [男子吃半根变苦黄瓜致肝衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:32 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:19 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:32 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:29 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:40 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:37 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:39 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:42 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:47 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:18 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:23 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:44 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:47 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:45 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:41 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:19 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:36 - [去美国加油？部分加拿大球迷陷入纠结](https://www.share.kurohicncr.top/Article/details/759020703.shtml)
+- 2026-06-29 11:27 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/12852802.shtml)
+- 2026-06-29 11:29 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/3006692.shtml)
+- 2026-06-29 11:30 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://www.blog.minike.top/Article/details/956405.shtml)
+- 2026-06-29 11:31 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/03483282.shtml)
+- 2026-06-29 11:28 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/19432.shtml)
+- 2026-06-29 11:42 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.share.minike.top/Article/details/02906.shtml)
+- 2026-06-29 11:19 - [曝太阳黄蜂完成阵容互换+签位置换](https://www.share.minike.top/Article/details/66223438468.shtml)
+- 2026-06-29 11:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/39534.shtml)
+- 2026-06-29 11:35 - [女心理师](https://www.share.minike.top/Article/details/91850624.shtml)
+- 2026-06-29 11:40 - [杨紫李现16年情谊藏于行动](https://www.share.kurohicncr.top/Article/details/39354686705.shtml)
+- 2026-06-29 11:26 - [农业谣言岂能如此“变态”](https://www.share.minike.top/Article/details/8043926097.shtml)
+- 2026-06-29 11:23 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/94892.shtml)
+- 2026-06-29 11:30 - [加拿大队史淘汰赛首胜](http://www.blog.kurohicncr.top/Article/details/382013611.shtml)
+- 2026-06-29 11:27 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/1427390.shtml)

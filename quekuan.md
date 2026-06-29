@@ -1,54 +1,57 @@
-# 国家税务总局推出集团企业“税收贡献账单”
+# 515投资者保护|永赢基金《小定投大乾坤》：用“数据图解+白话总结”，讲透定投这件事
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网北京6月26日电 (记者 赵建华)目前，税务部门初步选取了央企上市公司及民营企业等500多家重点集团，6月中旬试点开展了向集团总部推送整个集团上年度“税收贡献账单”的工作。 国家税务总局纳税服务司有关负责人26日介绍，此次推出的“税收贡献账单”，是国家税务总局依托税收大数据，按统一标准口径自动归集重点集团企业年度纳税情况后生成的“纳税账”，包括企业年度纳税总额、增值税和企
+专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。永赢基金“《小定投大乾坤》系列定投专栏”参选“最佳投资者教育创新奖”类别。>>活动详情 基金定投常被称作“懒人理财神器”，但“什么时候开始投、每期投多少、亏损了要不要停、止盈点怎么设”——这些实操层面的问题，往往让普通投资者无从下手。 永赢基金推出的
 
 ## 正文
 
-中新网北京6月26日电 (记者 赵建华)目前，税务部门初步选取了央企上市公司及民营企业等500多家重点集团，6月中旬试点开展了向集团总部推送整个集团上年度“税收贡献账单”的工作。
+专题：515投资者保护！
 
-国家税务总局纳税服务司有关负责人26日介绍，此次推出的“税收贡献账单”，是国家税务总局依托税收大数据，按统一标准口径自动归集重点集团企业年度纳税情况后生成的“纳税账”，包括企业年度纳税总额、增值税和企业所得税等主要税种缴纳情况、同比增减幅度等信息，由税务部门统一推送至重点集团企业总部，为企业规范发布涉税数据提供依据。
+新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
 
-“有了税务部门统一标准的‘税收贡献账单’，企业可以结合经营实际，对外披露有关数据，充分展示企业依法纳税的责任担当和为国家社会作出的贡献，进一步树立依法依规纳税的诚信纳税形象，让诚信纳税成为企业参与市场竞争的‘金字招牌’。
+永赢基金“《小定投大乾坤》系列定投专栏”参选“最佳投资者教育创新奖”类别。
 
-”中央财经大学财政税务学院院长樊勇说，企业还可以把规范可信的纳税数据提供给第三方，将合规经营沉淀的纳税信用，转化为提升企业融资授信、参与市场竞争的发展势能。
+>>活动详情 基金定投常被称作“懒人理财神器”，但“什么时候开始投、每期投多少、亏损了要不要停、止盈点怎么设”——这些实操层面的问题，往往让普通投资者无从下手。
 
-樊勇介绍，“税收贡献账单”中的各项数据是税务机关按统一标准归集的，企业可以将其作为经营管理质效评估、涉税风险防控、财务决策优化的重要支撑，通过涉税数据复盘经营状况、排查涉税风险、优化资源配置，推动企业合规经营、稳健发展。
+永赢基金推出的《小定投大乾坤》系列定投专栏，正是为了破解这一痛点。
 
-(完)
+专栏紧扣大众理财需求，聚焦投资者定投方法缺失、易踩误区等核心问题，打造了一套专业易懂的系统化学习体系。
+
+专栏以基金定投知识科普为核心，通过阶梯式内容设计，由浅入深覆盖定投基础知识、实操方法、误区警示及高阶策略。
+
+从“什么是定投”到“如何制定定投计划”再到“定投止盈技巧”，逻辑清晰、层层递进，帮助投资者循序渐进地掌握定投这门技能，真正降低定投的认知门槛。
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:30 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:42 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:33 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:46 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:20 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:25 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:41 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:36 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:45 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:23 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:40 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:35 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:30 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:47 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:29 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:28 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:42 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:20 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:32 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:32 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:35 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:23 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:35 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:33 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:43 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:35 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:42 - [男子吃半根变苦黄瓜致肝衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:24 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:30 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:36 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:45 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:20 - [黄博文：坚持这样打下去会成强队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:22 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:21 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/183133447.shtml)
+- 2026-06-29 11:40 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.minike.top/Article/details/247859947122.shtml)
+- 2026-06-29 11:21 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/805337851.shtml)
+- 2026-06-29 11:39 - [浦玮：阿根廷所在半区对手实力偏弱](http://www.blog.kurohicncr.top/Article/details/50860.shtml)
+- 2026-06-29 11:26 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/7107357.shtml)
+- 2026-06-29 11:22 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/618681346340.shtml)
+- 2026-06-29 11:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/034883581027.shtml)
+- 2026-06-29 11:22 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/6291131.shtml)
+- 2026-06-29 11:47 - [欧洲极端高温东扩](https://www.share.kurohicncr.top/Article/details/693010.shtml)
+- 2026-06-29 11:45 - [黄灿灿恭喜自己拿到全季通告费](http://www.share.kurohicncr.top/Article/details/061608085.shtml)
+- 2026-06-29 11:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/3277786672.shtml)
+- 2026-06-29 11:41 - [F1奥地利正赛战报](https://www.share.minike.top/Article/details/9136087345.shtml)
+- 2026-06-29 11:21 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.minike.top/Article/details/4375760.shtml)
+- 2026-06-29 11:35 - [欧洲极端高温东扩](http://www.share.minike.top/Article/details/18867329.shtml)
+- 2026-06-29 11:37 - [成都震感](http://www.share.kurohicncr.top/Article/details/992918649379.shtml)

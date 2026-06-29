@@ -1,52 +1,59 @@
-# 中信资源午前涨逾13% 预期中期股东应占综合溢利同比增加约57%至112%
+# 泰韩收购DOF旗下电缆铺设船，强化海上风电布局
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中信资源（01205）盘中涨超17%，截至发稿，股价上涨12.77%，现报0.53港元，成交额5.24亿港元。 近日，中信资源发布公告，本集团预期于截至2026年6月30日止六个月（有关期间）取得股东应占未经审核综合溢利约2.38亿港元至3.22亿港元，较去年同期股东应占综合溢利约1.52亿港元增加约57%至112%。有关期间的股东应占未经审核综合溢利预期增加主要由于2026年
+韩国泰韩电缆与解决方案公司近日宣布，已从挪威DOF集团收购第二艘电缆铺设船，以满足全球电网互联基础设施日益增长的需求，进一步强化其在海上风电及海底电力电缆安装领域的竞争力。 双船队体系成型 此次收购的船舶为万吨级“Skandi Connector”号，建于2016年，具备DP2动力定位系统，单次可装载约7000吨海底电缆。该船由荷兰达门船厂设计，此前已在全球27个项目中累计铺设
 
 ## 正文
 
-中信资源（01205）盘中涨超17%，截至发稿，股价上涨12.77%，现报0.53港元，成交额5.24亿港元。
+韩国泰韩电缆与解决方案公司近日宣布，已从挪威DOF集团收购第二艘电缆铺设船，以满足全球电网互联基础设施日益增长的需求，进一步强化其在海上风电及海底电力电缆安装领域的竞争力。
 
-近日，中信资源发布公告，本集团预期于截至2026年6月30日止六个月（有关期间）取得股东应占未经审核综合溢利约2.38亿港元至3.22亿港元，较去年同期股东应占综合溢利约1.52亿港元增加约57%至112%。
+双船队体系成型 此次收购的船舶为万吨级“Skandi Connector”号，建于2016年，具备DP2动力定位系统，单次可装载约7000吨海底电缆。
 
-有关期间的股东应占未经审核综合溢利预期增加主要由于2026年前五个月本集团所售原油的平均售价较去年同期大幅增加。
+该船由荷兰达门船厂设计，此前已在全球27个项目中累计铺设约1300公里电缆。
 
-责任编辑：卢昱君
+船舶预计于2026年8月交付韩国，8月正式投入运营。
+
+Skandi Connector将与泰韩于2025年收购的首艘海上风电专用CLV“Palos”号组成双船队体系。
+
+泰韩表示，这使其能够根据项目特点和施工环境灵活调配最优船舶，实现“双轨制”施工。
+
+强化一体化服务能力 此次收购后，泰韩已建立起覆盖海上风电阵列内电缆、出口电缆安装，以及长距离电网互联和高压直流输电网络施工的完整能力。
+
+加上旗下海底施工子公司Taihan Ocean Works，公司实现了从电缆设计、制造到运输、安装的全产业链垂直整合。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:32 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:30 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:26 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:45 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:26 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:18 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:32 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:32 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:42 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:18 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:36 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:36 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:19 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:48 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:45 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:29 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:27 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:39 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:35 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:28 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:47 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:21 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:44 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:38 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:20 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:34 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:41 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:22 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:19 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:47 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:24 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:33 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:24 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:42 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:38 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:18 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:24 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/073342322739.shtml)
+- 2026-06-29 11:38 - [王佳佳江疏影13年前后同框对比](http://www.blog.kurohicncr.top/Article/details/87021.shtml)
+- 2026-06-29 11:29 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.minike.top/Article/details/663638.shtml)
+- 2026-06-29 11:31 - [恋与深空底线不该被娱乐化](https://www.blog.minike.top/Article/details/2684778043.shtml)
+- 2026-06-29 11:36 - [曾沛慈夺冠后人气](https://www.blog.minike.top/Article/details/30683.shtml)
+- 2026-06-29 11:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/538927266.shtml)
+- 2026-06-29 11:46 - [退休化学教授帮医药研发人员制毒](http://www.blog.kurohicncr.top/Article/details/268351.shtml)
+- 2026-06-29 11:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/70154488.shtml)
+- 2026-06-29 11:22 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/17428373.shtml)
+- 2026-06-29 11:37 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.share.kurohicncr.top/Article/details/1086813046.shtml)
+- 2026-06-29 11:44 - [委内瑞拉地震已致1450死3150伤](http://www.share.minike.top/Article/details/322146670.shtml)
+- 2026-06-29 11:25 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/28165.shtml)
+- 2026-06-29 11:43 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/8019204702.shtml)
+- 2026-06-29 11:19 - [沙丘](https://www.blog.minike.top/Article/details/1614259.shtml)
+- 2026-06-29 11:39 - [曾挑衅中国的立陶宛“生变”了](https://www.share.minike.top/Article/details/38887507.shtml)

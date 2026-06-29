@@ -1,57 +1,58 @@
-# 天津发布首部港产城融合发展规划 明确五大重点任务
+# “海南鲜品”品牌效应显现：企业拓市场 农户增收益
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网天津6月26日电 (记者 周亚强)天津市政府新闻办26日举行发布会，解读新近获批的《天津市港产城融合发展“十五五”规划》(下称《规划》)。这是天津首部港产城融合发展规划。 “区别于常规的港口规划，这次《规划》不仅谋划港口建设发展，更突出港口牵引、产业支撑和城市保障作用，系统性、综合性、创新性强。”天津市交通运输委主任王志楠介绍，编制期间共41家市级部门、相关区、众多企业及
+中新网海口5月13日电 (记者 王晓斌)做了多年糟粕醋的“醋理大师”，今年一季度销售额同比增长了20%，还为全国45家五星级酒店供货。这家海南文昌市级非遗传承品牌的变化，发生在获得“海南鲜品”授权之后。 记者近日从海南省农业农村厅了解到，“海南鲜品”区域公用品牌建设推进一年多来，一批授权企业在市场拓展方面取得积极进展，订单农业、标准认证、全链条溯源等配套措施同步落地，品牌对产业
 
 ## 正文
 
-中新网天津6月26日电 (记者 周亚强)天津市政府新闻办26日举行发布会，解读新近获批的《天津市港产城融合发展“十五五”规划》(下称《规划》)。
+中新网海口5月13日电 (记者 王晓斌)做了多年糟粕醋的“醋理大师”，今年一季度销售额同比增长了20%，还为全国45家五星级酒店供货。
 
-这是天津首部港产城融合发展规划。
+这家海南文昌市级非遗传承品牌的变化，发生在获得“海南鲜品”授权之后。
 
-“区别于常规的港口规划，这次《规划》不仅谋划港口建设发展，更突出港口牵引、产业支撑和城市保障作用，系统性、综合性、创新性强。
+记者近日从海南省农业农村厅了解到，“海南鲜品”区域公用品牌建设推进一年多来，一批授权企业在市场拓展方面取得积极进展，订单农业、标准认证、全链条溯源等配套措施同步落地，品牌对产业上下游的带动效应逐步显现。
 
-”天津市交通运输委主任王志楠介绍，编制期间共41家市级部门、相关区、众多企业及行业专家深度参与，并广泛征集了社会公众意见。
+从本地小吃到星级酒店 糟粕醋是海南文昌的地方小吃。
 
-王志楠介绍，《规划》明确以港口带物流、以物流带经贸、以经贸带产业、以产业带城市为主线，谋划了五方面重点任务：打造双循环陆海联通枢纽、提升适港产业发展水平、强化临港产业服务能力、促进城市航运要素转型集聚、建设活力创新港口城市。
+作为一种复合调味料，糟粕醋相关产品过去主要在本地销售。
 
-围绕未来发展，《规划》设定了一系列量化指标。
+“醋理大师”在获得“海南鲜品”授权后，进入品牌统一推广体系，获得“圳品”认证，打通了进入大湾区市场的通道。
 
-预计到2030年，港口集装箱、货物吞吐量分别达2900万标准箱和6.5亿吨；中欧(亚)班列年开行量达1000列；进出口贸易额本地结算率达50%；五大临港产业总产值达6000亿元；跨境电商进出口交易额达1000亿元；邮轮旅客吞吐量超35万人次，东疆港产城融合发展示范区年均旅游收入达5亿元。
+目前，糟粕醋产品已覆盖北京、上海、成都等十余个城市。
 
-据介绍，2025年天津港集装箱吞吐量2403万标准箱、货物吞吐量5.95亿吨，分别位居全球第八、第九；天津在新华·波罗的海国际航运中心发展指数排名升至全球第18位。
+企业方面预计，今年仅大湾区板块将增收800万元。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:36 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:34 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:40 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:22 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:25 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:22 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:46 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:28 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:29 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:37 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:45 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:41 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:20 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:41 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:37 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:32 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:43 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:28 - [温州学子高考数学满分 分享学习经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:39 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:27 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:34 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:18 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:37 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:40 - [当地回应多辆“百吨王”强行冲卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:39 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:43 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:46 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:22 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:25 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:23 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:21 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:29 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:26 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:26 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/6353215.shtml)
+- 2026-06-29 11:34 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/42306905.shtml)
+- 2026-06-29 11:42 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/5705812489.shtml)
+- 2026-06-29 11:27 - [中气爱：吐鲁番快50度了](http://www.blog.minike.top/Article/details/21405.shtml)
+- 2026-06-29 11:20 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/742827490.shtml)
+- 2026-06-29 11:47 - [日本和澳大利亚能代表亚洲足球走多远](http://www.blog.kurohicncr.top/Article/details/2514704241.shtml)
+- 2026-06-29 11:25 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/49743373.shtml)
+- 2026-06-29 11:31 - [丞磊莫离最后5集加起来集均3分钟戏份](https://www.share.minike.top/Article/details/540923242.shtml)
+- 2026-06-29 11:40 - [伊朗球员道歉 说着说着哭了](http://www.share.kurohicncr.top/Article/details/3986774064.shtml)
+- 2026-06-29 11:26 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/5281987398.shtml)
+- 2026-06-29 11:26 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/6332509.shtml)
+- 2026-06-29 11:36 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/1311996.shtml)
+- 2026-06-29 11:37 - [换个角度打开世界杯淘汰赛](http://www.blog.minike.top/Article/details/64667.shtml)
+- 2026-06-29 11:44 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/470109540.shtml)
+- 2026-06-29 11:27 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/558638852408.shtml)

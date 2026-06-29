@@ -1,59 +1,59 @@
-# 五大行AIC持久战：穿越硬科技周期
+# 浙江向民间资本开放海上风电等九大领域项目
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者张欣 林汉垚 冯紫彤 硬科技怎么投？我们对话五家大行旗下AIC，复盘这场贯穿存储芯片周期的耐心资本持久战。 时间拉回到2023年下半年，全球DRAM（内存芯片）价格跌穿成本线，当多数市场化机构面对尚未盈利、负债率高企的长江存储与长鑫科技选择观望时，五大行AIC（记者注：中邮投资因成立较晚彼时还未参与）集体驰援，累计投入数十亿元。 AIC为何逆势入局？ “从一
+中新社杭州5月14日电 (蓝伊旎)浙江省政府14日在杭州召开政策吹风会，浙江省发展改革委副主任张曙明介绍解读了《进一步激发民间投资活力 促进民营经济高质量发展十三条措施》(以下简称“民营经济新增13条”)。据悉，浙江明确向民间资本开放铁路、核电、海上风电、供水等9个领域项目，并将具备条件的核电、深远海风电项目民间资本持股比例提高至“不低于20%”。 为规范民间资本参与重大项目的
 
 ## 正文
 
-21世纪经济报道记者张欣 林汉垚 冯紫彤 硬科技怎么投？
+中新社杭州5月14日电 (蓝伊旎)浙江省政府14日在杭州召开政策吹风会，浙江省发展改革委副主任张曙明介绍解读了《进一步激发民间投资活力 促进民营经济高质量发展十三条措施》(以下简称“民营经济新增13条”)。
 
-我们对话五家大行旗下AIC，复盘这场贯穿存储芯片周期的耐心资本持久战。
+据悉，浙江明确向民间资本开放铁路、核电、海上风电、供水等9个领域项目，并将具备条件的核电、深远海风电项目民间资本持股比例提高至“不低于20%”。
 
-时间拉回到2023年下半年，全球DRAM（内存芯片）价格跌穿成本线，当多数市场化机构面对尚未盈利、负债率高企的长江存储与长鑫科技选择观望时，五大行AIC（记者注：中邮投资因成立较晚彼时还未参与）集体驰援，累计投入数十亿元。
+为规范民间资本参与重大项目的程序，浙江将建立专项论证机制，并首次明确未经论证不得审批(核准)。
 
-AIC为何逆势入局？
+要素保障方面，浙江还明确基金、用地、用能支持民间投资项目的标准由原来的“3个不低于70%”提升为“3个不低于80%”。
 
-“从一般商业逻辑看，可能会被认为是‘逆势’之举。
+聚焦科技创新，“民营经济新增13条”明确，浙江省重大科技计划项目企业参与占比不低于80%、企业主导占比不低于70%，面向民营企业评选的人才在省级人才计划中占比不低于50%。
 
-但从根本上看，这恰恰是AIC立足债转股主责主业、服务实体经济、国家高水平科技自立自强、统筹功能性和商业性等的必然选择和顺势而为。
+此外，浙江还推出27项创新性举措，如将着力提高企业参与科技奖项占比、探索整合涉企科创平台、精简规范涉企榜单评选等。
 
-支持具有良好发展前景但遇到暂时困难的优质企业是AIC的使命。
+在资金支持方面，浙江将持续加力扩大无还本续贷规模，预计2026年新增5000亿元人民币以上，后续余额保持每年5%以上增长。
 
-”工银投资相关人士的复盘，道出了国有大行AIC服务科技创新的底层逻辑。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:42 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:18 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:24 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:34 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:38 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:30 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:45 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:24 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:19 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:21 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:38 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:19 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:37 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:28 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:25 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:35 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:32 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:18 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:24 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:26 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:30 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:27 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:28 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:25 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:37 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:25 - [蒸了一锅妃子笑荔枝馒头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:40 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:36 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:47 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:19 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:46 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:43 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:41 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:24 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:37 - [白玉兰最佳女主角提名片段](https://www.share.kurohicncr.top/Article/details/80692794673.shtml)
+- 2026-06-29 11:35 - [A股](https://www.blog.minike.top/Article/details/01988485706.shtml)
+- 2026-06-29 11:38 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/513686.shtml)
+- 2026-06-29 11:21 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/4810015.shtml)
+- 2026-06-29 11:44 - [媒体人：警惕日本再次成战争加害国](https://www.share.minike.top/Article/details/65052584648.shtml)
+- 2026-06-29 11:35 - [退休化学教授帮医药研发人员制毒](https://www.blog.minike.top/Article/details/22386.shtml)
+- 2026-06-29 11:36 - [房屋抵押权与租赁权如何协调](https://www.share.kurohicncr.top/Article/details/977259824.shtml)
+- 2026-06-29 11:23 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/1509543045.shtml)
+- 2026-06-29 11:23 - [白鹿呵呵挽手比心](https://www.blog.minike.top/Article/details/305603.shtml)
+- 2026-06-29 11:44 - [本届世界杯黑马扎堆](https://www.share.minike.top/Article/details/0724117.shtml)
+- 2026-06-29 11:19 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/6840332741.shtml)
+- 2026-06-29 11:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/8816403456.shtml)
+- 2026-06-29 11:35 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/74013612330.shtml)
+- 2026-06-29 11:45 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.blog.kurohicncr.top/Article/details/44300050.shtml)
+- 2026-06-29 11:33 - [青春环游记第三季](http://www.blog.minike.top/Article/details/622280.shtml)

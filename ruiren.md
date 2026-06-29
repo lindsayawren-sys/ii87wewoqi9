@@ -1,58 +1,61 @@
-# 证券账户有闲钱，千万别错过下周这一“黄金窗口”！
+# 中际旭创800位员工分17亿
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 叶麦穗 低利率时代来了，市场利率一路下行，各大银行活期年利率只剩0.05%，一年定期存款利率也都全面迈入“1时代”。要是股票账户里的闲置资金放着不动，基本等于白白躺平、一分钱额外收益都没有。 最近就有圈友问财小圈，如何让闲置资金从“躺平”到“躺赢”呢？ 小圈曾经跟大家专门聊过，国债逆回购是场内低风险短期理财神器，平时年化稳定在 1.8%—3%。但是一到月末
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！技术造富时代。 作者/冯雨晨 报道/投资界PEdaily 短短一个月，中际旭创两次飞跃——市值突破1万亿元，股价突破1000元。 财富顺流而下，这让总计持股17.47%的实控人王伟修以超2000亿的身家坐稳山东首富，也造就了一批中际旭创员工的股权暴涨梦。 今年以来，中际旭创多期股权激励计划的归属条件达成，最
 
 ## 正文
 
-21世纪经济报道记者 叶麦穗 低利率时代来了，市场利率一路下行，各大银行活期年利率只剩0.05%，一年定期存款利率也都全面迈入“1时代”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-要是股票账户里的闲置资金放着不动，基本等于白白躺平、一分钱额外收益都没有。
+技术造富时代。
 
-最近就有圈友问财小圈，如何让闲置资金从“躺平”到“躺赢”呢？
+作者/冯雨晨 报道/投资界PEdaily 短短一个月，中际旭创两次飞跃——市值突破1万亿元，股价突破1000元。
 
-小圈曾经跟大家专门聊过，国债逆回购是场内低风险短期理财神器，平时年化稳定在 1.8%—3%。
+财富顺流而下，这让总计持股17.47%的实控人王伟修以超2000亿的身家坐稳山东首富，也造就了一批中际旭创员工的股权暴涨梦。
 
-但是一到月末、季末、长假前夕，机构“抢钱”行情上线，利率直接冲至5%—10%。
+今年以来，中际旭创多期股权激励计划的归属条件达成，最新消息是，803名中际旭创员工将得以归属163万股股份，对应最新股价，价值超17亿元。
 
-但这工具非常吃操作时机，计息规则门槛多，踩错节奏很容易忙活半天没收益，甚至手续费倒贴亏钱。
+不止于此，中际旭创3月公告，将为99名激励对象归属248.22万股，如今价值亦超26亿元，人均可分超2600万元。
 
-因此选对时点很重要。
+“进一家好公司就是最好的投资”，这句话从未像今天这般权威。
 
-财小圈提醒大家，下周一就是6月29日了，周一和周二是叠加月末、季末、半年末三重节点，正是机构集中回笼资金、利率冲高的黄金窗口期，圈友要重点把握这个时间窗口，闲钱千万别闲置，圈友可以享受“稳稳的幸福”。
+中际旭创员工造富一幕 人均两百万 2026年最佳相亲战袍——韩国存储芯片巨头SK海力士员工的工服。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:38 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:28 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:30 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:22 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:26 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:47 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:32 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:38 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:19 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:22 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:28 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:28 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:33 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:46 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:40 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:46 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:29 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:37 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:42 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:40 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:31 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:41 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:38 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:19 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:44 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:38 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:33 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:44 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:28 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:41 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:38 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:25 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:29 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:32 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:39 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:38 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:37 - [欧洲已有超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/669257962.shtml)
+- 2026-06-29 11:35 - [蒸了一锅妃子笑荔枝馒头](http://www.share.kurohicncr.top/Article/details/279139081.shtml)
+- 2026-06-29 11:41 - [韩媒称韩国队遭中国网民嘲讽](https://www.share.kurohicncr.top/Article/details/8723630.shtml)
+- 2026-06-29 11:40 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/8924402.shtml)
+- 2026-06-29 11:19 - [19家A股上市公司发布上半年业绩预告](https://www.share.minike.top/Article/details/06995636.shtml)
+- 2026-06-29 11:24 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/246166400932.shtml)
+- 2026-06-29 11:21 - [加拿大队史淘汰赛首胜](http://www.share.kurohicncr.top/Article/details/3168514.shtml)
+- 2026-06-29 11:35 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/435987.shtml)
+- 2026-06-29 11:46 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/3734553.shtml)
+- 2026-06-29 11:47 - [球迷玩人浪手机飞了](http://www.blog.minike.top/Article/details/875096994.shtml)
+- 2026-06-29 11:29 - [法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/4858654214.shtml)
+- 2026-06-29 11:45 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.share.minike.top/Article/details/5936098.shtml)
+- 2026-06-29 11:33 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.blog.minike.top/Article/details/073034086433.shtml)
+- 2026-06-29 11:24 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/216751.shtml)
+- 2026-06-29 11:47 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/66862.shtml)

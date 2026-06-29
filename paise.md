@@ -1,58 +1,58 @@
-# 超预期！台积电最新闭门会传来重磅内容
+# 长江有色: 中东僵持海峡关闭致湾区电解铝供应断裂 14日铝价或上涨
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月25日，台积电在上海国际会议中心举办“2026年中国技术论坛”（闭门会），向客户和合作伙伴分享其最新技术研发进展与行业洞察，显示全球半导体产业的高增长确定无疑。 业内人士认为，台积电本次闭门会再度坚定了业界的AI信仰，其晶圆制造和先进封装扩产，具有产业发展趋势风向标意义。随着晶圆厂和封装厂次第加入到扩产
+长江铝价alu.ccmn.cn短评：特朗普携商界人员访华提振情绪，隔夜伦铝大涨2.14%；中东僵持海峡关闭致湾区电解铝供应断裂，国内出口改善支撑现货加强，预今现铝上涨。 【铝期货市场】：特朗普携商界人员访华提振情绪，隔夜伦铝强势拉涨，涨幅尚可，最新收盘报价3651美元/吨，收涨76美元，涨幅2.14%，成交量34379手增加18007手，持仓量672759手增加2473手。晚间
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+长江铝价alu.ccmn.cn短评：特朗普携商界人员访华提振情绪，隔夜伦铝大涨2.14%；中东僵持海峡关闭致湾区电解铝供应断裂，国内出口改善支撑现货加强，预今现铝上涨。
 
-6月25日，台积电在上海国际会议中心举办“2026年中国技术论坛”（闭门会），向客户和合作伙伴分享其最新技术研发进展与行业洞察，显示全球半导体产业的高增长确定无疑。
+【铝期货市场】：特朗普携商界人员访华提振情绪，隔夜伦铝强势拉涨，涨幅尚可，最新收盘报价3651美元/吨，收涨76美元，涨幅2.14%，成交量34379手增加18007手，持仓量672759手增加2473手。
 
-业内人士认为，台积电本次闭门会再度坚定了业界的AI信仰，其晶圆制造和先进封装扩产，具有产业发展趋势风向标意义。
+晚间沪铝受外盘偏强走势带动走强，盘面疤痕次强势运行姿态；主力月2606合约最新收盘价报250550元/吨，涨310元，涨幅1.25%。
 
-随着晶圆厂和封装厂次第加入到扩产序列，半导体设备和材料商，将率先受益于AI带来的本轮扩产大潮。
+伦敦金属交易所（LME）5月13日伦铝最新库存量报348750公吨，较上个交易日减少2250公吨，跌幅0.64%。
 
-今年产业突破1万亿美元大关 面对AI爆发式增长，台积电预计，全球半导体市场将在今年突破1万亿美元，并在2030年达到1.5万亿美元。
+长江铝业网讯：5月13日现货铝价，长江现货A00铝锭价报24570元/吨，涨190元；广东现货A00铝锭价报24460元/吨，涨140元。
 
-台积电认为，需求主要来自高性能计算（HPC）和AI领域，占整体市场的55%；其次，智能手机需求约占20%，汽车与物联网需求则各占约10%。
+宏观层面，受地缘冲突推动能源价格上涨及运输成本上升影响，美国4月生产者价格指数（PPI）同比飙升6%，环比升幅同样创下2022年以来最大，核心PPI亦录得三年多来的最大涨幅。
 
-先进制程技术按计划推进 作为全球晶圆代工“一哥”，台积电的先进制程产能持续供不应求。
+这一超预期数据进一步削弱了市场对美联储政策宽松的预期。
 
-在本次闭门会上，台积电表示，N2（2纳米半导体制造工艺）已于2025年第四季度进入量产。
+不过，市场暂时淡化了强PPI带来的鹰派压力，焦点转向中美经贸磋商及特朗普访华带来的乐观情绪。
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:32 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:40 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:35 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:24 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:34 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:35 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:44 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:29 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:23 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:36 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:28 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:31 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:44 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:42 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:29 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:19 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:28 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:42 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:44 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:30 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:46 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:34 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:36 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:35 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:46 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:46 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:44 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:20 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:20 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:29 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:38 - [宜宾5.5级地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:34 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:35 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:39 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:21 - [三轮车被自家狗“推”进池塘](https://www.blog.kurohicncr.top/Article/details/44028.shtml)
+- 2026-06-29 11:36 - [扬名立万](https://www.share.minike.top/Article/details/4760210984.shtml)
+- 2026-06-29 11:30 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/00601449965.shtml)
+- 2026-06-29 11:31 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.share.minike.top/Article/details/331415.shtml)
+- 2026-06-29 11:21 - [毕业典礼整活 梗密到不知先笑哪个](http://www.blog.kurohicncr.top/Article/details/35588166146.shtml)
+- 2026-06-29 11:24 - [陈垣宇晋级WTT美国大满贯男单32强](https://www.share.minike.top/Article/details/28174611816.shtml)
+- 2026-06-29 11:35 - [韩国政府将对世界杯出局追责](https://www.blog.kurohicncr.top/Article/details/59830.shtml)
+- 2026-06-29 11:30 - [恋与深空需直面玩家6大疑问](https://www.share.kurohicncr.top/Article/details/93523969.shtml)
+- 2026-06-29 11:33 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/76485685354.shtml)
+- 2026-06-29 11:29 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.minike.top/Article/details/313595416.shtml)
+- 2026-06-29 11:26 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/7843609.shtml)
+- 2026-06-29 11:33 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/48280381.shtml)
+- 2026-06-29 11:26 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/672409196952.shtml)
+- 2026-06-29 11:34 - [复盘葡萄牙逼平哥伦比亚](https://www.share.minike.top/Article/details/462156437205.shtml)
+- 2026-06-29 11:46 - [户外吃烧烤多人头发变炸毛](http://www.blog.minike.top/Article/details/20815.shtml)

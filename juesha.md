@@ -1,44 +1,57 @@
-# 习近平会见孟加拉国总理：构建新时代中孟命运共同体
+# 中国平安：5月13日起不再设立监事会
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 21:31 来源：央视新闻客户端 责任编辑：【王祎】
+5月14日金融一线消息，中国平安今日发布公告称，公司于近日收到国家金融监督管理总局（以下简称“金融监管总局”）《关于中国平安保险（集团）股份有限公司修改公司章程的批复》（金复〔2026〕255号）。本次修订后的《公司章程》自金融监管总局核准之日2026年5月13日起生效。 中国平安表示，根据本次修订后的《公司章程》，自2026年5月13日起，公司不再设立监事会，由董事会审计与风
 
 ## 正文
 
-发布时间：2026年06月26日 21:31 来源：央视新闻客户端 责任编辑：【王祎】
+5月14日金融一线消息，中国平安今日发布公告称，公司于近日收到国家金融监督管理总局（以下简称“金融监管总局”）《关于中国平安保险（集团）股份有限公司修改公司章程的批复》（金复〔2026〕255号）。
+
+本次修订后的《公司章程》自金融监管总局核准之日2026年5月13日起生效。
+
+中国平安表示，根据本次修订后的《公司章程》，自2026年5月13日起，公司不再设立监事会，由董事会审计与风险管理委员会行使《中华人民共和国公司法》规定的监事会职权；孙建一、朱新蓉、刘怀镜、洪嘉禧和王志良退任公司第十一届监事会监事职务。
+
+“本公司监事会恪尽职守、忠实勤勉，为本公司规范运作与高质量发展提供了坚实保障。
+
+本公司对历届监事会及各位监事为本公司所作出的重要贡献表示衷心感谢。
+
+” 责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:25 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:27 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:20 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:39 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:45 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:38 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:41 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:26 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:27 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:32 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:38 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:48 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:25 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:44 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:35 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:43 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:38 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:32 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:44 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:33 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:32 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:30 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:20 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:23 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:21 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:41 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:28 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:32 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:37 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:28 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:19 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:27 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:44 - [如何看待奔驰将取消德国9万名员工年终奖，并计划延长工作时间且不支付补偿性报酬？奔驰当下处于什么境况？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:29 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:34 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:40 - [初心如磐 红色足迹](https://www.blog.kurohicncr.top/Article/details/102269193.shtml)
+- 2026-06-29 11:19 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/6021543560.shtml)
+- 2026-06-29 11:45 - [加拿大队史淘汰赛首胜](http://www.blog.minike.top/Article/details/07812.shtml)
+- 2026-06-29 11:24 - [晋城暴雨车辆被淹冰箱在水中漂](http://www.share.minike.top/Article/details/14262410.shtml)
+- 2026-06-29 11:33 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/6558494.shtml)
+- 2026-06-29 11:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/21628927901.shtml)
+- 2026-06-29 11:24 - [毕业寄几百斤快递回家女生发声](http://www.blog.kurohicncr.top/Article/details/427431263.shtml)
+- 2026-06-29 11:45 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/3621035.shtml)
+- 2026-06-29 11:31 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/487089970425.shtml)
+- 2026-06-29 11:42 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/491903.shtml)
+- 2026-06-29 11:37 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](http://www.blog.minike.top/Article/details/516055.shtml)
+- 2026-06-29 11:25 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/33978.shtml)
+- 2026-06-29 11:24 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/4206307.shtml)
+- 2026-06-29 11:31 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/55043069095.shtml)
+- 2026-06-29 11:19 - [民进党为什么拼命抹黑统战](http://www.blog.minike.top/Article/details/31775.shtml)

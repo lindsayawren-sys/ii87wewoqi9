@@ -1,57 +1,59 @@
-# 嘉诚国际（603535）及高管收警示函
+# 报道：管委Stournaras称若油价持续高企 欧洲央行可能不得不加息
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月25日晚间，广州市嘉诚国际物流股份有限公司（以下简称“嘉诚国际”，代码603535）公告称，公司于近日收到中国证券监督管理委员会广东监管局出具的《关于对广州市嘉诚国际物流股份有限公司采取责令改正措施并对段容文等采取出具警示函措施的决定》。 根据公告，经广东证监局查明，嘉诚国际的违规行为主要集中在两大方面：一是收入成本核算不规
+据雅典通讯社（ANA）报道，欧洲央行管委Yannis Stournaras警告称如果油价维持在当前水平，该央行可能被迫上调借贷成本。 “这介于欧洲央行提出的第二种和第三种情境之间，而非第一种和第二种情境之间，”他说道。他指的是欧洲央行在3月提出的增长和通胀的基准、不利和严重路径。 这位希腊央行行长表示，“如果这种情况持续下去，欧洲央行将别无选择，只能提高利率。但我们都希望避免这
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月25日晚间，广州市嘉诚国际物流股份有限公司（以下简称“嘉诚国际”，代码603535）公告称，公司于近日收到中国证券监督管理委员会广东监管局出具的《关于对广州市嘉诚国际物流股份有限公司采取责令改正措施并对段容文等采取出具警示函措施的决定》。
+据雅典通讯社（ANA）报道，欧洲央行管委Yannis Stournaras警告称如果油价维持在当前水平，该央行可能被迫上调借贷成本。
 
-根据公告，经广东证监局查明，嘉诚国际的违规行为主要集中在两大方面：一是收入成本核算不规范。
+“这介于欧洲央行提出的第二种和第三种情境之间，而非第一种和第二种情境之间，”他说道。
 
-嘉诚国际在未与客户达成一致意见的情况下将仓库设备投入确认为收入，对已退租客户继续确认租赁收入，对不享有商品交易定价权的贸易业务按总额法核算收入、未同步确认相关年度的收入成本、未按履约进度确认空调安装工程业务收入成本，未按实际采购入库的商品计提返利金额。
+他指的是欧洲央行在3月提出的增长和通胀的基准、不利和严重路径。
 
-二是长期资产核算不准确。
+这位希腊央行行长表示，“如果这种情况持续下去，欧洲央行将别无选择，只能提高利率。
 
-一方面，嘉诚国际在存货盘点中错误适用货架规格标准，并将部分已计入固定资产的货架作为抵债货架重复列入评估范围，导致2024年年报多记固定资产。
+但我们都希望避免这种情况发生。
 
-另一方面，嘉诚国际在开展物流配送业务时，未考虑公司每月支付固定租金并确认当期费用等长期租赁仓库的业务实质，未有效识别确认使用权资产和租赁负债，导致2024年年报少记使用权资产及租赁负债。
+” 过去三周的大部分时间里，随着美国总统唐纳德·特朗普努力迫使伊朗重新开放霍尔木兹海峡，布伦特原油一直维持在每桶100美元上方。
 
-广东证监局认定，上述问题反映嘉诚国际披露的相关财务数据不准确，违反了《上市公司信息披露管理办法（2021年修订）》（证监会令第182号，下同）第三条第一款的规定。
+市场和经济学家预计欧洲央行将在6月会议上加息25个基点。
 
-段容文作为公司时任董事长，黄艳婷作为公司副董事长，黄艳芸作为公司董事会秘书，杜书升、陈继明作为公司现任或时任财务总监，未按照《上市公司信息披露管理办法》第四条的规定履行勤勉尽责义务，对公司上述违规行为负有主要责任。
+一些政策制定者暗示已从现有数据中获得足够信息支持加息，另一些则表示，经济前景要进一步恶化才会采取行动。
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:28 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:34 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:36 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:47 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:43 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:39 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:22 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:30 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:24 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:19 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:46 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:42 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:29 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:33 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:21 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:48 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:41 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:30 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:37 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:34 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:24 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:21 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:31 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:31 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:44 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:39 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:47 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:29 - [岭南电影为何迎来“南方热”](http://www.share.kurohicncr.top/Article/details/51795289590.shtml)
+- 2026-06-29 11:34 - [重生赛伊德04](https://www.blog.kurohicncr.top/Article/details/74511804901.shtml)
+- 2026-06-29 11:32 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/3136671.shtml)
+- 2026-06-29 11:21 - [普京：俄罗斯将坚定捍卫自身根本利益](http://www.blog.kurohicncr.top/Article/details/21166106350.shtml)
+- 2026-06-29 11:45 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.kurohicncr.top/Article/details/91483.shtml)
+- 2026-06-29 11:39 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/18000.shtml)
+- 2026-06-29 11:27 - [王中磊儿子邹市明儿子曹格儿子同框](https://www.share.kurohicncr.top/Article/details/15368783776.shtml)
+- 2026-06-29 11:39 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/92282879.shtml)
+- 2026-06-29 11:35 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/50866.shtml)
+- 2026-06-29 11:31 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](http://www.share.minike.top/Article/details/67207626.shtml)
+- 2026-06-29 11:45 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/55520000.shtml)
+- 2026-06-29 11:39 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/62477939.shtml)
+- 2026-06-29 11:45 - [BW2026游览指南](https://www.share.minike.top/Article/details/34860686.shtml)
+- 2026-06-29 11:39 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/1129262308.shtml)
+- 2026-06-29 11:41 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/045966731018.shtml)

@@ -1,58 +1,58 @@
-# 中国国防部：日本若重走军国主义邪路最终只能以失败告终
+# 伊朗战事冲击发酵 新航参股的印度航空取消27%国际航班
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新社北京6月25日电 (记者 李纯)中国国防部新闻发言人张晓刚在25日举行的例行记者会上指出，日本若重走军国主义邪路，最终只能以失败告终，遭到彻底的正义审判和历史清算。 有记者提及，据报道，在今年3月中方反驳日方炒作中国国防支出一事后，日本防卫大臣近期再次公开质疑中国国防费透明度，同时声称“日本将以透明的方式投资于无人机和人工智能等新型作战手段，以适应不断变化的冲突性质”。
+核心要点 受伊朗战事引发的空域管制、航空燃油价格创下历史新高影响，运营承压，新加坡航空参股的印度航空将在 6 至 8 月出行旺季大幅削减国际航班。 航空业内专家表示，印度航空每周将削减近 140 班航班，约占其国际航班总量的 27%。 印度航空周三发布声明称：“此次航班调整旨在优化航线网络稳定性，减少旅客临时行程变动带来的不便。” 由塔塔集团与新加坡航空合资控股的印度航空，将减
 
 ## 正文
 
-中新社北京6月25日电 (记者 李纯)中国国防部新闻发言人张晓刚在25日举行的例行记者会上指出，日本若重走军国主义邪路，最终只能以失败告终，遭到彻底的正义审判和历史清算。
+核心要点 受伊朗战事引发的空域管制、航空燃油价格创下历史新高影响，运营承压，新加坡航空参股的印度航空将在 6 至 8 月出行旺季大幅削减国际航班。
 
-有记者提及，据报道，在今年3月中方反驳日方炒作中国国防支出一事后，日本防卫大臣近期再次公开质疑中国国防费透明度，同时声称“日本将以透明的方式投资于无人机和人工智能等新型作战手段，以适应不断变化的冲突性质”。
+航空业内专家表示，印度航空每周将削减近 140 班航班，约占其国际航班总量的 27%。
 
-张晓刚表示，中国的国防费公开透明，每年都依法公开国防支出预算总额及其规模、结构、用途等信息，积极参加联合国军费透明制度，2008年以来每年都向联合国提交上一财政年度军事开支报告。
+印度航空周三发布声明称：“此次航班调整旨在优化航线网络稳定性，减少旅客临时行程变动带来的不便。
 
-中国国防支出一贯坚持合理、适度、克制，占GDP的比重长期低于1.5%。
+” 由塔塔集团与新加坡航空合资控股的印度航空，将减少飞往北美、欧洲、澳大利亚及亚洲多地的航班班次。
 
-反观日本，作为二战战败国，防卫预算连续14年快速增长，防卫支出占GDP比重飙升至2%，甚至还要进一步提升至3.5%，人均防卫支出是中国的三倍多。
+航空数据服务商 OAG 数据显示，印度航空是印度第二大航空公司，运力达 360 万个座位，占据国内 14% 的市场份额。
 
-“清者自清，浊者自浊。
+业内专家表示，中东冲突爆发后，印度航司受冲击尤为严重，伊朗、伊拉克、以色列、科威特、卡塔尔、阿联酋等多国空域关闭，严重影响航线运行。
 
-”张晓刚指出，日方用“阴谋论”抹黑中国国防开支，妄想转移视线、误导舆论，掩饰其“再军事化”野心和举动。
+航空咨询公司 Avialaz 首席执行官桑杰・拉扎尔指出，印度航司原本就面临巴基斯坦、中国部分空域的通行限制。
 
-真正应该向世界讲清楚的是日本：“新型军国主义”成势为患，意欲何为？
+拉扎尔表示：飞行时长增加、机组人力成本攀升、航线绕行额外消耗燃油，已让航空业运营彻底陷入亏损难以为继的状态。
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:28 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:18 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:41 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:45 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:45 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:24 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:40 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:24 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:31 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:22 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:30 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:48 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:22 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:46 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:46 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:46 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:26 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:47 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:46 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:28 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:21 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:28 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:21 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:23 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:40 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:43 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:37 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:36 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:23 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:20 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:19 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:41 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:32 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:34 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:27 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/30677.shtml)
+- 2026-06-29 11:20 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/309992122401.shtml)
+- 2026-06-29 11:26 - [美人鱼](https://www.share.kurohicncr.top/Article/details/18395489.shtml)
+- 2026-06-29 11:43 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/769256856661.shtml)
+- 2026-06-29 11:48 - [青春环游记第三季](https://www.blog.minike.top/Article/details/19777032.shtml)
+- 2026-06-29 11:35 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/690859.shtml)
+- 2026-06-29 11:19 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/035563.shtml)
+- 2026-06-29 11:20 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.minike.top/Article/details/54620.shtml)
+- 2026-06-29 11:32 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/31126531.shtml)
+- 2026-06-29 11:35 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/65477194.shtml)
+- 2026-06-29 11:36 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/352375525011.shtml)
+- 2026-06-29 11:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/374070945063.shtml)
+- 2026-06-29 11:40 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/5401086560.shtml)
+- 2026-06-29 11:43 - [加拿大92分钟绝杀](http://www.share.kurohicncr.top/Article/details/22172164.shtml)
+- 2026-06-29 11:23 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/56665.shtml)

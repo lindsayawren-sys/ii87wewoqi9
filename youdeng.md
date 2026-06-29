@@ -1,56 +1,56 @@
-# 中国新能源车参展商展会感受“足球王国”超燃氛围
+# 2700亿存储龙头大普微—UW，20CM拉升！“散户大本营”霸榜
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 14:09 来源：中国新闻网 在当地时间6月24日进行的美加墨世界杯C组末轮比赛中，巴西队3：0战胜苏格兰队，以小组头名晋级淘汰赛。 当天，适逢2026巴西国际新能源汽车及零部件展览会及南美最大消费电子展在巴西圣保罗安年比展览中心举行。两展会参展中国企业约350家，涵盖家电、家居、绿色出行等领域，展位总面积超4000平方米。有不少参展商将球赛转
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月13日，大普微—UW大涨19.96%，收盘报631元/股，总市值达2753亿元。 这只上市不到一个月的“AI SSD第一股”，在短短17个交易日内，股价较发行价已飙涨近13倍，堪称今年A股最强新股之一。 然而，随着股价持续攀升，主力资金开始发生微妙变化，之前的拉升主力——游资和机构逐步获利了结，散户成为
 
 ## 正文
 
-发布时间：2026年06月26日 14:09 来源：中国新闻网 在当地时间6月24日进行的美加墨世界杯C组末轮比赛中，巴西队3：0战胜苏格兰队，以小组头名晋级淘汰赛。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-当天，适逢2026巴西国际新能源汽车及零部件展览会及南美最大消费电子展在巴西圣保罗安年比展览中心举行。
+5月13日，大普微—UW大涨19.96%，收盘报631元/股，总市值达2753亿元。
 
-两展会参展中国企业约350家，涵盖家电、家居、绿色出行等领域，展位总面积超4000平方米。
+这只上市不到一个月的“AI SSD第一股”，在短短17个交易日内，股价较发行价已飙涨近13倍，堪称今年A股最强新股之一。
 
-有不少参展商将球赛转播屏带到展会上，中国和拉美的参展商、客商们同看球共欢庆，感受“足球王国”的别样魅力，巴西队的胜利令展会变身“欢庆会”。
+然而，随着股价持续攀升，主力资金开始发生微妙变化，之前的拉升主力——游资和机构逐步获利了结，散户成为接盘主力。
 
-中国新能源车款式新颖，性能优越，受到拉美客商和经销商青睐，他们期许展会平台叠加“世界杯氛围”能带来更多商机。
+5月13日，大普微—UW盘后龙虎榜显示，“东方财富拉萨东环路”“东方财富拉萨团结路”等散户大本营，在买入前5营业部中占据4席。
 
-(记者 林春茵 制作 侯诗蕊） 责任编辑：【罗攀】
+由于东方财富长期以互联网开户为主，开户门槛较低、活跃用户众多，因此“东方财富拉萨金融城”“东方财富拉萨团结路”“东方财富拉萨东环路”等营业部，被市场视为高活跃散户资金的大本营。
+
+“拉萨席位”霸占龙虎榜 5月13日，大普微—UW龙虎榜显示，买入前5营业部中，买1被机构席位“中信四川分公司”拿下，散户大本营“拉萨席位”则包揽剩余四席，并日内大举做T。
+
+在卖出前5营业部中，同样出现两个“拉萨席位”。
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:35 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:28 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:40 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:41 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:18 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:35 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:34 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:28 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:27 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:33 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:34 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:19 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:23 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:34 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:31 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:42 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:29 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:41 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:29 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:18 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:39 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:21 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:20 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:25 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:32 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:47 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:30 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:30 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:47 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:31 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:39 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:26 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:28 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:33 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.minike.top/Article/details/51218857390.shtml)
+- 2026-06-29 11:25 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/90415725.shtml)
+- 2026-06-29 11:46 - [一见倾心](https://www.blog.minike.top/Article/details/57959314.shtml)
+- 2026-06-29 11:23 - [韩国主帅辞职报告5分钟 双手插兜离场](https://www.share.minike.top/Article/details/073697.shtml)
+- 2026-06-29 11:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/12194818.shtml)
+- 2026-06-29 11:34 - [T1 3-0 TLAW数据雷达图](https://www.share.kurohicncr.top/Article/details/7117002713.shtml)
+- 2026-06-29 11:19 - [拄拐少年高考663分：用行动回报社会](http://www.share.kurohicncr.top/Article/details/48599193.shtml)
+- 2026-06-29 11:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/817363.shtml)
+- 2026-06-29 11:31 - [张一山说杨紫早该拿奖了](https://www.share.kurohicncr.top/Article/details/979550.shtml)
+- 2026-06-29 11:28 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.share.kurohicncr.top/Article/details/665869.shtml)
+- 2026-06-29 11:28 - [王佳佳江疏影13年前后同框对比](http://www.share.kurohicncr.top/Article/details/782409.shtml)
+- 2026-06-29 11:32 - [曾沛慈夺冠后人气](http://www.blog.kurohicncr.top/Article/details/0995284898.shtml)
+- 2026-06-29 11:45 - [谢霆锋演唱会变大型呲水现场](https://www.share.minike.top/Article/details/0841674.shtml)
+- 2026-06-29 11:21 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/65867.shtml)
+- 2026-06-29 11:19 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/54611072.shtml)

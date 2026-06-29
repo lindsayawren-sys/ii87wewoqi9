@@ -1,53 +1,48 @@
-# 60秒沉浸式体验“美丽天路号”
+# 归创通桥将于6月18日派发末期股息每股0.2515764港元
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 14:58 来源：国是直通车 6月25日上午，“美丽天路号”旅游列车在西宁站首次亮相，从西宁出发驶向拉萨。列车11节编组、定员132人，包含9节卧铺车厢、1节观光车厢、1节多功能车厢。全车住宿包间分为双人、四人独立包间，实现“一席一氧”。针对旅客需求，“美丽天路号”配备了吸氧装置、娱乐室、淋浴间等设施。未来，铁路部门将为旅客提供更加丰富多元的出
+归创通桥（02190）发布公告，将于2026年6月18日派发截至2025年12月31日止年度的末期股息每股0.2515764港元。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月26日 14:58 来源：国是直通车 6月25日上午，“美丽天路号”旅游列车在西宁站首次亮相，从西宁出发驶向拉萨。
+归创通桥（02190）发布公告，将于2026年6月18日派发截至2025年12月31日止年度的末期股息每股0.2515764港元。
 
-列车11节编组、定员132人，包含9节卧铺车厢、1节观光车厢、1节多功能车厢。
-
-全车住宿包间分为双人、四人独立包间，实现“一席一氧”。
-
-针对旅客需求，“美丽天路号”配备了吸氧装置、娱乐室、淋浴间等设施。
-
-未来，铁路部门将为旅客提供更加丰富多元的出行体验。
-
-(记者 王东宇） 责任编辑：【罗攀】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:47 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:32 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:46 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:40 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:30 - [美国230斤男孩在家中去世父母被捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:27 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:20 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:44 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:41 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:29 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:45 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:24 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:25 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:37 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:31 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:31 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:48 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:40 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:46 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:32 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:36 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:24 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:40 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:22 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:43 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:42 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:22 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:34 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:40 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:45 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:23 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:35 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:46 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:29 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:31 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/400188607979.shtml)
+- 2026-06-29 11:34 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/819235787.shtml)
+- 2026-06-29 11:43 - [男子在家一丝不挂 邻居拍照发业主群](https://www.share.kurohicncr.top/Article/details/494207647.shtml)
+- 2026-06-29 11:22 - [鬼畜区全明星拼接遗憾](http://www.share.minike.top/Article/details/58824.shtml)
+- 2026-06-29 11:32 - [TOP 无畏契约](https://www.blog.minike.top/Article/details/0951256046.shtml)
+- 2026-06-29 11:43 - [王佳佳江疏影13年前后同框对比](http://www.blog.minike.top/Article/details/429733.shtml)
+- 2026-06-29 11:32 - [媒体：湖人把薪资空间玩明白了](https://www.share.minike.top/Article/details/2635304.shtml)
+- 2026-06-29 11:28 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/71575.shtml)
+- 2026-06-29 11:29 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/388691049.shtml)
+- 2026-06-29 11:33 - [韩媒破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/36353.shtml)
+- 2026-06-29 11:39 - [重生赛伊德04](https://www.blog.minike.top/Article/details/059894213.shtml)
+- 2026-06-29 11:26 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/7145714.shtml)
+- 2026-06-29 11:46 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/97637483744.shtml)
+- 2026-06-29 11:48 - [曝太阳黄蜂完成阵容互换+签位置换](http://www.blog.minike.top/Article/details/102026347.shtml)
+- 2026-06-29 11:46 - [本周做什么都顺的星座](https://www.blog.kurohicncr.top/Article/details/88328.shtml)

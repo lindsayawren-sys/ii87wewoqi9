@@ -1,55 +1,61 @@
-# 美国允许受信任的伙伴使用Anthropic的Mythos 5人工智能模型
+# 欧洲股市两连涨 阿斯麦和西门子走强
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-美国商务部在信函中表示，美国放宽了对“可信赖的伙伴”使用Anthropic PBC的高端Mythos 5人工智能模型的限制。 此举缓和了Anthropic与美国政府之间的争端。此前，美国政府援引安全担忧，突然禁止Anthropic向外国公民开放Fable 5和Mythos 5。这封日期为周五的信函并未提及对Fable 5模型使用限制的任何调整。 美国商务部发言人Benno Ka
+欧洲股市连续第二个交易日上涨，指数权重股阿斯麦上涨3%，此前美国思科公布的业绩好于预期。 斯托克欧洲600指数收盘上涨0.8%，科技股领涨。西门子同意收购意大利MerMecSpA的若干业务后，股价上涨2.6%。矿业股和金融服务股表现落后，后者受到私募股权公司3iPlc大跌13%的拖累，此前其投资组合中的重要组成部分——零售商Action报告销售放缓。 欧洲股市最新一轮上涨“只是
 
 ## 正文
 
-美国商务部在信函中表示，美国放宽了对“可信赖的伙伴”使用Anthropic PBC的高端Mythos 5人工智能模型的限制。
+欧洲股市连续第二个交易日上涨，指数权重股阿斯麦上涨3%，此前美国思科公布的业绩好于预期。
 
-此举缓和了Anthropic与美国政府之间的争端。
+斯托克欧洲600指数收盘上涨0.8%，科技股领涨。
 
-此前，美国政府援引安全担忧，突然禁止Anthropic向外国公民开放Fable 5和Mythos 5。
+西门子同意收购意大利MerMecSpA的若干业务后，股价上涨2.6%。
 
-这封日期为周五的信函并未提及对Fable 5模型使用限制的任何调整。
+矿业股和金融服务股表现落后，后者受到私募股权公司3iPlc大跌13%的拖累，此前其投资组合中的重要组成部分——零售商Action报告销售放缓。
 
-美国商务部发言人Benno Kass表示：“在短短两周内，我们辛勤工作，以确保美国在维护国家安全的同时，继续保持在全球人工智能领域的领导地位。
+欧洲股市最新一轮上涨“只是补涨交易，受到和平憧憬以及美中关系缓和希望的推动，”Berenberg多资产策略与研究主管Ulrich Urbahn表示。
 
-” 推荐阅读：Anthropic据悉正接近与美国政府达成协议 AI模型限制有望解除责任编辑：刘明亮
+到目前为止，好于预期的公司财报对欧洲股市形成了支撑，彭博行业研究汇编的数据显示，企业盈利增长7.4%，而预期为2.5%。
+
+尽管如此，由于缺少大型科技公司，且能源价格上涨拖累经济增长，该基准指数连续第五周落后于标普500指数。
+
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:33 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:39 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:32 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:42 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:29 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:23 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:40 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:45 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:21 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:22 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:44 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:47 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:41 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:25 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:46 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:32 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:44 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:46 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 11:24 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:29 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:32 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:41 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:34 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:41 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:42 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:26 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:35 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:37 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:22 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:47 - [T1 3-0 TLAW数据雷达图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:26 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:46 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:44 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:28 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:35 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:32 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:22 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:39 - [黄灿灿是浪姐最大赢家吧](https://www.share.minike.top/Article/details/0440241.shtml)
+- 2026-06-29 11:36 - [刘烨赶紧蹭个热度宣传四渡](https://www.blog.kurohicncr.top/Article/details/3319382.shtml)
+- 2026-06-29 11:25 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/81681.shtml)
+- 2026-06-29 11:41 - [韩媒一片哀嚎：没有奇迹](https://www.blog.kurohicncr.top/Article/details/5754402172.shtml)
+- 2026-06-29 11:20 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.kurohicncr.top/Article/details/573500564728.shtml)
+- 2026-06-29 11:27 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://www.blog.kurohicncr.top/Article/details/3141908302.shtml)
+- 2026-06-29 11:23 - [伊朗队球员哭诉：这届世界杯是场灾难](http://www.blog.minike.top/Article/details/39423125721.shtml)
+- 2026-06-29 11:46 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://www.blog.kurohicncr.top/Article/details/52467912955.shtml)
+- 2026-06-29 11:36 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/867429776.shtml)
+- 2026-06-29 11:21 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/50439901.shtml)
+- 2026-06-29 11:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/5116552.shtml)
+- 2026-06-29 11:44 - [伊朗队球员哭诉：这届世界杯是场灾难](http://www.blog.kurohicncr.top/Article/details/1509275740.shtml)
+- 2026-06-29 11:39 - [洪明甫发布会没有提问环节](https://www.share.minike.top/Article/details/45518050425.shtml)
+- 2026-06-29 11:22 - [2025年人口增长10强城市出炉](https://www.share.kurohicncr.top/Article/details/40983510786.shtml)
+- 2026-06-29 11:45 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/0798154696.shtml)

@@ -1,53 +1,44 @@
-# 签署81年，180秒读懂联合国宪章为何愈发重要
+# 朱雀二号改进型遥五运载火箭发射成功
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 19:21 来源：中国新闻网 1945年6月26日，来自50个国家的代表签署《联合国宪章》，奠定战后国际秩序基石。81年后的今天，百年变局加速演进，地区冲突延宕，霸权主义逆流涌动……全球局势风云变幻的今天，宪章精神为何愈显珍贵？中国作为第一个在宪章上签字的国家，为联合国事业做出了哪些贡献？180秒读懂。 责任编辑：【孟湘君】
+新华社酒泉5月14日电(李国利、王晨宇)5月14日11时00分，朱雀二号改进型遥五运载火箭在东风商业航天创新试验区发射升空，运载火箭全程飞行正常，二子级进入预定轨道，飞行试验任务取得圆满成功。
 
 ## 正文
 
-发布时间：2026年06月26日 19:21 来源：中国新闻网 1945年6月26日，来自50个国家的代表签署《联合国宪章》，奠定战后国际秩序基石。
-
-81年后的今天，百年变局加速演进，地区冲突延宕，霸权主义逆流涌动……全球局势风云变幻的今天，宪章精神为何愈显珍贵？
-
-中国作为第一个在宪章上签字的国家，为联合国事业做出了哪些贡献？
-
-180秒读懂。
-
-责任编辑：【孟湘君】
+新华社酒泉5月14日电(李国利、王晨宇)5月14日11时00分，朱雀二号改进型遥五运载火箭在东风商业航天创新试验区发射升空，运载火箭全程飞行正常，二子级进入预定轨道，飞行试验任务取得圆满成功。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:21 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:36 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:40 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:33 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:33 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:32 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:27 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:24 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:35 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:38 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:47 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:42 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:47 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:37 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:30 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:27 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:33 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:47 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:42 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:30 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:22 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:26 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:24 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:41 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:40 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:45 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:18 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:36 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:46 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:34 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:39 - [温州学子高考数学满分 分享学习经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:32 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:48 - [三轮车被自家狗“推”进池塘](http://www.blog.minike.top/Article/details/80578.shtml)
+- 2026-06-29 11:36 - [蒸了一锅妃子笑荔枝馒头](http://www.share.minike.top/Article/details/30670529.shtml)
+- 2026-06-29 11:30 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/4978728677.shtml)
+- 2026-06-29 11:45 - [有清北的实力却只考了大专，在大学怎么平衡心态？](http://www.share.minike.top/Article/details/6714883.shtml)
+- 2026-06-29 11:29 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/3194678704.shtml)
+- 2026-06-29 11:35 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/1993869.shtml)
+- 2026-06-29 11:35 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/612694078787.shtml)
+- 2026-06-29 11:35 - [日本媒体：板仓滉已回归日本队合练](https://www.blog.kurohicncr.top/Article/details/432771830792.shtml)
+- 2026-06-29 11:48 - [国乒男单资格赛全员出局](https://www.blog.minike.top/Article/details/58658.shtml)
+- 2026-06-29 11:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/300381.shtml)
+- 2026-06-29 11:20 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](http://www.share.minike.top/Article/details/558403234.shtml)
+- 2026-06-29 11:43 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/13289.shtml)
+- 2026-06-29 11:21 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/590405.shtml)
+- 2026-06-29 11:20 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/43318.shtml)
+- 2026-06-29 11:27 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/353161759639.shtml)

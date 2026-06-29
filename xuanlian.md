@@ -1,45 +1,59 @@
-# 现实版破冰行动！广东海警两年来缴获各类毒品超9吨
+# Local Bounti一季度营收1330万美元，加州设施或提升20%产量
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 16:10 来源：中国新闻网 两年来，广东海警通过打团伙、断链条、摧网络、深挖扩线、循线追踪共侦办毒品案件6起，缴获各类毒品逾9吨、抓获嫌疑人90余名，摧毁了多个海上毒品走私犯罪团伙和海上毒品运输通道。(来源：广东海警局 作者：邓榕烜、许政、周培跃） 责任编辑：【魏聪聪】
+美国室内农业公司Local Bounti周三公布第一季度财报，营收同比增长15%至1330万美元，同时披露了在加州设施的产量提升计划。尽管营收低于市场预期，但亏损大幅收窄显示成本控制成效显著。 一季度业绩概览 财报显示，公司第一季度营收为1330万美元，同比增长15%，主要得益于佐治亚、得克萨斯和华盛顿三处设施的产量增加和销售增长。GAAP每股亏损为0.53美元，符合市场预期。
 
 ## 正文
 
-发布时间：2026年06月26日 16:10 来源：中国新闻网 两年来，广东海警通过打团伙、断链条、摧网络、深挖扩线、循线追踪共侦办毒品案件6起，缴获各类毒品逾9吨、抓获嫌疑人90余名，摧毁了多个海上毒品走私犯罪团伙和海上毒品运输通道。
+美国室内农业公司Local Bounti周三公布第一季度财报，营收同比增长15%至1330万美元，同时披露了在加州设施的产量提升计划。
 
-(来源：广东海警局 作者：邓榕烜、许政、周培跃） 责任编辑：【魏聪聪】
+尽管营收低于市场预期，但亏损大幅收窄显示成本控制成效显著。
+
+一季度业绩概览 财报显示，公司第一季度营收为1330万美元，同比增长15%，主要得益于佐治亚、得克萨斯和华盛顿三处设施的产量增加和销售增长。
+
+GAAP每股亏损为0.53美元，符合市场预期。
+
+净亏损从去年同期的3770万美元大幅收窄至1270万美元，主要受益于债务重组带来的利息支出减少。
+
+调整后EBITDA亏损改善35%至570万美元，调整后一般及行政费用下降30%至410万美元。
+
+公司表示，旗下三处设施均处于满产状态，全部产能已被客户预订。
+
+加州设施产量提升计划 公司正对加州设施进行针对性投资，以提升运营效率。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:27 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:45 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:30 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:34 - [四川宜宾发生5.5级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:34 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:31 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:23 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:31 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:36 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:45 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:29 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:45 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:33 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:26 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:32 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:24 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:20 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:41 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:21 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:40 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:41 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:26 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:46 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:47 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:18 - [南非门将单场77次成功传球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:20 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:26 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:32 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:31 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:33 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:41 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:33 - [中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/29483798.shtml)
+- 2026-06-29 11:18 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/559584395104.shtml)
+- 2026-06-29 11:20 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.kurohicncr.top/Article/details/4133395202.shtml)
+- 2026-06-29 11:47 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/88901.shtml)
+- 2026-06-29 11:44 - [宜宾5.5级地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/116583163.shtml)
+- 2026-06-29 11:27 - [伊朗球员道歉 说着说着哭了](https://www.share.kurohicncr.top/Article/details/6868282594.shtml)
+- 2026-06-29 11:37 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/14390261.shtml)
+- 2026-06-29 11:21 - [重生赛伊德04](https://www.blog.kurohicncr.top/Article/details/76072.shtml)
+- 2026-06-29 11:35 - [金刚川](https://www.share.minike.top/Article/details/04560462061.shtml)
+- 2026-06-29 11:30 - [C罗关心罗德里戈伤情](https://www.share.minike.top/Article/details/11074488.shtml)
+- 2026-06-29 11:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/226756.shtml)
+- 2026-06-29 11:37 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/36100907198.shtml)
+- 2026-06-29 11:39 - [户外吃烧烤多人头发变炸毛](http://www.share.kurohicncr.top/Article/details/375118014777.shtml)
+- 2026-06-29 11:46 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/86561531.shtml)
+- 2026-06-29 11:40 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/809859.shtml)

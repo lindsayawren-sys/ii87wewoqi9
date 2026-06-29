@@ -1,56 +1,61 @@
-# 北大红楼新展开幕 百件文物述荣光
+# 工信部：一季度我国数字产业收入9.5万亿元 同比增长12.9%
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网北京6月25日电 (记者 陈杭 刘超)25日，2026年“觉醒年代”研学行启动仪式暨“荣光之路——中国共产党的创建文物史料展”开幕式在北大红楼举行。青年学子接续传承红色血脉，京沪浙三地革命文物跨越千里相聚，共同赓续弘扬伟大建党精神。 当天，“荣光之路——中国共产党的创建文物史料展”正式开幕。适逢中国共产党成立105周年、中国共产党早期北京革命活动纪念馆开放五周年，来自北京
+中新网5月14日电 据“工信微报”微信公众号消息，2026年一季度数字产业运行情况公布，一季度我国数字产业收入9.5万亿元，同比增长12.9%。 一季度，我国数字产业实现良好开局，行业利润大幅改善，发展质效进一步提升，人工智能加快融合应用，新赛道新动能加速释放，产业生态不断优化，为稳定经济增长、培育发展新质生产力、赋能千行百业数智转型提供有力支撑。 一、数字产业收入和利润大幅增
 
 ## 正文
 
-中新网北京6月25日电 (记者 陈杭 刘超)25日，2026年“觉醒年代”研学行启动仪式暨“荣光之路——中国共产党的创建文物史料展”开幕式在北大红楼举行。
+中新网5月14日电 据“工信微报”微信公众号消息，2026年一季度数字产业运行情况公布，一季度我国数字产业收入9.5万亿元，同比增长12.9%。
 
-青年学子接续传承红色血脉，京沪浙三地革命文物跨越千里相聚，共同赓续弘扬伟大建党精神。
+一季度，我国数字产业实现良好开局，行业利润大幅改善，发展质效进一步提升，人工智能加快融合应用，新赛道新动能加速释放，产业生态不断优化，为稳定经济增长、培育发展新质生产力、赋能千行百业数智转型提供有力支撑。
 
-当天，“荣光之路——中国共产党的创建文物史料展”正式开幕。
+一、数字产业收入和利润大幅增长 一季度，数字产业实现收入9.5万亿元，同比增长12.9%，增速较上年同期提升3.5个百分点。
 
-适逢中国共产党成立105周年、中国共产党早期北京革命活动纪念馆开放五周年，来自北京、上海、浙江嘉兴三地的革命文物跨越千里相聚于此，用105件/套珍贵文物史料串联起“北京孕育、上海制造、南湖启航”的建党完整历程。
+在电子信息制造业利润强劲增长拉动下，数字产业实现利润总额7378亿元，同比增长23.6%，增速较上年同期提升16.6个百分点。
 
-本次展览由中国共产党早期北京革命活动纪念馆、北京新文化运动纪念馆、中共一大纪念馆、南湖革命纪念馆联合主办，是四家与党的创建密切相关的核心红色场馆首次跨区域协同办展。
+收入利润率7.8%，较上年同期提升1个百分点。
 
-同时，也是中国共产党早期北京革命活动纪念馆开馆五年来文物征集研究成果的首次集中呈现。
+二、产业集聚态势显著 一季度，广东、江苏、北京、上海、浙江等数字产业收入前10大省份合计完成业务收入7.9万亿元，同比增长13.9%，占全国总量的82.9%，占比较上年同期提升2.2个百分点，对全国数字产业收入增长贡献率达89.1%。
 
-开幕式上，四馆共同签订《中国共产党创建史的研究和宣传教育合作协议》，未来将在文物保护、学术研究、社教活动等方面深化联动，让分散在各地的红色资源形成传播合力。
+中部地区增速加快，中部地区实现数字产业收入1.3万亿元，同比增长21.4%，较上年同期加快11.7个百分点，高于全国8.5个百分点，其中安徽、湖北增速领先。
 
-本次展览由“‘德先生’和‘赛先生’”“五四呐喊”“星火初燃”“开天辟地”组成，全方位展现中国共产党开启红色序章、成就建党伟业、确立初心使命的光辉历程。
+多地依托数字产业集群，积极探索数字产业新业态新模式。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:47 - [黄灿灿是浪姐最大赢家吧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:43 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:31 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:29 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:25 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:26 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:37 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:45 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:23 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:24 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:22 - [温州学子高考数学满分 分享学习经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:47 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:19 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:48 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:30 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:19 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:29 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:27 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:26 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:37 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:30 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:46 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:38 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:30 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:42 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:38 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:39 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:40 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:44 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:29 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:27 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:30 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:32 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:24 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/98366008698.shtml)
+- 2026-06-29 11:39 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/49621926618.shtml)
+- 2026-06-29 11:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/32508509277.shtml)
+- 2026-06-29 11:26 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/01607.shtml)
+- 2026-06-29 11:31 - [四川宜宾发生5.5级地震](http://www.blog.kurohicncr.top/Article/details/4419704488.shtml)
+- 2026-06-29 11:45 - [退休化学教授帮医药研发人员制毒](https://www.blog.kurohicncr.top/Article/details/27559.shtml)
+- 2026-06-29 11:42 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/0110697402.shtml)
+- 2026-06-29 11:36 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/4319505.shtml)
+- 2026-06-29 11:35 - [2岁幼童高铁突发惊厥呼吸骤停](http://www.share.minike.top/Article/details/2553930.shtml)
+- 2026-06-29 11:24 - [乌拉圭出局之路](https://www.share.kurohicncr.top/Article/details/291360557.shtml)
+- 2026-06-29 11:35 - [水利部部署南方地区暴雨洪水防御工作](https://www.blog.minike.top/Article/details/7588038477.shtml)
+- 2026-06-29 11:26 - [中国U17男篮78-87加拿大U17男篮](https://www.blog.minike.top/Article/details/359223691138.shtml)
+- 2026-06-29 11:24 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/047859988273.shtml)
+- 2026-06-29 11:21 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/226223669815.shtml)
+- 2026-06-29 11:23 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.kurohicncr.top/Article/details/12012683092.shtml)

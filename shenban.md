@@ -1,56 +1,56 @@
-# 情满天山 援疆印记丨让每个孩子被看见：阜康这所新校的成长故事
+# 卡拉苏口岸客货流量双增长
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-石榴云/新疆日报记者 张婷 6月16日，“情满天山 援疆印记”采访团走进阜康市晋和小学，扑面而来的是一整座校园涌动的朝气与活力。大课间铃声响起，宽阔的操场上瞬间热闹起来，整齐列队、欢快跳跃，少年的蓬勃气息，充盈着校园每一个角落。 2025年9月正式投用的晋和小学，是山西对口援疆重点落地的全新公办校园。崭新的楼宇、标准化的场地、智能化的教学设备一应俱全。在干净崭新的校舍背后，真正
+石榴云/新疆日报讯(记者 王娜报道)5月14日，卡拉苏口岸，一辆辆满载货物的大卡车来来往往，鸣笛声和引擎轰鸣声此起彼伏，中国产汽车、塔吉克斯坦特色农产品等进出口货物在这里“双向奔赴”。 地处塔什库尔干塔吉克自治县的卡拉苏口岸，是中国与塔吉克斯坦唯一的陆路口岸。随着中国新疆与塔吉克斯坦地方间经贸往来持续升温、互联互通愈发紧密，该口岸呈现出越来越繁忙的景象，出入境货运车辆和人员数量
 
 ## 正文
 
-石榴云/新疆日报记者 张婷 6月16日，“情满天山 援疆印记”采访团走进阜康市晋和小学，扑面而来的是一整座校园涌动的朝气与活力。
+石榴云/新疆日报讯(记者 王娜报道)5月14日，卡拉苏口岸，一辆辆满载货物的大卡车来来往往，鸣笛声和引擎轰鸣声此起彼伏，中国产汽车、塔吉克斯坦特色农产品等进出口货物在这里“双向奔赴”。
 
-大课间铃声响起，宽阔的操场上瞬间热闹起来，整齐列队、欢快跳跃，少年的蓬勃气息，充盈着校园每一个角落。
+地处塔什库尔干塔吉克自治县的卡拉苏口岸，是中国与塔吉克斯坦唯一的陆路口岸。
 
-2025年9月正式投用的晋和小学，是山西对口援疆重点落地的全新公办校园。
+随着中国新疆与塔吉克斯坦地方间经贸往来持续升温、互联互通愈发紧密，该口岸呈现出越来越繁忙的景象，出入境货运车辆和人员数量稳步增长。
 
-崭新的楼宇、标准化的场地、智能化的教学设备一应俱全。
+“口岸跨境货物运输‘大进大出’趋势明显，通关流量持续攀升。
 
-在干净崭新的校舍背后，真正让校园“活起来、暖起来、亮起来”的，是一套从千里之外山西完整移植、又深度扎根阜康本地的全新教育模式。
+”卡拉苏边检站边检处副处长刘明秋介绍，截至5月12日，今年卡拉苏口岸共验放出入境人员1.1万余人次，同比增长17%；验放出入境车辆1万余辆次，同比增长15%；验放商品车7000余辆。
 
-“建校之初，我们始终把育人放在首位，山西省援疆教育团队立足阜康本地学情，让成熟实用的育人经验落地生根，用心关注每一名孩子，正视孩子差异、发掘孩子亮点、陪伴孩子踏实成长。
+中塔经贸往来紧密带动了中国产商品车出口步伐加快。
 
-”晋和小学党支部书记张蓓说。
+在卡拉苏口岸，每天都有大量新车集中运往塔吉克斯坦等中亚国家，车型涵盖轿车、轻型卡车等。
 
-借助太原市杏花岭区五一路小学教育集团办学资源，晋和小学打破传统教学模式，落实山西成熟教育经验，尊重孩子性格差异，挖掘每个人身上的长处，因材施教做好日常教学。
+商品车出口在这里大多采用“自驾交接+批量轿运”模式，创造了大量的就业机会。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:38 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:23 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:29 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:28 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:32 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:18 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:44 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:37 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:29 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:47 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:33 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:31 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:46 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:25 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:45 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:43 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:33 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:31 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:34 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:35 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:47 - [曾挑衅中国的立陶宛“生变”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:36 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:29 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:26 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:35 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:38 - [陈丽君演出结束后饭撒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:39 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:18 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:37 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:35 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:25 - [韩国队主帅洪明甫下课](https://www.blog.minike.top/Article/details/49782970011.shtml)
+- 2026-06-29 11:31 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/45614035.shtml)
+- 2026-06-29 11:19 - [加拿大92分钟绝杀南非](https://www.share.minike.top/Article/details/868337915.shtml)
+- 2026-06-29 11:33 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/32774.shtml)
+- 2026-06-29 11:26 - [加拿大92分钟绝杀南非](https://www.blog.kurohicncr.top/Article/details/20494116.shtml)
+- 2026-06-29 11:28 - [向佑说向佐是一生依靠](https://www.share.kurohicncr.top/Article/details/28090014.shtml)
+- 2026-06-29 11:47 - [沙丘](https://www.share.kurohicncr.top/Article/details/047739010.shtml)
+- 2026-06-29 11:24 - [白玉兰最佳女主角提名片段](https://www.share.kurohicncr.top/Article/details/72616034940.shtml)
+- 2026-06-29 11:29 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/510116288127.shtml)
+- 2026-06-29 11:29 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/4002411.shtml)
+- 2026-06-29 11:34 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/6516446788.shtml)
+- 2026-06-29 11:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/42948420223.shtml)
+- 2026-06-29 11:31 - [周生如故](http://www.blog.kurohicncr.top/Article/details/61186.shtml)
+- 2026-06-29 11:42 - [韩红携4000万物资抵呼和浩特](https://www.blog.kurohicncr.top/Article/details/20510757462.shtml)
+- 2026-06-29 11:47 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/40224.shtml)

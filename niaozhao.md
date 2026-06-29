@@ -1,56 +1,55 @@
-# 2026年中国内地暑期档电影片单发布
+# 华泰人寿拟增资9.7亿元
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新社北京6月25日电 (记者 高凯)由中国国家电影局主办的“电影的夏天”2026暑期档电影片单发布活动25日在北京举行。暑期档影片剧组主创集中对电影看点进行了推介。 据了解，2026年中国内地暑期档上映的影片涵盖革命历史、喜剧、科幻、动画等多种题材类型，为观众提供丰富多样的观影选择。 其中，《四渡》讲述红军四渡赤水，冲出重围、绝地反击，完成长征路上重要战略转移的故事。《群星闪
+5月14日金融一线消息，华泰人寿公告，5月13日，华泰人寿召开2025年度股东会，审议通过了《华泰人寿关于2026年增加注册资本金的议案》。根据该议案，华泰人寿拟于2026年增加注册资本金，本次共发行新股9.7亿股，共募集资本9.7亿元。本次新股发行后，注册资本金为52.825亿元。 华泰人寿表示，本次增资拟采用定向增发股份的形式，全部由股东华泰保险集团股份有限公司定向增发。如
 
 ## 正文
 
-中新社北京6月25日电 (记者 高凯)由中国国家电影局主办的“电影的夏天”2026暑期档电影片单发布活动25日在北京举行。
+5月14日金融一线消息，华泰人寿公告，5月13日，华泰人寿召开2025年度股东会，审议通过了《华泰人寿关于2026年增加注册资本金的议案》。
 
-暑期档影片剧组主创集中对电影看点进行了推介。
+根据该议案，华泰人寿拟于2026年增加注册资本金，本次共发行新股9.7亿股，共募集资本9.7亿元。
 
-据了解，2026年中国内地暑期档上映的影片涵盖革命历史、喜剧、科幻、动画等多种题材类型，为观众提供丰富多样的观影选择。
+本次新股发行后，注册资本金为52.825亿元。
 
-其中，《四渡》讲述红军四渡赤水，冲出重围、绝地反击，完成长征路上重要战略转移的故事。
+华泰人寿表示，本次增资拟采用定向增发股份的形式，全部由股东华泰保险集团股份有限公司定向增发。
 
-《群星闪耀时》讲述航天员在太空突遇险情，破译神秘电子信号化解危机的故事。
+如果增资获批，华泰保险集团股份有限公司持股比例达到83.45243%。
 
-《三国第一部：争洛阳》《八仙！
-
-》《大唐妖探》等动画电影集中亮相。
-
-活动现场还推介了《海洋奇缘：启航》《蜘蛛侠：崭新之日》《奥德赛》等外国影片。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 11:35 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:24 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 11:25 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:18 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:18 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:43 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:43 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:25 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:38 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:30 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:36 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:42 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:19 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:21 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:33 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:22 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:24 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:34 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:38 - [哈尔滨“全城追菠萝蜜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:48 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:23 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:20 - [温州学子高考数学满分 分享学习经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:18 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:32 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:37 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:43 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:36 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:30 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:38 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:46 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:45 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:19 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:25 - [某高校学生被辅导员等人扭送至公安](https://www.share.kurohicncr.top/Article/details/289581811.shtml)
+- 2026-06-29 11:48 - [欧洲热死人不是开玩笑](http://www.share.kurohicncr.top/Article/details/0184904.shtml)
+- 2026-06-29 11:36 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/690798901.shtml)
+- 2026-06-29 11:22 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/13410783.shtml)
+- 2026-06-29 11:19 - [韩国主教练连夜下课](https://www.blog.kurohicncr.top/Article/details/86361858123.shtml)
+- 2026-06-29 11:45 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/72582469364.shtml)
+- 2026-06-29 11:41 - [恋与深空女玩家不该被冒犯](https://www.blog.kurohicncr.top/Article/details/62264.shtml)
+- 2026-06-29 11:47 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.kurohicncr.top/Article/details/7609591.shtml)
+- 2026-06-29 11:37 - [双高胎](http://www.share.minike.top/Article/details/143505222019.shtml)
+- 2026-06-29 11:31 - [赵今麦客串电影版开端](http://www.share.kurohicncr.top/Article/details/63009.shtml)
+- 2026-06-29 11:23 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.kurohicncr.top/Article/details/41465.shtml)
+- 2026-06-29 11:29 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.kurohicncr.top/Article/details/100486822.shtml)
+- 2026-06-29 11:33 - [浦玮：阿根廷所在半区对手实力偏弱](https://www.blog.kurohicncr.top/Article/details/54155.shtml)
+- 2026-06-29 11:42 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.share.minike.top/Article/details/261105085.shtml)
+- 2026-06-29 11:32 - [美国230斤男孩在家中去世父母被捕](https://www.share.minike.top/Article/details/994897.shtml)

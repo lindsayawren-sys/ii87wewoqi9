@@ -1,61 +1,48 @@
-# 《给阿嬷的情书》文化顾问、演员线上交流：影片在马来西亚热度超预期
+# 本田录得罕见年度亏损
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网吉隆坡6月28日电 (刘育英 张心怡)6月27日，马来西亚中华大会堂总会(华总)及旗下马来西亚华人博物馆，在华总大厦举办《给阿嬷的情书》电影主题分享会，中国驻马来西亚大使欧阳玉靖出席活动。影片文化顾问与演员线上分享，坦言当地观众的热烈反响超出预期。 《给阿嬷的情书》近期登陆马来西亚后掀起“阿嬷情书热”，上映8天票房突破820万林吉特(约1360万元人民币)，市场反响亮眼。
+本田汽车公布了自1957年以来的首次年度亏损，主要原因是其美国电动汽车战略全面调整导致巨额资产减记，严重拖累了整体业绩。近年来，全球汽车制造商在电动化转型中面临激烈竞争和成本压力，本田在调整生产布局和车型规划时不得不对原有资产进行重新评估。此次亏损反映出传统车企在向新能源过渡过程中所承受的财务阵痛，也表明本田未来可能需要进一步优化其全球资源配置以恢复盈利能力。责任编辑：张俊 S
 
 ## 正文
 
-中新网吉隆坡6月28日电 (刘育英 张心怡)6月27日，马来西亚中华大会堂总会(华总)及旗下马来西亚华人博物馆，在华总大厦举办《给阿嬷的情书》电影主题分享会，中国驻马来西亚大使欧阳玉靖出席活动。
+本田汽车公布了自1957年以来的首次年度亏损，主要原因是其美国电动汽车战略全面调整导致巨额资产减记，严重拖累了整体业绩。
 
-影片文化顾问与演员线上分享，坦言当地观众的热烈反响超出预期。
+近年来，全球汽车制造商在电动化转型中面临激烈竞争和成本压力，本田在调整生产布局和车型规划时不得不对原有资产进行重新评估。
 
-《给阿嬷的情书》近期登陆马来西亚后掀起“阿嬷情书热”，上映8天票房突破820万林吉特(约1360万元人民币)，市场反响亮眼。
+此次亏损反映出传统车企在向新能源过渡过程中所承受的财务阵痛，也表明本田未来可能需要进一步优化其全球资源配置以恢复盈利能力。
 
-华总总会长林家全表示，这部以侨批为背景的影片，与马来西亚颇有渊源。
-
-据导演兼编剧蓝鸿春透露，三年前筹备影片期间，剧组专程前往槟城大山脚开展实地采访与田野调查，从中获取大量创作灵感。
-
-另外，片中主角谢南枝居住的老厝，原型正是马来西亚华社领袖陈国平在中国的祖居。
-
-本次分享会邀请影片潮汕文化顾问、华南师范大学教师陈椰，演员钟少贤、陈钦勤等人线上参与。
-
-几人坦言，完全没有料到影片在马来西亚反响如此热烈。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:35 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:39 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:33 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:23 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:43 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:21 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:32 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:25 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:46 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:21 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:18 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:43 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:18 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:24 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:48 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:30 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:24 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:34 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:32 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:24 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:40 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:18 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:34 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:25 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:26 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:31 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:41 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:43 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:18 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:44 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:24 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:29 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:44 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:34 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:27 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/252541.shtml)
+- 2026-06-29 11:48 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/005050920138.shtml)
+- 2026-06-29 11:22 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/054180.shtml)
+- 2026-06-29 11:31 - [为何加快“扩编”成欧盟战略要务](http://www.share.kurohicncr.top/Article/details/1690256965.shtml)
+- 2026-06-29 11:30 - [韩红携4000万物资抵呼和浩特](http://www.share.minike.top/Article/details/32021632648.shtml)
+- 2026-06-29 11:37 - [千与千寻](https://www.blog.minike.top/Article/details/743486347.shtml)
+- 2026-06-29 11:42 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/386503062391.shtml)
+- 2026-06-29 11:34 - [中国避暑神器在欧洲卖爆了](http://www.share.minike.top/Article/details/7859914533.shtml)
+- 2026-06-29 11:35 - [沙丘](http://www.blog.kurohicncr.top/Article/details/21215018256.shtml)
+- 2026-06-29 11:39 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/8597360105.shtml)
+- 2026-06-29 11:25 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.kurohicncr.top/Article/details/611847104.shtml)
+- 2026-06-29 11:40 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/00988424798.shtml)
+- 2026-06-29 11:47 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.minike.top/Article/details/70063754.shtml)
+- 2026-06-29 11:23 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/1965054.shtml)
+- 2026-06-29 11:24 - [水利部部署南方地区暴雨洪水防御工作](http://www.blog.minike.top/Article/details/17960606.shtml)

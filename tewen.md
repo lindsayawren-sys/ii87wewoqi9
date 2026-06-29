@@ -1,58 +1,60 @@
-# 仙工智能登陆港股，能否撑起24倍PS
+# 北京商报：只涨不跌的市场难以持续 调整过后指数往往能打开新的上行空间
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-6月24日，上海仙工智能科技股份有限公司（简称“仙工智能”，股票代码：06106.HK）正式在港交所挂牌上市。 仙工智能当日以101.6港元开盘，与发行价齐平；截至收盘，股价报106港元，较发行价上涨4.33%，总市值达到117亿港元。 6月25日，仙工智能报收105.6港元/股，下跌1.4%。 此次IPO发行1049.7万股，发行价101.6港元，募资总额约10.66亿港元，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：北京商报 北京商报发文指出，股市的长期稳定上行，离不开健康的调整周期。只涨不跌的市场难以持续，短期快速上涨后若缺乏调整，会导致市场风险不断累积，一旦出现集中释放，调整幅度会更大，对市场的冲击也更强烈。而适度的调整，能够逐步释放短期风险，缓解市场压力，让指数上行节奏更加平稳。回顾A股历史行情，每一轮持续
 
 ## 正文
 
-6月24日，上海仙工智能科技股份有限公司（简称“仙工智能”，股票代码：06106.HK）正式在港交所挂牌上市。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-仙工智能当日以101.6港元开盘，与发行价齐平；截至收盘，股价报106港元，较发行价上涨4.33%，总市值达到117亿港元。
+来源：北京商报 北京商报发文指出，股市的长期稳定上行，离不开健康的调整周期。
 
-6月25日，仙工智能报收105.6港元/股，下跌1.4%。
+只涨不跌的市场难以持续，短期快速上涨后若缺乏调整，会导致市场风险不断累积，一旦出现集中释放，调整幅度会更大，对市场的冲击也更强烈。
 
-此次IPO发行1049.7万股，发行价101.6港元，募资总额约10.66亿港元，扣除上市相关费用后募资净额约9.95亿港元，本次IPO发售股份占公司上市后总股本的9.5%。
+而适度的调整，能够逐步释放短期风险，缓解市场压力，让指数上行节奏更加平稳。
 
-公司公开发售部分获5934.56倍认购，触发回补机制，一手（50股）中签率5%，国际配售录得21.29倍认购。
+回顾A股历史行情，每一轮持续的上涨行情，都伴随着多次阶段性调整，调整过后指数往往能打开新的上行空日。
 
-基石投资者阵容方面，高瓴旗下HHLR Advisors、Yuanbao Family Office Limited、3W Fund Management Limited、广发基金、瑞华投资、中和资本、Yishao Capital及Nova Kerry等8家机构参与认购，合计覆盖43.34%的发行份额，对应公司总股本约4.12%，禁售期6个月。
+面对指数创新高后的调整，投资者应保持理性认知，避免盲目恐慌。
 
-24倍高PS显示市场分歧 按6月24日收盘市值测算，仙工智能对应2025年PS（市销率）约24.3倍。
+首先，要摒弃短期投机心态，树立长期价值投资理念重点关注基本面扎实、业绩增长明确的上市公司，不盲目跟风炒作。
 
-上市前一日暗盘交易中，公司一度跌破发行价，盘中最大跌幅超过20%，全天振幅达49.21%，显示市场对其估值水平仍存在一定分歧。
+其次，要理性看待市场波动，认识到调整是市场运行的正常环节，不必因短期回调过度焦虑，更不应盲目割肉离场。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:44 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:20 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:19 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:27 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:18 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:46 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:40 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:20 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:43 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:18 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:47 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:37 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:34 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:32 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:22 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:35 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:45 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:35 - [毕业典礼整活 梗密到不知先笑哪个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:38 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:33 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:26 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:39 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:25 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:22 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:30 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:46 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:42 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:19 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:28 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:46 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:33 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:31 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:35 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:37 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:28 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:21 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:22 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/46408.shtml)
+- 2026-06-29 11:38 - [广州某高校辟谣禁止小米汽车入校](https://www.blog.minike.top/Article/details/01199161.shtml)
+- 2026-06-29 11:29 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/07919942995.shtml)
+- 2026-06-29 11:27 - [为什么欧洲人不装空调](https://www.blog.minike.top/Article/details/76977682.shtml)
+- 2026-06-29 11:20 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://www.blog.minike.top/Article/details/02051.shtml)
+- 2026-06-29 11:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/724922754403.shtml)
+- 2026-06-29 11:31 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/43310837.shtml)
+- 2026-06-29 11:24 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/2498506814.shtml)
+- 2026-06-29 11:22 - [洪明甫发布会没有提问环节](http://www.blog.kurohicncr.top/Article/details/0589182029.shtml)
+- 2026-06-29 11:36 - [高考志愿今起开始填报](https://www.share.minike.top/Article/details/7092177213.shtml)
+- 2026-06-29 11:36 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/16417065684.shtml)
+- 2026-06-29 11:20 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/23781.shtml)
+- 2026-06-29 11:21 - [Gucci全球首席营销官发肖战](https://www.share.kurohicncr.top/Article/details/80850506390.shtml)
+- 2026-06-29 11:43 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/48738708664.shtml)
+- 2026-06-29 11:48 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/3306698.shtml)

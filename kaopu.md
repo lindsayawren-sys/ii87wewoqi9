@@ -1,56 +1,49 @@
-# 韩媒：韩国股市或已陷入“波动陷阱”
+# 加密货币“清晰法案”进入审议阶段
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网首尔6月26日电 (记者 金旭)近来，韩国股市连续出现单日4%至5%以上的大幅涨跌。有观点指出，韩国股市或已陷入“波动陷阱”。 当地时间26日，韩国综合股价指数(KOSPI)盘中一度大跌超8%，触发市场熔断机制。这是韩国股市今年第5次触发熔断机制。 韩国证券交易所当天发布公告说，触发熔断机制后，市场暂停交易20分钟。受此影响，韩国有价证券市场所有股票交易暂时中止，相关期货
+美国参议院银行委员会将讨论《数字资产市场清晰法案》，目前各方在稳定币收益率和道德条款方面仍存在争议。Coinbase等加密货币交易所正密切关注该法案的审议结果，因为相关立法将直接影响到数字资产的监管框架和市场准入条件。支持者认为，该法案有望为行业提供急需的法律确定性，促进创新和投资；而反对者则担心过度监管可能抑制市场活力，并损害消费者利益。责任编辑：张俊 SF065
 
 ## 正文
 
-中新网首尔6月26日电 (记者 金旭)近来，韩国股市连续出现单日4%至5%以上的大幅涨跌。
+美国参议院银行委员会将讨论《数字资产市场清晰法案》，目前各方在稳定币收益率和道德条款方面仍存在争议。
 
-有观点指出，韩国股市或已陷入“波动陷阱”。
+Coinbase等加密货币交易所正密切关注该法案的审议结果，因为相关立法将直接影响到数字资产的监管框架和市场准入条件。
 
-当地时间26日，韩国综合股价指数(KOSPI)盘中一度大跌超8%，触发市场熔断机制。
+支持者认为，该法案有望为行业提供急需的法律确定性，促进创新和投资；而反对者则担心过度监管可能抑制市场活力，并损害消费者利益。
 
-这是韩国股市今年第5次触发熔断机制。
-
-韩国证券交易所当天发布公告说，触发熔断机制后，市场暂停交易20分钟。
-
-受此影响，韩国有价证券市场所有股票交易暂时中止，相关期货和期权市场交易也同步暂停。
-
-熔断机制启动时，KOSPI报8199.81点，较前一交易日下跌8.18%。
-
-26日早些时候，韩国KOSPI200指数期货剧烈波动，跌幅超过5%，韩国证券交易所一度启动了“临时停牌”机制，暂停程序化卖出交易。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:18 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:26 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:23 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:47 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:27 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:42 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:27 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:21 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:47 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:39 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:32 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:32 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:29 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:27 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:40 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:20 - [天津打雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:25 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:23 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:25 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:35 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:23 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:32 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:23 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:18 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:24 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:18 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:31 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:33 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:24 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:24 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:36 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/806798.shtml)
+- 2026-06-29 11:39 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://www.share.kurohicncr.top/Article/details/09546388053.shtml)
+- 2026-06-29 11:32 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](http://www.share.minike.top/Article/details/758408.shtml)
+- 2026-06-29 11:18 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/857647.shtml)
+- 2026-06-29 11:48 - [水利部部署南方地区暴雨洪水防御工作](https://www.blog.minike.top/Article/details/156966.shtml)
+- 2026-06-29 11:22 - [恋与深空底线不该被娱乐化](https://www.blog.kurohicncr.top/Article/details/0485119007.shtml)
+- 2026-06-29 11:44 - [功率半导体缺货涨价](https://www.share.minike.top/Article/details/5060847369.shtml)
+- 2026-06-29 11:36 - [伊朗与黎巴嫩商定设立冲突管控工作组](http://www.share.kurohicncr.top/Article/details/208690381994.shtml)
+- 2026-06-29 11:44 - [天道](https://www.share.kurohicncr.top/Article/details/686107.shtml)
+- 2026-06-29 11:36 - [王楚钦美国大满贯晋级32强](https://www.blog.minike.top/Article/details/304477.shtml)
+- 2026-06-29 11:21 - [【独家】牧神记 第89集 明心](https://www.blog.minike.top/Article/details/11839.shtml)
+- 2026-06-29 11:33 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/808796749014.shtml)
+- 2026-06-29 11:47 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/471232.shtml)
+- 2026-06-29 11:37 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.kurohicncr.top/Article/details/95444535.shtml)
+- 2026-06-29 11:42 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/539516433.shtml)

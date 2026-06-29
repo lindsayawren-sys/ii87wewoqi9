@@ -1,55 +1,46 @@
-# 十四届全国人大常委会举行第六十九次委员长会议 听取有关草案和议案审议情况汇报 赵乐际主持
+# 俄外长：俄愿为伊美达成协议提供帮助
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-新华社北京6月25日电 十四届全国人大常委会第六十九次委员长会议25日下午在北京人民大会堂举行。赵乐际委员长主持。 会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于商标法修订草案修改意见的汇报、关于修改注册会计师法的决定草案修改意见的汇报、关于授权香港特别行政区对皇岗口岸港方口岸区及相关延伸区实施管辖的决定草案审议结果的报告，审议了相关草案修改稿、决定草案。 会议听取了
+发布时间：2026年05月15日 09:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-新华社北京6月25日电 十四届全国人大常委会第六十九次委员长会议25日下午在北京人民大会堂举行。
-
-赵乐际委员长主持。
-
-会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于商标法修订草案修改意见的汇报、关于修改注册会计师法的决定草案修改意见的汇报、关于授权香港特别行政区对皇岗口岸港方口岸区及相关延伸区实施管辖的决定草案审议结果的报告，审议了相关草案修改稿、决定草案。
-
-会议听取了全国人大财政经济委员会副主任委员、全国人大常委会预算工作委员会主任许宏才作的关于2025年中央决算草案和2025年中央决算报告审查情况的汇报，审议了关于批准2025年中央决算的决议草案代拟稿。
-
-会议听取了全国人大常委会秘书长刘奇作的关于个别代表的代表资格的报告和任免案审议情况的汇报等。
-
-委员长会议决定，将上述草案修改稿等提交常委会会议审议。
-
-全国人大常委会副委员长李鸿忠、王东明、肖捷、郑建邦、丁仲礼、蔡达峰、何维、武维华、铁凝、彭清华、张庆伟、洛桑江村、雪克来提·扎克尔出席会议。
+发布时间：2026年05月15日 09:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:36 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:27 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:41 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:33 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:27 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:41 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:35 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:29 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:28 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:22 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:43 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:35 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:47 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:22 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:37 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:44 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:45 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:46 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:21 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:22 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:46 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:30 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:18 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:42 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:29 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:22 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:22 - [鬼畜区全明星拼接遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:20 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:21 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:33 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:36 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:19 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:26 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:42 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:29 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.share.kurohicncr.top/Article/details/360344177.shtml)
+- 2026-06-29 11:47 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.share.kurohicncr.top/Article/details/814529.shtml)
+- 2026-06-29 11:47 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/926076827.shtml)
+- 2026-06-29 11:46 - [加拿大92分钟绝杀](https://www.blog.minike.top/Article/details/427704.shtml)
+- 2026-06-29 11:48 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/72846.shtml)
+- 2026-06-29 11:42 - [世界杯小组赛阶段过人榜：马扎居首](https://www.share.kurohicncr.top/Article/details/265568491.shtml)
+- 2026-06-29 11:39 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.kurohicncr.top/Article/details/088700846011.shtml)
+- 2026-06-29 11:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/478807728059.shtml)
+- 2026-06-29 11:27 - [原来衣着打扮会影响对自己的感知](https://www.share.kurohicncr.top/Article/details/6763251134.shtml)
+- 2026-06-29 11:27 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/92219092.shtml)
+- 2026-06-29 11:30 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/95649369.shtml)
+- 2026-06-29 11:38 - [吴昕要助理买的药6年前已停产](https://www.share.minike.top/Article/details/3198663.shtml)
+- 2026-06-29 11:45 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/6386073.shtml)
+- 2026-06-29 11:29 - [美人鱼](http://www.share.kurohicncr.top/Article/details/251518.shtml)
+- 2026-06-29 11:47 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/374164569664.shtml)

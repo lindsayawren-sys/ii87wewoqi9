@@ -1,57 +1,44 @@
-# 浙江横店“竖”起微短剧 台湾媒体人看好两岸合作前景
+# 英唐智控：主要产品线覆盖消费电子、汽车电子及工业制造等领域
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新社浙江横店6月27日电 (郭其钰)清晨，在浙江横店影视城明清宫苑景区，一个微短剧剧组已经架好了竖屏监视器，随着导演一声“准备”，十几个穿着古装戏服的演员迅速进入状态。这样的场景，每天都在横店上演。 6月26日—27日，来自两岸的近50位媒体人和自媒体人走进横店，实地探访大陆影视产业特别是微短剧产业发展。 “我们注意到曾经的‘横店’现在被网友和从业者戏称为‘竖店’，这个名字很
+证券日报网讯5月13日，英唐智控在互动平台回答投资者提问时表示，公司电子元器件分销产品类型包括被动元件、存储类、触控显示类、半导体类、模块类、电子材料等各类电子元器件产品，获得国内外众多一线品牌的授权代理，主要产品线覆盖消费电子、汽车电子及工业制造等领域。
 
 ## 正文
 
-中新社浙江横店6月27日电 (郭其钰)清晨，在浙江横店影视城明清宫苑景区，一个微短剧剧组已经架好了竖屏监视器，随着导演一声“准备”，十几个穿着古装戏服的演员迅速进入状态。
-
-这样的场景，每天都在横店上演。
-
-6月26日—27日，来自两岸的近50位媒体人和自媒体人走进横店，实地探访大陆影视产业特别是微短剧产业发展。
-
-“我们注意到曾经的‘横店’现在被网友和从业者戏称为‘竖店’，这个名字很妙，一字之变道出了整个产业的变迁。
-
-”台湾旺旺中时媒体集团董事长特别助理林育瑾说，称呼的转变背后不仅是拍摄画幅从横屏到竖屏的转变，更折射出大陆影视产业对市场需求的敏锐捕捉和快速反应能力。
-
-以横店影视城为例，作为全球最大的影视拍摄基地之一，2025年在此拍摄的竖屏短剧剧组超4000个，百余座专业摄影棚与近千个实景拍摄场景，为短剧创意提供了高效转化的土壤。
-
-“从‘横’到‘竖’，影视行业的生产逻辑、叙事方式、受众习惯都在变。
-
-大陆产业生态能这么快跟上，自然为台湾影视从业者提供了很多机遇。
+证券日报网讯5月13日，英唐智控在互动平台回答投资者提问时表示，公司电子元器件分销产品类型包括被动元件、存储类、触控显示类、半导体类、模块类、电子材料等各类电子元器件产品，获得国内外众多一线品牌的授权代理，主要产品线覆盖消费电子、汽车电子及工业制造等领域。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:23 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:39 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:39 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:36 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:46 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:19 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:46 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:36 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:23 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:18 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:43 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:30 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:32 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:33 - [中国男篮抵达沈阳备战世预赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:43 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:40 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:39 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:27 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:22 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:40 - [重生赛伊德04](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:33 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:20 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:46 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:37 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:47 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:32 - [俄称继续在顿涅茨克两城镇推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:34 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:32 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:18 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:44 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:24 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:47 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:26 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:21 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:43 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:25 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/951284.shtml)
+- 2026-06-29 11:36 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](http://www.blog.minike.top/Article/details/0793302.shtml)
+- 2026-06-29 11:45 - [俄称继续在顿涅茨克两城镇推进](https://www.blog.kurohicncr.top/Article/details/5660103583.shtml)
+- 2026-06-29 11:46 - [张一山说杨紫早该拿奖了](https://www.share.minike.top/Article/details/4979385.shtml)
+- 2026-06-29 11:36 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/166661673.shtml)
+- 2026-06-29 11:27 - [送你一朵小红花](http://www.blog.minike.top/Article/details/07968438676.shtml)
+- 2026-06-29 11:20 - [薛之谦演唱会](https://www.blog.minike.top/Article/details/04487537160.shtml)
+- 2026-06-29 11:43 - [黄灿灿是浪姐最大赢家吧](http://www.share.minike.top/Article/details/67455.shtml)
+- 2026-06-29 11:35 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/44741.shtml)
+- 2026-06-29 11:27 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/60991167.shtml)
+- 2026-06-29 11:37 - [功率半导体缺货涨价](https://www.share.minike.top/Article/details/401764393.shtml)
+- 2026-06-29 11:33 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/973933379133.shtml)
+- 2026-06-29 11:33 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](http://www.blog.kurohicncr.top/Article/details/72267392.shtml)
+- 2026-06-29 11:30 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.kurohicncr.top/Article/details/8030810.shtml)
+- 2026-06-29 11:25 - [黄金大跌带崩“黄金爱马仕”老铺黄金](http://www.share.kurohicncr.top/Article/details/61734429.shtml)

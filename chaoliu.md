@@ -1,57 +1,57 @@
-# 比特币今年走势艰难，交易员押注行情还将进一步恶化
+# 创想三维上市前夜：冲击高端“增收不增利”，从领跑者沦为追赶者
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-周四，比特币期货价格一路下探至 58995 美元，创下 2024 年 10 月以来的最低价位，较去年历史高点累计回撤幅度约 52%。今年以来，比特币始终在 60000 美元关口反复拉锯：今年 2 月该价位曾获得支撑，6 月前两周再度试探这一关口，短暂反弹至 67000 美元上方后便再度走弱。 期权交易市场认为，本次价格跌破关键支撑仅仅只是下跌行情的开端。 芝加哥期权交易所实时数
+来源：国际金融报 由A转港、二度递表的创想三维，近期在资本市场迎来了好消息。据港交所披露，这一全球消费级3D打印赛道的头部玩家，已正式通过港交所聆讯。有市场消息称，公司预计将于5月登陆港交所。若顺利挂牌，创想三维届时将成为“消费级3D打印第一股”。 过去几年，消费级3D打印产业从“小众”走向“大众”，市场规模与渗透率双双突破。公开数据显示，2025年“双十一”期间，京东与天猫两
 
 ## 正文
 
-周四，比特币期货价格一路下探至 58995 美元，创下 2024 年 10 月以来的最低价位，较去年历史高点累计回撤幅度约 52%。
+来源：国际金融报 由A转港、二度递表的创想三维，近期在资本市场迎来了好消息。
 
-今年以来，比特币始终在 60000 美元关口反复拉锯：今年 2 月该价位曾获得支撑，6 月前两周再度试探这一关口，短暂反弹至 67000 美元上方后便再度走弱。
+据港交所披露，这一全球消费级3D打印赛道的头部玩家，已正式通过港交所聆讯。
 
-期权交易市场认为，本次价格跌破关键支撑仅仅只是下跌行情的开端。
+有市场消息称，公司预计将于5月登陆港交所。
 
-芝加哥期权交易所实时数据显示，周四贝莱德 iShares 比特币信托 ETF（IBIT）期权成交量接近 110 万张，几乎是过去 30 日日均成交量的两倍，其中看跌期权成交量远超看涨期权。
+若顺利挂牌，创想三维届时将成为“消费级3D打印第一股”。
 
-交易平台 ThinkOrSwim 统计数据显示，交易者买入 27.5 万张看跌期权，看涨期权买入量不足 12.9 万张。
+过去几年，消费级3D打印产业从“小众”走向“大众”，市场规模与渗透率双双突破。
 
-行情数据机构 SpotGamma 统计，IBIT 期权总权利金成交额达 1.87 亿美元，其中看跌期权权利金规模 1.44 亿美元。
+公开数据显示，2025年“双十一”期间，京东与天猫两大平台的消费级3D打印机销量突破万台，成为增长最快的数码品类之一。
 
-在成交量最高的 20 份期权合约中，有 19 份均为看跌合约。
+乘着行业东风，创想三维也迎来了快速增长期。
 
-市场交易最活跃的是本周五到期、行权价 32.5 美元的看跌期权，比特币需要再下跌 4.5%，这份期权才能实现行权收益。
+2023年至2025年，公司营收分别为18.82亿元、22.88亿元和31.27亿元，规模持续扩大。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:25 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:42 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:45 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:32 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:26 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:31 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:18 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:44 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:21 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:37 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:43 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:20 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:47 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:46 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:39 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:24 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:20 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:41 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:44 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:28 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:18 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:40 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:20 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:25 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:38 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:25 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:37 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:35 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:42 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:21 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:21 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:45 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:24 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:32 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/880716.shtml)
+- 2026-06-29 11:21 - [毒液2](http://www.share.minike.top/Article/details/82721542.shtml)
+- 2026-06-29 11:22 - [医护人员观影《四渡》传承长征精神](https://www.share.kurohicncr.top/Article/details/330601.shtml)
+- 2026-06-29 11:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/10713.shtml)
+- 2026-06-29 11:43 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/586371480550.shtml)
+- 2026-06-29 11:41 - [李在明要调查韩国队出局原因](https://www.share.minike.top/Article/details/11646852.shtml)
+- 2026-06-29 11:47 - [曾沛慈夺冠后人气](http://www.share.minike.top/Article/details/90974.shtml)
+- 2026-06-29 11:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/3750265.shtml)
+- 2026-06-29 11:37 - [韩媒称韩国队遭中国网民嘲讽](https://www.share.kurohicncr.top/Article/details/49866202064.shtml)
+- 2026-06-29 11:44 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/034865874.shtml)
+- 2026-06-29 11:39 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/32642.shtml)
+- 2026-06-29 11:23 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/277794934761.shtml)
+- 2026-06-29 11:32 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/27520.shtml)
+- 2026-06-29 11:45 - [爱很美味](http://www.share.kurohicncr.top/Article/details/51487084974.shtml)
+- 2026-06-29 11:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/47389212095.shtml)

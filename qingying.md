@@ -1,57 +1,51 @@
-# 在珠峰之巅举起国旗后，这位新疆少年还想“集齐”七大洲最高峰
+# 日本岩手县发生5级地震 多地震感强烈
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐6月26日电 (张家伟)6月4日早上7点，艾力库提·地里夏提站在了珠穆朗玛峰之巅。 他喘着粗气拨通父亲的视频电话。父亲的第一句话是：“国旗展示完了吗？”艾力库提调整镜头：“马上展示。”随后，一面五星红旗在珠穆朗玛峰顶展开。 曾因登山被“扒”掉一层皮 出生于2008年的艾力库提是乌鲁木齐市第二十三中学学生，其父亲是新疆登山运动服务中心户外救援队队长，从事登山行业30
+中新网5月14日电 据日本广播协会(NHK)报道，当地时间14日5时1分，日本岩手县发生5级地震，震源深度10千米。 据报道，岩手县盛冈市在内的多地有震度4级的强烈震感，此外，青森县、宫城县和北海道等地也有不同程度震感。 此次地震没有引发海啸。
 
 ## 正文
 
-中新网乌鲁木齐6月26日电 (张家伟)6月4日早上7点，艾力库提·地里夏提站在了珠穆朗玛峰之巅。
+中新网5月14日电 据日本广播协会(NHK)报道，当地时间14日5时1分，日本岩手县发生5级地震，震源深度10千米。
 
-他喘着粗气拨通父亲的视频电话。
+据报道，岩手县盛冈市在内的多地有震度4级的强烈震感，此外，青森县、宫城县和北海道等地也有不同程度震感。
 
-父亲的第一句话是：“国旗展示完了吗？
-
-”艾力库提调整镜头：“马上展示。
-
-”随后，一面五星红旗在珠穆朗玛峰顶展开。
-
-曾因登山被“扒”掉一层皮 出生于2008年的艾力库提是乌鲁木齐市第二十三中学学生，其父亲是新疆登山运动服务中心户外救援队队长，从事登山行业30多年。
-
-他说：“6岁起，父亲就带我走进户外，在山里散步、透气。
-
-” 10岁那年，他攀登了人生中第一座雪山，那是新疆博格达峰下的一座未登峰，海拔5000多米。
+此次地震没有引发海啸。
 
 ## 相关推荐
 
-- 2026-06-29 11:36 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:29 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:29 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:22 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:20 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:41 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:28 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:34 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:20 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:46 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:40 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:44 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:24 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:32 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:34 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:31 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:42 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:27 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:28 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:20 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:47 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:21 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:20 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:18 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:45 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:28 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:42 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:35 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:47 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:44 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:19 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:30 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:26 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:24 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:38 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:26 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:38 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:29 - [伊朗队球员哭诉：这届世界杯是场灾难](https://www.share.kurohicncr.top/Article/details/3386326.shtml)
+- 2026-06-29 11:20 - [《昨夜将至》为何是悬疑黑马](https://www.blog.minike.top/Article/details/5141021.shtml)
+- 2026-06-29 11:40 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/16016308758.shtml)
+- 2026-06-29 11:22 - [夏粮收购陆续展开 质优价稳购销两旺](http://www.share.minike.top/Article/details/0880475864.shtml)
+- 2026-06-29 11:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/0888877019.shtml)
+- 2026-06-29 11:30 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/4772304966.shtml)
+- 2026-06-29 11:22 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](http://www.blog.kurohicncr.top/Article/details/053281.shtml)
+- 2026-06-29 11:26 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/47044750.shtml)
+- 2026-06-29 11:44 - [热穹顶来了](https://www.blog.minike.top/Article/details/8615085.shtml)
+- 2026-06-29 11:24 - [成都震感](https://www.share.minike.top/Article/details/520993.shtml)
+- 2026-06-29 11:37 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/6020417.shtml)
+- 2026-06-29 11:39 - [恋与深空女玩家不该被冒犯](http://www.blog.kurohicncr.top/Article/details/46526003771.shtml)
+- 2026-06-29 11:25 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/93730519.shtml)
+- 2026-06-29 11:28 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/62423.shtml)
+- 2026-06-29 11:35 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/46274607.shtml)

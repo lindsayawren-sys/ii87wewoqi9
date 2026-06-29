@@ -1,57 +1,54 @@
-# 12国专家齐聚山东济南 共话国际农业科技合作
+# 河南南阳上演“沉浸式拆飞机”名场面
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网济南6月27日电 (记者 孙婷婷)以“AI赋能 绿色引领 共绘农业高质量发展新蓝图”为主题的山东国际农业科技合作与交流大会27日在济南举办。来自中国、俄罗斯、澳大利亚、巴基斯坦、哈萨克斯坦、乌兹别克斯坦等12个国家和地区的农业科研机构与高校的专家学者代表参会，围绕智慧农业、绿色农业、生物育种等议题展开深入交流，共同探讨全球农业可持续发展的新路径与新方案。 山东省人民政府副
+发布时间：2026年05月14日 11:42 来源：中国新闻网 5月13日，河南南阳上演“沉浸式拆飞机”名场面，退役客机成为教具，用于开展航空技能实训课程。南阳中豫航空产业发展研究院院长刘志宏受访称，飞机整机拆解大有讲究：在保持好部件能重复使用流通的情况下，通常拆下发动机，起落架、机翼、平尾、垂尾等大部件需要10人的团队，3周时间。40人团队耗时1.5个月可以将飞机拆成可用部件
 
 ## 正文
 
-中新网济南6月27日电 (记者 孙婷婷)以“AI赋能 绿色引领 共绘农业高质量发展新蓝图”为主题的山东国际农业科技合作与交流大会27日在济南举办。
+发布时间：2026年05月14日 11:42 来源：中国新闻网 5月13日，河南南阳上演“沉浸式拆飞机”名场面，退役客机成为教具，用于开展航空技能实训课程。
 
-来自中国、俄罗斯、澳大利亚、巴基斯坦、哈萨克斯坦、乌兹别克斯坦等12个国家和地区的农业科研机构与高校的专家学者代表参会，围绕智慧农业、绿色农业、生物育种等议题展开深入交流，共同探讨全球农业可持续发展的新路径与新方案。
+南阳中豫航空产业发展研究院院长刘志宏受访称，飞机整机拆解大有讲究：在保持好部件能重复使用流通的情况下，通常拆下发动机，起落架、机翼、平尾、垂尾等大部件需要10人的团队，3周时间。
 
-山东省人民政府副省长陈平表示，山东持续深化与共建“一带一路”国家的农业科技创新交流合作，目前已携手共建联合实验室、海外农业示范基地、良种繁育中心等平台超80个；累计培训海外农业技术骨干超万人次；向海外输出耐盐碱作物品种、设施栽培模式、智能农机成套解决方案，通过前沿技术合作，助力共建“一带一路”国家的农业转型升级。
+40人团队耗时1.5个月可以将飞机拆成可用部件3000个以上。
 
-“下一步，山东将围绕农业领域重大共性技术需求与前沿研发方向，共建创新协作平台，联合开展关键技术攻关，推动创新成果落地应用。
+而一架飞机按照最小单元拆解可以达到数百万个。
 
-” 受邀参会的乌兹别克斯坦塔什干国立农业大学副校长阿布杜瓦西科夫·阿布杜阿齐兹表示，粮食安全、环境可持续性、气候变化、水资源管理和技术转型等挑战，成为全球面临的共性问题，让国际合作成为必然。
+这些全部用作实训教具。
 
-“我们关注到，人工智能助力中国在农业现代化、技术创新和高等教育发展方面取得了显著成就。
+刘志宏表示，“沉浸式拆飞机”是航空技能实训的一部分，告别纸上谈兵，学员的技能水平才能上升更快！
 
-”阿布杜阿齐兹希望与山东建立长期互利的合作关系，并通过联合研究项目、学术交流、双学位课程、创新伙伴关系、技术转让倡议和教育合作等，为学生、研究人员和双方发展创造新的机会。
-
-会上，山东省农业科学院种质资源所与乌兹别克斯坦塔什干国立农业大学围绕种质资源等领域达成合作意向，签署合作协议。
+(赵梦阳 王佳宁 范晓恒) 责任编辑：【陈海峰】
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:45 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:27 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:29 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:39 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:44 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:24 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:28 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:39 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:23 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:46 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:46 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:30 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:25 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:30 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:47 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:32 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:25 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:32 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:26 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:22 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:37 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:31 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:20 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:33 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:45 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:41 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:40 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:29 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:30 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:45 - [房屋抵押权与租赁权如何协调](http://www.blog.minike.top/Article/details/94413278759.shtml)
+- 2026-06-29 11:32 - [世界杯打成了欧洲杯和美洲杯](http://www.share.minike.top/Article/details/50313.shtml)
+- 2026-06-29 11:48 - [韩媒称韩国队遭中国网民嘲讽](http://www.blog.kurohicncr.top/Article/details/76551353324.shtml)
+- 2026-06-29 11:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/5904275177.shtml)
+- 2026-06-29 11:26 - [美伊同意停止互袭](http://www.share.minike.top/Article/details/6212775.shtml)
+- 2026-06-29 11:28 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.minike.top/Article/details/5762753128.shtml)
+- 2026-06-29 11:30 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/96567.shtml)
+- 2026-06-29 11:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/895233801436.shtml)
+- 2026-06-29 11:39 - [美媒：空警-3000服役即成全球最强](https://www.share.kurohicncr.top/Article/details/46082.shtml)
+- 2026-06-29 11:30 - [游戏数据被用于军事目的 国安部提醒](https://www.share.kurohicncr.top/Article/details/18110931916.shtml)
+- 2026-06-29 11:35 - [大罗力挺内马尔](https://www.blog.kurohicncr.top/Article/details/3900559.shtml)
+- 2026-06-29 11:18 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/299397308070.shtml)
+- 2026-06-29 11:24 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/843884817350.shtml)
+- 2026-06-29 11:47 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/187972757440.shtml)
+- 2026-06-29 11:47 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/00455507913.shtml)

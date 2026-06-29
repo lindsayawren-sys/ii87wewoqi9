@@ -1,60 +1,59 @@
-# 净利连降三年，市值却创新高，四方达凭“AI散热”突围？
+# 英伟达CEO基金会1.08亿美元购AI算力捐赠研究机构
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 你知道吗？世人熟知钻石能见证爱情，但钻石的原石本体——金刚石，如今正在拯救AI。 这真不是夸张，随着AI算力迭代，单GPU功耗正加速逼近乃至突破2000W大关，散热压力陡增，然而传统铜铝金属搭配风冷的散热方案已达物理极限。 目前，金刚石是自然界材料中热导率极
+据一份文件显示，英伟达首席执行官黄仁勋及其妻子洛里（Lori）创立的基金会，正从CoreWeave 购入计算资源，并将其捐赠给大学及其他非营利机构。该文件显示，截至目前，这笔捐赠的价值已达1.083亿美元。 根据周二提交的文件，这些计算资源将用于科学和人工智能研究。英伟达在文件中表示，计划向部分受赠机构提供免费的工程服务。 此次捐赠不仅彰显了黄仁勋的慷慨，也体现了英伟达对Cor
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据一份文件显示，英伟达首席执行官黄仁勋及其妻子洛里（Lori）创立的基金会，正从CoreWeave 购入计算资源，并将其捐赠给大学及其他非营利机构。
 
-来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 你知道吗？
+该文件显示，截至目前，这笔捐赠的价值已达1.083亿美元。
 
-世人熟知钻石能见证爱情，但钻石的原石本体——金刚石，如今正在拯救AI。
+根据周二提交的文件，这些计算资源将用于科学和人工智能研究。
 
-这真不是夸张，随着AI算力迭代，单GPU功耗正加速逼近乃至突破2000W大关，散热压力陡增，然而传统铜铝金属搭配风冷的散热方案已达物理极限。
+英伟达在文件中表示，计划向部分受赠机构提供免费的工程服务。
 
-目前，金刚石是自然界材料中热导率极高的材料，导热能力是铜的5倍、硅的10倍，正在成为给AI芯片“退烧”的关键材料。
+此次捐赠不仅彰显了黄仁勋的慷慨，也体现了英伟达对CoreWeave的又一支持举措——CoreWeave是一家专注于人工智能应用的云计算公司。
 
-产业端信号已十分明确：5月份，央视专题聚焦金刚石进入AI赛道。
+英伟达设计了CoreWeave向客户提供的图形处理单元（GPU）。
 
-受此催化，A股培育钻石板块近期反复活跃，多只个股市值创下新高。
+今年1月，英伟达向CoreWeave投资20亿美元 ，成为该公司当时第二大股东。
 
-6月26日收盘，四方达股价57.38元，总市值278.7亿元。
+英伟达去年与CoreWeave签署了一项价值63亿美元的云计算容量协议，该协议保证这家AI芯片公司将购买任何未售予客户的云容量。
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:37 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:24 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:44 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:30 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:38 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:37 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:30 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:31 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:18 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:18 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:47 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:26 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:33 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:34 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:39 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:20 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:19 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:38 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:45 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:24 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:35 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:45 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:23 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:41 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:25 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:24 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:32 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:42 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:25 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:24 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:20 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:32 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:42 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:26 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:31 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:26 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:32 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:42 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:28 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/18815.shtml)
+- 2026-06-29 11:42 - [换个角度打开世界杯淘汰赛](http://www.blog.minike.top/Article/details/63546.shtml)
+- 2026-06-29 11:34 - [加拿大1比0南非挺进16强](http://www.blog.minike.top/Article/details/16655168.shtml)
+- 2026-06-29 11:18 - [重生赛伊德04](http://www.share.minike.top/Article/details/81672.shtml)
+- 2026-06-29 11:36 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/647896.shtml)
+- 2026-06-29 11:36 - [委内瑞拉地震死亡人数升至1450人](https://www.share.minike.top/Article/details/885988213.shtml)
+- 2026-06-29 11:19 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/519424512669.shtml)
+- 2026-06-29 11:39 - [佛得角到底在哪个“角”](https://www.share.minike.top/Article/details/8387332.shtml)
+- 2026-06-29 11:36 - [我们注定是一撮县城葱姜蒜](https://www.blog.minike.top/Article/details/316176255998.shtml)
+- 2026-06-29 11:41 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/57999.shtml)
+- 2026-06-29 11:27 - [陈垣宇晋级WTT美国大满贯男单32强](http://www.share.minike.top/Article/details/3545990.shtml)
+- 2026-06-29 11:36 - [神23乘组太空出差满月](https://www.blog.kurohicncr.top/Article/details/740039996056.shtml)
+- 2026-06-29 11:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/2312469.shtml)
+- 2026-06-29 11:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/3953259.shtml)
+- 2026-06-29 11:47 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/524479005.shtml)

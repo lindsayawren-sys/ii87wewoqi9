@@ -1,60 +1,57 @@
-# 浙江杭州：近百艘龙舟竞舟“小端午”
+# 德国 10 年期国债收益率小幅回落，但受通胀担忧拖累，仍处于多年高位附近
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-外星人喊话千万别回！为啥不能贸然给宇宙邻居“开门”舞台艺术何以成为文明交流之桥？为了“清凉感” 咖啡里加风油精，医生建议要慎重卖芯片的赚疯了，用芯片的跌惨了“国补”继续！第三批625亿元资金已下达当“美国梦”成了“美国病”这些“市井好物”皆是毒！这块虎符，800年前曾调遣西藏军务苹果微软官宣涨价，市值一夜蒸发2.4万亿中国禁毒有多拼连水果都要“扣红帽”，岛内舆论批民进党：欺负农
+德国10年期国债收益率周四回落，但仍接近近期多年高位，因能源价格高企强化了通胀走高及欧洲央行加息的预期。 本周，美伊之间达成持久和平协议的预期逐渐消退，导致霍尔木兹海峡实际上禁止商船通行。 欧元区基准——德国10年期国债收益率最新下跌5个基点至3.04%；自冲突爆发以来已累计上涨逾40个基点，仍接近4月底触及的3.133%——2011年中期以来最高水平。 油价飙升再度引发对滞胀
 
 ## 正文
 
-外星人喊话千万别回！
+德国10年期国债收益率周四回落，但仍接近近期多年高位，因能源价格高企强化了通胀走高及欧洲央行加息的预期。
 
-为啥不能贸然给宇宙邻居“开门”舞台艺术何以成为文明交流之桥？
+本周，美伊之间达成持久和平协议的预期逐渐消退，导致霍尔木兹海峡实际上禁止商船通行。
 
-为了“清凉感” 咖啡里加风油精，医生建议要慎重卖芯片的赚疯了，用芯片的跌惨了“国补”继续！
+欧元区基准——德国10年期国债收益率最新下跌5个基点至3.04%；自冲突爆发以来已累计上涨逾40个基点，仍接近4月底触及的3.133%——2011年中期以来最高水平。
 
-第三批625亿元资金已下达当“美国梦”成了“美国病”这些“市井好物”皆是毒！
+油价飙升再度引发对滞胀的担忧，并促使投资者计入欧洲央行加息预期。
 
-这块虎符，800年前曾调遣西藏军务苹果微软官宣涨价，市值一夜蒸发2.4万亿中国禁毒有多拼连水果都要“扣红帽”，岛内舆论批民进党：欺负农民，罔顾天理夏季达沃斯观察：全球独角兽企业看好中国创新潜力全链条扩大汽车消费撬动万亿级新蓝海人这一辈子，一定要去一趟德州！
+货币市场交易员目前预计，6月11日会议加息概率近90%，且到年底前三次加息已基本完全定价。
 
-警惕盲盒消费陷阱，这份提示请收好“仅退款”变“零元购”？
+冲突爆发前，投资者原本预期欧洲央行2026年全年维持存款利率不变。
 
-法官解答三个常见法律问题个税汇算本月底结束 收到“补税提醒”后怎么处理停不进、难开门：“车大位小”矛盾如何解世界杯氛围感直接拉满 球迷花式整活上线山东泰安：泰山现绝美晚霞夕照董勇《繁花》的遗憾在《太平年》补上了首获白玉兰最佳女演员！
+花旗集团欧洲利率策略师杰米・塞尔表示：“看来要避免6月预防性加息，时间已经不多了。
 
-杨紫想夸夸自己从传统人防到数智赋能 江西婺源宋代廊桥焕发新活力香港第6届工展会购物节开锣《沉默的荣耀》原型朱枫外孙女：外婆 您看到了吗？
+” 对货币政策预期敏感的德国2年期国债收益率周四下跌5个基点至2.66%；但自2月底战事爆发以来，因投资者重定价利率预期，已累计上涨近70个基点。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:35 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:47 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:35 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:42 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:22 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:29 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:40 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:34 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:19 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:29 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:27 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:26 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:25 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:41 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:29 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:47 - [TEC官宣Muggle加入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:29 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:27 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:48 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:41 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:34 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:24 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:47 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:38 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:43 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:40 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:41 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:46 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:35 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:24 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:42 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:41 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:47 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:29 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:31 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/567850.shtml)
+- 2026-06-29 11:36 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/752295.shtml)
+- 2026-06-29 11:47 - [如何看待最近盛行的定型文“假如你是一个韩国人……”“韩国黄金时代”?](http://www.share.minike.top/Article/details/289206.shtml)
+- 2026-06-29 11:36 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/6460361.shtml)
+- 2026-06-29 11:46 - [BW2026游览指南](http://www.blog.minike.top/Article/details/18567886528.shtml)
+- 2026-06-29 11:26 - [韩国队是怎么把自己“作死”的](http://www.blog.minike.top/Article/details/6500954761.shtml)
+- 2026-06-29 11:46 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/832295.shtml)
+- 2026-06-29 11:40 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/64902788.shtml)
+- 2026-06-29 11:44 - [天道](https://www.share.minike.top/Article/details/5529495249.shtml)
+- 2026-06-29 11:19 - [扬名立万](https://www.blog.minike.top/Article/details/451668438.shtml)
+- 2026-06-29 11:26 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/2672977.shtml)
+- 2026-06-29 11:33 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/7749899378.shtml)
+- 2026-06-29 11:30 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/71578241764.shtml)
+- 2026-06-29 11:30 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/3934805.shtml)
+- 2026-06-29 11:34 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/45060943.shtml)

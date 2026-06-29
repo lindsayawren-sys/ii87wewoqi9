@@ -1,60 +1,56 @@
-# 资讯有故事|美国小伙儿开的茶馆藏着地道中国味
+# 牧原最优秀场线的成本10.5元/kg以下，未来将向10元/kg以下成本目标迈进
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中国是茶的故乡，茶文化的发源地。茶香隽永，寓意东方的含蓄内敛，是文明交流互鉴的载体，体现着美美与共的和谐之美。如今，越来越多的外国友人被茶文化吸引，来到中国开启一场“寻茶之旅”。 美国友人彭丹青(Derek Poskin)出生于美国堪萨斯州，来到中国扬州已十年。读大学时他接触到中国文化，因为喜爱中国水墨丹青的意境，给自己取名“丹青”。慢慢地，他还爱上了中国茶。 彭丹青：我在堪萨
+2026年5月13日，牧原股份（002714.SZ，02714.HK）召开2025年度股东会以下为活动纪要内容（详细内容可查阅公司在巨潮资讯网披露的调研活动信息）。一、公司对降负债、分红、资本开支的规划？ 在降负债方面，公司在2025年完成了年初制定的目标。在当前的市场行情下，公司的经营策略以保障运营所需的现金流安全稳定为核心目标，今年上半年不会急于推进降负债工作。但从长远来看
 
 ## 正文
 
-中国是茶的故乡，茶文化的发源地。
+2026年5月13日，牧原股份（002714.SZ，02714.HK）召开2025年度股东会以下为活动纪要内容（详细内容可查阅公司在巨潮资讯网披露的调研活动信息）。
 
-茶香隽永，寓意东方的含蓄内敛，是文明交流互鉴的载体，体现着美美与共的和谐之美。
+一、公司对降负债、分红、资本开支的规划？
 
-如今，越来越多的外国友人被茶文化吸引，来到中国开启一场“寻茶之旅”。
+在降负债方面，公司在2025年完成了年初制定的目标。
 
-美国友人彭丹青(Derek Poskin)出生于美国堪萨斯州，来到中国扬州已十年。
+在当前的市场行情下，公司的经营策略以保障运营所需的现金流安全稳定为核心目标，今年上半年不会急于推进降负债工作。
 
-读大学时他接触到中国文化，因为喜爱中国水墨丹青的意境，给自己取名“丹青”。
+但从长远来看，公司已进入了稳健发展、现金流水平不断改善的阶段，未来仍会持续推进降负债的工作，目标是将资产负债率逐步降至50%以下。
 
-慢慢地，他还爱上了中国茶。
+在分红方面，当前公司按照之前修订的《股东分红回报规划》进行利润分配，每年以现金方式分配的利润不少于当年实现的可供分配利润的40%。
 
-彭丹青：我在堪萨斯大学读本科时，学习中国文化和语言，遇到中国茶。
+随着公司进入新的发展阶段，自由现金流水平稳步提升为提升股东回报奠定了基础。
 
-在美国有很多亚洲超市，我去亚洲超市买很多不同的茶，然后喝一点，品一点。
+未来公司将综合评估发展阶段、资本开支需求、现金流状况等因素，制定接下来三年的股东分红回报规划。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:35 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 11:21 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:26 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:28 - [下半年A股怎么走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:18 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:19 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:31 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:44 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:47 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:32 - [伊朗球员道歉 说着说着哭了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:26 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:27 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:21 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:35 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:44 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:25 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:28 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:30 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:19 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:23 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:24 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:23 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:35 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:22 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:32 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:46 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:27 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:43 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:21 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:20 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:27 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:39 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:44 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:34 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:19 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.minike.top/Article/details/014568600691.shtml)
+- 2026-06-29 11:48 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.minike.top/Article/details/84839284161.shtml)
+- 2026-06-29 11:22 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/70511.shtml)
+- 2026-06-29 11:43 - [上海足协发布世界杯文明观赛倡议书](http://www.blog.minike.top/Article/details/70871.shtml)
+- 2026-06-29 11:25 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/3014477142.shtml)
+- 2026-06-29 11:43 - [加拿大队史淘汰赛首胜](https://www.blog.minike.top/Article/details/5652363660.shtml)
+- 2026-06-29 11:25 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/613287583.shtml)
+- 2026-06-29 11:39 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/5092788.shtml)
+- 2026-06-29 11:34 - [有清北的实力却只考了大专，在大学怎么平衡心态？](http://www.blog.minike.top/Article/details/652870.shtml)
+- 2026-06-29 11:25 - [天道](https://www.share.kurohicncr.top/Article/details/23739657.shtml)
+- 2026-06-29 11:23 - [原来衣着打扮会影响对自己的感知](http://www.share.minike.top/Article/details/158416466.shtml)
+- 2026-06-29 11:44 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/3395004545.shtml)
+- 2026-06-29 11:32 - [俄称继续推进 乌称打击俄军设施](https://www.share.kurohicncr.top/Article/details/771118.shtml)
+- 2026-06-29 11:21 - [加拿大92分钟绝杀南非](http://www.blog.kurohicncr.top/Article/details/97462914.shtml)
+- 2026-06-29 11:20 - [高考公平需要延伸到志愿填报这一环](http://www.share.minike.top/Article/details/2452230736.shtml)

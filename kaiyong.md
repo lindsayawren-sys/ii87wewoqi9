@@ -1,51 +1,56 @@
-# 中国“人造太阳”两大核心超导磁体实现100%国产化
+# 2026年ITF国际网球大师赛MT400尚东杯·北京昌平站开赛
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月27日 12:39 来源：中国新闻网 6月27日，中国科学院合肥物质科学研究院等离子体物理研究所“人造太阳”项目取得最新进展，环向场超导磁体、高温超导中心螺管线圈等两套聚变堆关键超导磁体先后完成研制验收与满参数测试，核心技术实现100%国产化，综合性能跃升国际前列。其中，环向场超导磁体长21米、宽12米、高3.3米，总重量达582吨，体积是国际热核聚变
+中新网北京5月14日电 (记者 贾天勇)2026年ITF国际网球大师赛MT400“尚东杯”·北京昌平站的比赛13日在昌平区东小口镇上东体育中心正式开赛。赛事以“网聚东小口赛动新昌平”为主题，赛事能级由MT200升级至MT400，总奖金达25万元人民币，吸引国内外网球爱好者踊跃参与，报名达880人次，创国内同级别赛事新高，呈现高水准、高参与度的国际业余网球赛事风貌。 本届赛事由国
 
 ## 正文
 
-发布时间：2026年06月27日 12:39 来源：中国新闻网 6月27日，中国科学院合肥物质科学研究院等离子体物理研究所“人造太阳”项目取得最新进展，环向场超导磁体、高温超导中心螺管线圈等两套聚变堆关键超导磁体先后完成研制验收与满参数测试，核心技术实现100%国产化，综合性能跃升国际前列。
+中新网北京5月14日电 (记者 贾天勇)2026年ITF国际网球大师赛MT400“尚东杯”·北京昌平站的比赛13日在昌平区东小口镇上东体育中心正式开赛。
 
-其中，环向场超导磁体长21米、宽12米、高3.3米，总重量达582吨，体积是国际热核聚变堆ITER TF磁体的1.3倍，储能是其3倍，成为目前全球尺寸最大的聚变堆超导磁体。
+赛事以“网聚东小口赛动新昌平”为主题，赛事能级由MT200升级至MT400，总奖金达25万元人民币，吸引国内外网球爱好者踊跃参与，报名达880人次，创国内同级别赛事新高，呈现高水准、高参与度的国际业余网球赛事风貌。
 
-(制作 刘鸿鹤） 责任编辑：【王凯】
+本届赛事由国际网球联合会、中国网球协会批准举办，为期5天，至5月17日结束。
+
+赛事共设置7个年龄组、31个单项，在奥北森林公园生态环境中打造“森林里的网球场”，为选手与观众带来自然与运动相融的沉浸式体验。
+
+赛事场地全面升级，亮点突出。
+
+依托上东体育中心室外标准球场和正式投入使用昌平区首座气膜体育馆，同时新增2片带观众看台的中心赛场，整体可容纳近千名观众观赛。
+
+赛事期间，文体旅融合活动同步展开。
+
+吉祥物“东东”亮相赛场，主题文创产品集中展示；北中轴热气球打卡、奥北星河森林音乐会等活动，进一步丰富赛事体验。
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:47 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:19 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:22 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:36 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:47 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:20 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:20 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:44 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:29 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:40 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:36 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:22 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:25 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:22 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:39 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:32 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:28 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:37 - [漩涡中的东鹏饮料：股价较年初近腰斩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:36 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:25 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:37 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:30 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:47 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:35 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:44 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:44 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:37 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:26 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:28 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:29 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:29 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:31 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:45 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:25 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:46 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:22 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:36 - [韩媒破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/3861742.shtml)
+- 2026-06-29 11:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/792626.shtml)
+- 2026-06-29 11:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/0935221.shtml)
+- 2026-06-29 11:28 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/7295886.shtml)
+- 2026-06-29 11:41 - [上海足协发布世界杯文明观赛倡议书](http://www.share.minike.top/Article/details/353375211.shtml)
+- 2026-06-29 11:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/25282.shtml)
+- 2026-06-29 11:35 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/2596127.shtml)
+- 2026-06-29 11:27 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/146564606386.shtml)
+- 2026-06-29 11:32 - [跑步机上“爬坡”减肥公式爆火](https://www.blog.kurohicncr.top/Article/details/547917106819.shtml)
+- 2026-06-29 11:19 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/3373301675.shtml)
+- 2026-06-29 11:42 - [香港航天员黎家盈带招牌笑容工作](http://www.blog.minike.top/Article/details/727606.shtml)
+- 2026-06-29 11:20 - [【独家】牧神记 第89集 明心](https://www.share.minike.top/Article/details/207019.shtml)
+- 2026-06-29 11:43 - [国乒全主力参加美国大满贯](http://www.share.minike.top/Article/details/75914679097.shtml)
+- 2026-06-29 11:34 - [美国230斤男孩在家中去世父母被捕](http://www.share.minike.top/Article/details/29703842.shtml)
+- 2026-06-29 11:22 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/43460102554.shtml)

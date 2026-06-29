@@ -1,58 +1,60 @@
-# 中国缘何成为全球“规模化创新”热土
+# 美国暂停新家庭护理和临终关怀服务提供商的“联邦医疗保险”注册
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-“抓创新就是抓发展，谋创新就是谋未来”，近千名全球政商学界精英齐聚2026年大连的夏季达沃斯论坛，整场大会的核心议题聚焦“规模化创新”。论坛现场形成鲜明反差，欧美精英一边为本国技术“落地难、扩产慢、转化成本高” 焦虑不已，一边争相探寻中国实现技术全链条规模化迭代的底层逻辑。中国的创新是苦练内功“拼”出来的、千行百业“用”出来的、厚植生态“育”出来的。当全球不少国家深陷市场割裂、
+据美国政府医疗保险和医疗补助服务中心周三发布的声明称，鉴于对欺诈行为泛滥的担忧，特朗普政府将至少在未来六个月内禁止新的家庭医疗保健和临终关怀服务提供商注册加入联邦医疗保险。 这项暂停令将暂时禁止上述类别的新服务提供商向“联邦医疗保险”申请报销。该计划是美国政府为65岁及以上老年人及残障人士提供的医疗保险项目。负责监管该计划的联邦医疗保险和医疗补助服务中心表示，此举不会影响已注册
 
 ## 正文
 
-“抓创新就是抓发展，谋创新就是谋未来”，近千名全球政商学界精英齐聚2026年大连的夏季达沃斯论坛，整场大会的核心议题聚焦“规模化创新”。
+据美国政府医疗保险和医疗补助服务中心周三发布的声明称，鉴于对欺诈行为泛滥的担忧，特朗普政府将至少在未来六个月内禁止新的家庭医疗保健和临终关怀服务提供商注册加入联邦医疗保险。
 
-论坛现场形成鲜明反差，欧美精英一边为本国技术“落地难、扩产慢、转化成本高” 焦虑不已，一边争相探寻中国实现技术全链条规模化迭代的底层逻辑。
+这项暂停令将暂时禁止上述类别的新服务提供商向“联邦医疗保险”申请报销。
 
-中国的创新是苦练内功“拼”出来的、千行百业“用”出来的、厚植生态“育”出来的。
+该计划是美国政府为65岁及以上老年人及残障人士提供的医疗保险项目。
 
-当全球不少国家深陷市场割裂、产业空心、资本短视、社会撕裂的困局，中国依托“十五五”规划的系统性顶层设计布局，集齐超大市场、完备产业、多层次人才、协同体制、开放生态五大核心优势，稳稳成为全球规模化创新最热最优的沃土。
+负责监管该计划的联邦医疗保险和医疗补助服务中心表示，此举不会影响已注册“联邦医疗保险”的服务提供商。
 
-令人羡慕的超大规模市场 规模化创新的第一道门槛，是足够多元、统一、可持续的应用场景，没有海量真实需求，前沿技术只能困在实验室样机阶段。
+这是副总统万斯领导的反欺诈工作组为打击医疗保健诈骗所采取的最新举措。
 
-这正是欧美难以复制的先天短板，欧盟二十余国法规、市场、标准割裂，美国各州监管、消费断层明显，新技术跨区域合规、推广成本居高不下，初创企业很难依靠本土市场摊薄研发投入。
+多年来，美国政府一直致力于解决Medicare向临终关怀和家庭医疗服务提供商支付的欺诈性款项问题。
 
-中国14亿人口、全球最大中等收入群体构成无壁垒需求池，城乡、产业、区域分层需求，为新技术提供天然迭代试验田。
+诈骗分子会就患者不需要或不想要的服务向联邦医疗保险报销，从而从美国政府手中骗取数百万美元。
 
-一套智能制造系统在欧洲仅能试点十几家工厂，进入中国后长三角、珠三角数十万制造企业同步开放产线，海量生产数据持续优化算法，半年完成多轮迭代，成熟方案迅速复制全国，再出海东南亚制造基地。
+全国性反欺诈组织“老年人联邦医疗保险巡逻队”已就该问题多次发布警示。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:37 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:45 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:35 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:24 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:39 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:20 - [哈尔滨“全城追菠萝蜜”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:30 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:24 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:44 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:44 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:24 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:32 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:46 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:40 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:46 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:41 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:19 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:34 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:38 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:28 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:25 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:46 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:21 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:44 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:18 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:37 - [李维嘉回应“人老了做什么都心酸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:45 - [世界杯小组赛阶段过人榜：马扎居首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:46 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:37 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:19 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:44 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:18 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:40 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:31 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:38 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:33 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:38 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:32 - [三只羊大杨哥不直播改卖课](https://www.blog.kurohicncr.top/Article/details/38882102.shtml)
+- 2026-06-29 11:33 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.blog.kurohicncr.top/Article/details/655498713.shtml)
+- 2026-06-29 11:22 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/973559738.shtml)
+- 2026-06-29 11:44 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/58418.shtml)
+- 2026-06-29 11:20 - [立陶宛为何此时生变](http://www.blog.minike.top/Article/details/590272489859.shtml)
+- 2026-06-29 11:44 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/1809462.shtml)
+- 2026-06-29 11:48 - [宜宾5.5级地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/31783286044.shtml)
+- 2026-06-29 11:25 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/7347833459.shtml)
+- 2026-06-29 11:24 - [2026年Mac能玩游戏了吗](https://www.share.minike.top/Article/details/0550384.shtml)
+- 2026-06-29 11:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/4471295781.shtml)
+- 2026-06-29 11:37 - [1年内值得期待的12大游戏](https://www.share.minike.top/Article/details/003039337.shtml)
+- 2026-06-29 11:22 - [男子在家全裸被邻居拍照发业主群](https://www.share.kurohicncr.top/Article/details/564792.shtml)
+- 2026-06-29 11:19 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/83640862171.shtml)
+- 2026-06-29 11:20 - [女心理师](http://www.share.minike.top/Article/details/7225543.shtml)
+- 2026-06-29 11:37 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.minike.top/Article/details/41280.shtml)

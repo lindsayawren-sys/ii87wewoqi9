@@ -1,61 +1,54 @@
-# 以大银幕再呈长征精神 电影《四渡》北京首映
+# 黑河、逊克口岸2026年明水期货运运输恢复开通
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网北京6月25日电 (记者 高凯)重大革命历史题材电影《四渡》日前在位于中国共产党历史展览馆的北京中影国际影城举行首映礼。 该片出品人、总制片人于冬，制片人蒋德富，监制刘伟强，导演徐展雄，演员刘烨、王雷、王志飞、王耀庆、林永健、印小天、张俪、许魏洲、蓝盈莹、李晨、谷嘉诚、李健、高戈、谭凯、梁大维等在现场分享了此次创作感悟。 在纪念红军长征胜利90周年之际，电影《四渡》以全新
+发布时间：2026年05月15日 09:20 来源：中国新闻网 近日，黑龙江省黑河、逊克口岸相继恢复2026年明水期货运运输。 5月13日，在黑河口岸，大量货箱集聚码头，港口工人正在进行出境货物的吊装作业。当日，首批入境货物由俄罗斯布拉戈维申斯克港运输至中国黑河港，入境货物为720吨豆油。为保障口岸顺利开关，联检部门提前统筹部署，细化通关工作流程，配齐执勤力量，完善查验监管举措
 
 ## 正文
 
-中新网北京6月25日电 (记者 高凯)重大革命历史题材电影《四渡》日前在位于中国共产党历史展览馆的北京中影国际影城举行首映礼。
+发布时间：2026年05月15日 09:20 来源：中国新闻网 近日，黑龙江省黑河、逊克口岸相继恢复2026年明水期货运运输。
 
-该片出品人、总制片人于冬，制片人蒋德富，监制刘伟强，导演徐展雄，演员刘烨、王雷、王志飞、王耀庆、林永健、印小天、张俪、许魏洲、蓝盈莹、李晨、谷嘉诚、李健、高戈、谭凯、梁大维等在现场分享了此次创作感悟。
+5月13日，在黑河口岸，大量货箱集聚码头，港口工人正在进行出境货物的吊装作业。
 
-在纪念红军长征胜利90周年之际，电影《四渡》以全新视听语言呈现土城战斗、娄山关战斗、四次渡过赤水河、兵临贵阳等重要历史事件，再现中央红军在敌军重兵围堵之下，运用高超战略智慧以少胜多、扭转战局的奇迹。
+当日，首批入境货物由俄罗斯布拉戈维申斯克港运输至中国黑河港，入境货物为720吨豆油。
 
-影片导演徐展雄当日表示，此次创作在塑造历史人物中着力展现其有血有肉的真实人性，他尤其提及影片对“苟坝会议”桥段的呈现，表示其中“马灯小路”等情节的真实呈现让领袖人物更具感染力和可信度。
+为保障口岸顺利开关，联检部门提前统筹部署，细化通关工作流程，配齐执勤力量，完善查验监管举措，提前做好各项准备工作。
 
-对于影片对普通战士的刻画，徐展雄称，希望完成对普通战士群像的塑造，正是这些当年的热血年轻人的牺牲与奋斗，才带来今天的美好生活。
+5月12日，在逊克口岸，执勤人员严格按照查验标准开展登临检查、货品核验、安全监护等工作。
 
-创作团队深入研究史料，希望呈现长征中更真实、更贴近普通士兵的历史画面。
+当日，累计验放出入境船舶3艘，共查验放行货物1200吨，各类跨境货运业务稳步启动。
 
-导演毕赣是贵州凯里人，当天他作为观众出席了首映礼，并在映后分享了自己的观影感受。
-
-他说，很开心看到发生在老家的故事被拍成电影，“虽然历史距离我们很遥远，但电影让我们有机会贴近历史，感谢优秀的主创们把这段传奇又关键的历史传递到观众心里，让更多人记住。
+(孟莉莉 洪峰 孙婷婷 董洪瑞 制作 赵宇航 视频来源 黑河市融媒体中心） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 11:43 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:33 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:30 - [细节之中抓作风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:44 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:34 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:41 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:30 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:34 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:19 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:24 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:19 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:29 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:26 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:45 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:36 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:47 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:41 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:27 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:42 - [罗马诺：李刚仁已与马竞达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:29 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:33 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:26 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:23 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:47 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:47 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:20 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:36 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:27 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:18 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:43 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:37 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:37 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:36 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:42 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/459977864037.shtml)
+- 2026-06-29 11:35 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/4928484.shtml)
+- 2026-06-29 11:45 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/1963381846.shtml)
+- 2026-06-29 11:23 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/59078336571.shtml)
+- 2026-06-29 11:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/4375738.shtml)
+- 2026-06-29 11:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/37618607.shtml)
+- 2026-06-29 11:21 - [女子拍邻居家中裸照发业主群](https://www.blog.minike.top/Article/details/6558459288.shtml)
+- 2026-06-29 11:46 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/7465066.shtml)
+- 2026-06-29 11:25 - [美的空调 卡bug](http://www.share.minike.top/Article/details/1384064235.shtml)
+- 2026-06-29 11:44 - [我和我的家乡](https://www.share.minike.top/Article/details/525996.shtml)
+- 2026-06-29 11:26 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/7708938668.shtml)
+- 2026-06-29 11:41 - [日本和澳大利亚能代表亚洲足球走多远](http://www.blog.minike.top/Article/details/1904853.shtml)
+- 2026-06-29 11:33 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](http://www.blog.kurohicncr.top/Article/details/908679316736.shtml)
+- 2026-06-29 11:36 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/61233663848.shtml)
+- 2026-06-29 11:29 - [曾挑衅中国的立陶宛“生变”了](http://www.share.minike.top/Article/details/88937515068.shtml)

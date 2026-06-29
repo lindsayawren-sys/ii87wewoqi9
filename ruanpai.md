@@ -1,49 +1,59 @@
-# 万邦医药：拟收购赛德盛75.52%股权
+# 高息存款到期！中小银行抢滩揽储市场，靠“特色牌”破局
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-万邦医药(301520.SZ)公告称，公司拟以现金方式收购安徽赛德盛医药科技有限公司（简称“赛德盛”）的75.52%股权，最终确定整体转让价格为3.02亿元。本次交易完成后赛德盛将成为公司控股子公司，纳入公司合并报表范围。通过本次收购，公司将进一步完善在创新药板块的业务布局。 （文章来源：财联社）
+来源：北京商报 2026年存款市场迎来变局时刻，高息定期存款集中到期，叠加存款利率持续下行，普通存款收益“缩水”明显。5月13日，北京商报记者注意到，为突围同质化竞争，多地中小银行纷纷打出“特色牌”，推出差异化存款产品。这类产品起存金额在1万—20万元，利率高于普通定期存款产品利率，部分产品设计不自动转存规则，严控负债成本。在分析人士看来，短期看，这类产品能快速沉淀稳定资金，缓
 
 ## 正文
 
-万邦医药(301520.SZ)公告称，公司拟以现金方式收购安徽赛德盛医药科技有限公司（简称“赛德盛”）的75.52%股权，最终确定整体转让价格为3.02亿元。
+来源：北京商报 2026年存款市场迎来变局时刻，高息定期存款集中到期，叠加存款利率持续下行，普通存款收益“缩水”明显。
 
-本次交易完成后赛德盛将成为公司控股子公司，纳入公司合并报表范围。
+5月13日，北京商报记者注意到，为突围同质化竞争，多地中小银行纷纷打出“特色牌”，推出差异化存款产品。
 
-通过本次收购，公司将进一步完善在创新药板块的业务布局。
+这类产品起存金额在1万—20万元，利率高于普通定期存款产品利率，部分产品设计不自动转存规则，严控负债成本。
 
-（文章来源：财联社）
+在分析人士看来，短期看，这类产品能快速沉淀稳定资金，缓解揽储之急；但长期而言，单纯的利率比拼极易陷入隐性价格战，对净息差造成影响，中小银行应引导短期闲置资金转化，同时借助同业存单等工具拓宽主动负债渠道，避免存款成本刚性抬升。
+
+中小银行发力特色存款 存款市场正迎来一轮天量定期存款到期潮，其中大部分资金是2021—2023年储户锁定的3%—4.5%高利率长期限存款。
+
+定存到期后，储户直面的是利率近乎“腰斩”的市场现状，资金再配置需求显著升温。
+
+5月13日，北京商报记者注意到，已有多地中小银行加大特色存款产品营销力度，以此差异化吸引储户、抢占市场份额。
+
+海南农商行营销的特色整存整取存款产品“社宝存”，实行多档位起存、差异化利率定价。
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:43 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:35 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:42 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:37 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:28 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:31 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:36 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:43 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:21 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:41 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:30 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:37 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:25 - [当地回应多辆“百吨王”强行冲卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:32 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:40 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:37 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:35 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:43 - [1年内值得期待的12大游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:39 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:35 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:45 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:26 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:46 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:28 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:30 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:34 - [韩国主帅辞职报告5分钟 双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:47 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:46 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:23 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:39 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:36 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:35 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:29 - [球迷玩人浪手机飞了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:19 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:32 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:35 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/33987492.shtml)
+- 2026-06-29 11:24 - [宜宾5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/7416708144.shtml)
+- 2026-06-29 11:26 - [小学生叠纸青蛙跳2.52米 创世界纪录](http://www.share.minike.top/Article/details/053628.shtml)
+- 2026-06-29 11:18 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/605186029.shtml)
+- 2026-06-29 11:45 - [日本媒体：板仓滉已回归日本队合练](https://www.blog.minike.top/Article/details/32528822.shtml)
+- 2026-06-29 11:38 - [南非门将单场77次成功传球](https://www.blog.kurohicncr.top/Article/details/95039085.shtml)
+- 2026-06-29 11:46 - [韩媒一片哀嚎：没有奇迹](https://www.blog.minike.top/Article/details/7184747.shtml)
+- 2026-06-29 11:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/27896.shtml)
+- 2026-06-29 11:44 - [美人鱼](http://www.share.minike.top/Article/details/170430725.shtml)
+- 2026-06-29 11:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/171371.shtml)
+- 2026-06-29 11:45 - [四川宜宾发生5.5级地震](http://www.blog.kurohicncr.top/Article/details/7094180284.shtml)
+- 2026-06-29 11:28 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/866070225545.shtml)
+- 2026-06-29 11:45 - [宜宾地震后顾客折返用餐0人逃单](http://www.blog.minike.top/Article/details/4013254.shtml)
+- 2026-06-29 11:40 - [白玉兰下沉市场](https://www.blog.kurohicncr.top/Article/details/6727356671.shtml)
+- 2026-06-29 11:19 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/81906.shtml)

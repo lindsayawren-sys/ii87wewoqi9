@@ -1,53 +1,59 @@
-# 总书记讲述的党史故事｜“半条被子”映照初心
+# 烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-2016年10月，纪念红军长征胜利80周年大会上，习近平总书记饱含深情地讲述了“半条被子”的故事。2020年9月，总书记在湖南考察时，专程来到汝城县沙洲村，参观“半条被子的温暖”专题陈列馆。 习近平总书记指出：“同人民风雨同舟、血脉相通、生死与共，是中国共产党和红军取得长征胜利的根本保证，也是我们战胜一切困难和风险的根本保证。” 统筹：刘佩、王健 编导：罗林岚 作者：丁春雨、李
+“我要去救一个素未谋面的小宝宝”，安徽一烧烤摊主带动多人加入中华骨髓库 “烧烤暂停，我去要救素未谋面的小宝宝了。”今年4月底，安徽宿州烧烤摊主邵三虎在网上发了这么一条信息告知顾客，就奔赴合肥捐献造血干细胞。5月14日，潇湘晨报·晨视频记者回访邵三虎，他表示，捐献回来后，他的生意好了很多，就在前一天，一家公司14名员工还有烧烤店五名食客也在中华骨髓库进行了入库。 “大家因为爱心走
 
 ## 正文
 
-2016年10月，纪念红军长征胜利80周年大会上，习近平总书记饱含深情地讲述了“半条被子”的故事。
+“我要去救一个素未谋面的小宝宝”，安徽一烧烤摊主带动多人加入中华骨髓库 “烧烤暂停，我去要救素未谋面的小宝宝了。
 
-2020年9月，总书记在湖南考察时，专程来到汝城县沙洲村，参观“半条被子的温暖”专题陈列馆。
+”今年4月底，安徽宿州烧烤摊主邵三虎在网上发了这么一条信息告知顾客，就奔赴合肥捐献造血干细胞。
 
-习近平总书记指出：“同人民风雨同舟、血脉相通、生死与共，是中国共产党和红军取得长征胜利的根本保证，也是我们战胜一切困难和风险的根本保证。
+5月14日，潇湘晨报·晨视频记者回访邵三虎，他表示，捐献回来后，他的生意好了很多，就在前一天，一家公司14名员工还有烧烤店五名食客也在中华骨髓库进行了入库。
 
-” 统筹：刘佩、王健 编导：罗林岚 作者：丁春雨、李凯 配音：王帅龙 新华社音视频部制作
+“大家因为爱心走到我的摊位前，我觉得我应该把爱心和这种正能量传递出去，让更多的人关注血液病患者。
+
+”邵三虎说。
+
+“我要去救一个素未谋面的小宝宝”今年4月18日，邵三虎在烧烤摊留下一个纸条：“因本人家中有事，需要休息一礼拜，一礼拜后继续出摊”，就暂停营业了。
+
+之后他在网上发视频说明了一下此次暂停营业的真实原因：“本人要去合肥捐献造血干细胞，要去救一个素未谋面的小宝宝。
+
+” 邵三虎出生于1992年，他是个热心肠，2013年他就参加了蓝天救援队，平时经常做公益。
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:46 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:24 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:21 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:26 - [王中磊儿子邹市明儿子曹格儿子同框](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:27 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:37 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:21 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:40 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:32 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:39 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:46 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:45 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:39 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:31 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:40 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:26 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:36 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:45 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:30 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:33 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:35 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:29 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:37 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:35 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:43 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:41 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:30 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:19 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:30 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:35 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:18 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:23 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:47 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:45 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:44 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:27 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:31 - [曾沛慈夺冠后人气](https://www.share.kurohicncr.top/Article/details/604153960652.shtml)
+- 2026-06-29 11:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/959456.shtml)
+- 2026-06-29 11:33 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/087087326141.shtml)
+- 2026-06-29 11:22 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.minike.top/Article/details/518006744847.shtml)
+- 2026-06-29 11:23 - [2岁幼童高铁突发惊厥呼吸骤停](http://www.share.kurohicncr.top/Article/details/80002.shtml)
+- 2026-06-29 11:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/4340660310.shtml)
+- 2026-06-29 11:32 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/7699442.shtml)
+- 2026-06-29 11:35 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/809150.shtml)
+- 2026-06-29 11:34 - [本届世界杯黑马扎堆](https://www.blog.minike.top/Article/details/735099564250.shtml)
+- 2026-06-29 11:26 - [一生一世](https://www.share.kurohicncr.top/Article/details/050927046562.shtml)
+- 2026-06-29 11:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/30680.shtml)
+- 2026-06-29 11:23 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.minike.top/Article/details/686109415.shtml)
+- 2026-06-29 11:21 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](http://www.blog.minike.top/Article/details/911923196939.shtml)
+- 2026-06-29 11:33 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/863614018.shtml)
+- 2026-06-29 11:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/974691373.shtml)

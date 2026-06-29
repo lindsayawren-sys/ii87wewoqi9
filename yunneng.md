@@ -1,59 +1,61 @@
-# 华创证券股票质押案一审胜诉背后：业务开展是否充分尽调？风控是否到位？有无明股实债？
+# OEXN:原油供应格局加速重塑
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：图灵 6月23日，华创云信发布诉讼进展公告，披露全资子公司华创证券诉ST百灵（维权）实际控制人姜伟股票质押借款违约一案，已收到贵阳市云岩区人民法院一审判决书。 法院判令姜伟偿还融资本金3.61亿元并支付利息、违约金及律师费，同时确认华创证券对姜伟质押的1.10亿股贵州百灵
+5月14日，国际原油市场近期围绕霍尔木兹海峡的通航问题持续紧绷。OEXN表示，伊朗近期开始对通过该海峡的油轮采取逐案审批的方式，市场担忧供应链中断风险加剧，布伦特原油承压再度逼近110美元一线，期货曲线近端的紧张程度明显抬升。 具体来看，霍尔木兹海峡承担着全球约五分之一的海运原油运输。OEXN分析称，伊朗的逐案审批模式实际上为通航增加了不确定性，部分船东已开始要求更高的运费溢价
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月14日，国际原油市场近期围绕霍尔木兹海峡的通航问题持续紧绷。
 
-出品：新浪财经上市公司研究院 作者：图灵 6月23日，华创云信发布诉讼进展公告，披露全资子公司华创证券诉ST百灵（维权）实际控制人姜伟股票质押借款违约一案，已收到贵阳市云岩区人民法院一审判决书。
+OEXN表示，伊朗近期开始对通过该海峡的油轮采取逐案审批的方式，市场担忧供应链中断风险加剧，布伦特原油承压再度逼近110美元一线，期货曲线近端的紧张程度明显抬升。
 
-法院判令姜伟偿还融资本金3.61亿元并支付利息、违约金及律师费，同时确认华创证券对姜伟质押的1.10亿股贵州百灵股票及孳息、抵押房产（第二顺位抵押）、合伙企业财产份额及派生权益等享有优先受偿权。
+具体来看，霍尔木兹海峡承担着全球约五分之一的海运原油运输。
 
-华创云信表示，一审判决有利于华创证券尽快收回融资本息及违约金等，预计本次诉讼对公司正常经营不会产生重大影响。
+OEXN分析称，伊朗的逐案审批模式实际上为通航增加了不确定性，部分船东已开始要求更高的运费溢价以覆盖潜在风险。
 
-但阶段性胜诉背后，华创证券在2019年、2020年开展纾困、股票质押业务时，是否充分尽调？
+海湾产油国虽然加快了基础设施修复进度，但部分设施恢复时间已被延后至2027年，市场对中期供应紧张的预期进一步升温，长端期货合约同样受到结构性支撑。
 
-风控是否到位？
+盘面表现方面，国际原油近期波动幅度明显放大，单日振幅常常超过3美元。
 
-公开资料显示，在华创证券两期资管计划入股ST百灵时，姜伟的股票质押比例已经很高，并且姜伟对外投资有“短债长投”的迹象；在姜伟的股票质押频繁暴雷之际，华创证券逆势为姜伟提供融资。
+短线交易者宜关注地缘事件的边际变化，谨慎应对消息驱动型行情；中线投资者则可从供需基本面入手，重点跟踪库存与产能修复进度，避免对单一事件过度押注，做好资金管理。
 
-ST百灵在华创资管计划入股后四年财务造假，华创证券是否对类似风险有过评估？
+展望后市，OEXN预计，在地缘风险未见明显缓和、夏季出行需求拐点临近的背景下，原油价格大概率维持区间高位震荡。
 
 ## 相关推荐
 
-- 2026-06-29 11:47 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:41 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:40 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:39 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:25 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:24 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:36 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:24 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:24 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:30 - [白玉兰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:20 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:34 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:38 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:45 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:28 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:46 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:20 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:26 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:40 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:28 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:46 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:20 - [户外吃烧烤多人头发变炸毛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:37 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:35 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:22 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:24 - [温州学子高考数学满分 分享学习经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:31 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:27 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:47 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:32 - [杨紫李现16年情谊藏于行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:27 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:40 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:31 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:26 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:28 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:23 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:25 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:24 - [美加墨世界杯首支16强诞生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:25 - [韩媒一片哀嚎：没有奇迹](http://www.blog.kurohicncr.top/Article/details/57705.shtml)
+- 2026-06-29 11:46 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/2315197.shtml)
+- 2026-06-29 11:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/0622094841.shtml)
+- 2026-06-29 11:21 - [女子拍邻居家中裸照发业主群](http://www.share.minike.top/Article/details/43776865.shtml)
+- 2026-06-29 11:30 - [2026年Mac能玩游戏了吗](http://www.share.kurohicncr.top/Article/details/013377424680.shtml)
+- 2026-06-29 11:41 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/915211462766.shtml)
+- 2026-06-29 11:26 - [夏粮收购陆续展开 质优价稳购销两旺](https://www.blog.minike.top/Article/details/13024.shtml)
+- 2026-06-29 11:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/639761416.shtml)
+- 2026-06-29 11:36 - [网友偶遇胡军和李乃文](https://www.share.minike.top/Article/details/189926521.shtml)
+- 2026-06-29 11:19 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/465385.shtml)
+- 2026-06-29 11:35 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/25433.shtml)
+- 2026-06-29 11:36 - [天道](https://www.blog.kurohicncr.top/Article/details/633239.shtml)
+- 2026-06-29 11:25 - [T1 3-0 TLAW数据雷达图](https://www.share.kurohicncr.top/Article/details/2261847.shtml)
+- 2026-06-29 11:37 - [月薪 1 万留在一线城市，和月薪 6000 回家乡工作，哪个更划算？](http://www.blog.kurohicncr.top/Article/details/3557725.shtml)
+- 2026-06-29 11:22 - [上海足协发布世界杯文明观赛倡议书](http://www.share.kurohicncr.top/Article/details/85456651665.shtml)

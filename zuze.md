@@ -1,60 +1,49 @@
-# “旗手”重挫近4%，周线仍3连阳，高频异动背后涌现修复强逻辑
+# 香港警方侦破近年最大宗大麻花案 市值约9870万港元
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-6月26日，A股震荡回调，三大指数低开低走，沪指跌超2%失守4100点，两市超4600只个股下跌。券商随市下挫，个股大面积飘绿，仅中信建投、国元证券、华安证券逆市收涨。规模380亿元+的顶流券商ETF华宝（512000）场内价格收跌3.82%。 回顾本周，券商板块高频活跃，喜提5天3涨，证券公司指数单周累计涨超5%明显跑赢大盘（上证指数-1.55%）。券商ETF华宝（51200
+发布时间：2026年05月14日 23:00 来源：中国新闻网 5月14日，香港特区政府警务处通报，警方近日在西贡检获约511.5公斤大麻花，市值约9870万港元。警方亦逮捕3名男子，系一贩毒集团骨干成员。该宗案件为2023年以来香港警方侦破的最大一宗与大麻相关案件。(记者 邱兆翔） 责任编辑：【李骏】
 
 ## 正文
 
-6月26日，A股震荡回调，三大指数低开低走，沪指跌超2%失守4100点，两市超4600只个股下跌。
+发布时间：2026年05月14日 23:00 来源：中国新闻网 5月14日，香港特区政府警务处通报，警方近日在西贡检获约511.5公斤大麻花，市值约9870万港元。
 
-券商随市下挫，个股大面积飘绿，仅中信建投、国元证券、华安证券逆市收涨。
+警方亦逮捕3名男子，系一贩毒集团骨干成员。
 
-规模380亿元+的顶流券商ETF华宝（512000）场内价格收跌3.82%。
+该宗案件为2023年以来香港警方侦破的最大一宗与大麻相关案件。
 
-回顾本周，券商板块高频活跃，喜提5天3涨，证券公司指数单周累计涨超5%明显跑赢大盘（上证指数-1.55%）。
-
-券商ETF华宝（512000）周线3连阳，相对近一年来的低迷表现有所逆转，引发市场对于券商板块“牛市旗手”归位的讨论。
-
-分析认为，券商板块反转行情或已开启，核心逻辑在于估值与基本面的错配修复，一方面A股交投持续活跃，日均成交额维持高位、两融余额处于高位，为券商业绩提供坚实支撑；另一方面，板块当前估值处于历史低位，安全垫充足。
-
-同时政策红利集中释放、主力资金持续涌入，以及券商自身推进提质增效、完善市值管理等举措，共同推动板块迎来估值修复行情。
-
-随着中报验证周期临近，在业绩逻辑强化的背景下，券商板块强劲的业绩预期也受到关注。
+(记者 邱兆翔） 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:34 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 11:39 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:42 - [丞磊莫离最后5集加起来集均3分钟戏份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:28 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:25 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:46 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:22 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:46 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:32 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:36 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:41 - [有清北的实力却只考了大专，在大学怎么平衡心态？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:23 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:37 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:29 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:31 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:27 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:40 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:27 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:46 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:18 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:36 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:36 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:46 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:22 - [张杰下沉市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:44 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:33 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:42 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:46 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:26 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:20 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:30 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:45 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:20 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:24 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:18 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:42 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:46 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/961688471624.shtml)
+- 2026-06-29 11:44 - [俄称继续在顿涅茨克两城镇推进](http://www.blog.minike.top/Article/details/3527935.shtml)
+- 2026-06-29 11:26 - [林诗栋晋级WTT美国大满贯男单32强](https://www.share.minike.top/Article/details/9965081878.shtml)
+- 2026-06-29 11:42 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/842505550045.shtml)
+- 2026-06-29 11:33 - [刘宇宁现偶我就不要了](http://www.share.minike.top/Article/details/7378650.shtml)
+- 2026-06-29 11:34 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/65607747973.shtml)
+- 2026-06-29 11:18 - [媒体：湖人把薪资空间玩明白了](http://www.share.minike.top/Article/details/855913567435.shtml)
+- 2026-06-29 11:21 - [加拿大92分钟绝杀南非](https://www.blog.kurohicncr.top/Article/details/666564437697.shtml)
+- 2026-06-29 11:20 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/962059628.shtml)
+- 2026-06-29 11:27 - [王楚钦3比0周启豪](http://www.share.minike.top/Article/details/99439645.shtml)
+- 2026-06-29 11:40 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/4923107555.shtml)
+- 2026-06-29 11:46 - [张杰下沉市场](https://www.blog.minike.top/Article/details/9674810134.shtml)
+- 2026-06-29 11:42 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/295346.shtml)
+- 2026-06-29 11:45 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/1200274.shtml)
+- 2026-06-29 11:35 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/19995918079.shtml)

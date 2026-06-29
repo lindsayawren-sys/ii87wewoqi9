@@ -1,57 +1,58 @@
-# 安徽面向全球招募“宝藏小城合伙人”
+# 国星宇航递表港交所，冲击“太空AI第一股”，估值116亿
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新社合肥6月26日电 (记者 张强)6月26日，在第三批“皖美宝藏小城”推介活动现场，安徽发布“宝藏小城合伙人”招募计划，邀请全球内容创作者、产业运营者、文化传播者系统挖掘和推广当地小城文旅资源。 今年1月和4月，安徽先后推出两批共21个“皖美宝藏小城”。这些小城以差异化IP为突破口，积极探索县域文旅高质量发展新路径。 当日，蚌埠市固镇县、马鞍山市花山区、黄山市祁门县等13个
+来源：独角兽早知道 5月14日，据港交所披露，成都国星宇航科技股份有限公司向港交所主板提交上市申请，国泰君安国际为独家保荐人。 综合 | 招股书 编辑 | Arti 本文仅为信息交流之用，不构成任何交易建议 国星宇航成立于2018年5月，总部位于成都，是一家专注于AI卫星技术研发与商业应用的民营商业航天企业。公司以“AI卫星”为切入点，构建了覆盖卫星设计、研制、发射协调、在轨运
 
 ## 正文
 
-中新社合肥6月26日电 (记者 张强)6月26日，在第三批“皖美宝藏小城”推介活动现场，安徽发布“宝藏小城合伙人”招募计划，邀请全球内容创作者、产业运营者、文化传播者系统挖掘和推广当地小城文旅资源。
+来源：独角兽早知道 5月14日，据港交所披露，成都国星宇航科技股份有限公司向港交所主板提交上市申请，国泰君安国际为独家保荐人。
 
-今年1月和4月，安徽先后推出两批共21个“皖美宝藏小城”。
+综合 | 招股书 编辑 | Arti 本文仅为信息交流之用，不构成任何交易建议 国星宇航成立于2018年5月，总部位于成都，是一家专注于AI卫星技术研发与商业应用的民营商业航天企业。
 
-这些小城以差异化IP为突破口，积极探索县域文旅高质量发展新路径。
+公司以“AI卫星”为切入点，构建了覆盖卫星设计、研制、发射协调、在轨运控及星基解决方案的全产业链能力。
 
-当日，蚌埠市固镇县、马鞍山市花山区、黄山市祁门县等13个第三批“皖美宝藏小城”集中亮相。
+根据弗若斯特沙利文的资料，以2025年收入计，国星宇航在管理卫星行业全价值链的所有中国民营商业航天公司中排名第二。
 
-各小城以“IP微剧+特色文艺”的形式，展现独特魅力。
+按累计AI卫星发射次数计，公司在中国所有民营商业航天企业中排名首位。
 
-英国人文旅行博主丹尼尔(Daniel)已在中国生活十余年，他认为中国人习以为常的事物常被忽略，而外国人凭借“旁观者清”的视角，更容易捕捉到日常中的美好细节，比如一条街巷、一座老宅。
+2026年4月，公司完成IPO前最后一轮融资，募集资金总额35.5亿元，投后估值达115.54亿元。
 
-丹尼尔说，探访“宝藏小城”的关键不在于打卡景点，而在于沉浸式感受当地的气息、味道、节奏与独特性格。
+如果顺利上市，公司有望成为港股“太空AI第一股”。
 
-“安徽是值得深度探索的自然文化宝地。
+国星宇航的差异化竞争力，在于公司从一开始就没有将自己定位为单纯的“卫星制造商”，而是将AI算力作为卫星能力的核心。
 
 ## 相关推荐
 
-- 2026-06-29 11:40 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:34 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:36 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:22 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:34 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:20 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:24 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:19 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:22 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:19 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:21 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:34 - [宜宾地震监控画面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:36 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:45 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:34 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:29 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:34 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:48 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:29 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:30 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:28 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:40 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:21 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:45 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:18 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:31 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:30 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:41 - [男子吃半根变苦黄瓜致肝衰竭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:41 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:42 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:27 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:21 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:46 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/558872195608.shtml)
+- 2026-06-29 11:22 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/58902.shtml)
+- 2026-06-29 11:25 - [杨紫《生命树》播放量破百亿](http://www.share.kurohicncr.top/Article/details/944151.shtml)
+- 2026-06-29 11:21 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/26222.shtml)
+- 2026-06-29 11:34 - [欧洲已有超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/94477.shtml)
+- 2026-06-29 11:46 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/209973408.shtml)
+- 2026-06-29 11:23 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/6925312067.shtml)
+- 2026-06-29 11:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/97291.shtml)
+- 2026-06-29 11:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/87546107142.shtml)
+- 2026-06-29 11:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/0357470408.shtml)
+- 2026-06-29 11:32 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/483129218928.shtml)
+- 2026-06-29 11:46 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/264909.shtml)
+- 2026-06-29 11:26 - [全球首发核电站彩蛋攻略](http://www.share.kurohicncr.top/Article/details/470013914754.shtml)
+- 2026-06-29 11:24 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/327461.shtml)
+- 2026-06-29 11:44 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/18149322.shtml)

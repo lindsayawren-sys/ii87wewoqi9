@@ -1,54 +1,58 @@
-# 孩子爱刷手机不看书怎么办？
+# DefenCath需求强劲 CorMedix上调2026年营收指引至3.25-3.45亿美元
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月26日 15:26 来源：中国新闻网 当下儿童沉迷手机、疏于阅读成为普遍教育难题。对此，知名儿童文学作家孙睿在中新网采访中表示，手机主打碎片化娱乐，而书籍的价值在于点燃好奇心。为适应新一代读者，他借鉴动画编剧经验，提倡“热开场”写法，开篇即抛出悬念与冲突，甚至直接向小读者发问。“与其阻断孩子接触手机，不如给孩子一个足够有趣的切入点。”孙睿认为，一本好书
+一季度业绩：营收超预期226% 净利润扭亏为盈 CorMedix近日公布2026年第一季度财报，各项指标全面超出市场预期。数据显示，公司一季度净营收达1.274亿美元，较上年同期的3910万美元大幅增长226%，显著高于市场预期的1.05亿美元。 盈利能力方面，公司实现净利润3860万美元，合摊薄每股收益0.43美元，较上年同期净利润2060万美元大幅提升。调整后EBITDA达
 
 ## 正文
 
-发布时间：2026年06月26日 15:26 来源：中国新闻网 当下儿童沉迷手机、疏于阅读成为普遍教育难题。
+一季度业绩：营收超预期226% 净利润扭亏为盈 CorMedix近日公布2026年第一季度财报，各项指标全面超出市场预期。
 
-对此，知名儿童文学作家孙睿在中新网采访中表示，手机主打碎片化娱乐，而书籍的价值在于点燃好奇心。
+数据显示，公司一季度净营收达1.274亿美元，较上年同期的3910万美元大幅增长226%，显著高于市场预期的1.05亿美元。
 
-为适应新一代读者，他借鉴动画编剧经验，提倡“热开场”写法，开篇即抛出悬念与冲突，甚至直接向小读者发问。
+盈利能力方面，公司实现净利润3860万美元，合摊薄每股收益0.43美元，较上年同期净利润2060万美元大幅提升。
 
-“与其阻断孩子接触手机，不如给孩子一个足够有趣的切入点。
+调整后EBITDA达7000万美元，去年同期为2360万美元。
 
-”孙睿认为，一本好书就像火柴，只要燃点够高，瞬间亮起的火光自然会让孩子觉得阅读更好玩。
+核心产品DefenCath表现亮眼 一季度营收主要由两大板块驱动：DefenCath贡献净营收9750万美元，增长动力来自门诊透析客户使用率提升，以及一项与特定销售折让相关的一次性900万美元有利估计变动；收购的Melinta产品组合贡献营收2990万美元，体现了反感染产品组合的稳健需求。
 
-(记者 刘越） 责任编辑：【张曦】
+公司董事长兼首席执行官Joseph Todisco表示，CorMedix正以强劲势头进入2026年，各业务板块全面向好。
+
+尽管TDAPA到期在即，DefenCath的表现依然超出预期，显示出强劲的底层使用需求。
+
+TDAPA转型：下半年承压 2027年有望反弹 管理层在财报电话会议上详细阐述了DefenCath的医保报销转型路径。
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:38 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:39 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:23 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:28 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:32 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:33 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:26 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:31 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:23 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:30 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:42 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:42 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:42 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:37 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:48 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:44 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:42 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:25 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:40 - [夏粮收购陆续展开 质优价稳购销两旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:26 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:41 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:41 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:36 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:28 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:43 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:36 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:19 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:37 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:41 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:23 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:29 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:30 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:41 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:26 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:24 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:45 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:35 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:26 - [黄灿灿恭喜自己拿到全季通告费](http://www.share.kurohicncr.top/Article/details/37306525.shtml)
+- 2026-06-29 11:23 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/961593.shtml)
+- 2026-06-29 11:40 - [英国高温已致多人死亡](https://www.share.kurohicncr.top/Article/details/22932961795.shtml)
+- 2026-06-29 11:46 - [林诗栋晋级WTT美国大满贯男单32强](https://www.blog.minike.top/Article/details/04880.shtml)
+- 2026-06-29 11:30 - [人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？](http://www.blog.kurohicncr.top/Article/details/96600.shtml)
+- 2026-06-29 11:23 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/7502871.shtml)
+- 2026-06-29 11:43 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/165366113597.shtml)
+- 2026-06-29 11:42 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/931546.shtml)
+- 2026-06-29 11:39 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/63193683.shtml)
+- 2026-06-29 11:31 - [拄拐少年高考663分：用行动回报社会](http://www.blog.kurohicncr.top/Article/details/17193873778.shtml)
+- 2026-06-29 11:25 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.minike.top/Article/details/00198141229.shtml)
+- 2026-06-29 11:22 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/20088462.shtml)
+- 2026-06-29 11:37 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/06753.shtml)
+- 2026-06-29 11:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/47375676528.shtml)
+- 2026-06-29 11:46 - [当地回应多辆“百吨王”强行冲卡](https://www.blog.kurohicncr.top/Article/details/437675340.shtml)

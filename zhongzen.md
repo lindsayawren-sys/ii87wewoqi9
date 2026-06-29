@@ -1,57 +1,60 @@
-# 【市场聚焦】贵金属：逻辑矛盾的超跌
+# 三星电子和韩国政府恢复工资谈判的提议遭工会拒绝
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中粮期货研究中心 概览 本周贵金属行情大幅超跌，白银跌幅显著远超黄金，金银接连失守关键整数关口。 本轮行情呈现明显宏观逻辑背离，油价大幅回落、长端美债收益率边际下行，但金银跌势持续加剧，核心压力并非基本面恶化，而是加息预期抢跑、美元走强、流动性收缩及交易结构失衡共振所致。 6月FOMC会议点阵图转鹰引发市场过度解读，叠加美元指数受非美货币走弱提振走强，对贵金属形成短期估值压制。
+三星电子和韩国政府周四均敦促工会恢复工资谈判，但遭到工会方面的拒绝。 三星电子向其两大工会发送了一份正式文件，这被广泛认为是为避免定于下周四举行的罢工而做出的最后努力。 为期两天的政府主导的调解谈判于周三结束，但劳资双方仍未达成协议。在半导体行业周期性上涨之际，劳资双方就与公司人工智能（AI）相关收益挂钩的绩效奖金问题仍存在严重分歧。 韩国国家劳动关系委员会周四也呼吁双方于周六
 
 ## 正文
 
-中粮期货研究中心 概览 本周贵金属行情大幅超跌，白银跌幅显著远超黄金，金银接连失守关键整数关口。
+三星电子和韩国政府周四均敦促工会恢复工资谈判，但遭到工会方面的拒绝。
 
-本轮行情呈现明显宏观逻辑背离，油价大幅回落、长端美债收益率边际下行，但金银跌势持续加剧，核心压力并非基本面恶化，而是加息预期抢跑、美元走强、流动性收缩及交易结构失衡共振所致。
+三星电子向其两大工会发送了一份正式文件，这被广泛认为是为避免定于下周四举行的罢工而做出的最后努力。
 
-6月FOMC会议点阵图转鹰引发市场过度解读，叠加美元指数受非美货币走弱提振走强，对贵金属形成短期估值压制。
+为期两天的政府主导的调解谈判于周三结束，但劳资双方仍未达成协议。
 
-国内多家银行集中上调贵金属合约保证金、收缩交易通道，触发系统性去杠杆与仓位踩踏，是本轮行情深度超跌的核心放大因素，叠加境外ETF持续资金流出、关键支撑位破位引发程序化止损负反馈，进一步放大波动。
+在半导体行业周期性上涨之际，劳资双方就与公司人工智能（AI）相关收益挂钩的绩效奖金问题仍存在严重分歧。
 
-整体来看，本轮下跌为交易性流动性出清，美国高债务、央行购金、去美元化等中长期支撑逻辑未被证伪。
+韩国国家劳动关系委员会周四也呼吁双方于周六举行新一轮政府主导的调解谈判。
 
-风险提示：通胀数据超预期风险、美伊谈判破裂、全球经济衰退、国内政策收紧风险、技术破位风险等。
+但工会方面重申，除非关键诉求得到解决，否则无意进行进一步对话。
 
-一、市场表现：超跌 本周贵金属板块跌势加速，白银下跌幅度明显高于黄金，反映本轮行情并非单纯的避险情绪回吐，核心驱动源于高波动、高杠杆、强工业属性品种的流动性折价效应。
+三星电子最大工会主席Choi Seung-ho表示：“如果奖金发放制度不完善、透明度不提高，就没有理由继续对话。
 
-伦敦金接连跌破4100美元/盎司、4000美元/盎司两大关键整数关口，伦敦银失守60美元/盎司一线，走势显著弱于黄金。
+” 此前，Choi Seung-ho表示约有4.1万名工会成员表示有意参加计划中的为期18天的总罢工，并补充说，参与人数可能超过5万人。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:42 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:37 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:30 - [原来衣着打扮会影响对自己的感知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:46 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:30 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:22 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:46 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:33 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:20 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:46 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:20 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:33 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:32 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:39 - [韩国主教练连夜下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:28 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:24 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:29 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:40 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:47 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:44 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:31 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:46 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:38 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:23 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:20 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:28 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:40 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:37 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:30 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:39 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:24 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:25 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:37 - [为何加快“扩编”成欧盟战略要务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:18 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:47 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:48 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/75228.shtml)
+- 2026-06-29 11:41 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/52744.shtml)
+- 2026-06-29 11:20 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.minike.top/Article/details/305057978.shtml)
+- 2026-06-29 11:24 - [ENC瓦中国香港负印度数据图](https://www.share.minike.top/Article/details/943932715950.shtml)
+- 2026-06-29 11:37 - [李在明要调查韩国队出局原因](http://www.share.kurohicncr.top/Article/details/146317.shtml)
+- 2026-06-29 11:35 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/5273704.shtml)
+- 2026-06-29 11:45 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/78749736358.shtml)
+- 2026-06-29 11:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/735556602594.shtml)
+- 2026-06-29 11:30 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.kurohicncr.top/Article/details/232133877064.shtml)
+- 2026-06-29 11:30 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/225111.shtml)
+- 2026-06-29 11:25 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/52381.shtml)
+- 2026-06-29 11:46 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/8702786.shtml)
+- 2026-06-29 11:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/3828541.shtml)
+- 2026-06-29 11:20 - [加拿大92分钟绝杀南非](http://www.blog.minike.top/Article/details/042756447024.shtml)
+- 2026-06-29 11:34 - [乌拉圭出局之路](https://www.share.minike.top/Article/details/719912809564.shtml)

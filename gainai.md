@@ -1,56 +1,57 @@
-# 应急医学中心项目在沪试运行 完善“平急结合”公共卫生应急体系
+# 福建省朱鹮种群重建项目正式启动 10只“东方宝石”安家将乐
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网上海6月26日电 （记者陈静）上海市公共卫生临床中心应急医学中心项目（下称：项目）26日试运行启用。 作为上海市“十四五”医疗卫生事业发展的一项重点工程，该项目将进一步完善上海“平急结合”的公共卫生应急体系，全面提升上海重大疫情应急防控和重症救治能力，筑牢超大城市公共卫生安全防线。 项目总建筑面积152777平方米，包含医疗综合楼、多功能综合楼、能源中心和液氧站四大建筑单
+发布时间：2026年05月14日 13:39 来源：中国新闻网 5月13日，福建省朱鹮种群重建启动仪式在将乐县龙栖山国家级自然保护区举行，来自陕西汉中朱鹮国家级自然保护区的10只“东方宝石”朱鹮正式落户福建龙栖山。这标志着绝迹多年的朱鹮重返闽山，也标志着中国南方朱鹮野化放归、种群重建工作正式拉开序幕。 朱鹮被誉为“东方宝石”，是国家一级重点保护野生动物，拥有六千万年演化历史，对
 
 ## 正文
 
-中新网上海6月26日电 （记者陈静）上海市公共卫生临床中心应急医学中心项目（下称：项目）26日试运行启用。
+发布时间：2026年05月14日 13:39 来源：中国新闻网 5月13日，福建省朱鹮种群重建启动仪式在将乐县龙栖山国家级自然保护区举行，来自陕西汉中朱鹮国家级自然保护区的10只“东方宝石”朱鹮正式落户福建龙栖山。
 
-作为上海市“十四五”医疗卫生事业发展的一项重点工程，该项目将进一步完善上海“平急结合”的公共卫生应急体系，全面提升上海重大疫情应急防控和重症救治能力，筑牢超大城市公共卫生安全防线。
+这标志着绝迹多年的朱鹮重返闽山，也标志着中国南方朱鹮野化放归、种群重建工作正式拉开序幕。
 
-项目总建筑面积152777平方米，包含医疗综合楼、多功能综合楼、能源中心和液氧站四大建筑单体，集门急诊、医技、手术室、重症监护病房（ICU）及800张床位的负压病房等完备功能于一体，并配套航空救援停机坪，与周边医疗机构高效联动。
+朱鹮被誉为“东方宝石”，是国家一级重点保护野生动物，拥有六千万年演化历史，对水质、食物、栖息环境要求极高，是衡量区域生态环境好坏的重要指示物种。
 
-项目以“平疫结合、快速转换”为设计亮点，构建“平时常态诊疗、疫时应急攻坚”的现代化公共卫生救治模式。
+历史上，福建曾是朱鹮主要分布区，受环境变化影响，朱鹮在省内一度绝迹。
 
-项目严格按照“三区两通道”标准布局，实现医务人员、患者和医疗废物动线全面物理分离，最大限度降低医院感染风险。
+上世纪八十年代，全球野生朱鹮仅存7只，经过四十余年持续保护繁育，目前全球朱鹮种群数量已突破11000只，成为世界濒危物种保护的经典范例。
 
-未来，应急医学中心平时常规开放门急诊、医技及住院，高效服务日常诊疗；遇突发公共卫生事件，可根据疾病的传播模式一键切换，快速形成闭环收治体系，为重大疫情集中收治提供坚实保障。
+龙栖山国家级自然保护区森林覆盖率高，水系发达，稻田、湿地连片分布，保存完整的中亚热带常绿阔叶林生态系统。
 
-上海市公卫中心方面表示，该院进一步优化学科布局，补齐诊疗短板，新开设核医学科与放疗科，同步配置5.0T磁共振等先进医疗设备，建设复合手术室，实现大型影像设备与洁净手术环境深度融合；未来将引入远程手术机器人系统，进一步提升疑难危重患者救治能力。
+经科学评估，这里人为干扰少、生态本底优良，是我国南方重建朱鹮野外种群的理想栖息地。
 
-与此同时，项目配套建设教培中心，集教学、规培、科研和生活保障于一体，可更好地发挥上海市公卫中心作为WHO新发与再现传染病临床管理、培训和研究合作中心的功能，保障承担的国家传染病培训基地建设任务，更高质量地开展全市新发与再现传染病临床救治的核心培训。
+为迎接朱鹮落户，福建龙栖山国家级自然保护区累计投入两千余万元，持续开展栖息地优化提升工程，完成200亩湿地修复、50亩周边农田生态改造。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:39 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:40 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:19 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:41 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:29 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:41 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:47 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:37 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:41 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:31 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:43 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:19 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:22 - [中国U17男篮78-87加拿大U17男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:30 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:41 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:30 - [男子在家全裸被邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:20 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:24 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:23 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:36 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:32 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:35 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:38 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:29 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:25 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:45 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:30 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:18 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:46 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:26 - [洪明甫发布会没有提问环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:18 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:33 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:43 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:28 - [欧洲极端高温东扩](https://www.blog.kurohicncr.top/Article/details/785450717409.shtml)
+- 2026-06-29 11:25 - [李在明要调查韩国队出局原因](http://www.blog.kurohicncr.top/Article/details/7329222363.shtml)
+- 2026-06-29 11:33 - [中气爱：吐鲁番快50度了](https://www.blog.kurohicncr.top/Article/details/206018002.shtml)
+- 2026-06-29 11:28 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/05403.shtml)
+- 2026-06-29 11:45 - [为何加快“扩编”成欧盟战略要务](http://www.share.minike.top/Article/details/2598441430.shtml)
+- 2026-06-29 11:44 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/38668.shtml)
+- 2026-06-29 11:27 - [韩国队是怎么把自己“作死”的](http://www.blog.kurohicncr.top/Article/details/70113463283.shtml)
+- 2026-06-29 11:32 - [金价银价下跌 油价上涨](http://www.blog.minike.top/Article/details/85088.shtml)
+- 2026-06-29 11:44 - [网友偶遇胡军和李乃文](http://www.blog.minike.top/Article/details/285522925.shtml)
+- 2026-06-29 11:42 - [法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/80028.shtml)
+- 2026-06-29 11:31 - [DSpark论文深度解读](https://www.share.minike.top/Article/details/7619682524.shtml)
+- 2026-06-29 11:47 - [扬名立万](https://www.share.kurohicncr.top/Article/details/98069944.shtml)
+- 2026-06-29 11:37 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/05941553.shtml)
+- 2026-06-29 11:36 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/9375694999.shtml)
+- 2026-06-29 11:19 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/13367398230.shtml)

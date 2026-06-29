@@ -1,53 +1,53 @@
-# 世界杯伊朗队小组赛不败 韩国队出线仅剩理论可能
+# 报道：五角大楼达成低成本集装箱化导弹采购协议
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-中新网6月27日电 北京时间27日进行的6场世界杯小组赛已全部结束，3个小组完赛。G组比利时、埃及出线，新西兰出局，伊朗待定；H组西班牙、佛得角携手晋级，乌拉圭、沙特被淘汰；I组法国、挪威、塞内加尔出线，伊拉克出局。 在各小组第三名的排位中，伊朗队暂居第6，领先于排名第8的韩国队。待小组赛全部收官后，在该榜单上位列前8的队伍可以晋级32强，这意味着伊朗队出线希望相对较大，而韩国
+路透援引五角大楼声明报道，美国国防部已与 Anduril、CoAspire、Leidos和Zone 5达成协议，计划自2027年起三年内潜在采购逾1万枚低成本、集装箱化导弹。 项目评估阶段将于2026年6月启动，届时将从上述四家公司采购测试导弹。 交易未披露具体金额。 该协议还为未来签订固定总价生产合同确立了条款。 美国国防部负责研究与工程的副部长Emil Michael对路透
 
 ## 正文
 
-中新网6月27日电 北京时间27日进行的6场世界杯小组赛已全部结束，3个小组完赛。
+路透援引五角大楼声明报道，美国国防部已与 Anduril、CoAspire、Leidos和Zone 5达成协议，计划自2027年起三年内潜在采购逾1万枚低成本、集装箱化导弹。
 
-G组比利时、埃及出线，新西兰出局，伊朗待定；H组西班牙、佛得角携手晋级，乌拉圭、沙特被淘汰；I组法国、挪威、塞内加尔出线，伊拉克出局。
+项目评估阶段将于2026年6月启动，届时将从上述四家公司采购测试导弹。
 
-在各小组第三名的排位中，伊朗队暂居第6，领先于排名第8的韩国队。
+交易未披露具体金额。
 
-待小组赛全部收官后，在该榜单上位列前8的队伍可以晋级32强，这意味着伊朗队出线希望相对较大，而韩国队已命悬一线。
+该协议还为未来签订固定总价生产合同确立了条款。
+
+美国国防部负责研究与工程的副部长Emil Michael对路透社表示，这些协议要求相关企业按时、按预算交付产品。
+
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:24 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:26 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:18 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:46 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:40 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:30 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:28 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:35 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:19 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:32 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:44 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:41 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:41 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:43 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:38 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:21 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:24 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:27 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:44 - [《给阿嬷的情书》里的情义与守望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:26 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:41 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:24 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:18 - [三只羊线下课已下架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:21 - [上海足协发布世界杯文明观赛倡议书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:38 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:38 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:34 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:23 - [全球首发核电站彩蛋攻略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:32 - [浦玮：阿根廷所在半区对手实力偏弱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:25 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:33 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:37 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:25 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:27 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:47 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:19 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/87940583.shtml)
+- 2026-06-29 11:26 - [2025年人口增长10强城市出炉](https://www.share.minike.top/Article/details/71270520875.shtml)
+- 2026-06-29 11:46 - [起风了](https://www.blog.minike.top/Article/details/06602711.shtml)
+- 2026-06-29 11:36 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://www.blog.kurohicncr.top/Article/details/846480.shtml)
+- 2026-06-29 11:43 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/922876.shtml)
+- 2026-06-29 11:36 - [曾挑衅中国的立陶宛“生变”了](https://www.blog.minike.top/Article/details/85769534176.shtml)
+- 2026-06-29 11:46 - [2岁幼童高铁突发惊厥呼吸骤停](https://www.blog.minike.top/Article/details/852265016419.shtml)
+- 2026-06-29 11:26 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/4512592658.shtml)
+- 2026-06-29 11:28 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/41932726480.shtml)
+- 2026-06-29 11:32 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/24665.shtml)
+- 2026-06-29 11:38 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/11498.shtml)
+- 2026-06-29 11:35 - [送你一朵小红花](http://www.share.minike.top/Article/details/372801071509.shtml)
+- 2026-06-29 11:19 - [詹姆斯下赛季会在哪里](http://www.blog.minike.top/Article/details/279760.shtml)
+- 2026-06-29 11:42 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.minike.top/Article/details/809499.shtml)
+- 2026-06-29 11:45 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/49515.shtml)

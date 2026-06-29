@@ -1,60 +1,56 @@
-# 美国国债上涨 通胀数据温和降低了加息预期
+# “才聚八闽·海峡杯” 2026创新创业大赛正式启动
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-短期美国国债上涨，此前美联储青睐的通胀指标读数温和，略微压低了交易员对未来几个月加息的预期。 国债价格上涨推动对美联储政策变化前景最敏感的两年期国债收益率下跌4个基点，至4.10%。基准10年期国债收益率下跌3个基点，至4.36%。 利率互换显示，交易员降低了对美联储今年加息的押注，目前定价显示，到12月份加息幅度约为33个基点，而周三收盘时约为36个基点。定价还反映出，官员们
+中新网福州5月15日电 (郑江洛)“才聚八闽·海峡杯”2026创新创业大赛组委会14日对外披露，由中国海峡人才市场主办的“才聚八闽·海峡杯”2026创新创业大赛日前正式启动报名。 本次大赛重点面向台湾、香港、澳门地区征集优秀人才项目。项目团队主要申报人应为具有台湾、香港、澳门地区求学、工作、生活经历的人才。项目对应的创新成果需具有完全自主知识产权，技术水平达到行业领先或具备行业
 
 ## 正文
 
-短期美国国债上涨，此前美联储青睐的通胀指标读数温和，略微压低了交易员对未来几个月加息的预期。
+中新网福州5月15日电 (郑江洛)“才聚八闽·海峡杯”2026创新创业大赛组委会14日对外披露，由中国海峡人才市场主办的“才聚八闽·海峡杯”2026创新创业大赛日前正式启动报名。
 
-国债价格上涨推动对美联储政策变化前景最敏感的两年期国债收益率下跌4个基点，至4.10%。
+本次大赛重点面向台湾、香港、澳门地区征集优秀人才项目。
 
-基准10年期国债收益率下跌3个基点，至4.36%。
+项目团队主要申报人应为具有台湾、香港、澳门地区求学、工作、生活经历的人才。
 
-利率互换显示，交易员降低了对美联储今年加息的押注，目前定价显示，到12月份加息幅度约为33个基点，而周三收盘时约为36个基点。
+项目对应的创新成果需具有完全自主知识产权，技术水平达到行业领先或具备行业特色优势，且项目的创业计划有清晰的商业模式和良好的市场预期。
 
-定价还反映出，官员们在7月份会议上加息的可能性进一步降低。
+据组委会有关负责人介绍，大赛共设置5个赛道：人工智能赛道、先进制造赛道、生物医药赛道、文创服务赛道、综合赛道。
 
-5月份个人消费支出价格指数上涨0.4%，彭博调查的经济学家预估中值为0.5%。
+赛事分初赛、决赛两个阶段。
 
-剔除食品和能源项目的所谓核心个人消费支出价格指数上涨0.3%，符合预期。
+奖项拟设置金、银、铜奖和优胜奖。
 
-责任编辑：何云
+其中：每个赛道设金奖1个、各10万元(人民币，下同)，银奖1个、各5万元，铜奖1个、各1万元；优胜奖若干名，给予未获得金、银、铜奖的其他决赛项目。
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:41 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:20 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:37 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:40 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:42 - [Gucci全球首席营销官发肖战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:22 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:44 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:29 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:34 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:20 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:38 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:35 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:47 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:27 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:44 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:45 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:20 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:47 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:37 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:38 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:46 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:30 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:18 - [法国过去5日死亡人数飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:47 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:21 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:30 - [鬼畜区全明星拼接遗憾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 11:18 - [派出所集体KTV招陪侍事发2年未通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:24 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:22 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:42 - [欧洲已有超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:23 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:40 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:19 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:35 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:19 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:38 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/86523415811.shtml)
+- 2026-06-29 11:46 - [陈露发声引舆论反转](http://www.share.minike.top/Article/details/050416838.shtml)
+- 2026-06-29 11:41 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/02198027.shtml)
+- 2026-06-29 11:27 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/2658960438.shtml)
+- 2026-06-29 11:38 - [F1奥地利正赛战报](https://www.share.minike.top/Article/details/79089.shtml)
+- 2026-06-29 11:42 - [欧洲已有超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/63460657007.shtml)
+- 2026-06-29 11:39 - [鬼畜区全明星拼接遗憾](http://www.blog.minike.top/Article/details/534053456262.shtml)
+- 2026-06-29 11:29 - [复盘葡萄牙逼平哥伦比亚](https://www.blog.minike.top/Article/details/193319280924.shtml)
+- 2026-06-29 11:42 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/986613612482.shtml)
+- 2026-06-29 11:37 - [赵今麦客串电影版开端](https://www.blog.minike.top/Article/details/001619840739.shtml)
+- 2026-06-29 11:47 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.minike.top/Article/details/64912100.shtml)
+- 2026-06-29 11:33 - [普京称考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/58754118518.shtml)
+- 2026-06-29 11:32 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/48125535011.shtml)
+- 2026-06-29 11:40 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/8542679.shtml)
+- 2026-06-29 11:46 - [扬名立万](http://www.share.kurohicncr.top/Article/details/130292.shtml)

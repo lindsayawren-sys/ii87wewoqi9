@@ -1,58 +1,61 @@
-# 美国债市：国债收盘涨跌互现 PCE数据温和后短端表现出色
+# 中信建投期货：5月14日农产品早报
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-美国国债收益率曲线周四扭转趋陡，以基本持平的10年期收益率为分界，短端收益率下行、长端收益率上行。5月PCE价格指数环比涨0.4%，低于0.5%的预估中值，数据公布后短端表现优异。早间数据发布后美债一度全线走高，随后涨势消退；一艘船在阿曼海岸附近遇袭、油价上涨后，长端收益率由跌转升。7年期美债发行结果稳健，中标收益率与发行前交易水平一致，市场反应有限。 纽约时间下午3点后不久，
+玉米：中性偏多 1．市场关注：小麦/稻谷饲用替代存在比例上限，市场对相关拍卖的利空消息逐渐消化，盘面出现利空阶段性出尽后的反弹，但本轮上涨幅度有限；饲用豆粕/玉米逐渐逼近物理安全垫；深加工报价持续向下试探，跌幅较为控制，部分收购价已出现回调；新季小麦与陈麦报价持续下调，饲用企业或调整替代比例接近理论上限。USDA新季评估中性偏多，美国及全球玉米期末库存将降至多年低位，供需格局较
 
 ## 正文
 
-美国国债收益率曲线周四扭转趋陡，以基本持平的10年期收益率为分界，短端收益率下行、长端收益率上行。
+玉米：中性偏多 1．市场关注：小麦/稻谷饲用替代存在比例上限，市场对相关拍卖的利空消息逐渐消化，盘面出现利空阶段性出尽后的反弹，但本轮上涨幅度有限；饲用豆粕/玉米逐渐逼近物理安全垫；深加工报价持续向下试探，跌幅较为控制，部分收购价已出现回调；新季小麦与陈麦报价持续下调，饲用企业或调整替代比例接近理论上限。
 
-5月PCE价格指数环比涨0.4%，低于0.5%的预估中值，数据公布后短端表现优异。
+USDA新季评估中性偏多，美国及全球玉米期末库存将降至多年低位，供需格局较本年度继续收紧，价格中枢同比上移。
 
-早间数据发布后美债一度全线走高，随后涨势消退；一艘船在阿曼海岸附近遇袭、油价上涨后，长端收益率由跌转升。
+玉米单边偏强预估未变，但需注意南美增产部分抵消了美国收紧幅度，价格上行节奏不会是流畅的单边上涨。
 
-7年期美债发行结果稳健，中标收益率与发行前交易水平一致，市场反应有限。
+2．观点总结：盘面出现利空消化后的回调，且此前一轮盘面对应的现货下降幅度有限，产业及渠道商方面信心充足，但谷物压制仍在，可考虑低位试多，月内运行区间2360-2420元/吨。
 
-纽约时间下午3点后不久，美国2年期国债收益率日内下跌约2.5个基点，而长端20年期和30年期收益率收盘均上涨近2个基点。
+豆粕：中性 1．海外市场基本消化USDA供需报告带来的利多，隔夜CBOT大豆小幅调整。
 
-美国10年期收益率报4.39%左右，接近周三收盘水平。
+近日聚焦中美领导人会晤能否达成新的美豆采购协议，随后交易重心将逐步转向6-8月美豆产区天气变化及新季单产兑现情况。
 
-WTI期货上涨，在美国与伊朗和平谈判之际，市场再度担忧货船通行安全。
+2．连盘豆粕短期主要跟随美盘运行，单边预计维持宽幅震荡。
 
-标普500指数基本持平，科技股波动再现，引发市场震荡。
+若后续国内新增美豆采购兑现推升美盘中枢，豆粕价格可能呈现盘面偏强（定价进口成本上移）、基差承压（定价供应增加）的组合。
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:19 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:35 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:46 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:43 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:18 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:38 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:25 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:41 - [韩国队主帅洪明甫下课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:23 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:41 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:32 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:43 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:42 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:43 - [中气爱：吐鲁番快50度了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:41 - [美国海军陆战队接收首批「无雷达」F-35，没有雷达在现代战争中意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:42 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:36 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:41 - [温瑞博袁励岑晋级美国大满贯男双16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:28 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:45 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:38 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:28 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:29 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:20 - [成都震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:36 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:38 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:22 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:35 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:44 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:47 - [加拿大1比0南非挺进16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:23 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:22 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:31 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:23 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:35 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:39 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:25 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:47 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:23 - [女心理师](http://www.share.minike.top/Article/details/4889252.shtml)
+- 2026-06-29 11:23 - [韩红携4000万物资抵呼和浩特](http://www.blog.minike.top/Article/details/5904618824.shtml)
+- 2026-06-29 11:30 - [洪明甫发布会没有提问环节](https://www.blog.minike.top/Article/details/3775431.shtml)
+- 2026-06-29 11:23 - [网友称千万别买路边切好的半个西瓜，是细菌「培养皿」，真是这样吗？鲜切西瓜有什么健康隐患？](https://www.share.kurohicncr.top/Article/details/033620393098.shtml)
+- 2026-06-29 11:40 - [毒液2](https://www.share.kurohicncr.top/Article/details/656086356.shtml)
+- 2026-06-29 11:24 - [洪明甫发布会没有提问环节](https://www.blog.minike.top/Article/details/427666396279.shtml)
+- 2026-06-29 11:23 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/119165664629.shtml)
+- 2026-06-29 11:25 - [曝韩国球员目睹出局时正吃饭](http://www.share.kurohicncr.top/Article/details/039229.shtml)
+- 2026-06-29 11:44 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/9242992.shtml)
+- 2026-06-29 11:25 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/995374143.shtml)
+- 2026-06-29 11:24 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/66134775.shtml)
+- 2026-06-29 11:43 - [亚洲成世界杯最大失意者联盟](https://www.share.kurohicncr.top/Article/details/95845.shtml)
+- 2026-06-29 11:29 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/70439629.shtml)
+- 2026-06-29 11:24 - [国乒男单资格赛全员出局](http://www.share.kurohicncr.top/Article/details/0780716378.shtml)
+- 2026-06-29 11:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/5892466014.shtml)

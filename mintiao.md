@@ -1,61 +1,59 @@
-# 摩根大通任命道格・佩特诺与特洛伊・罗尔博出任联席总裁
+# 追觅科技持续进化背后：一套面向未来的“三代研发”体系
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-核心要点 摩根大通于周四宣布提拔两位核心高管出任新设联席总裁，这是首席执行官杰米・戴蒙推进多年继任者计划的最新一步；与此同时，戴蒙最受关注的潜在继任人选之一正式宣布卸任退休。 根据监管申报文件，自 2024 年初起联合执掌该行商业银行与投资银行部门的道格・佩特诺、特洛伊・罗尔博即刻就任摩根大通联席总裁。 本次人事调整具体安排：佩特诺将单独出任商业银行与投资银行部门首席执行官；罗
+在当下智能时代，短期的爆款很难再支撑持续增长，企业需要的是能够跟上时代甚至引领时代的、持续进化的研发能力。追觅科技的成长路径，正是从核心技术突破出发，逐步走向体系化研发的过程。 成立于2017年的追觅科技，起源于清华大学“天空工场”。创业早期，追觅就选择在高速数字马达这一核心技术上打开突破口。对于扫地机而言，马达是决定吸力、效率、噪音和整机体验的基础，追觅不仅要攻克气动、电磁、
 
 ## 正文
 
-核心要点 摩根大通于周四宣布提拔两位核心高管出任新设联席总裁，这是首席执行官杰米・戴蒙推进多年继任者计划的最新一步；与此同时，戴蒙最受关注的潜在继任人选之一正式宣布卸任退休。
+在当下智能时代，短期的爆款很难再支撑持续增长，企业需要的是能够跟上时代甚至引领时代的、持续进化的研发能力。
 
-根据监管申报文件，自 2024 年初起联合执掌该行商业银行与投资银行部门的道格・佩特诺、特洛伊・罗尔博即刻就任摩根大通联席总裁。
+追觅科技的成长路径，正是从核心技术突破出发，逐步走向体系化研发的过程。
 
-本次人事调整具体安排：佩特诺将单独出任商业银行与投资银行部门首席执行官；罗尔博接任消费者及社区银行部门首席执行官，接替玛丽安娜・莱克的职务。
+成立于2017年的追觅科技，起源于清华大学“天空工场”。
 
-戴蒙在声明中表示：“董事会决定提拔道格与特洛伊担任联席总裁，执掌集团两大核心业务板块，这充分体现了董事会对二人卓越的领导能力、经营业绩、行业人脉、从业阅历，以及坚守职业操守的高度认可。
+创业早期，追觅就选择在高速数字马达这一核心技术上打开突破口。
 
-” 莱克在摩根大通任职长达 25 年，2013 年出任首席财务官后便一直位列戴蒙继任者候选名单，本次她决定从公司退休。
+对于扫地机而言，马达是决定吸力、效率、噪音和整机体验的基础，追觅不仅要攻克气动、电磁、驱动、电子等关键技术，也要兼顾减震、降噪、散热等实际量产中的各种难点。
 
-此次人事变动重塑了 70 岁戴蒙麾下的高管梯队。
+经过一系列努力和尝试，从材料、零部件、结构设计等每一处细节入手，追觅实现了10万转/分钟的技术突破。
 
-戴蒙多次公开表示，董事会内部多名高管都具备接任首席执行官的资质。
+此后，追觅又在这一领域深化研发，陆续克服了国外供应商响应时效性太慢、在全球几乎没有供应链可支持、没有任何可参考借鉴等难题，打破了固有经验主义，从大理论拆解到小理论，再通过无数次验证，攻克了从技术到设备的重重困难，实现了高速数字马达20万转量产，同时储备25万转。
 
-通过安排佩特诺与罗尔博分别执掌集团两大核心业务板块，并升任联席总裁，摩根大通让两位高管在关键阶段积累更全面的集团管理经验。
+这一步，是追觅研发能力的起点：先把关键技术掌握在自己手里。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:32 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:45 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:47 - [刘雨昕misslady好像群像热血番](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:30 - [热穹顶来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:19 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:47 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:27 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:18 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:28 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:41 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:43 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:45 - [立陶宛为何此时生变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:34 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:18 - [黄灿灿恭喜自己拿到全季通告费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:42 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:27 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:40 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:45 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:44 - [特里：法国是世界杯夺冠热门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:19 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:31 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:47 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:39 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:24 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:21 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:42 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:39 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:37 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:34 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:39 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:26 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:23 - [河南一考生高考703分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:39 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:41 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:44 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:36 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:23 - [小学生叠纸青蛙跳2.52米 创世界纪录](http://www.share.minike.top/Article/details/208767744.shtml)
+- 2026-06-29 11:43 - [本周做什么都顺的星座](http://www.blog.kurohicncr.top/Article/details/450603.shtml)
+- 2026-06-29 11:42 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/75032857158.shtml)
+- 2026-06-29 11:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/863940.shtml)
+- 2026-06-29 11:42 - [球迷玩人浪手机飞了](https://www.blog.minike.top/Article/details/00750.shtml)
+- 2026-06-29 11:20 - [AG 钟意](http://www.share.minike.top/Article/details/20197907.shtml)
+- 2026-06-29 11:40 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.minike.top/Article/details/4796764.shtml)
+- 2026-06-29 11:31 - [王中磊儿子邹市明儿子曹格儿子同框](https://www.blog.kurohicncr.top/Article/details/92986473466.shtml)
+- 2026-06-29 11:26 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.minike.top/Article/details/2887890653.shtml)
+- 2026-06-29 11:36 - [海清白玉兰奖运](http://www.blog.minike.top/Article/details/29790844.shtml)
+- 2026-06-29 11:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/920252219.shtml)
+- 2026-06-29 11:39 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/3842585903.shtml)
+- 2026-06-29 11:37 - [美加墨世界杯首支16强诞生](https://www.share.minike.top/Article/details/623113632.shtml)
+- 2026-06-29 11:33 - [灿如繁星定档](https://www.blog.minike.top/Article/details/277073.shtml)
+- 2026-06-29 11:20 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/23385703966.shtml)

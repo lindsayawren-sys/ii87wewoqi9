@@ -1,57 +1,56 @@
-# 万亿龙头股，大跌，成交额A股第一
+# 维珍银河2026年一季度财报前瞻：商业化前夜的关键转折点
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-今天上午，光模块龙头股中际旭创大跌，截至10：24，中际旭创下跌5.16%，成交额为193.83亿元，居A股第一，最新市值为1.4万亿元。 此外，“易中天”中的新易盛、天孚通信上午盘中也大跌。 消息面上，最近一些“站在光里”的热门基金开始限购了。 据统计，截至6月25日，仅以业绩排名前30的产品为例，已有超半数产品开启限购，业绩前十产品全部暂停大额申购。这些基金普遍重仓参与光通
+太空旅游公司维珍银河将于本周四收盘后发布2026年第一季度财报，市场正密切关注这家处于商业化前夜的公司能否在今年晚些时候如约重启商业飞行。 财报预期与近期轨迹 根据市场数据，分析师预计维珍银河本季度营收约为20万至24万美元，每股亏损预计在0.79至0.94美元之间。上一季度公司营收31.2万美元，每股亏损0.98美元，单季净亏损约6272万美元，亏损额较上年同期收窄约18%。
 
 ## 正文
 
-今天上午，光模块龙头股中际旭创大跌，截至10：24，中际旭创下跌5.16%，成交额为193.83亿元，居A股第一，最新市值为1.4万亿元。
+太空旅游公司维珍银河将于本周四收盘后发布2026年第一季度财报，市场正密切关注这家处于商业化前夜的公司能否在今年晚些时候如约重启商业飞行。
 
-此外，“易中天”中的新易盛、天孚通信上午盘中也大跌。
+财报预期与近期轨迹 根据市场数据，分析师预计维珍银河本季度营收约为20万至24万美元，每股亏损预计在0.79至0.94美元之间。
 
-消息面上，最近一些“站在光里”的热门基金开始限购了。
+上一季度公司营收31.2万美元，每股亏损0.98美元，单季净亏损约6272万美元，亏损额较上年同期收窄约18%。
 
-据统计，截至6月25日，仅以业绩排名前30的产品为例，已有超半数产品开启限购，业绩前十产品全部暂停大额申购。
+尽管营收规模微小，但亏损收窄趋势反映了公司在暂停商业飞行期间的成本控制成效。
 
-这些基金普遍重仓参与光通信产业链相关板块。
+商业化路线图：年底重启飞行 公司的核心看点在于全新的Delta级太空船计划。
 
-6月以来，频频出现相关基金宣告限购或进一步降低单日申购金额上限。
+管理层确认首艘太空船已进入地面测试阶段，预计第三季度开始飞行测试，目标在第四季度重启商业飞行，并逐步将飞行频率提升至每周约1次。
 
-例如，6月25日起，基金经理郑希管理的易方达信息产业混合、易方达信息行业精选股票均把申购金额上限降低至1万元。
+新太空船设计寿命可达500次飞行，远超老款。
 
-此前2只基金的申购金额上限分别为10万元、50万元。
+新票价为每座75万美元，较此前上调25%，首批发售50张。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:42 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:46 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:34 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:47 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 11:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:21 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:46 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:22 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:47 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:28 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:38 - [19家A股上市公司发布上半年业绩预告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:33 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:29 - [温峥嵘直播回应恶评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:41 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:21 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:24 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:40 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:36 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:48 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 11:30 - [巴拉圭能否打破世界杯淘汰赛进球荒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:28 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:38 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:30 - [韩媒一片哀嚎：没有奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:23 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 11:30 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:24 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:45 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:28 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:46 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:18 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:46 - [韩国队是怎么把自己“作死”的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:38 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:38 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:28 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/278194849543.shtml)
+- 2026-06-29 11:40 - [世界杯打成了欧洲杯和美洲杯](https://www.share.kurohicncr.top/Article/details/0526172201.shtml)
+- 2026-06-29 11:20 - [DeepSeek联合北京大学发布论文](http://www.blog.kurohicncr.top/Article/details/349081198447.shtml)
+- 2026-06-29 11:36 - [林诗栋晋级WTT美国大满贯男单32强](http://www.blog.kurohicncr.top/Article/details/579110162.shtml)
+- 2026-06-29 11:40 - [上周末 多领域成果密集“上新”](http://www.share.kurohicncr.top/Article/details/69213.shtml)
+- 2026-06-29 11:24 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/14141239.shtml)
+- 2026-06-29 11:48 - [BW2026游览指南](https://www.blog.minike.top/Article/details/53420.shtml)
+- 2026-06-29 11:34 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.share.kurohicncr.top/Article/details/2924791225.shtml)
+- 2026-06-29 11:27 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.kurohicncr.top/Article/details/9049116.shtml)
+- 2026-06-29 11:34 - [欧洲已有超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/8291929682.shtml)
+- 2026-06-29 11:25 - [我和我的家乡](http://www.blog.minike.top/Article/details/353990195.shtml)
+- 2026-06-29 11:33 - [哈尔滨“全城追菠萝蜜”](http://www.share.minike.top/Article/details/550718.shtml)
+- 2026-06-29 11:26 - [DSpark论文深度解读](https://www.share.minike.top/Article/details/021121108.shtml)
+- 2026-06-29 11:31 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.kurohicncr.top/Article/details/22528.shtml)
+- 2026-06-29 11:24 - [逃狱兄弟](http://www.blog.minike.top/Article/details/08623.shtml)

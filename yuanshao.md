@@ -1,48 +1,56 @@
-# 定海海洋农商银行获批增加注册资本至5.85亿元
+# 农牧渔板块掀涨停潮，华宝基金农牧渔ETF（159275）突发拉升逆市上探1.29%！机构高呼悲观预期或逐步扭转
 
-> 更新时间：2026-06-29 11:48:03 UTC+8
+> 更新时间：2026-06-29 11:48:44 UTC+8
 
 ## 摘要
 
-6月25日金融一线消息，国家金融监督管理总局舟山监管分局发布批复，同意定海海洋农商银行增加注册资本19778038元人民币，由565084200元人民币变更为584862238元人民币。 责任编辑：秦艺
+农牧渔板块今日（5月14日）午后突然拉升。全市场首只农牧渔ETF（159275）盘中场内价格涨幅一度达到1.29%，截至发稿，逆市涨0.75%。 成份股方面，畜牧养殖板块集体大涨，截至发稿，立华股份飙涨超11%，天邦食品、神农集团双双涨停，巨星农牧、民和股份、圣农发展等亦涨幅居前。 消息面上，近日相关部门召集多家猪企及协会、专家召开座谈会，交流当前国内生猪生产和猪肉流通消费、进
 
 ## 正文
 
-6月25日金融一线消息，国家金融监督管理总局舟山监管分局发布批复，同意定海海洋农商银行增加注册资本19778038元人民币，由565084200元人民币变更为584862238元人民币。
+农牧渔板块今日（5月14日）午后突然拉升。
 
-责任编辑：秦艺
+全市场首只农牧渔ETF（159275）盘中场内价格涨幅一度达到1.29%，截至发稿，逆市涨0.75%。
+
+成份股方面，畜牧养殖板块集体大涨，截至发稿，立华股份飙涨超11%，天邦食品、神农集团双双涨停，巨星农牧、民和股份、圣农发展等亦涨幅居前。
+
+消息面上，近日相关部门召集多家猪企及协会、专家召开座谈会，交流当前国内生猪生产和猪肉流通消费、进出口情况，分析我国猪周期变化形式、面临的风险挑战及下一步演变趋势。
+
+有机构认为，当前猪价拐点出现，政策端持续发力推动稳猪价、去产能，猪企业绩有望逐步改善。
+
+看好生猪养殖板块，淡季底部价格确认后，悲观预期有望逐步扭转，行业结构性成长趋势持续猪价回暖后养殖产业链利润有望逐步向下游传导，驱动动保板块上行。
+
+从估值方面来看，当前农牧渔板块估值水平仍处相对低位，当前或为板块较好配置时机。
+
+数据显示，截至上个交易日（5月8日）收盘，全市场首只农牧渔ETF（159275）标的指数中证全指农牧渔指数市净率为2.48倍，位于近5年来23.23%分位点的低位，中长期配置性价比凸显。
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:39 - [加拿大队史淘汰赛首胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:33 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:34 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:19 - [【自制动画】佐鸣抖肩舞！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:27 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:45 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:23 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:39 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:26 - [韩红现身呼和浩特助力百人援蒙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:32 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:46 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:39 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:29 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:34 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:41 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:36 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:38 - [中国版「星链」运营方启动新一轮增资，设50亿元投资门槛，明确拒绝境外资本，低轨卫星互联网为什么重要？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:44 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:41 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:47 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:36 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:27 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:47 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:24 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:21 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:25 - [李在明要调查韩国队出局原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:39 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:22 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:25 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:27 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:31 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:30 - [陈垣宇晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:37 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/50860407.shtml)
+- 2026-06-29 11:33 - [曝韩国球员目睹出局时正吃饭](http://www.blog.minike.top/Article/details/1693354.shtml)
+- 2026-06-29 11:42 - [韩国政府将对世界杯出局追责](http://www.share.minike.top/Article/details/493790.shtml)
+- 2026-06-29 11:39 - [中国避暑神器在欧洲卖爆了](http://www.share.minike.top/Article/details/3179019.shtml)
+- 2026-06-29 11:40 - [法国过去5日死亡人数飙升](http://www.share.kurohicncr.top/Article/details/2747698.shtml)
+- 2026-06-29 11:34 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.kurohicncr.top/Article/details/73314196874.shtml)
+- 2026-06-29 11:31 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.kurohicncr.top/Article/details/775607053.shtml)
+- 2026-06-29 11:21 - [起风了](http://www.share.kurohicncr.top/Article/details/342530.shtml)
+- 2026-06-29 11:27 - [腾讯回应做独立支付APP](https://www.share.minike.top/Article/details/663266.shtml)
+- 2026-06-29 11:43 - [欧洲极端高温东扩](http://www.share.minike.top/Article/details/379254578041.shtml)
+- 2026-06-29 11:30 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/6017871873.shtml)
+- 2026-06-29 11:36 - [韩国主帅辞职报告5分钟 双手插兜离场](https://www.blog.minike.top/Article/details/87634491.shtml)
+- 2026-06-29 11:26 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/2771575.shtml)
+- 2026-06-29 11:23 - [某高校学生被辅导员等人扭送至公安](https://www.share.kurohicncr.top/Article/details/02887204.shtml)
+- 2026-06-29 11:43 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/013726818986.shtml)
