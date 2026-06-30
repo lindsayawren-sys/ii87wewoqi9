@@ -1,56 +1,61 @@
-# 中方：保护主义只会损害欧洲消费者利益，削弱欧洲产业竞争力
+# 瑞银研究：资本新规或拖累瑞士经济
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网北京5月29日电 (记者 李京泽)外交部发言人毛宁29日主持例行记者会。 有记者提问：欧盟委员会今天举行一场会议，预计会上将推出一些措施，以保护欧洲工业免受来自中国竞争的冲击。中方对此有何评论？ 毛宁：中欧经贸关系的本质是互利共赢，中方从不刻意追求对欧洲的贸易顺差。保护主义只会损害欧洲消费者的利益，削弱欧洲产业的竞争力。我们希望欧方全面、客观地看待中欧经贸关系，恪守自由贸
+瑞银委托的一项研究显示，瑞士政府为瑞银提议的资本金要求可能对该国经济造成持续拖累，双方围绕银行业监管的角力正在升级。 在2023年瑞士信贷倒闭并由瑞银在国家主导的救助中接管后，瑞士正在收紧银行规则以增强金融稳定。 咨询公司BAK Economics在报告中称，政府的一项提案要求这家银行业巨头用普通股一级资本（CET1）全额支持其外国子公司，这可能在10年内使瑞士的年度国内生产总
 
 ## 正文
 
-中新网北京5月29日电 (记者 李京泽)外交部发言人毛宁29日主持例行记者会。
+瑞银委托的一项研究显示，瑞士政府为瑞银提议的资本金要求可能对该国经济造成持续拖累，双方围绕银行业监管的角力正在升级。
 
-有记者提问：欧盟委员会今天举行一场会议，预计会上将推出一些措施，以保护欧洲工业免受来自中国竞争的冲击。
+在2023年瑞士信贷倒闭并由瑞银在国家主导的救助中接管后，瑞士正在收紧银行规则以增强金融稳定。
 
-中方对此有何评论？
+咨询公司BAK Economics在报告中称，政府的一项提案要求这家银行业巨头用普通股一级资本（CET1）全额支持其外国子公司，这可能在10年内使瑞士的年度国内生产总值（GDP）减少1.3%至3.9%。
 
-毛宁：中欧经贸关系的本质是互利共赢，中方从不刻意追求对欧洲的贸易顺差。
+研究作者表示，瑞银确定了研究主题，而研究由BAK Economics独立进行，基于监管驱动的信贷收缩情景以及对实体经济连锁反应的模拟。
 
-保护主义只会损害欧洲消费者的利益，削弱欧洲产业的竞争力。
+根据BAK的模拟，这些影响会随时间累积。
 
-我们希望欧方全面、客观地看待中欧经贸关系，恪守自由贸易承诺。
+根据传导渠道的不同，预计十年内累计GDP损失在110亿至340亿瑞士法郎之间。
 
-中方也在密切关注有关动向，将采取必要措施维护自身的正当权益。
+研究指出，与周期性的利率冲击不同，监管驱动的借贷成本上升在本质上是结构性的，无法通过货币政策抵消。
 
-(完）
+分析仅聚焦于海外参与机构的CET1全额资本支持——这是唯一会单独影响瑞银的组成部分。
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 08:55 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 08:53 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 08:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 08:59 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 09:00 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 08:59 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 09:10 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 09:15 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 09:06 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 08:57 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md
+- 2026-06-30 09:06 - 一见倾心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md
+- 2026-06-30 09:05 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md
+- 2026-06-30 08:54 - 巴拉圭先进球了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md
+- 2026-06-30 09:01 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md
+- 2026-06-30 09:20 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md
+- 2026-06-30 09:10 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md
+- 2026-06-30 09:17 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md
+- 2026-06-30 09:10 - 球评巴西绝杀逆转日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md
+- 2026-06-30 08:55 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md
+- 2026-06-30 09:11 - 歌剧老师锐评歌手第6期<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md
+- 2026-06-30 09:15 - 董路：谁赢谁是“正路子”<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md
+- 2026-06-30 09:03 - 苗族银饰<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md
+- 2026-06-30 09:03 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md
+- 2026-06-30 09:07 - Melo向柳智敏张元英道歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:17 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.minike.top/Article/details/250535197.shtml)
-- 2026-06-30 08:57 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/145687717498.shtml)
-- 2026-06-30 09:06 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.kurohicncr.top/Article/details/60515225.shtml)
-- 2026-06-30 09:08 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/69081.shtml)
-- 2026-06-30 09:00 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/151666.shtml)
-- 2026-06-30 08:48 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/234256683.shtml)
-- 2026-06-30 08:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/29328196061.shtml)
-- 2026-06-30 08:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/7296416251.shtml)
-- 2026-06-30 09:10 - [杨紫肖战余生请多指教拍立得](https://www.share.kurohicncr.top/Article/details/435151.shtml)
-- 2026-06-30 09:04 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.minike.top/Article/details/3463082037.shtml)
-- 2026-06-30 08:58 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/2868676.shtml)
-- 2026-06-30 09:03 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/2953899507.shtml)
-- 2026-06-30 08:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/619810.shtml)
-- 2026-06-30 09:06 - [乔家的儿女](http://www.share.minike.top/Article/details/208317.shtml)
-- 2026-06-30 08:58 - [斗破苍穹](https://www.blog.minike.top/Article/details/6189566.shtml)
+- 2026-06-30 09:13 - 为什么会有「念旧」的心理？<br><br> | ??:https://www.share.minike.top/Article/details/480211617.shtml
+- 2026-06-30 09:23 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/82773.shtml
+- 2026-06-30 09:09 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:http://www.blog.minike.top/Article/details/60613000660.shtml
+- 2026-06-30 08:59 - 巴西绝杀<br><br> | ??:http://www.share.kurohicncr.top/Article/details/03593.shtml
+- 2026-06-30 09:19 - 如何改变自己太负责任的性格?<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/63278.shtml
+- 2026-06-30 09:15 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1265788.shtml
+- 2026-06-30 09:01 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://www.blog.minike.top/Article/details/72298930.shtml
+- 2026-06-30 09:06 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/16350038.shtml
+- 2026-06-30 09:07 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:http://www.share.minike.top/Article/details/777457.shtml
+- 2026-06-30 09:08 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://www.blog.minike.top/Article/details/66578993.shtml
+- 2026-06-30 09:18 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/32759794312.shtml
+- 2026-06-30 08:56 - 德国队回应爆冷淘汰<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/28402603.shtml
+- 2026-06-30 09:12 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/48517091.shtml
+- 2026-06-30 08:57 - 金牌调解<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/356233360777.shtml
+- 2026-06-30 08:55 - 豆包收费了，你还会用吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/02565.shtml

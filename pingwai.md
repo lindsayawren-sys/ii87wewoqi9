@@ -1,56 +1,59 @@
-# 中外专家在黄山共探数智技术驱动名录遗产可持续发展之路
+# 广东蕉岭县海外联谊会第二届第一次理事大会举行
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网黄山5月31日电 (记者 张强 孙自法)第五届联合国教科文组织名录遗产与可持续发展黄山对话会31日在安徽省黄山市举办。会上，来自18个国际组织、35个国家和地区的200多名代表，围绕“数智技术驱动名录遗产可持续发展”这一主题展开讨论。 中国科学院院士、联合国教科文组织国际自然与文化遗产空间技术中心(HIST)主任郭华东说，目前，全世界共有1248项世界遗产，785处世界生
+汇智融湾促发展，同心致远赴新程。4月16日，蕉岭县海外联谊会第二届第一次理事大会举行，选举产生了新一届理事会领导机构。大家共叙桑梓情谊，共谋发展大计。 县委书记、蕉华工业园区党委书记刘鸿涛，市委统战部副部长、市民宗局局长、市海外联谊会常务副会长蓝建辉，市委台港澳办副主任李燕玲，县委常委、统战部部长、县海联会第二届理事会会长丘文慈，副县长张慧，县政协副主席汤超宏出席会议，并分别为
 
 ## 正文
 
-中新网黄山5月31日电 (记者 张强 孙自法)第五届联合国教科文组织名录遗产与可持续发展黄山对话会31日在安徽省黄山市举办。
+汇智融湾促发展，同心致远赴新程。
 
-会上，来自18个国际组织、35个国家和地区的200多名代表，围绕“数智技术驱动名录遗产可持续发展”这一主题展开讨论。
+4月16日，蕉岭县海外联谊会第二届第一次理事大会举行，选举产生了新一届理事会领导机构。
 
-中国科学院院士、联合国教科文组织国际自然与文化遗产空间技术中心(HIST)主任郭华东说，目前，全世界共有1248项世界遗产，785处世界生物圈保护区，229个世界地质公园。
+大家共叙桑梓情谊，共谋发展大计。
 
-随着科技创新的快速发展，国际保护界愈加认识到空间技术等数智技术在遗产识别、监测、评估、展示和管理中的重要作用。
+县委书记、蕉华工业园区党委书记刘鸿涛，市委统战部副部长、市民宗局局长、市海外联谊会常务副会长蓝建辉，市委台港澳办副主任李燕玲，县委常委、统战部部长、县海联会第二届理事会会长丘文慈，副县长张慧，县政协副主席汤超宏出席会议，并分别为新当选的蕉岭县海外联谊会第二届理事会会长、名誉会长、副会长、秘书长及理事颁发任职证书。
 
-郭华东建议，要推动自然和人文社会科学的交叉融合，构建基于数智技术的遗产保护理论体系；加强名录遗产教育，构建名录遗产保护的学科体系和人才体系；深化数字科技的创新应用，构建名录遗产保护的数字技术创新体系。
+蓝建辉对大会的召开表示祝贺，希望蕉岭县海外联谊会以乡情亲情为纽带，扎实做好港澳台同胞和海外侨胞联络服务工作，积极开展探亲寻根、文旅交流、投资考察等活动，增进情感认同。
 
-黄山风景区管委会正高级工程师梁焱说，黄山风景区正全面拥抱AI，为游客提供“AI伴游”的智能规划与讲解；管理者则依靠“智慧大脑”实现客流精准预测与疏导。
+要发挥“联”的优势，依托同乡社团、商会组织、侨社平台等，吸引更多项目、资金、人才汇聚蕉岭，凝聚高质量发展合力。
 
-此外，无人机穿梭山林进行物资运输与巡检，外骨骼设备也已投入使用，帮助游客轻松登山。
+要牢牢把握外事工作的正确政治方向，提升为“侨”服务效能，努力打造海内外同胞共济的人民之家。
 
-据梁焱介绍，黄山世界地质公园博物馆全新开放后，一个以黄山短尾猴为原型的对话式AI数字人，将正式与游客见面。
+丘文慈表示，蕉岭县海外联谊会将深耕乡情联络，进一步拓展与全球各地蕉岭同乡会、社团组织的合作，积极开展招商引资、招才引智，通过举办经贸、文化、宗亲联谊等活动，让海内外乡亲了解家乡历史、认同客家文化，让跨越山海的文化基因代代相传。
 
 ## 相关推荐
 
-- 2026-06-30 08:48 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 08:49 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 09:13 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 09:08 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 08:50 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 08:49 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 09:03 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 09:17 - [存储芯片龙头提示风险](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 09:01 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 09:17 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 09:19 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md
+- 2026-06-30 09:19 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md
+- 2026-06-30 09:10 - 德国进球被吹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md
+- 2026-06-30 09:01 - 德国队世界杯点球大战首败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md
+- 2026-06-30 09:18 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md
+- 2026-06-30 09:22 - 巴西2-1绝杀日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md
+- 2026-06-30 09:15 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md
+- 2026-06-30 09:16 - 郑钦文温网一轮游<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md
+- 2026-06-30 09:21 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md
+- 2026-06-30 09:04 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md
+- 2026-06-30 09:06 - 哈弗茨头球破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md
+- 2026-06-30 09:04 - 《共患难》<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md
+- 2026-06-30 09:13 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:01 - [《名肘探科比》：科比大战裂口女](https://www.blog.minike.top/Article/details/50890.shtml)
-- 2026-06-30 08:58 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/1013560.shtml)
-- 2026-06-30 09:07 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](https://www.blog.kurohicncr.top/Article/details/0492605258.shtml)
-- 2026-06-30 09:06 - [4000美元是黄金新一轮下跌的开始吗](http://www.share.kurohicncr.top/Article/details/236090761340.shtml)
-- 2026-06-30 08:59 - [峡谷事故团队组队时有人提醒会下雨](https://www.share.minike.top/Article/details/08892964.shtml)
-- 2026-06-30 09:00 - [第3集丨“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/129729089415.shtml)
-- 2026-06-30 09:16 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/284869139.shtml)
-- 2026-06-30 09:07 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/4615860945.shtml)
-- 2026-06-30 09:16 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/20218327.shtml)
-- 2026-06-30 09:05 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/607359715543.shtml)
-- 2026-06-30 08:54 - [德国进球被吹](https://www.blog.kurohicncr.top/Article/details/43896192.shtml)
-- 2026-06-30 09:07 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/30069.shtml)
-- 2026-06-30 09:11 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/86976316.shtml)
-- 2026-06-30 09:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/1247000650.shtml)
-- 2026-06-30 09:01 - [点球大战](https://www.blog.kurohicncr.top/Article/details/982776565.shtml)
+- 2026-06-30 09:14 - 内马尔中场休息积极鼓励队友<br><br> | ??:http://www.share.minike.top/Article/details/08088397.shtml
+- 2026-06-30 08:58 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:http://www.share.kurohicncr.top/Article/details/31672.shtml
+- 2026-06-30 09:23 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.minike.top/Article/details/6703455822.shtml
+- 2026-06-30 09:01 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:http://www.blog.minike.top/Article/details/802465946.shtml
+- 2026-06-30 09:15 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/060270893.shtml
+- 2026-06-30 09:19 - 速度与激情9<br><br> | ??:http://www.share.kurohicncr.top/Article/details/532431599.shtml
+- 2026-06-30 09:06 - 巴西若输日本将创36年最差纪录<br><br> | ??:http://www.share.minike.top/Article/details/79770.shtml
+- 2026-06-30 08:58 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:http://www.blog.minike.top/Article/details/76833926.shtml
+- 2026-06-30 08:55 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/789684826.shtml
+- 2026-06-30 09:17 - 如果有二次元高中是什么样子的？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/23737767060.shtml
+- 2026-06-30 09:06 - 俄乌双方伤亡近180万人<br><br> | ??:https://www.share.kurohicncr.top/Article/details/954949617576.shtml
+- 2026-06-30 09:21 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://www.blog.minike.top/Article/details/0308859.shtml
+- 2026-06-30 09:19 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8595876.shtml
+- 2026-06-30 09:22 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:http://www.share.minike.top/Article/details/33880.shtml
+- 2026-06-30 09:13 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.share.minike.top/Article/details/3947426730.shtml

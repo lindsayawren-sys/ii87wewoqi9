@@ -1,61 +1,61 @@
-# 探访雄安新区首家具身智能训练场
+# 桂台各民族欢度“广西三月三”
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新社河北雄安5月29日电 题：探访雄安新区首家具身智能训练场 作者 裴国荣 韩冰 邢璐 “欢迎来到机器人训练场，我是迎宾机器人‘小雄’，这里是我们的‘机器人课堂’。”在中国雄安集团数字城市科技有限公司具身智能训练场入口，“小雄”声音清晰地欢迎着到访者。 在训练场里，不同功能的机器人正忙着上“启蒙课”——学习烤面包、搬货物、超市售卖等各类工作技能。 作为雄安新区首家具身智能训练
+中新社南宁4月17日电 (蒋雪林 伦俊芝)“参加壮锦织造技艺体验是我第一次在大陆体验手作DIY，这种体验很特别。”来自台北的李宜霏17日在广西南宁接受中新社记者采访时说。 当天，作为桂台各民族欢度“广西三月三”系列活动之一，“邕台少数民族民俗文化交流周”在南宁举办。来自台湾的少数民族参访团与广西各族同胞欢聚一堂，共同体验壮乡民俗。 在非遗体验工坊，40多位两岸同胞共同参与壮锦织
 
 ## 正文
 
-中新社河北雄安5月29日电 题：探访雄安新区首家具身智能训练场 作者 裴国荣 韩冰 邢璐 “欢迎来到机器人训练场，我是迎宾机器人‘小雄’，这里是我们的‘机器人课堂’。
+中新社南宁4月17日电 (蒋雪林 伦俊芝)“参加壮锦织造技艺体验是我第一次在大陆体验手作DIY，这种体验很特别。
 
-”在中国雄安集团数字城市科技有限公司具身智能训练场入口，“小雄”声音清晰地欢迎着到访者。
+”来自台北的李宜霏17日在广西南宁接受中新社记者采访时说。
 
-在训练场里，不同功能的机器人正忙着上“启蒙课”——学习烤面包、搬货物、超市售卖等各类工作技能。
+当天，作为桂台各民族欢度“广西三月三”系列活动之一，“邕台少数民族民俗文化交流周”在南宁举办。
 
-作为雄安新区首家具身智能训练场，不同厂商生产的机器人统一集中在这里训练。
+来自台湾的少数民族参访团与广西各族同胞欢聚一堂，共同体验壮乡民俗。
 
-业务经理曹悦介绍，训练场采用1：1实景还原，打造迎宾导览、工业搬运、家居生活、商业零售、物流装配五大真实场景，可让不同机器人掌握相应技能。
+在非遗体验工坊，40多位两岸同胞共同参与壮锦织造、恭城油茶等非遗技艺体验。
 
-家居生活场景区内，22岁的具身智能训练师刘蕊头戴VR眼镜，手握操控手柄遥控机器人烤面包，她专注地一遍遍缓慢“牵引”机器人完成取面包、对准卡槽、精准放入早餐机等动作。
+在非遗传承人指导下，台湾同胞编织壮锦纹样、制作福马挂件。
 
-“这个手把手‘教导’的过程是数据采集，一个动作需要高精准地重复采集数百上千次。
+4月16日，2026年中华一家亲——桂台各民族欢度“广西三月三”大联欢活动在南宁举行。
 
-”刘蕊说，机器人没有人类举一反三的能力，每一次示范都会因角度、力度的细微差异产生不同数据，只有足够的数据采集才能过滤掉误差，沉淀出有效数据。
+李宜霏表示，活动上，她了解到台湾花莲县织娘连美惠多年来奔走于两岸之间，深入广西上百个村寨，与壮、瑶等民族织娘交流学习，寻找桂台两地织锦文化的相同之处。
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [iPhoneUltra黑色机模](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 09:08 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 08:54 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 09:13 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 08:58 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 08:51 - [日本队主帅道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 08:59 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 09:08 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 08:52 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 09:10 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 09:07 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 09:09 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 09:12 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 09:11 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 08:50 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-30 08:55 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md
+- 2026-06-30 08:55 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md
+- 2026-06-30 08:58 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md
+- 2026-06-30 09:21 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md
+- 2026-06-30 08:57 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md
+- 2026-06-30 09:18 - 爱很美味<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md
+- 2026-06-30 08:58 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md
+- 2026-06-30 09:15 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md
+- 2026-06-30 08:56 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md
+- 2026-06-30 08:57 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md
+- 2026-06-30 09:07 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md
+- 2026-06-30 09:00 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md
+- 2026-06-30 09:23 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md
+- 2026-06-30 09:02 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md
+- 2026-06-30 08:57 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:50 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/1387931541.shtml)
-- 2026-06-30 08:50 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/031176653727.shtml)
-- 2026-06-30 09:13 - [第一炉香](https://www.share.kurohicncr.top/Article/details/0957370815.shtml)
-- 2026-06-30 09:05 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/89102603.shtml)
-- 2026-06-30 09:08 - [板面：为什么那么多人爱吃？？！](http://www.blog.minike.top/Article/details/3613272018.shtml)
-- 2026-06-30 09:05 - [陈幸同晋级WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/98361.shtml)
-- 2026-06-30 09:05 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/998026.shtml)
-- 2026-06-30 09:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/287645.shtml)
-- 2026-06-30 08:50 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/735827.shtml)
-- 2026-06-30 09:05 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/505646586520.shtml)
-- 2026-06-30 09:06 - [妻子撞死家暴丈夫案二审案情反转](http://www.share.kurohicncr.top/Article/details/250219128940.shtml)
-- 2026-06-30 09:17 - [锐评T1战胜KC](https://www.blog.minike.top/Article/details/036408572304.shtml)
-- 2026-06-30 08:50 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/21428937893.shtml)
-- 2026-06-30 09:05 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.kurohicncr.top/Article/details/15771782269.shtml)
-- 2026-06-30 08:58 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.minike.top/Article/details/025860.shtml)
+- 2026-06-30 09:16 - 中国对日本再出重拳<br><br> | ??:http://www.blog.minike.top/Article/details/9409462.shtml
+- 2026-06-30 09:14 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2100262.shtml
+- 2026-06-30 09:21 - 巴西绝杀<br><br> | ??:http://www.share.kurohicncr.top/Article/details/45449724527.shtml
+- 2026-06-30 09:19 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://www.blog.minike.top/Article/details/2080000875.shtml
+- 2026-06-30 09:23 - 郑钦文 四年一轮游<br><br> | ??:http://www.share.kurohicncr.top/Article/details/50655.shtml
+- 2026-06-30 08:56 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4912303760.shtml
+- 2026-06-30 08:54 - 如何改变自己太负责任的性格?<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/316791166.shtml
+- 2026-06-30 09:23 - 董卿母亲癌症去世<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/26254.shtml
+- 2026-06-30 09:17 - 莫兰特转投开拓者效力<br><br> | ??:http://www.share.minike.top/Article/details/968859.shtml
+- 2026-06-30 09:21 - 国务院：探索延长义务教育年限<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/867679.shtml
+- 2026-06-30 09:19 - 德国身价是巴拉圭6倍<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0498338670.shtml
+- 2026-06-30 09:23 - 董路：谁赢谁是“正路子”<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/452437142.shtml
+- 2026-06-30 09:16 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/294328689.shtml
+- 2026-06-30 09:08 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:http://www.share.minike.top/Article/details/8038034.shtml
+- 2026-06-30 08:55 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/273206443871.shtml

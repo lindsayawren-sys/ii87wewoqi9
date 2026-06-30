@@ -1,59 +1,57 @@
-# 花小钱办大事？警惕莲花控股市值管理新套路 算力布局三年大单“抛锚”贡献仍小
+# 法国列车制造商阿尔斯通股价暴跌 因项目延迟导致业绩指引撤销
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：近期莲花控股股价被爆炒背后，一方面公司跨界接盘ABF膜标的，另一方面投资AI独角兽阶跃星辰。然而，公司曾三年期布局算力转型成效甚微，大单遭遇终止。值得注意的是，公司曾因蹭热点信披违规受罚。此次接连跨界动作究竟为转型还是为市值讲故事？ 近期，三重叙事引爆算力租赁市场。 其一，
+法国的阿尔斯通创下两年多来的最大跌幅，之前该列车制造商撤销了本财年的业绩指引，其新任首席执行官Martin Sion称原因是铁路列车关键项目进展缓慢。 这家周四夜间放弃了原定目标，即在截止于2027年3月的当前财年内获得累计15亿欧元（18亿美元）的自由现金流。而且，同期其也将无法实现至多10%的调整后EBIT利润率目标。 该公司股价在巴黎市场一度暴跌36%，创2023年10月
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：近期莲花控股股价被爆炒背后，一方面公司跨界接盘ABF膜标的，另一方面投资AI独角兽阶跃星辰。
+法国的阿尔斯通创下两年多来的最大跌幅，之前该列车制造商撤销了本财年的业绩指引，其新任首席执行官Martin Sion称原因是铁路列车关键项目进展缓慢。
 
-然而，公司曾三年期布局算力转型成效甚微，大单遭遇终止。
+这家周四夜间放弃了原定目标，即在截止于2027年3月的当前财年内获得累计15亿欧元（18亿美元）的自由现金流。
 
-值得注意的是，公司曾因蹭热点信披违规受罚。
+而且，同期其也将无法实现至多10%的调整后EBIT利润率目标。
 
-此次接连跨界动作究竟为转型还是为市值讲故事？
+该公司股价在巴黎市场一度暴跌36%，创2023年10月以来最大盘中跌幅。
 
-近期，三重叙事引爆算力租赁市场。
+该股今年以来已累计下跌约38%。
 
-其一，供需失衡下的涨价预期。
+本月刚刚上任的CEO表示：“严密规划和严格执行对本行业至关重要，而一些大型轨道车辆项目的推进速度慢于预期，对短期利润率和现金流造成了压力。
 
-国家数据局数据显示，截至2026年3月，我国日均Token调用量已突破140万亿，较两年前增长超千倍。
+” 阿尔斯通并未具体说明是哪些项目和地区受到延误的影响。
 
-与此同时，高端GPU供应链持续紧张，相关芯片交付周期延长至6-7个月，导致算力租赁价格大幅上涨，供需格局呈现显著的卖方市场特征。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 09:02 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 09:00 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 09:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 09:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 09:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 09:14 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 08:59 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 09:16 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 08:59 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 09:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 09:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 09:04 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 09:01 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md
+- 2026-06-30 09:00 - 千万不要随便扣肚脐<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md
+- 2026-06-30 09:23 - 一见倾心<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md
+- 2026-06-30 09:22 - 杨紫获白玉兰视后争议不止<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md
+- 2026-06-30 09:13 - 郑钦文温网首轮出局<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md
+- 2026-06-30 08:54 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md
+- 2026-06-30 08:59 - 高质量发展看新疆<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md
+- 2026-06-30 09:06 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md
+- 2026-06-30 09:16 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md
+- 2026-06-30 08:58 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md
+- 2026-06-30 09:09 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [孙颖莎王楚钦晋级8强](http://www.blog.minike.top/Article/details/552359.shtml)
-- 2026-06-30 08:53 - [德国队连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/2725566712.shtml)
-- 2026-06-30 08:54 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.kurohicncr.top/Article/details/38478.shtml)
-- 2026-06-30 09:00 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/52851652.shtml)
-- 2026-06-30 08:58 - [曝老詹对自由市场态度与以往截然不同](http://www.share.kurohicncr.top/Article/details/8927176247.shtml)
-- 2026-06-30 08:54 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/879380779318.shtml)
-- 2026-06-30 08:58 - [警方介入洪明甫死亡威胁](https://www.share.minike.top/Article/details/47524738229.shtml)
-- 2026-06-30 09:01 - [快递到家不能这样拆](http://www.blog.kurohicncr.top/Article/details/187352.shtml)
-- 2026-06-30 09:15 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/85185941.shtml)
-- 2026-06-30 08:50 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/5477788076.shtml)
-- 2026-06-30 08:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/12260.shtml)
-- 2026-06-30 09:08 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/2977609796.shtml)
-- 2026-06-30 09:06 - [斗破苍穹](http://www.share.minike.top/Article/details/95870057816.shtml)
-- 2026-06-30 09:08 - [点球淘汰德国 巴拉圭首都陷入疯狂](http://www.blog.minike.top/Article/details/45295577.shtml)
-- 2026-06-30 09:02 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/154001699510.shtml)
+- 2026-06-30 09:15 - 《名肘探科比》：科比大战裂口女<br><br> | ??:http://www.blog.minike.top/Article/details/287489443333.shtml
+- 2026-06-30 09:12 - 萨内 看笑了<br><br> | ??:https://www.share.kurohicncr.top/Article/details/23130407433.shtml
+- 2026-06-30 09:19 - 杨紫获白玉兰视后为何争议难平<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6370294.shtml
+- 2026-06-30 09:19 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:http://www.share.minike.top/Article/details/781147329155.shtml
+- 2026-06-30 09:00 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://www.share.minike.top/Article/details/60436168456.shtml
+- 2026-06-30 08:56 - 锐评T1战胜KC<br><br> | ??:http://www.blog.minike.top/Article/details/05653064.shtml
+- 2026-06-30 08:55 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/4218550581.shtml
+- 2026-06-30 09:15 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://www.share.kurohicncr.top/Article/details/45027.shtml
+- 2026-06-30 08:55 - 周冬雨多次说演不了话剧文城<br><br> | ??:http://www.blog.minike.top/Article/details/5313780822.shtml
+- 2026-06-30 08:58 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9112198003.shtml
+- 2026-06-30 09:11 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/8743414875.shtml
+- 2026-06-30 09:21 - 德国巴拉圭进入点球大战<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/432963002.shtml
+- 2026-06-30 09:06 - 《名肘探科比》：科比大战裂口女<br><br> | ??:http://www.share.kurohicncr.top/Article/details/489077546.shtml
+- 2026-06-30 08:55 - 德国队世界杯点球大战首败<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9279859.shtml
+- 2026-06-30 09:13 - 蜘蛛侠:英雄归来<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/662207917386.shtml

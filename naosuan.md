@@ -1,58 +1,58 @@
-# 韩国公布加强私营部门网络安全措施
+# 美国防部或针对古巴采取军事行动？ 中方回应
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-韩国政府周五宣布了一系列旨在加强私营部门网络安全响应体系的措施。 韩国科技信息通信部表示，该计划是在第九届科技部长会议上公布的。人工智能（AI）领域的快速发展极大地加速了软件漏洞的发现和利用，而这又极大地促进了此类漏洞的传播。 根据该计划，韩国政府将在国家安全厅下设立一套应急系统，利用人工智能技术检测软件漏洞、修复漏洞并联合应对网络安全事件。 此外，政府还将在韩国互联网安全局（
+中新网北京4月17日电 (记者 张蔚然)中国外交部发言人郭嘉昆17日主持例行记者会。 有记者提问：世界各国将庆祝古巴在“猪湾事件”中取得的胜利，并谴责美国不断强化对古巴的封锁。中国不仅在口头上声援古巴，还为古巴提供了诸多支持。据美国媒体报道，本周美国国防部正准备针对古巴采取可能的军事行动。请问中方有何评论？ 郭嘉昆：中方一贯坚决反对使用武力，侵犯别国主权安全，坚定支持古巴维护国
 
 ## 正文
 
-韩国政府周五宣布了一系列旨在加强私营部门网络安全响应体系的措施。
+中新网北京4月17日电 (记者 张蔚然)中国外交部发言人郭嘉昆17日主持例行记者会。
 
-韩国科技信息通信部表示，该计划是在第九届科技部长会议上公布的。
+有记者提问：世界各国将庆祝古巴在“猪湾事件”中取得的胜利，并谴责美国不断强化对古巴的封锁。
 
-人工智能（AI）领域的快速发展极大地加速了软件漏洞的发现和利用，而这又极大地促进了此类漏洞的传播。
+中国不仅在口头上声援古巴，还为古巴提供了诸多支持。
 
-根据该计划，韩国政府将在国家安全厅下设立一套应急系统，利用人工智能技术检测软件漏洞、修复漏洞并联合应对网络安全事件。
+据美国媒体报道，本周美国国防部正准备针对古巴采取可能的军事行动。
 
-此外，政府还将在韩国互联网安全局（KISA）下设立一个漏洞管理中心，负责漏洞的检测和修复工作。
+请问中方有何评论？
 
-在私营部门，政府将监测约1200家关键行业（包括金融和医疗领域）主要企业的网络安全准备情况。
+郭嘉昆：中方一贯坚决反对使用武力，侵犯别国主权安全，坚定支持古巴维护国家主权，反对外来干涉。
 
-对于规模较小的企业，政府计划提供技术支持，例如网络工具，以帮助其提升网络安全能力。
-
-政府还计划扩大与大型科技公司的合作，包括近期与OpenAI的合作，以及与友好国家相关机构在数字防御响应和信息共享方面的合作。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 09:00 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 09:00 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 08:51 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 09:16 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 08:56 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 08:55 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 09:03 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 09:13 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 08:56 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 08:57 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 08:49 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 08:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 09:19 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md
+- 2026-06-30 09:11 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md
+- 2026-06-30 09:08 - 沉睡花园<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md
+- 2026-06-30 09:02 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md
+- 2026-06-30 09:18 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md
+- 2026-06-30 08:59 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md
+- 2026-06-30 09:20 - 2021湖南卫视跨年演唱会<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md
+- 2026-06-30 09:06 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md
+- 2026-06-30 09:00 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md
+- 2026-06-30 09:23 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md
+- 2026-06-30 09:21 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md
+- 2026-06-30 09:03 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md
+- 2026-06-30 09:15 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md
+- 2026-06-30 09:21 - 德国巴拉圭加时<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:12 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/0534124.shtml)
-- 2026-06-30 09:03 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/90654562485.shtml)
-- 2026-06-30 09:10 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/48992902833.shtml)
-- 2026-06-30 09:07 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/610637.shtml)
-- 2026-06-30 09:10 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/770206.shtml)
-- 2026-06-30 09:00 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/8300606.shtml)
-- 2026-06-30 08:52 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.share.kurohicncr.top/Article/details/6819571.shtml)
-- 2026-06-30 09:05 - [人民锐评网红诋毁袁隆平造谣企业家](http://www.share.kurohicncr.top/Article/details/673711595956.shtml)
-- 2026-06-30 09:09 - [乔家的儿女](http://www.blog.minike.top/Article/details/268784434.shtml)
-- 2026-06-30 08:49 - [德国队回应爆冷淘汰](https://www.share.minike.top/Article/details/90265.shtml)
-- 2026-06-30 09:01 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/92735.shtml)
-- 2026-06-30 09:02 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/68342597298.shtml)
-- 2026-06-30 09:04 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/8196260568.shtml)
-- 2026-06-30 09:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/77864.shtml)
-- 2026-06-30 08:52 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/46258438.shtml)
+- 2026-06-30 08:56 - 青春环游记第三季<br><br> | ??:https://www.share.minike.top/Article/details/798620.shtml
+- 2026-06-30 09:00 - 安切洛蒂 换人<br><br> | ??:https://www.share.kurohicncr.top/Article/details/53991.shtml
+- 2026-06-30 08:57 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.blog.minike.top/Article/details/25590005451.shtml
+- 2026-06-30 08:56 - 请回答王牌2019<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0258846514.shtml
+- 2026-06-30 09:07 - 锐评T1战胜KC<br><br> | ??:https://www.share.minike.top/Article/details/3423177.shtml
+- 2026-06-30 09:11 - 安切洛蒂 换人<br><br> | ??:http://www.blog.minike.top/Article/details/077965121.shtml
+- 2026-06-30 09:10 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:https://www.blog.minike.top/Article/details/2792000518.shtml
+- 2026-06-30 09:14 - 找到了10年前跪舔b站的视频<br><br> | ??:https://www.blog.minike.top/Article/details/64349882.shtml
+- 2026-06-30 09:15 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:http://www.share.kurohicncr.top/Article/details/13546.shtml
+- 2026-06-30 09:11 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://www.blog.minike.top/Article/details/49350269.shtml
+- 2026-06-30 09:14 - 安切洛蒂 换人<br><br> | ??:http://www.share.kurohicncr.top/Article/details/58328.shtml
+- 2026-06-30 09:07 - 明星大侦探第四季<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5676926.shtml
+- 2026-06-30 08:59 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://www.share.minike.top/Article/details/04209777.shtml
+- 2026-06-30 09:21 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/69424976.shtml
+- 2026-06-30 08:59 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/830562657790.shtml

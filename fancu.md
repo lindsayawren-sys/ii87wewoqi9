@@ -1,56 +1,58 @@
-# 专家学者齐聚广西梧州 探讨再生金属材料产业高质量发展路径
+# “疑似被鼠药污染”，国际知名婴幼儿食品，多国下架！
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网梧州5月31日电(张广权 甘沁雨 蒙敏莹)5月29日至31日，2026(第三届)中国再生有色金属科技大会在广西梧州市举办。本次大会以“城市矿山聚梧州，科技引领铸新材”为主题，汇聚行业科研精英、专家学者、技术从业者，共同探讨行业发展的前沿技术与创新路径。 大会期间，与会院士及专家围绕大会亮点、产业前景及梧州再生金属材料产业发展优势等议题展开讨论。 当前，梧州正着力打造国家级
+当地时间4月19日，欧洲知名婴幼儿食品生产商喜宝(HiPP)公司表示，在捷克和斯洛伐克发现了疑似被鼠药污染的该品牌婴幼儿罐装食品。公司声明称“在调查过程中确认，这些食品明显被人为动过手脚”。 喜宝公司表示，出于预防措施，两国的零售商已将所有该品牌婴幼儿罐装食品从货架上撤下。 捷克卫生监督系统在社交平台上表示：“卫生部门正与其他机构密切合作，持续监测事态发展。请公众保持高度警惕。
 
 ## 正文
 
-中新网梧州5月31日电(张广权 甘沁雨 蒙敏莹)5月29日至31日，2026(第三届)中国再生有色金属科技大会在广西梧州市举办。
+当地时间4月19日，欧洲知名婴幼儿食品生产商喜宝(HiPP)公司表示，在捷克和斯洛伐克发现了疑似被鼠药污染的该品牌婴幼儿罐装食品。
 
-本次大会以“城市矿山聚梧州，科技引领铸新材”为主题，汇聚行业科研精英、专家学者、技术从业者，共同探讨行业发展的前沿技术与创新路径。
+公司声明称“在调查过程中确认，这些食品明显被人为动过手脚”。
 
-大会期间，与会院士及专家围绕大会亮点、产业前景及梧州再生金属材料产业发展优势等议题展开讨论。
+喜宝公司表示，出于预防措施，两国的零售商已将所有该品牌婴幼儿罐装食品从货架上撤下。
 
-当前，梧州正着力打造国家级再生金属材料产业集群。
+捷克卫生监督系统在社交平台上表示：“卫生部门正与其他机构密切合作，持续监测事态发展。
 
-“本次会议以再生有色金属为主题，有利于中国化解资源供给矛盾。
+请公众保持高度警惕。
 
-”南昌大学物理与材料学院院长张深根认为，这次大会精准契合梧州再生金属材料产业的发展方向，汇聚全国再生行业科创资源，将有力助推梧州再生金属材料产业实现高质量发展。
+”如果有人怀疑自己购买了被污染的食品，应联系当地的卫生监督机构。
 
-俄罗斯自然科学院院士、上海第二工业大学资源与环境工程学院院长周全法表示，广西官方高度重视再生金属材料产业发展。
+此前，奥地利卫生与食品安全局通报称，身份未明的不法人员向喜宝公司发送勒索邮件，声称已向其部分产品投放鼠药。
 
-近年来，梧州再生金属材料产业发展势头迅猛，多家行业龙头企业相继落户，为全国再生金属材料产业发展作出重要贡献。
+经调查，在奥地利布尔根兰州首府艾森施塔特的一家SPAR超市发现数罐胡萝卜土豆泥食品“疑似被鼠药污染”，其容器被贴上白色贴纸、标上一个红圈。
 
 ## 相关推荐
 
-- 2026-06-30 09:00 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 09:12 - [《名肘探科比》：科比大战裂口女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 09:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 09:05 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-30 09:04 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 08:53 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 08:51 - [马航370搜寻最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 09:12 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 09:13 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 09:00 - [内马尔安慰日本球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 09:00 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md
+- 2026-06-30 08:54 - 佐野海舟远射破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md
+- 2026-06-30 09:13 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md
+- 2026-06-30 09:08 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md
+- 2026-06-30 09:01 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md
+- 2026-06-30 09:03 - 人类...完蛋了...<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md
+- 2026-06-30 09:17 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md
+- 2026-06-30 09:12 - 日本淘汰<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md
+- 2026-06-30 08:55 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md
+- 2026-06-30 09:10 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md
+- 2026-06-30 09:20 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md
+- 2026-06-30 09:23 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:10 - [荷兰vs摩洛哥](https://www.blog.minike.top/Article/details/54400034.shtml)
-- 2026-06-30 08:48 - [森保一致歉：世界第一目标没能实现](http://www.blog.kurohicncr.top/Article/details/9871814248.shtml)
-- 2026-06-30 09:03 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/5272881000.shtml)
-- 2026-06-30 09:07 - [三星投资计划](http://www.share.kurohicncr.top/Article/details/8881429788.shtml)
-- 2026-06-30 08:49 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/84343890087.shtml)
-- 2026-06-30 08:52 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](https://www.share.minike.top/Article/details/91038639731.shtml)
-- 2026-06-30 09:14 - [千香](http://www.blog.kurohicncr.top/Article/details/30549657.shtml)
-- 2026-06-30 08:48 - [世界杯欧洲队7战南美仅1胜](https://www.share.kurohicncr.top/Article/details/960445560149.shtml)
-- 2026-06-30 08:51 - [巴拉圭率先破门](https://www.blog.kurohicncr.top/Article/details/1772613.shtml)
-- 2026-06-30 09:10 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/47477782.shtml)
-- 2026-06-30 08:53 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/7540079377.shtml)
-- 2026-06-30 09:07 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/58249.shtml)
-- 2026-06-30 09:04 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/1187779125.shtml)
-- 2026-06-30 08:54 - [iPhone18e曝光](https://www.blog.kurohicncr.top/Article/details/716769510849.shtml)
-- 2026-06-30 09:16 - [世界杯](https://www.blog.kurohicncr.top/Article/details/94570404.shtml)
+- 2026-06-30 09:14 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:http://www.share.minike.top/Article/details/40740823643.shtml
+- 2026-06-30 09:08 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/93654278965.shtml
+- 2026-06-30 09:18 - 千香<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/598427363815.shtml
+- 2026-06-30 09:12 - 日本球迷输球后集体捡垃圾<br><br> | ??:http://www.share.minike.top/Article/details/59470178.shtml
+- 2026-06-30 08:54 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/541648.shtml
+- 2026-06-30 08:58 - 英语考了145的人竟然教数学<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5948594127.shtml
+- 2026-06-30 09:10 - 巴拉圭先进球了<br><br> | ??:http://www.blog.minike.top/Article/details/221348.shtml
+- 2026-06-30 09:18 - 德国4比5巴拉圭<br><br> | ??:http://www.share.minike.top/Article/details/709057388.shtml
+- 2026-06-30 09:03 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://www.share.kurohicncr.top/Article/details/51344044698.shtml
+- 2026-06-30 09:23 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:http://www.blog.minike.top/Article/details/399083.shtml
+- 2026-06-30 09:00 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.share.minike.top/Article/details/987619.shtml
+- 2026-06-30 09:10 - 为什么会有「念旧」的心理？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/732039.shtml
+- 2026-06-30 09:21 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:http://www.blog.minike.top/Article/details/443586900.shtml
+- 2026-06-30 09:14 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.share.minike.top/Article/details/54019456352.shtml
+- 2026-06-30 08:56 - 王楚钦说配合稍微有些陌生感<br><br> | ??:http://www.share.minike.top/Article/details/515515405602.shtml

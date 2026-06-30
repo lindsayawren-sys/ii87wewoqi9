@@ -1,57 +1,58 @@
-# 汽车之家-S午后涨超7% 全面推进一站式交易服务平台转型
+# “易中天”新高！华宝基金创业板人工智能ETF标的指数单周暴涨10%！高盛上调光模块龙头目标价
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-汽车之家-S（02518）午后涨超7%，截至发稿，股价上涨7.36%，现报33.86港元。 5月28日晚，汽车之家披露2026年第一季度未经审计财务业绩。财报显示，公司第一季度总营收为10.5亿元人民币。此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日
+周五（4月17日），光模块CPO批量新高，创业板人工智能继续领涨全市场！其中，光模块龙头新易盛大涨超9%，天孚通信涨超6%，中际旭创涨超5%，“易中天”股价均创历史新高！此外，光模块新锐光库科技、联特科技、长芯博创大涨超7%同样创下历史新高！ 热门ETF方面，重仓光模块CPO的创业板人工智能ETF华宝（159363）场内暴涨3.53%迭创上市新高，爆量成交达15.69亿元，资金
 
 ## 正文
 
-汽车之家-S（02518）午后涨超7%，截至发稿，股价上涨7.36%，现报33.86港元。
+周五（4月17日），光模块CPO批量新高，创业板人工智能继续领涨全市场！
 
-5月28日晚，汽车之家披露2026年第一季度未经审计财务业绩。
+其中，光模块龙头新易盛大涨超9%，天孚通信涨超6%，中际旭创涨超5%，“易中天”股价均创历史新高！
 
-财报显示，公司第一季度总营收为10.5亿元人民币。
+此外，光模块新锐光库科技、联特科技、长芯博创大涨超7%同样创下历史新高！
 
-此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日休市后登记在册的美国存托股及普通股持有人，分红总金额约为人民币5亿元。
+热门ETF方面，重仓光模块CPO的创业板人工智能ETF华宝（159363）场内暴涨3.53%迭创上市新高，爆量成交达15.69亿元，资金交易尤为激烈。
 
-值得一提的是，汽车之家全面推进一站式交易服务平台转型，业务边界从传统信息服务，拓展为“内容+交易+服务”一体化综合平台。
+单周来看，单周来看，159363标的指数单周累计拉升10.08%，周线斩获六连阳！
 
-另外，近期品牌焕新发布会顺利举办，全新LOGO与升级后的APP正式亮相，平台进一步聚焦用户场景与购车全链路服务，精准匹配市场消费需求。
+复盘来看，光模块CPO等算力方向加速突破，截至4月17日，创业板人工智能ETF华宝（159363）标的指数近1年累计涨幅扩大至200%，大幅跑赢人工智能、CS人工智、科创创业AI、科创AI等同类指数。
 
-此次升级不仅实现用户体验的全面革新，也是平台价值从“信息中介”向“服务基础设施”的历史性跨越。
+光模块CPO、IDC算力租赁、AI应用等多重利好共振，创业板人工智能有望继续受益。
 
-责任编辑：卢昱君
+注：创业板人工智能ETF华宝被动跟踪创业板人工智能指数，该指数基日为2018.12.28，发布日期为2024.7.11，创业板人工智能指数2021-2025年年度涨跌幅分别为：17.57%、-34.52%、47.83%、38.44%、106.35%。
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 09:07 - [日本主帅：未能夺冠深感抱歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 09:00 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 08:48 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 08:54 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 08:59 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 09:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 09:00 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 08:53 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 09:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 08:59 - [名记：灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 09:10 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md
+- 2026-06-30 09:06 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md
+- 2026-06-30 09:22 - 巴拉圭率先破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md
+- 2026-06-30 09:07 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md
+- 2026-06-30 09:13 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md
+- 2026-06-30 09:19 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md
+- 2026-06-30 09:04 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md
+- 2026-06-30 08:59 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md
+- 2026-06-30 09:18 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md
+- 2026-06-30 09:13 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md
+- 2026-06-30 09:12 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md
+- 2026-06-30 09:22 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:51 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/769198249976.shtml)
-- 2026-06-30 09:16 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/24865.shtml)
-- 2026-06-30 09:09 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/1061611650.shtml)
-- 2026-06-30 09:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/954857276216.shtml)
-- 2026-06-30 09:05 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/6849550663.shtml)
-- 2026-06-30 08:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/761951.shtml)
-- 2026-06-30 09:00 - [巴西vs日本](http://www.blog.minike.top/Article/details/44181.shtml)
-- 2026-06-30 09:05 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/30931190.shtml)
-- 2026-06-30 09:06 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/588311.shtml)
-- 2026-06-30 09:17 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/95775.shtml)
-- 2026-06-30 09:02 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/981476582982.shtml)
-- 2026-06-30 09:16 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/04797359.shtml)
-- 2026-06-30 09:09 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/57729.shtml)
-- 2026-06-30 08:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/8541078956.shtml)
-- 2026-06-30 09:04 - [日本进球](http://www.blog.kurohicncr.top/Article/details/451011.shtml)
+- 2026-06-30 08:55 - 恋与深空已删除锅里洗澡文案<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9312138386.shtml
+- 2026-06-30 09:23 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:http://www.blog.minike.top/Article/details/44844454.shtml
+- 2026-06-30 09:12 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:http://www.blog.minike.top/Article/details/47609.shtml
+- 2026-06-30 09:17 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/191474.shtml
+- 2026-06-30 09:19 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/93042970698.shtml
+- 2026-06-30 09:01 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2832437.shtml
+- 2026-06-30 09:04 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6343795.shtml
+- 2026-06-30 08:56 - 日耳曼拖拉机<br><br> | ??:https://www.share.minike.top/Article/details/129768122079.shtml
+- 2026-06-30 09:09 - 一见倾心<br><br> | ??:https://www.share.minike.top/Article/details/554371.shtml
+- 2026-06-30 09:00 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/799926189.shtml
+- 2026-06-30 09:07 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://www.share.minike.top/Article/details/1697947732.shtml
+- 2026-06-30 09:19 - 萨内 看笑了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/699125385763.shtml
+- 2026-06-30 09:04 - 日本队主帅道歉<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/200576595220.shtml
+- 2026-06-30 09:07 - 佐野海舟远射破门<br><br> | ??:https://www.blog.minike.top/Article/details/2601898.shtml
+- 2026-06-30 09:16 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8116181.shtml

@@ -1,50 +1,56 @@
-# 伊朗称对霍尔木兹海峡航运实施全面管理
+# 南非西开普省花园大道华人社区举行合规经营普法讲座
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-据伊朗方面当地时间5月30日消息，伊朗武装部队哈塔姆安比亚中央总部说，伊朗对霍尔木兹海峡航运实施全面管理，所有商业船舶、油轮及其他民用船只须按照指定航线航行，并提前获得伊朗伊斯兰革命卫队海军许可。伊朗武装部队哈塔姆安比亚中央总部说，鉴于霍尔木兹海峡航道管理具有统一性，所有船舶必须遵守伊方制定的通行规定，任何违反相关规定的行为都可能对其航行安全造成严重影响。 该总部同时警告称，任
+中新网约翰内斯堡4月17日电 乔治消息：南非西开普省花园大道华人社区近日在乔治市乔治博物馆举行为期两日的“华人社区合规经营普法讲座”。 讲座由开普敦华助中心、花园大道警民华人警民中心联手西开普省劳工部，内政部，国家强制性规范管理局，西开普省经济开发旅游部，花园大道市政厅，花园大道警察局共同举办。 南非警察花园大道地区少将加大茨加纳，该区的区长代表本杰明以及来自乔治，奥松，奈斯纳
 
 ## 正文
 
-据伊朗方面当地时间5月30日消息，伊朗武装部队哈塔姆安比亚中央总部说，伊朗对霍尔木兹海峡航运实施全面管理，所有商业船舶、油轮及其他民用船只须按照指定航线航行，并提前获得伊朗伊斯兰革命卫队海军许可。
+中新网约翰内斯堡4月17日电 乔治消息：南非西开普省花园大道华人社区近日在乔治市乔治博物馆举行为期两日的“华人社区合规经营普法讲座”。
 
-伊朗武装部队哈塔姆安比亚中央总部说，鉴于霍尔木兹海峡航道管理具有统一性，所有船舶必须遵守伊方制定的通行规定，任何违反相关规定的行为都可能对其航行安全造成严重影响。
+讲座由开普敦华助中心、花园大道警民华人警民中心联手西开普省劳工部，内政部，国家强制性规范管理局，西开普省经济开发旅游部，花园大道市政厅，花园大道警察局共同举办。
 
-该总部同时警告称，任何外国军舰如试图干预霍尔木兹海峡管理事务或阻碍海上交通秩序，伊朗武装力量将采取相应行动。
+南非警察花园大道地区少将加大茨加纳，该区的区长代表本杰明以及来自乔治，奥松，奈斯纳等地区的侨胞，侨资企业和商户代表等近60人一起参加，开普敦华人律师董钢主持了当天合规经营普法讲座。
 
-此前，伊朗伊斯兰议会主席团成员萨利米表示，议会关于对霍尔木兹海峡“实施主权管辖”的方案即将获得通过，并有望成为一项长期法律。
+为期两天的合规经营普法讲座中，各执法部门的负责人的分别向花园大道的华商们介绍了南非国家强制性规范管理局，劳工部，内政部稽查，消费者保护协会，市政卫生等部门的职责，各部门分管的业务，相关法律法规的变更。
+
+与会的华商们也提出了日常工作中遇到的困惑和问题，增进了相互之间的了解和互信。
+
+开普敦华助中心主任陈朱金及花园大道警民中心主任林强表示，随着中非文化交流与合作迈向更深层次，中资/侨资企业和侨胞在南非做生意“合规经营不是“选择题”，而是“必修课”。
+
+为了帮助大家准确把握政策要求、规避经营风险，开普敦华助中心与花园大道警民中心特别策划了本次讲座，邀请各位政府部门的嘉宾带来政策解读。
+
+南非国家强制性规范管理局的代表湃琪表示，新的财政年度南非国家强制规范管理局将加强在入境口岸针对进口货物的合规监察，加大对内地批发和零售企业的排查的力度和频率，提高对违规产品的认定比率，并按照五月份即将付诸实施的新条例，严罚违规企业。
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 09:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 08:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 09:14 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-30 08:58 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 09:17 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 08:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 09:06 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 08:54 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-30 09:13 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 08:56 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 09:02 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 09:20 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md
+- 2026-06-30 09:04 - 起风了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md
+- 2026-06-30 09:05 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md
+- 2026-06-30 09:21 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md
+- 2026-06-30 09:09 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md
+- 2026-06-30 09:05 - 德国进球被吹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md
+- 2026-06-30 08:55 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md
+- 2026-06-30 09:07 - 日本进球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md
+- 2026-06-30 09:22 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md
+- 2026-06-30 09:00 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:15 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/5041390645.shtml)
-- 2026-06-30 09:16 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/976268440.shtml)
-- 2026-06-30 09:07 - [名记：灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/784103633141.shtml)
-- 2026-06-30 09:11 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/034387.shtml)
-- 2026-06-30 09:13 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/4452177663.shtml)
-- 2026-06-30 08:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/067086.shtml)
-- 2026-06-30 09:16 - [曝iPhone18Pro机密文件现身暗网](http://www.share.minike.top/Article/details/598631.shtml)
-- 2026-06-30 09:14 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/99309621047.shtml)
-- 2026-06-30 09:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/38131615228.shtml)
-- 2026-06-30 09:05 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/652603.shtml)
-- 2026-06-30 09:12 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/75543859584.shtml)
-- 2026-06-30 09:07 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/0029564.shtml)
-- 2026-06-30 08:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/352282.shtml)
-- 2026-06-30 08:54 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/9299437.shtml)
-- 2026-06-30 09:17 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/7197354408.shtml)
+- 2026-06-30 09:22 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:https://www.share.minike.top/Article/details/5919857.shtml
+- 2026-06-30 09:20 - 吴启华卖肖像权拍AI电影<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/950989.shtml
+- 2026-06-30 09:06 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/71718.shtml
+- 2026-06-30 09:09 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://www.blog.minike.top/Article/details/18065316.shtml
+- 2026-06-30 09:09 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://www.share.kurohicncr.top/Article/details/12003.shtml
+- 2026-06-30 08:56 - 领克900大型SUV值得购买吗?<br><br> | ??:http://www.share.minike.top/Article/details/886135345.shtml
+- 2026-06-30 09:18 - 刘宇宁是去进货了吗<br><br> | ??:http://www.share.kurohicncr.top/Article/details/092355.shtml
+- 2026-06-30 09:13 - 花少8要去世界杯举办国<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4175496.shtml
+- 2026-06-30 09:23 - 考入南大计算机，复读考清北值吗？<br><br> | ??:http://www.blog.minike.top/Article/details/015546968074.shtml
+- 2026-06-30 08:58 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/98681872.shtml
+- 2026-06-30 09:24 - 齐思钧回复张月<br><br> | ??:http://www.blog.minike.top/Article/details/10338560.shtml
+- 2026-06-30 09:08 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://www.share.minike.top/Article/details/688092.shtml
+- 2026-06-30 09:13 - 全新问界M9现身美国街头<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/414941708709.shtml
+- 2026-06-30 09:19 - 建议不要突然完全停止喝咖啡<br><br> | ??:http://www.blog.minike.top/Article/details/8364584670.shtml
+- 2026-06-30 09:09 - 莫兰特转投开拓者效力<br><br> | ??:http://www.share.minike.top/Article/details/224111965.shtml

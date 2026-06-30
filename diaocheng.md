@@ -1,56 +1,57 @@
-# 各地区各部门各单位深入开展学习教育：学查改一体推进 解难题务求实效
+# 成立以来回报超137%！红利低波ETF华泰柏瑞（512890）早盘成交3.82亿领跑同类
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-各地区各部门各单位深入开展学习教育—— 学查改一体推进 解难题务求实效(树立和践行正确政绩观) 树立和践行正确政绩观学习教育开展以来，各地区各部门各单位落实“立党为公、为民造福、科学决策、真抓实干”总要求，一体推进学查改，坚持目标导向和问题导向相结合，确保学习教育取得实实在在成效。 结合实际 真查实改学习教育中，中国社会科学院党组按照“三个对照”要求，建立查摆问题清单和整改整治
+4月20日消息，市场早盘震荡拉升，沪指、深成指均涨超0.5%。在此背景下，红利低波ETF华泰柏瑞（512890）早盘上涨0.25%，报1.187元，换手率1.26%，成交额3.82亿元，居同类标的ETF首位。 最新报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股早盘涨多跌少。截止午盘，上海银行涨0.41%，南京银行涨0.90%，平安银行涨0.36%，沪农商行涨0.77
 
 ## 正文
 
-各地区各部门各单位深入开展学习教育—— 学查改一体推进 解难题务求实效(树立和践行正确政绩观) 树立和践行正确政绩观学习教育开展以来，各地区各部门各单位落实“立党为公、为民造福、科学决策、真抓实干”总要求，一体推进学查改，坚持目标导向和问题导向相结合，确保学习教育取得实实在在成效。
+4月20日消息，市场早盘震荡拉升，沪指、深成指均涨超0.5%。
 
-结合实际 真查实改学习教育中，中国社会科学院党组按照“三个对照”要求，建立查摆问题清单和整改整治台账，逐项明确责任和完成时限。
+在此背景下，红利低波ETF华泰柏瑞（512890）早盘上涨0.25%，报1.187元，换手率1.26%，成交额3.82亿元，居同类标的ETF首位。
 
-院学习教育工作专班认真审核院属单位的查摆问题清单和整改整治台账，对于查摆问题不深不实的，坚决退回修改完善。
+最新报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股早盘涨多跌少。
 
-成立专题调研组，对部分院属单位学习教育开展情况进行督促检查，抓好整改落实。
+截止午盘，上海银行涨0.41%，南京银行涨0.90%，平安银行涨0.36%，沪农商行涨0.77%，中粮糖业涨0.55%，民生银行涨0.00%，格力涨0.05%，陕鼓动力跌8.23%，华润江中跌1.30%，长沙银行涨0.63%。
 
-云南大学结合实际、真查实改，深化学习研讨、深入查摆问题，从党性上找差距、查根源、强修养，将课堂搬到红色旧址、田间地头。
+华泰证券提醒投资者，短期市场走势或面临一定扰动。
 
-建立分级研判台账，推动实践教学从“有”向“优”提升，推动学习教育成效转化为思政育人的实际成果。
+一方面，全球风险偏好存在阶段性回落可能。
 
-山东济南市综合运用市委巡察、审计监督、信访反映、调查研究等方式，深入查找党员干部在树立和践行正确政绩观方面存在的问题，同步抓好整改。
+另一方面，A股估值分化系数来到历史高位区间，抱团品种获利盘兑现压力上升，风格存在阶段性再平衡的可能。
 
-市委学习教育工作专班组建10个常态化调研组，对各区县(功能区)、各部门单位开展调研，推动领导干部深入查摆检视政绩观偏差问题，在真查实改上下功夫。
+渤海证券指出，红利低波指数作为高股息、低波动与优质基本面的多因子策略代表，历史表现稳健，抗波动性强，适合作为长期定投的核心底仓，在经济温和修复、长线资金增配趋势下具备持续配置价值。
 
 ## 相关推荐
 
-- 2026-06-30 09:02 - [马航370搜寻最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 09:09 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 08:53 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 09:05 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 09:14 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 09:10 - [iPhoneUltra黑色机模](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 08:55 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 09:06 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 09:08 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 09:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 09:17 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md
+- 2026-06-30 09:20 - 欧盟分楼层开空调惹争议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md
+- 2026-06-30 09:23 - 孙兴慜道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md
+- 2026-06-30 09:10 - 明星大侦探第四季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md
+- 2026-06-30 09:17 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md
+- 2026-06-30 08:56 - 2021湖南卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md
+- 2026-06-30 09:13 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md
+- 2026-06-30 09:03 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md
+- 2026-06-30 09:08 - 送你一朵小红花<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md
+- 2026-06-30 09:06 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md
+- 2026-06-30 09:18 - 扬名立万<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:13 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/9135976.shtml)
-- 2026-06-30 09:11 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/759634099247.shtml)
-- 2026-06-30 08:57 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.share.kurohicncr.top/Article/details/202271.shtml)
-- 2026-06-30 09:03 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/57106.shtml)
-- 2026-06-30 08:52 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/19364784.shtml)
-- 2026-06-30 08:53 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/268370120829.shtml)
-- 2026-06-30 08:55 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/88429347.shtml)
-- 2026-06-30 09:15 - [黄晓明晒和周杰伦的合照](https://www.blog.minike.top/Article/details/391765.shtml)
-- 2026-06-30 08:49 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/065212729094.shtml)
-- 2026-06-30 09:03 - [莫兰特转投开拓者效力](https://www.blog.kurohicncr.top/Article/details/236283599064.shtml)
-- 2026-06-30 09:06 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/01522.shtml)
-- 2026-06-30 08:53 - [巴西2比1日本](http://www.blog.minike.top/Article/details/626560959.shtml)
-- 2026-06-30 09:05 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/427490755.shtml)
-- 2026-06-30 09:04 - [沙丘](https://www.share.kurohicncr.top/Article/details/2120392.shtml)
-- 2026-06-30 08:48 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/182214.shtml)
+- 2026-06-30 09:06 - 豆包收费了，你还会用吗？<br><br> | ??:https://www.share.minike.top/Article/details/4816786839.shtml
+- 2026-06-30 08:59 - 德国队回应爆冷淘汰<br><br> | ??:https://www.share.kurohicncr.top/Article/details/37163787817.shtml
+- 2026-06-30 08:59 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.blog.minike.top/Article/details/3130203888.shtml
+- 2026-06-30 09:09 - 如何改变自己太负责任的性格?<br><br> | ??:http://www.blog.minike.top/Article/details/508182741.shtml
+- 2026-06-30 09:06 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:http://www.share.minike.top/Article/details/195439.shtml
+- 2026-06-30 09:07 - 德国淘汰<br><br> | ??:http://www.share.minike.top/Article/details/56007894677.shtml
+- 2026-06-30 09:03 - 美股深夜大反弹 特斯拉飙涨8%<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/959751431.shtml
+- 2026-06-30 08:54 - 斛珠夫人<br><br> | ??:http://www.share.minike.top/Article/details/7311209910.shtml
+- 2026-06-30 09:10 - 沉睡花园<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4723421482.shtml
+- 2026-06-30 08:58 - 2021湖南卫视跨年演唱会<br><br> | ??:https://www.share.minike.top/Article/details/55103.shtml
+- 2026-06-30 09:09 - 全新问界M9现身美国街头<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/289945.shtml
+- 2026-06-30 09:22 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://www.blog.minike.top/Article/details/5411470.shtml
+- 2026-06-30 08:57 - 韩国道歉完日本道歉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/292633330.shtml
+- 2026-06-30 08:59 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.blog.minike.top/Article/details/7541977285.shtml
+- 2026-06-30 09:12 - 诺伊尔尽力了<br><br> | ??:http://www.blog.minike.top/Article/details/730204419276.shtml

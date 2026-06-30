@@ -1,45 +1,56 @@
-# 招商局资本投资有限责任公司原副总经理冯红涛接受监察调查
+# 特朗普：若无法达成协议 或将不延长美伊临时停火
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网5月29日电 据中央纪委国家监委驻招商局集团纪检监察组、广东省纪委监委消息：招商局资本投资有限责任公司原副总经理冯红涛涉嫌严重违法，目前正接受中央纪委国家监委驻招商局集团纪检监察组和广东省中山市监察委员会监察调查。
+美国总统唐纳德・特朗普表示，若美伊谈判在下周三前未能达成协议，他可能不会延长两国现有的临时停火协议，战事重启的风险随之上升。 在 “空军一号” 上被问及谈判无果后是否会延续停火、还是恢复军事打击时，特朗普称：“我可能不会延长停火。” 特朗普补充道：“一旦停火不续期，海上封锁将持续，届时我们无奈之下只能再度发动空袭。” 据熟悉谈判内情的伊朗消息人士透露，美伊双方代表团预计将于本周
 
 ## 正文
 
-中新网5月29日电 据中央纪委国家监委驻招商局集团纪检监察组、广东省纪委监委消息：招商局资本投资有限责任公司原副总经理冯红涛涉嫌严重违法，目前正接受中央纪委国家监委驻招商局集团纪检监察组和广东省中山市监察委员会监察调查。
+美国总统唐纳德・特朗普表示，若美伊谈判在下周三前未能达成协议，他可能不会延长两国现有的临时停火协议，战事重启的风险随之上升。
+
+在 “空军一号” 上被问及谈判无果后是否会延续停火、还是恢复军事打击时，特朗普称：“我可能不会延长停火。
+
+” 特朗普补充道：“一旦停火不续期，海上封锁将持续，届时我们无奈之下只能再度发动空袭。
+
+” 据熟悉谈判内情的伊朗消息人士透露，美伊双方代表团预计将于本周末抵达巴基斯坦，并有望在下周一举行磋商。
+
+美方暂未确认相关会谈日程。
+
+特朗普在周五早些时候表态，对双方即将达成协议持乐观态度。
+
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 09:12 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 08:49 - [点球大战和诺伊尔都救不回德国队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 08:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-30 08:56 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 08:59 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 08:52 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 09:13 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 08:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-30 08:50 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 09:11 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 08:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 09:05 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 09:22 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md
+- 2026-06-30 09:03 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md
+- 2026-06-30 09:07 - 时光音乐会<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md
+- 2026-06-30 08:59 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md
+- 2026-06-30 09:05 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md
+- 2026-06-30 09:00 - 终于把好哥们处成了情侣!<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md
+- 2026-06-30 09:14 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md
+- 2026-06-30 09:06 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md
+- 2026-06-30 08:58 - 荷兰VS摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md
+- 2026-06-30 09:08 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md
+- 2026-06-30 09:00 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md
+- 2026-06-30 09:16 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/586228795564.shtml)
-- 2026-06-30 08:55 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/23358954.shtml)
-- 2026-06-30 09:00 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/165581118.shtml)
-- 2026-06-30 08:58 - [斛珠夫人](http://www.share.minike.top/Article/details/039783216.shtml)
-- 2026-06-30 09:17 - [郑钦文温网一轮游](http://www.share.minike.top/Article/details/569647496.shtml)
-- 2026-06-30 08:59 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/6571598.shtml)
-- 2026-06-30 08:57 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/97044020.shtml)
-- 2026-06-30 09:01 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.minike.top/Article/details/76393692.shtml)
-- 2026-06-30 09:16 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/782732.shtml)
-- 2026-06-30 09:15 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](https://www.blog.minike.top/Article/details/10062.shtml)
-- 2026-06-30 09:16 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/5658063377.shtml)
-- 2026-06-30 09:16 - [杨紫大银幕成绩单](http://www.blog.minike.top/Article/details/75900990.shtml)
-- 2026-06-30 09:06 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/274020.shtml)
-- 2026-06-30 09:05 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.minike.top/Article/details/39526.shtml)
-- 2026-06-30 09:11 - [天道](https://www.share.minike.top/Article/details/061429363229.shtml)
+- 2026-06-30 09:10 - 健全中小学教师工资长效联动机制<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/05755743.shtml
+- 2026-06-30 08:55 - 流金岁月<br><br> | ??:http://www.share.minike.top/Article/details/5804839.shtml
+- 2026-06-30 09:07 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:http://www.blog.minike.top/Article/details/446997.shtml
+- 2026-06-30 09:09 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://www.share.minike.top/Article/details/094312515055.shtml
+- 2026-06-30 09:08 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:http://www.blog.minike.top/Article/details/5567287.shtml
+- 2026-06-30 09:11 - 森保一致歉：世界第一目标没能实现<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/809195238998.shtml
+- 2026-06-30 09:17 - 千与千寻<br><br> | ??:http://www.blog.minike.top/Article/details/521721953570.shtml
+- 2026-06-30 09:05 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:http://www.blog.minike.top/Article/details/26751410380.shtml
+- 2026-06-30 09:07 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://www.share.minike.top/Article/details/534448.shtml
+- 2026-06-30 08:56 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0316704.shtml
+- 2026-06-30 09:04 - 国务院：探索延长义务教育年限<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6475809.shtml
+- 2026-06-30 08:55 - 终于把好哥们处成了情侣!<br><br> | ??:http://www.share.kurohicncr.top/Article/details/98122.shtml
+- 2026-06-30 09:23 - 荷兰VS摩洛哥<br><br> | ??:http://www.share.kurohicncr.top/Article/details/26862974.shtml
+- 2026-06-30 09:15 - 巴西绝杀<br><br> | ??:https://www.share.minike.top/Article/details/7639133944.shtml
+- 2026-06-30 09:21 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://www.share.minike.top/Article/details/42622.shtml

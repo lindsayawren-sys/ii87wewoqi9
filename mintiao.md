@@ -1,59 +1,61 @@
-# “香会”是啥？今年有何看点？
+# 从元首外交密集日程看中国的自信、胸怀、担当
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月29日 13:51 来源：中国新闻网 第23届香格里拉对话会将于当地时间5月29日晚在新加坡开幕。香格里拉对话会的正式名称是“亚洲安全峰会”，由英国国际战略研究所发起，每年都会吸引来自亚太、欧洲、北美等地区国家的防务高层参会，共同探讨亚太地区面临的安全挑战。 今年“香会”有4个看点值得关注。第一，中美关系。这几乎是每年“香会”都绕不开的话题。本届“香会
+原标题：第一观察｜从元首外交密集日程看中国的自信、胸怀、担当 4月14日至15日，习近平主席在北京先后同来访的阿联酋阿布扎比王储哈立德，西班牙首相桑切斯，俄罗斯外长拉夫罗夫，越共中央总书记、国家主席苏林举行会晤。 从中东海湾国家到欧洲国家，从最大邻国到社会主义友好邻邦，多国政要密集访华，是世界各国目光“向东看”的生动缩影，更是新时代中国大国气象的写照。 “向东看”，看到的是中国
 
 ## 正文
 
-发布时间：2026年05月29日 13:51 来源：中国新闻网 第23届香格里拉对话会将于当地时间5月29日晚在新加坡开幕。
+原标题：第一观察｜从元首外交密集日程看中国的自信、胸怀、担当 4月14日至15日，习近平主席在北京先后同来访的阿联酋阿布扎比王储哈立德，西班牙首相桑切斯，俄罗斯外长拉夫罗夫，越共中央总书记、国家主席苏林举行会晤。
 
-香格里拉对话会的正式名称是“亚洲安全峰会”，由英国国际战略研究所发起，每年都会吸引来自亚太、欧洲、北美等地区国家的防务高层参会，共同探讨亚太地区面临的安全挑战。
+从中东海湾国家到欧洲国家，从最大邻国到社会主义友好邻邦，多国政要密集访华，是世界各国目光“向东看”的生动缩影，更是新时代中国大国气象的写照。
 
-今年“香会”有4个看点值得关注。
+“向东看”，看到的是中国砥砺前行的坚定自信。
 
-第一，中美关系。
+在会见4年来第4次访华的西班牙首相桑切斯时，习近平主席深刻揭示中国实现跨越式发展的成功之钥：“中国把长远战略目标和阶段性目标统一起来，以一茬接着一茬干的历史耐心接续制定和实施五年规划。
 
-这几乎是每年“香会”都绕不开的话题。
+” “十四五”时期，中国经济实现年均5.4%的增长，明显高于全球平均增速。
 
-本届“香会”在中美元首会晤后不久举行，会议期间中美互动的新动向将引发各方关注。
+“十四五”规划纲要确定的20项主要指标、17方面重大战略任务、102项重大工程项目胜利完成。
 
-第二，中东局势。
+今年一季度，中国国内生产总值同比增长5.0%。
 
-美以伊战事和霍尔木兹海峡局势牵动世界神经，有分析认为美国防长或将在“香会”期间有新的表态。
+参访雄安新区，乘坐中国高铁，参观科技企业，点赞中国创新……“十五五”开局之年的春天，各国政要走近中国、寻求深化合作，本质是对中国发展成就的高度认同，也看到了新时代中国勇立潮头、引领潮流的底气。
 
 ## 相关推荐
 
-- 2026-06-30 09:11 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 08:48 - [iPhoneUltra黑色机模](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 08:55 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 08:56 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 08:50 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 08:54 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 08:54 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 09:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 09:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 09:02 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 09:05 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 08:54 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 09:01 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 09:14 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md
+- 2026-06-30 09:09 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md
+- 2026-06-30 09:12 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md
+- 2026-06-30 09:18 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md
+- 2026-06-30 09:03 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md
+- 2026-06-30 09:10 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md
+- 2026-06-30 09:16 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md
+- 2026-06-30 09:02 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md
+- 2026-06-30 09:04 - 高质量发展看新疆<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md
+- 2026-06-30 09:14 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md
+- 2026-06-30 08:55 - 蜘蛛侠:平行宇宙<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md
+- 2026-06-30 08:59 - 毒液2<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md
+- 2026-06-30 09:03 - 高质量发展看新疆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md
+- 2026-06-30 08:57 - 人民锐评网红诋毁袁隆平造谣企业家<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md
+- 2026-06-30 09:09 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:06 - [曝老詹对自由市场态度与以往截然不同](http://www.share.kurohicncr.top/Article/details/64014213.shtml)
-- 2026-06-30 08:52 - [第3集丨“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/91096803.shtml)
-- 2026-06-30 09:13 - [巴拉圭进球](http://www.blog.minike.top/Article/details/91949417.shtml)
-- 2026-06-30 08:48 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/81730.shtml)
-- 2026-06-30 08:56 - [第3集丨“柠檬茶能换怀表？”](http://www.blog.kurohicncr.top/Article/details/6428131.shtml)
-- 2026-06-30 09:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/215961599.shtml)
-- 2026-06-30 08:54 - [曝灰熊将莫兰特交易至开拓者](http://www.share.minike.top/Article/details/4247754.shtml)
-- 2026-06-30 09:04 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/7118839.shtml)
-- 2026-06-30 09:15 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/5335720.shtml)
-- 2026-06-30 08:48 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/7274262594.shtml)
-- 2026-06-30 08:58 - [扬名立万](http://www.share.minike.top/Article/details/99175.shtml)
-- 2026-06-30 09:15 - [女心理师](http://www.blog.kurohicncr.top/Article/details/742384629006.shtml)
-- 2026-06-30 09:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/747290586483.shtml)
-- 2026-06-30 09:03 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/78622121.shtml)
-- 2026-06-30 09:08 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/83084928892.shtml)
+- 2026-06-30 09:21 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.blog.minike.top/Article/details/32042.shtml
+- 2026-06-30 08:57 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:http://www.blog.minike.top/Article/details/7153214940.shtml
+- 2026-06-30 09:14 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:https://www.blog.minike.top/Article/details/70403743.shtml
+- 2026-06-30 09:12 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/257838978960.shtml
+- 2026-06-30 08:59 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://www.share.minike.top/Article/details/94361710.shtml
+- 2026-06-30 09:10 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/60307.shtml
+- 2026-06-30 09:01 - 俄乌双方伤亡近180万人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2059112.shtml
+- 2026-06-30 09:06 - 日耳曼拖拉机<br><br> | ??:https://www.blog.minike.top/Article/details/64391630.shtml
+- 2026-06-30 09:16 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.share.minike.top/Article/details/349970.shtml
+- 2026-06-30 09:02 - 巴西vs日本<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/74637.shtml
+- 2026-06-30 09:10 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8191818842.shtml
+- 2026-06-30 09:04 - 巴西足球能否再现昔日荣光<br><br> | ??:https://www.share.minike.top/Article/details/451833.shtml
+- 2026-06-30 09:05 - 逃狱兄弟<br><br> | ??:http://www.blog.minike.top/Article/details/28143866693.shtml
+- 2026-06-30 09:10 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://www.share.minike.top/Article/details/36770470736.shtml
+- 2026-06-30 09:16 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://www.share.minike.top/Article/details/91439645342.shtml

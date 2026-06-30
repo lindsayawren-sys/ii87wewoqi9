@@ -1,58 +1,58 @@
-# 玉健健康IPO：第一大客户竟是海外贸易商收入占比超65% 大客户集中并非行业惯例
+# 英矽智能早盘涨近14% 近日与泰格医药达成AI制药战略合作
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 5月28日，北交所官网披露了宁波玉健健康科技股份有限公司（下称“玉健健康”）回复交易所的问询函公告。 据招股书及问询函回复公告，玉健健康十分依赖海外收入，对第一大客户InovoBiologic Inc．的销售收入占比高达65%，原则上构成对第一大客户
+英矽智能（03696）早盘涨超13%，截至发稿，股价上涨13.73%，现报69.15港元，成交额2.83亿港元。 4月20日，据英矽智能官微消息，公司宣布，其用于药物靶点发现的统一AI框架取得新进展：公司已将此前推出的靶点识别专业版（Target Identification Pro，TargetPro）与靶点识别基准评测体系（Target Identification Ben
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+英矽智能（03696）早盘涨超13%，截至发稿，股价上涨13.73%，现报69.15港元，成交额2.83亿港元。
 
-出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 5月28日，北交所官网披露了宁波玉健健康科技股份有限公司（下称“玉健健康”）回复交易所的问询函公告。
+4月20日，据英矽智能官微消息，公司宣布，其用于药物靶点发现的统一AI框架取得新进展：公司已将此前推出的靶点识别专业版（Target Identification Pro，TargetPro）与靶点识别基准评测体系（Target Identification Benchmark，TargetBench 1.0）整合为一套经验证的系统，旨在进一步提升早期药物研发的准确性、可靠性与可扩展性。
 
-据招股书及问询函回复公告，玉健健康十分依赖海外收入，对第一大客户InovoBiologic Inc．的销售收入占比高达65%，原则上构成对第一大客户的重大依赖。
+公司近期发表于Scientific Reports的研究显示，该框架在基准评测与真实世界的靶点发现工作流中均展现出卓越结果，进一步展现了其作为AI驱动靶点识别“标准化底座”的价值。
 
-但有意思的是，第一大客户竟然是海外的一家贸易商，并非终端客户。
+值得一提的是，近日，泰格医药与英矽智能签署战略合作协议，双方将围绕创新药产品的临床研究开展长期战略合作。
 
-此外，InovoBiologic Inc对玉健健康的采购占比也大幅提升，双方存在“相互绑定”的特征。
+根据协议，泰格医药将充分发挥其临床研究全链条服务优势，为英矽智能的创新药产品提供一站式、定制化专业服务支持。
 
-此外，玉健健康对第一大客户、前五大客户的集中度明显高于同行可比公司，但公司及保荐机构却称“剔除 InovoBiologic Inc．后，基本符合行业特征”。
+服务范围全面覆盖临床监查、数据管理与统计分析、医学事务、药物警戒、注册事务等核心环节。
 
-问题是，玉健健康最大问题就是对第一大客户的依赖，如果剔除后对比，论证是否符合行业惯例的意义也不大。
+泰格医药将组建专项团队，结合英矽智能AI驱动的研发特点，量身定制服务方案。
 
-玉健健康对第一大客户的重大依赖以及显著高于同行可比公司的大客户集中度，关乎公司是否符合上市条件。
+此次合作标志着双方在AI技术与临床开发创新能力上的强强联合。
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - [点球大战 残酷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 08:51 - [锐评：网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 09:00 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 08:54 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 09:12 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 09:06 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 08:49 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 09:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 09:04 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 09:12 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 09:08 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 09:00 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 09:06 - 锐评T1战胜KC<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md
+- 2026-06-30 09:15 - 德国淘汰<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md
+- 2026-06-30 09:22 - 啊啊啊<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md
+- 2026-06-30 09:11 - 日本博主：日本足球真的垃圾<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md
+- 2026-06-30 08:59 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md
+- 2026-06-30 08:55 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md
+- 2026-06-30 09:21 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md
+- 2026-06-30 08:58 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md
+- 2026-06-30 08:54 - 千与千寻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md
+- 2026-06-30 09:09 - 郑钦文 四年一轮游<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md
+- 2026-06-30 08:58 - “柠檬茶能换怀表？”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md
+- 2026-06-30 09:01 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/295156146.shtml)
-- 2026-06-30 09:06 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/00622.shtml)
-- 2026-06-30 08:59 - [请回答王牌2019](http://www.share.minike.top/Article/details/16763282183.shtml)
-- 2026-06-30 09:16 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/74022131433.shtml)
-- 2026-06-30 08:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/207249.shtml)
-- 2026-06-30 08:52 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/3163201245.shtml)
-- 2026-06-30 08:56 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.minike.top/Article/details/982742.shtml)
-- 2026-06-30 08:56 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/64698433745.shtml)
-- 2026-06-30 09:06 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/961327498.shtml)
-- 2026-06-30 09:10 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/7818827670.shtml)
-- 2026-06-30 09:04 - [德国进球被吹](https://www.blog.kurohicncr.top/Article/details/9747558.shtml)
-- 2026-06-30 09:05 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/716612470899.shtml)
-- 2026-06-30 09:09 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/659828079.shtml)
-- 2026-06-30 08:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/4075672.shtml)
-- 2026-06-30 09:00 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/3330867.shtml)
+- 2026-06-30 08:57 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:http://www.share.minike.top/Article/details/5357514603.shtml
+- 2026-06-30 09:06 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:http://www.share.minike.top/Article/details/544734987.shtml
+- 2026-06-30 09:20 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/473653283.shtml
+- 2026-06-30 09:16 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:http://www.blog.minike.top/Article/details/23394515705.shtml
+- 2026-06-30 09:12 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:http://www.share.minike.top/Article/details/26702.shtml
+- 2026-06-30 09:08 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:https://www.share.minike.top/Article/details/952208.shtml
+- 2026-06-30 09:07 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:http://www.blog.minike.top/Article/details/9755730656.shtml
+- 2026-06-30 09:20 - 《虎吹最难绷の一集》<br><br> | ??:https://www.blog.minike.top/Article/details/245170.shtml
+- 2026-06-30 09:12 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/80128726238.shtml
+- 2026-06-30 09:04 - 阿娇瘦了10斤<br><br> | ??:http://www.share.minike.top/Article/details/158041228.shtml
+- 2026-06-30 09:18 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:http://www.share.minike.top/Article/details/239942.shtml
+- 2026-06-30 09:11 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0497855143.shtml
+- 2026-06-30 09:00 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://www.blog.minike.top/Article/details/637078.shtml
+- 2026-06-30 09:21 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:http://www.share.minike.top/Article/details/82261.shtml
+- 2026-06-30 09:00 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6956765102.shtml

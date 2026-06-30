@@ -1,59 +1,61 @@
-# 三预警齐发 云南四川广西等地部分地区有大到暴雨
+# “五一”临近航班遭取消？航空公司：优先签转 保障旅客顺利成行
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网5月29日电 据中央气象台网站消息，5月29日18时，中央气象台继续发布暴雨蓝色预警；自然资源部与中国气象局联合发布黄色地质灾害气象风险预警；水利部和中国气象局联合发布黄色山洪灾害气象预警。 中央气象台5月29日18时继续发布暴雨蓝色预警 预计，5月29日20时至30日20时，云南大部、四川西南部、广西西南部和东北部、广东东北部和南部沿海、福建南部、海南岛西部、台湾岛东南
+“五一”假期临近，不少人正在规划出游。近期，受燃油价格暴涨、供应紧缺等因素影响，全球多家航空公司运力出现不同程度缩减，直接导致了航班大规模取消的情况。目前国内航空公司执行的国际航线，尤其是前往东南亚和大洋洲的航线运营情况如何？运力是否充足呢？ 目前我国航空公司国际航线运力充足 记者从中国航空运输协会了解到，今年我国民航每周国际客运航班计划总体与去年同期持平。“五一”假期期间(5
 
 ## 正文
 
-中新网5月29日电 据中央气象台网站消息，5月29日18时，中央气象台继续发布暴雨蓝色预警；自然资源部与中国气象局联合发布黄色地质灾害气象风险预警；水利部和中国气象局联合发布黄色山洪灾害气象预警。
+“五一”假期临近，不少人正在规划出游。
 
-中央气象台5月29日18时继续发布暴雨蓝色预警 预计，5月29日20时至30日20时，云南大部、四川西南部、广西西南部和东北部、广东东北部和南部沿海、福建南部、海南岛西部、台湾岛东南部等地部分地区有大到暴雨，其中，云南北部等地局地有大暴雨(100～150毫米)。
+近期，受燃油价格暴涨、供应紧缺等因素影响，全球多家航空公司运力出现不同程度缩减，直接导致了航班大规模取消的情况。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)，局地有雷暴大风或冰雹等强对流天气。
+目前国内航空公司执行的国际航线，尤其是前往东南亚和大洋洲的航线运营情况如何？
 
-自然资源部与中国气象局5月29日18时联合发布黄色地质灾害气象风险预警 预计，5月29日20时至30日20时，贵州东南部、云南北部和南部等地部分地区发生地质灾害的气象风险较高(黄色预警)。
+运力是否充足呢？
 
-各级政府及有关部门按照应急预案做好地质灾害防御工作。
+目前我国航空公司国际航线运力充足 记者从中国航空运输协会了解到，今年我国民航每周国际客运航班计划总体与去年同期持平。
 
-请社会公众及时关注地质灾害气象风险预警信息，谨慎前往地质灾害预警区域。
+“五一”假期期间(5月1日至5日)，国际客运航班计划增长5.5%。
 
-黄色预警区内人员，请随时关注预警信息变化，注意附近警示标志，避免在沟谷、斜坡、陡崖(坎)等高风险地带逗留。
+中国航空运输协会理事长助理 朱耀春：大家关注的东南亚地区，“五一”期间，中方航空公司提供座位48.7万个，较去年同期增加4.8万个，目前已销售的机票24.8万张，运力完全满足需求。
 
-水利部和中国气象局5月29日18时联合发布黄色山洪灾害气象预警 预计，5月29日20时至30日20时，福建南部、广西东北部、四川南部、云南北部和南部等地部分地区可能发生山洪灾害(蓝色预警)，其中，四川南部、云南北部等地部分地区发生山洪灾害可能性较大(黄色预警)。
+朱耀春介绍，目前国内至东南亚的核心干线，如飞往曼谷、新加坡、吉隆坡、金边等主要城市的航班全部保持正常通航，基础班次稳定，部分小众旅游城市、低密度支线航线做了阶段性减班。
 
 ## 相关推荐
 
-- 2026-06-30 09:16 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 09:16 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 08:55 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 08:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 09:05 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-30 09:17 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 09:18 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 09:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 09:02 - [德国队回应爆冷淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 09:00 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 08:50 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 09:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 08:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 09:07 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md
+- 2026-06-30 09:21 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md
+- 2026-06-30 09:06 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md
+- 2026-06-30 09:10 - 有哪些值得一提的生活窍门？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md
+- 2026-06-30 09:13 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md
+- 2026-06-30 09:16 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md
+- 2026-06-30 09:20 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md
+- 2026-06-30 09:03 - 点球大战<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md
+- 2026-06-30 08:58 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md
+- 2026-06-30 09:04 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md
+- 2026-06-30 09:21 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md
+- 2026-06-30 09:02 - 日本博主：日本足球真的垃圾<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md
+- 2026-06-30 08:59 - 德国北部枪击事件致5死<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md
+- 2026-06-30 09:11 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md
+- 2026-06-30 09:11 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/495274.shtml)
-- 2026-06-30 08:58 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.kurohicncr.top/Article/details/4818264726.shtml)
-- 2026-06-30 09:07 - [锐评：网红不能困在无底线逐利里](http://www.share.minike.top/Article/details/0310944360.shtml)
-- 2026-06-30 09:04 - [千香](https://www.blog.kurohicncr.top/Article/details/71882751.shtml)
-- 2026-06-30 08:57 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/15298221.shtml)
-- 2026-06-30 09:04 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/3926611.shtml)
-- 2026-06-30 08:48 - [日耳曼拖拉机](http://www.blog.kurohicncr.top/Article/details/90613945.shtml)
-- 2026-06-30 09:11 - [青春环游记第三季](https://www.share.minike.top/Article/details/3199571996.shtml)
-- 2026-06-30 09:17 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/346857.shtml)
-- 2026-06-30 09:15 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/16963.shtml)
-- 2026-06-30 08:56 - [高考结束了，你会让孩子在家玩手机吗？](http://www.share.minike.top/Article/details/877976058.shtml)
-- 2026-06-30 08:52 - [欧洲民众抢购空调降温](http://www.share.minike.top/Article/details/423061.shtml)
-- 2026-06-30 09:14 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/624481732.shtml)
-- 2026-06-30 09:02 - [德国巴拉圭加时](http://www.share.minike.top/Article/details/741230.shtml)
-- 2026-06-30 09:04 - [杨紫肖战余生请多指教拍立得](https://www.blog.kurohicncr.top/Article/details/8417459145.shtml)
+- 2026-06-30 09:17 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://www.share.minike.top/Article/details/3486625.shtml
+- 2026-06-30 09:01 - 国务院：鼓励行业龙头企业举办职校<br><br> | ??:https://www.share.minike.top/Article/details/768313.shtml
+- 2026-06-30 09:09 - DeepSeek启动成立来最大规模招聘<br><br> | ??:http://www.share.minike.top/Article/details/169316498.shtml
+- 2026-06-30 09:22 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:http://www.share.minike.top/Article/details/580773697386.shtml
+- 2026-06-30 08:58 - 周生如故<br><br> | ??:http://www.share.minike.top/Article/details/046601.shtml
+- 2026-06-30 09:10 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.share.kurohicncr.top/Article/details/986542.shtml
+- 2026-06-30 09:00 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://www.share.minike.top/Article/details/527484761284.shtml
+- 2026-06-30 09:23 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:https://www.share.minike.top/Article/details/56774.shtml
+- 2026-06-30 08:55 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6621488482.shtml
+- 2026-06-30 09:05 - 网瘾賊大的阿嬷<br><br> | ??:http://www.share.kurohicncr.top/Article/details/87211.shtml
+- 2026-06-30 09:07 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://www.share.minike.top/Article/details/011656.shtml
+- 2026-06-30 09:05 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:http://www.share.kurohicncr.top/Article/details/93396.shtml
+- 2026-06-30 09:22 - 房价什么时候能涨<br><br> | ??:http://www.blog.minike.top/Article/details/065498.shtml
+- 2026-06-30 09:11 - 王楚钦说配合稍微有些陌生感<br><br> | ??:http://www.share.minike.top/Article/details/086064.shtml
+- 2026-06-30 08:56 - 内马尔安慰日本球员<br><br> | ??:https://www.share.kurohicncr.top/Article/details/88084.shtml

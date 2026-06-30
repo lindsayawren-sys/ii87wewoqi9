@@ -1,47 +1,58 @@
-# Vingroup将向美国VinMotion USA公司投资1300万美元
+# 1架新西兰军机多次抵近中国周边空域 中方：已作出坚决有力应对
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-Vingroup官网发布公告称，公司旗下子公司计划向美国企业VinMotion USA投资约1300万美元，通过股权收购或注资方式，开展人形机器人产品的研发工作。 该集团还拟在美国设立研发中心，招揽人才，并与全球各地的高校、科研机构及科技伙伴展开合作。责任编辑：何云
+中新网北京4月17日电 (记者 张蔚然 黄钰钦)中国外交部发言人郭嘉昆17日主持例行记者会。 有记者提问：据了解，近期新西兰空军1架军机多次抵近中国周边空域活动，不少民航航班受到影响。中方对此有何评论？ 郭嘉昆：近期，新西兰空军1架P-8A反潜巡逻机持续在黄海、东海海空域抵近侦察滋扰，损害中方安全利益，增加误解误判风险，也对相关空域民航飞行秩序造成严重干抗。中方已作出坚决有力应
 
 ## 正文
 
-Vingroup官网发布公告称，公司旗下子公司计划向美国企业VinMotion USA投资约1300万美元，通过股权收购或注资方式，开展人形机器人产品的研发工作。
+中新网北京4月17日电 (记者 张蔚然 黄钰钦)中国外交部发言人郭嘉昆17日主持例行记者会。
 
-该集团还拟在美国设立研发中心，招揽人才，并与全球各地的高校、科研机构及科技伙伴展开合作。
+有记者提问：据了解，近期新西兰空军1架军机多次抵近中国周边空域活动，不少民航航班受到影响。
 
-责任编辑：何云
+中方对此有何评论？
+
+郭嘉昆：近期，新西兰空军1架P-8A反潜巡逻机持续在黄海、东海海空域抵近侦察滋扰，损害中方安全利益，增加误解误判风险，也对相关空域民航飞行秩序造成严重干抗。
+
+中方已作出坚决有力应对，并向新方提出严正交涉。
+
+中方敦促新方切实遵守国际法和国际关系基本准则，尊重中国主权和安全关切，维护民用航空安全和秩序。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 09:11 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 08:56 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 08:58 - [美股收盘 热门中概股普涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 09:08 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 09:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 09:01 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 09:01 - [锐评T1战胜KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-30 09:09 - [杨紫大银幕成绩单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 08:48 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 09:00 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 09:10 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 09:00 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md
+- 2026-06-30 09:07 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md
+- 2026-06-30 09:10 - 杨紫被质疑未使用原名<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md
+- 2026-06-30 09:21 - 恋与深空<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md
+- 2026-06-30 09:13 - 德国进球被吹<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md
+- 2026-06-30 09:08 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md
+- 2026-06-30 09:24 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md
+- 2026-06-30 09:14 - 一生一世<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md
+- 2026-06-30 09:05 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md
+- 2026-06-30 08:55 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md
+- 2026-06-30 09:19 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md
+- 2026-06-30 09:11 - 巴拉圭进球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md
+- 2026-06-30 09:02 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md
+- 2026-06-30 09:12 - 乔家的儿女<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:08 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.kurohicncr.top/Article/details/2131127219.shtml)
-- 2026-06-30 09:16 - [金鹰奖视后提名预测](http://www.blog.minike.top/Article/details/86651.shtml)
-- 2026-06-30 09:05 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.minike.top/Article/details/7409079209.shtml)
-- 2026-06-30 09:01 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/8295404131.shtml)
-- 2026-06-30 09:09 - [藤森庆子赢得秘鲁总统选举](http://www.blog.kurohicncr.top/Article/details/2460364437.shtml)
-- 2026-06-30 09:15 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/41121333.shtml)
-- 2026-06-30 08:51 - [男子醉酒溺水获救后同行人拒协助抬人](https://www.blog.kurohicncr.top/Article/details/959010511.shtml)
-- 2026-06-30 09:17 - [IGN评测电影版后室](https://www.share.kurohicncr.top/Article/details/254928.shtml)
-- 2026-06-30 08:55 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/09658.shtml)
-- 2026-06-30 09:00 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/365255287937.shtml)
-- 2026-06-30 08:53 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/466019145.shtml)
-- 2026-06-30 08:53 - [F1奥地利站赛后复盘](https://www.share.kurohicncr.top/Article/details/947504089.shtml)
-- 2026-06-30 09:16 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/477424341.shtml)
-- 2026-06-30 08:54 - [点球大战](http://www.share.minike.top/Article/details/23815115.shtml)
-- 2026-06-30 09:00 - [王濛回复黄灿灿](http://www.blog.kurohicncr.top/Article/details/022726.shtml)
+- 2026-06-30 09:04 - 巴拉圭率先破门<br><br> | ??:http://www.blog.minike.top/Article/details/915257.shtml
+- 2026-06-30 09:17 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/452440.shtml
+- 2026-06-30 08:55 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:http://www.share.minike.top/Article/details/9555150.shtml
+- 2026-06-30 09:11 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:http://www.blog.minike.top/Article/details/48974.shtml
+- 2026-06-30 09:14 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:http://www.share.kurohicncr.top/Article/details/58961089162.shtml
+- 2026-06-30 09:09 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://www.blog.minike.top/Article/details/38442245.shtml
+- 2026-06-30 09:08 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.share.minike.top/Article/details/90995293379.shtml
+- 2026-06-30 09:23 - 央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/784776225459.shtml
+- 2026-06-30 09:23 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/923176632.shtml
+- 2026-06-30 09:09 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/417172389756.shtml
+- 2026-06-30 09:02 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:https://www.blog.minike.top/Article/details/33941954519.shtml
+- 2026-06-30 09:17 - 国内最大沙漠发洪水意味着什么<br><br> | ??:http://www.blog.minike.top/Article/details/846322.shtml
+- 2026-06-30 09:02 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/50570519039.shtml
+- 2026-06-30 09:07 - 豆包收费了，你还会用吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3252788436.shtml
+- 2026-06-30 09:16 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://www.blog.minike.top/Article/details/682437.shtml

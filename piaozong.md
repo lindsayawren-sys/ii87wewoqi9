@@ -1,58 +1,52 @@
-# 英伟达斥资数十亿美元布局新兴技术，有望重塑人工智能行业
+# 外媒：法国一艘船只在霍尔木兹海峡遭“警告性射击”
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-核心要点 过去三个月，英伟达已向多家光子技术研发企业投入至少 65 亿美元，全力攻克人工智能普及过程中的一大核心瓶颈。 光子技术依靠光信号传输数据。这项新兴技术相较传统电信号传输方案效率更高。电传数据能耗偏高，如今这一问题愈发制约人工智能技术的大规模应用。 自 3 月初起，英伟达先后向鲁门腾、科锐光电、迈威尔科技三家光子技术企业合计注资 20 亿美元；向康宁投资 5 亿美元，联
+中新网4月20日电 据法国《世界报》19日报道，法国达飞海运集团表示，旗下一艘船只18日在霍尔木兹海峡遭遇“警告性射击”，但船员均安然无恙。 据报道，国际海事组织表示，达飞海运一艘船只“受损”，但未透露更多细节。 另据英国海上贸易行动办公室18日通报称，接到多起霍尔木兹海峡附近船只遇袭事件的报告。一艘油轮船长报告称，伊朗伊斯兰革命卫队两艘炮艇靠近该油轮并向其开火。还有报告称，一
 
 ## 正文
 
-核心要点 过去三个月，英伟达已向多家光子技术研发企业投入至少 65 亿美元，全力攻克人工智能普及过程中的一大核心瓶颈。
+中新网4月20日电 据法国《世界报》19日报道，法国达飞海运集团表示，旗下一艘船只18日在霍尔木兹海峡遭遇“警告性射击”，但船员均安然无恙。
 
-光子技术依靠光信号传输数据。
+据报道，国际海事组织表示，达飞海运一艘船只“受损”，但未透露更多细节。
 
-这项新兴技术相较传统电信号传输方案效率更高。
+另据英国海上贸易行动办公室18日通报称，接到多起霍尔木兹海峡附近船只遇袭事件的报告。
 
-电传数据能耗偏高，如今这一问题愈发制约人工智能技术的大规模应用。
+一艘油轮船长报告称，伊朗伊斯兰革命卫队两艘炮艇靠近该油轮并向其开火。
 
-自 3 月初起，英伟达先后向鲁门腾、科锐光电、迈威尔科技三家光子技术企业合计注资 20 亿美元；向康宁投资 5 亿美元，联合研发高端光互联解决方案；同时参与光学初创企业艾尔实验室总额 5 亿美元的 E 轮融资。
-
-福雷斯特高级分析师阿尔文・阮在接受美国消费者新闻与商业频道采访时表示：“借助光子技术，英伟达得以扩大人工智能基础设施规模，同时规避继续使用铜缆电信号带来的高昂能耗成本。
-
-” “通过投资光子技术企业，英伟达能够保障该领域技术持续迭代，避免因固守铜缆电传方案，最终在扩容能力与性能表现上触及发展天花板。
-
-” 破解行业瓶颈 在人工智能基础设施中，光子技术可利用光信号，在图形处理器、内存、网络芯片、服务器及数据中心之间传输数据，不再单纯依赖铜缆电信号。
+还有报告称，一艘集装箱船遭不明发射物击中，部分集装箱受损，未引发火灾，也未造成环境影响。
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [德国连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 09:14 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 08:49 - [马宁怒怼巴拉圭教练组](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 09:01 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 08:54 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 09:17 - [莫兰特被交易到开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 09:17 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 09:02 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 09:00 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 08:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 09:04 - [人民锐评：网红不能困在无底线逐利里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 08:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 09:04 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md
+- 2026-06-30 09:00 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md
+- 2026-06-30 09:10 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md
+- 2026-06-30 09:11 - 球评巴西绝杀逆转日本<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md
+- 2026-06-30 08:58 - 五哈和他们的朋友<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md
+- 2026-06-30 09:24 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md
+- 2026-06-30 09:09 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md
+- 2026-06-30 09:14 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md
+- 2026-06-30 09:07 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md
+- 2026-06-30 09:14 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md
+- 2026-06-30 09:12 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md
+- 2026-06-30 09:21 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/865333300.shtml)
-- 2026-06-30 08:52 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/21872649063.shtml)
-- 2026-06-30 08:59 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/17507153.shtml)
-- 2026-06-30 09:15 - [德国北部枪击事件致5死](http://www.blog.minike.top/Article/details/277343278613.shtml)
-- 2026-06-30 08:54 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/40244023.shtml)
-- 2026-06-30 08:51 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/3546997999.shtml)
-- 2026-06-30 09:03 - [日本16强魔咒](https://www.blog.minike.top/Article/details/44103.shtml)
-- 2026-06-30 09:04 - [存储芯片龙头提示风险](https://www.blog.kurohicncr.top/Article/details/608316631.shtml)
-- 2026-06-30 09:13 - [郑钦文温网首轮出局](http://www.blog.kurohicncr.top/Article/details/224761.shtml)
-- 2026-06-30 08:58 - [王濛回复黄灿灿](https://www.share.kurohicncr.top/Article/details/836279911.shtml)
-- 2026-06-30 08:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/37438299970.shtml)
-- 2026-06-30 08:57 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/390453.shtml)
-- 2026-06-30 08:53 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/01889468.shtml)
-- 2026-06-30 09:05 - [锐评：网红不能困在无底线逐利里](http://www.share.kurohicncr.top/Article/details/2858602769.shtml)
-- 2026-06-30 09:12 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/63433231915.shtml)
+- 2026-06-30 09:01 - 郑钦文温网首轮出局<br><br> | ??:https://www.share.minike.top/Article/details/717555707387.shtml
+- 2026-06-30 09:14 - 《我落泪情绪零碎》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2113476.shtml
+- 2026-06-30 09:22 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://www.share.minike.top/Article/details/32809411050.shtml
+- 2026-06-30 09:03 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/73322.shtml
+- 2026-06-30 09:09 - 房价什么时候能涨<br><br> | ??:https://www.share.kurohicncr.top/Article/details/10444295705.shtml
+- 2026-06-30 09:02 - 沉睡花园<br><br> | ??:http://www.share.kurohicncr.top/Article/details/264553.shtml
+- 2026-06-30 09:16 - 本科毕业生为何涌入专科学校<br><br> | ??:https://www.blog.minike.top/Article/details/66691.shtml
+- 2026-06-30 09:09 - 这些7月新规影响你我<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7879168070.shtml
+- 2026-06-30 08:56 - 千香<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/40357650955.shtml
+- 2026-06-30 09:13 - 网红不能困在无底线逐利里<br><br> | ??:http://www.share.minike.top/Article/details/42690.shtml
+- 2026-06-30 09:01 - 日本16强魔咒<br><br> | ??:http://www.blog.minike.top/Article/details/411305408.shtml
+- 2026-06-30 09:06 - 李准基参加文彩元婚礼<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/25729181.shtml
+- 2026-06-30 09:06 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.minike.top/Article/details/293888.shtml
+- 2026-06-30 09:09 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/68439.shtml
+- 2026-06-30 09:21 - 急先锋<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/57818636116.shtml

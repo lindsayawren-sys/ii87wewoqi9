@@ -1,60 +1,60 @@
-# 禾盛新材拟募资不超1.9亿元投建国产智能算力中心，2025年净利同比增66.86%
+# 东西问丨吴伟峰：壮锦如何架起中外文明对话之桥？
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-5月28日晚间，苏州禾盛新型材料股份有限公司披露《2026年度以简易程序向特定对象发行股票预案》。根据预案，公司拟通过以简易程序向特定对象发行股票募集资金总额不超过1.9亿元，扣除发行费用后将用于“国产智能算力中心建设项目”及补充流动资金。 公告显示，本次募投项目由公司控股子公司海曦技术实施，项目总投资1.58亿元，其中拟使用募集资金1.33亿元。项目建设期为1年，主要围绕国产
+中新社南宁4月19日电 题：壮锦如何架起中外文明对话之桥？ ——专访广西中华文化促进会副主席、广西壮族自治区博物馆原馆长吴伟峰 作者 杨陈 林洁琪 壮锦与云锦、蜀锦、宋锦并称中国四大名锦，且是其中唯一的少数民族织锦。壮锦图案中蕴含着壮族信仰与生活哲学，承载壮族先民的生产生活智慧，跨越千年而存续。如今，壮锦正突破地域界限，走向海外。 4月19日，农历三月三，广西歌圩节(又称歌婆节
 
 ## 正文
 
-5月28日晚间，苏州禾盛新型材料股份有限公司披露《2026年度以简易程序向特定对象发行股票预案》。
+中新社南宁4月19日电 题：壮锦如何架起中外文明对话之桥？
 
-根据预案，公司拟通过以简易程序向特定对象发行股票募集资金总额不超过1.9亿元，扣除发行费用后将用于“国产智能算力中心建设项目”及补充流动资金。
+——专访广西中华文化促进会副主席、广西壮族自治区博物馆原馆长吴伟峰 作者 杨陈 林洁琪 壮锦与云锦、蜀锦、宋锦并称中国四大名锦，且是其中唯一的少数民族织锦。
 
-公告显示，本次募投项目由公司控股子公司海曦技术实施，项目总投资1.58亿元，其中拟使用募集资金1.33亿元。
+壮锦图案中蕴含着壮族信仰与生活哲学，承载壮族先民的生产生活智慧，跨越千年而存续。
 
-项目建设期为1年，主要围绕国产智能算力中心建设，构建标准化算力租赁服务体系，以满足市场对自主可控计算资源的需求。
+如今，壮锦正突破地域界限，走向海外。
 
-禾盛新材表示，本次募投项目是公司推进“材料+人工智能”双轮发展战略的重要举措，有助于完善人工智能相关业务布局，增强算力租赁服务能力，提升业务结构多元化水平。
+4月19日，农历三月三，广西歌圩节(又称歌婆节或歌仙节)之际，中新社“东西问”专访广西中华文化促进会副主席、广西壮族自治区博物馆原馆长吴伟峰，探讨千年技艺壮锦如何架起中外文明对话之桥。
 
-从项目效益看，预案披露，国产智能算力中心建设项目达产后预计新增年收入8592万元，年净利润1688.96万元，税后内部收益率为10.29%，税后静态投资回收期为5.01年。
+现将访谈实录摘要如下： 中新社记者：壮锦作为国家级非物质文化遗产，其工艺与文化内涵在东西方文明交流中有何作用？
 
-公司称，项目建成后有助于增强盈利能力和持续经营能力，为后续业务拓展提供新的增长支撑。
+吴伟峰：壮锦作为中国壮族独特的织锦技艺与国家级非物质文化遗产，在东西方文明交流中扮演了文化使者、创新媒介与对话桥梁的多重角色。
 
-财务数据方面，禾盛新材2025年实现营业收入25.55亿元，同比增长1.14%；归属于上市公司股东的净利润1.63亿元，同比增长66.86%；扣非后归母净利润1.63亿元，同比增长64.45%。
+壮锦的核心工艺在于以棉、麻线为地经地纬，用粗而无拈的真丝作彩纬织入起花，在织物正反面形成对称花纹，并将地组织完全覆盖。
 
 ## 相关推荐
 
-- 2026-06-30 09:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 08:54 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 08:51 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 08:49 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 08:57 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-30 09:02 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-30 08:58 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 08:58 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 08:55 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 08:59 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 09:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 09:03 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-30 09:07 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 08:48 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 08:57 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md
+- 2026-06-30 09:16 - 巴西绝杀<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md
+- 2026-06-30 09:21 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md
+- 2026-06-30 09:09 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md
+- 2026-06-30 09:23 - 一见倾心<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md
+- 2026-06-30 09:12 - 德国进球被吹<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md
+- 2026-06-30 08:59 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md
+- 2026-06-30 09:18 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md
+- 2026-06-30 09:16 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md
+- 2026-06-30 08:56 - 你这一辈子有没有为进山姆拼过命？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md
+- 2026-06-30 09:13 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md
+- 2026-06-30 09:17 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md
+- 2026-06-30 09:03 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md
+- 2026-06-30 09:01 - 流金岁月<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:02 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/491062923378.shtml)
-- 2026-06-30 08:54 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.share.kurohicncr.top/Article/details/5314460.shtml)
-- 2026-06-30 08:57 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/516495.shtml)
-- 2026-06-30 09:00 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/84119051.shtml)
-- 2026-06-30 08:57 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/685155487.shtml)
-- 2026-06-30 08:52 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/1244037080.shtml)
-- 2026-06-30 09:10 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/69624778281.shtml)
-- 2026-06-30 08:59 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://www.blog.kurohicncr.top/Article/details/29746108.shtml)
-- 2026-06-30 09:16 - [输球后日本球迷被强行披上巴西国旗](http://www.share.minike.top/Article/details/96517374486.shtml)
-- 2026-06-30 09:11 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/33836381.shtml)
-- 2026-06-30 09:11 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/01006.shtml)
-- 2026-06-30 09:06 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/646971167668.shtml)
-- 2026-06-30 09:15 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/173372312.shtml)
-- 2026-06-30 09:15 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/165490.shtml)
-- 2026-06-30 08:49 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.blog.minike.top/Article/details/3726542.shtml)
+- 2026-06-30 09:17 - 德国淘汰<br><br> | ??:http://www.blog.minike.top/Article/details/063615920430.shtml
+- 2026-06-30 09:10 - 这种关系可能正在悄悄“催老”你<br><br> | ??:http://www.share.minike.top/Article/details/970905.shtml
+- 2026-06-30 09:06 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.blog.minike.top/Article/details/488669.shtml
+- 2026-06-30 09:21 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.blog.minike.top/Article/details/844093799204.shtml
+- 2026-06-30 08:54 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://www.share.kurohicncr.top/Article/details/749318.shtml
+- 2026-06-30 09:07 - 又一家县级医院关停门诊输液大厅<br><br> | ??:http://www.share.minike.top/Article/details/50544.shtml
+- 2026-06-30 09:08 - 德国进球被吹<br><br> | ??:https://www.share.kurohicncr.top/Article/details/05196088503.shtml
+- 2026-06-30 09:06 - 日本淘汰<br><br> | ??:http://www.share.kurohicncr.top/Article/details/33633208823.shtml
+- 2026-06-30 09:12 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:http://www.blog.minike.top/Article/details/55661063.shtml
+- 2026-06-30 09:19 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/412642624.shtml
+- 2026-06-30 09:09 - 存储芯片龙头提示风险<br><br> | ??:https://www.share.kurohicncr.top/Article/details/67098254.shtml
+- 2026-06-30 09:18 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://www.share.minike.top/Article/details/94177154.shtml
+- 2026-06-30 09:14 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://www.share.minike.top/Article/details/515149145.shtml
+- 2026-06-30 08:58 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://www.share.kurohicncr.top/Article/details/55786.shtml
+- 2026-06-30 09:20 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1640243.shtml

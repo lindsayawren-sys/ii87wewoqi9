@@ -1,58 +1,59 @@
-# （友城故事）浙江绍兴国际友城增至59个
+# 阿联酋股市因美伊和谈希望上涨，迪拜指数创六周新高
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新社浙江绍兴5月29日电 (项菁)“这是我第三次来到绍兴，每一次到访都感受到城市在不断发展和创新。愿我们不只是完成纸上的签约，更能促进两地民众多走动、常往来，在旅游、交流中增进了解、加深情谊。”意大利阿斯蒂市市长毛里齐奥·拉塞罗(Maurizio Rasero)29日在浙江绍兴接受中新社采访时说。 在当日举行的绍兴第六届国际友城大会上，绍兴与意大利阿斯蒂市、突尼斯凯鲁万市分别
+受美伊可能重启和谈以及黎以停火协议生效的消息提振，阿联酋股市周五延续涨势，迪拜指数收于六周高点，本周累计涨幅创下逾九个月之最。 迪拜金融市场综合指数周五上涨1%，收报于六周高位。蓝筹地产开发商Emaar Properties上涨1.1%，最大银行Emirates NBD跳涨2%。该指数本周累计上涨4.8%，为九个多月以来的最佳单周表现。 阿布扎比金融市场指数微涨0.03%，本周
 
 ## 正文
 
-中新社浙江绍兴5月29日电 (项菁)“这是我第三次来到绍兴，每一次到访都感受到城市在不断发展和创新。
+受美伊可能重启和谈以及黎以停火协议生效的消息提振，阿联酋股市周五延续涨势，迪拜指数收于六周高点，本周累计涨幅创下逾九个月之最。
 
-愿我们不只是完成纸上的签约，更能促进两地民众多走动、常往来，在旅游、交流中增进了解、加深情谊。
+迪拜金融市场综合指数周五上涨1%，收报于六周高位。
 
-”意大利阿斯蒂市市长毛里齐奥·拉塞罗(Maurizio Rasero)29日在浙江绍兴接受中新社采访时说。
+蓝筹地产开发商Emaar Properties上涨1.1%，最大银行Emirates NBD跳涨2%。
 
-在当日举行的绍兴第六届国际友城大会上，绍兴与意大利阿斯蒂市、突尼斯凯鲁万市分别签署友好城市协议，正式缔结为友城关系。
+该指数本周累计上涨4.8%，为九个多月以来的最佳单周表现。
 
-至此，绍兴已与29个国家的59个城市建立友好城市或友好交流关系。
+阿布扎比金融市场指数微涨0.03%，本周累计上涨0.8%。
 
-自2016年创办以来，绍兴国际友城大会已形成两年一届的会制。
+Aldar Properties在宣布交付价值28亿迪拉姆的9000套租赁住宅后，股价上涨0.5%。
 
-前五届大会累计达成近60个项目签约，项目成效明显。
+阿布扎比最大银行First Abu Dhabi Bank亦上涨1.6%。
 
-本届大会以“友城聚力同心，发展赋能未来”为主题，吸引来自21个国家和地区的友城代表等参会。
+不过，权重股International Holding Company下跌0.5%，阿布扎比商业银行下跌0.6%，一定程度上限制了指数涨幅。
 
 ## 相关推荐
 
-- 2026-06-30 09:11 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 09:10 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 09:13 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 09:09 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 08:55 - [“荒唐”背后的韩国足球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 09:11 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 09:10 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 09:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 09:03 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 08:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 09:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 09:11 - [德国队回应爆冷淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 09:07 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md
+- 2026-06-30 08:56 - 科学备孕男女都要上心<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md
+- 2026-06-30 09:19 - 王灿兮被烫伤两年后维权成功<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md
+- 2026-06-30 09:04 - 不开心就去看三年前的购物订单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md
+- 2026-06-30 09:23 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md
+- 2026-06-30 09:09 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md
+- 2026-06-30 08:59 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md
+- 2026-06-30 09:11 - 王健林甩卖超80座万达广场<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md
+- 2026-06-30 09:21 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md
+- 2026-06-30 08:58 - 这些7月新规影响你我<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md
+- 2026-06-30 09:16 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md
+- 2026-06-30 09:15 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md
+- 2026-06-30 09:16 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [德国身价是巴拉圭6倍](http://www.share.minike.top/Article/details/38496471.shtml)
-- 2026-06-30 08:49 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/146132.shtml)
-- 2026-06-30 09:06 - [世界杯](http://www.share.minike.top/Article/details/97506.shtml)
-- 2026-06-30 08:50 - [妻子撞死家暴丈夫案二审案情反转](http://www.blog.minike.top/Article/details/5670817329.shtml)
-- 2026-06-30 08:51 - [天道](http://www.share.kurohicncr.top/Article/details/60511.shtml)
-- 2026-06-30 08:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/750115094050.shtml)
-- 2026-06-30 08:52 - [巴西扳平比分](http://www.share.minike.top/Article/details/24721803.shtml)
-- 2026-06-30 09:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/8299124.shtml)
-- 2026-06-30 08:56 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/369462088142.shtml)
-- 2026-06-30 09:08 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/677166239137.shtml)
-- 2026-06-30 08:59 - [低智商犯罪三江口团建来了](https://www.share.kurohicncr.top/Article/details/95753365.shtml)
-- 2026-06-30 08:51 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/09940.shtml)
-- 2026-06-30 08:53 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/4243612433.shtml)
-- 2026-06-30 08:59 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/9831288.shtml)
-- 2026-06-30 08:48 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/2530360696.shtml)
+- 2026-06-30 09:04 - 如何评价杨紫白玉兰获奖<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/20689.shtml
+- 2026-06-30 09:01 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0297032155.shtml
+- 2026-06-30 09:00 - 健全中小学教师工资长效联动机制<br><br> | ??:https://www.blog.minike.top/Article/details/289399112853.shtml
+- 2026-06-30 09:08 - 极限挑战第一季<br><br> | ??:http://www.blog.minike.top/Article/details/926820314.shtml
+- 2026-06-30 09:01 - 外国游客开始涌入中国农村<br><br> | ??:https://www.share.minike.top/Article/details/130892939.shtml
+- 2026-06-30 09:00 - 德国 传控<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4833059.shtml
+- 2026-06-30 09:20 - 如果有二次元高中是什么样子的？<br><br> | ??:http://www.share.minike.top/Article/details/0220916663.shtml
+- 2026-06-30 09:22 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://www.share.minike.top/Article/details/66263.shtml
+- 2026-06-30 09:08 - 王濛回复黄灿灿<br><br> | ??:https://www.share.minike.top/Article/details/840956535992.shtml
+- 2026-06-30 09:17 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/802875.shtml
+- 2026-06-30 09:09 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9461257.shtml
+- 2026-06-30 09:12 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:https://www.share.kurohicncr.top/Article/details/25613447114.shtml
+- 2026-06-30 09:18 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/851284134386.shtml
+- 2026-06-30 09:22 - 青春环游记第三季<br><br> | ??:http://www.share.minike.top/Article/details/31464402.shtml
+- 2026-06-30 09:16 - 球评巴西绝杀逆转日本<br><br> | ??:https://www.share.minike.top/Article/details/80169150060.shtml

@@ -1,56 +1,58 @@
-# 摩根士丹利沈黎：外资加速流入中国，对中国资产的认知正转变为“一定要投”
+# 奥特曼成为OpenAI超级IPO的风险因素
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月29日，在深交所2026全球投资者大会上，摩根士丹利（亚洲）中国区在岸股权业务主管、摩根士丹利期货（中国）有限公司董事长沈黎表示，外资布局中国资产已迎来拐点，2025年外资重回中国市场净流入通道，2026年资金回流速度
+《纽约客》杂志刊登了一篇兼具人物特写与调查报道的文章，深入剖析了OpenAI首席执行官萨姆·奥特曼的性格弱点（姑且用这个委婉的说法），而他正在推动这家人工智能公司进行IPO，届时公司估值可能超过1万亿美元。这篇文章得出的结论是：尽管IPO相关文件可能不会提及这一点，但该公司面临的最大所谓“风险因素”之一，正是奥特曼本人。 从本质上说，此次IPO相当于承认，这家刚以8520亿美元
 
 ## 正文
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+《纽约客》杂志刊登了一篇兼具人物特写与调查报道的文章，深入剖析了OpenAI首席执行官萨姆·奥特曼的性格弱点（姑且用这个委婉的说法），而他正在推动这家人工智能公司进行IPO，届时公司估值可能超过1万亿美元。
 
-5月29日，在深交所2026全球投资者大会上，摩根士丹利（亚洲）中国区在岸股权业务主管、摩根士丹利期货（中国）有限公司董事长沈黎表示，外资布局中国资产已迎来拐点，2025年外资重回中国市场净流入通道，2026年资金回流速度进一步加快，海外投资者对中国资产的定位，也从可选配置转变为必备配置。
+这篇文章得出的结论是：尽管IPO相关文件可能不会提及这一点，但该公司面临的最大所谓“风险因素”之一，正是奥特曼本人。
 
-基本面、估值双重优势支撑中国资产长期价值。
+从本质上说，此次IPO相当于承认，这家刚以8520亿美元的估值从投资者处筹集了1220亿美元的ChatGPT开发商，似乎需要源源不断的资金来支持其实现通用人工智能的竞赛。
 
-2026年国内AI投资同比增长近20%，规模逼近9000亿元，新质生产力成为经济核心增长动力；国内新能源汽车、光伏等先进制造产业全球领先，2030年中国先进制造出口全球份额有望升至16.5%。
+仅这一目标本身就足以引发审慎的尽职调查——通用人工智能是否真的可能实现？
 
-估值层面，MSCI中国12倍市盈率低于新兴市场均值，叠加15%的年度盈利增速、极低的美国市场收入敞口，避险与分散配置优势凸显。
+——更不用说，还要担心这位首席执行官极难预测、易于发表不实言论的因素。
 
-沈黎指出，中国资本市场凭借低市场相关性、独立经济政策周期、超大市场规模三大特征，区别于印度、巴西等新兴市场，可作为独立资产类别分散全球投资风险。
+奥特曼强势激进的作风，与一项可能带来巨大颠覆的技术显得格格不入。
 
-同时资本市场制度型开放持续推进，未来外资投资渠道将持续优化，中国资产可投资性将进一步提升。
+批评者的核心指控在于，奥特曼的竞争冲动已经把安全问题挤到了次要位置。
 
-摩根士丹利重点看好A股高端制造、硬科技、生物医药等赛道，相较港股，A股独立行情属性更强，配置价值更为突出。
+他曾承诺慷慨支持“超级对齐”团队——这些团队的任务是确保人工智能行为有助于人类目标——最终却被证明是空话。
 
 ## 相关推荐
 
-- 2026-06-30 09:05 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 08:51 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 09:03 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 08:50 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 09:14 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 09:02 - [日本球迷输球后集体捡垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 09:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 08:57 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 08:55 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 09:01 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 09:10 - 巴拉圭进球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md
+- 2026-06-30 08:55 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md
+- 2026-06-30 09:13 - 王健林甩卖超80座万达广场<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md
+- 2026-06-30 08:58 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md
+- 2026-06-30 08:54 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md
+- 2026-06-30 09:20 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md
+- 2026-06-30 09:12 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md
+- 2026-06-30 09:06 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md
+- 2026-06-30 08:55 - 手底下人带不动怎么办？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md
+- 2026-06-30 09:14 - 明星大侦探第一季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md
+- 2026-06-30 09:00 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md
+- 2026-06-30 08:54 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:14 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/960698.shtml)
-- 2026-06-30 08:51 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/21976330989.shtml)
-- 2026-06-30 09:06 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/097047117683.shtml)
-- 2026-06-30 09:08 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://www.blog.kurohicncr.top/Article/details/86433.shtml)
-- 2026-06-30 08:50 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/637787073.shtml)
-- 2026-06-30 09:00 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/77198393507.shtml)
-- 2026-06-30 08:56 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/4548521561.shtml)
-- 2026-06-30 09:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/108528.shtml)
-- 2026-06-30 09:08 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/32066116732.shtml)
-- 2026-06-30 08:54 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/4743143240.shtml)
-- 2026-06-30 08:58 - [峡谷事故团队组队时有人提醒会下雨](https://www.blog.kurohicncr.top/Article/details/49088736412.shtml)
-- 2026-06-30 09:14 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/314050947009.shtml)
-- 2026-06-30 09:09 - [德国巴拉圭 折磨](https://www.share.minike.top/Article/details/2848368.shtml)
-- 2026-06-30 08:51 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.kurohicncr.top/Article/details/5331563.shtml)
-- 2026-06-30 09:03 - [低智商犯罪三江口团建来了](http://www.share.minike.top/Article/details/13023066778.shtml)
+- 2026-06-30 09:02 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:http://www.share.minike.top/Article/details/2558039.shtml
+- 2026-06-30 09:16 - 中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2981013236.shtml
+- 2026-06-30 09:05 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:http://www.share.kurohicncr.top/Article/details/74510732457.shtml
+- 2026-06-30 09:16 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/011347.shtml
+- 2026-06-30 09:11 - 商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？<br><br> | ??:http://www.blog.minike.top/Article/details/327932555412.shtml
+- 2026-06-30 09:14 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:http://www.blog.minike.top/Article/details/847163737.shtml
+- 2026-06-30 09:00 - 赛博朋克边缘行者2预告片<br><br> | ??:http://www.share.minike.top/Article/details/66219624.shtml
+- 2026-06-30 09:17 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/67220.shtml
+- 2026-06-30 09:15 - 送你一朵小红花<br><br> | ??:https://www.share.minike.top/Article/details/877593.shtml
+- 2026-06-30 09:04 - 孙兴慜发长文致歉<br><br> | ??:https://www.blog.minike.top/Article/details/061588.shtml
+- 2026-06-30 09:16 - 王源近几年没有路演了<br><br> | ??:http://www.share.minike.top/Article/details/702656960.shtml
+- 2026-06-30 09:13 - 我设置了全宇宙最安全的密码<br><br> | ??:https://www.share.kurohicncr.top/Article/details/88041628701.shtml
+- 2026-06-30 09:16 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/245198089338.shtml
+- 2026-06-30 09:15 - 本科毕业生为何涌入专科学校<br><br> | ??:https://www.share.kurohicncr.top/Article/details/73443205128.shtml
+- 2026-06-30 09:22 - 这些7月新规影响你我<br><br> | ??:http://www.blog.minike.top/Article/details/5728260233.shtml

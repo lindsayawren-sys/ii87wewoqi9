@@ -1,60 +1,60 @@
-# 第23届香格里拉对话会将在新加坡举行 各方聚焦安全议题
+# 农业农村部部署2026年种业监管执法工作
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-第23届香格里拉对话会29日起至31日在新加坡举行，开幕式将于29日晚举行。来自全球40多个国家和地区的国防部长、高级军事官员、安全专家和学者，将围绕亚太安全局势等议题展开讨论。在中东局势持续紧张、全球供应链与能源安全风险上升背景下，本届对话会受到国际社会高度关注。总台记者 刘畅：我现在是在新加坡香格里拉酒店，第23届香格里拉对话会将在这里召开。此次对话会将举行六场全体会议、两
+中新网4月17日电 据农业农村部网站消息，近日农业农村部印发通知，在全国范围内部署开展2026年种业监管执法提升年活动，在严格常态化监管基础上强化全链条全流程精准管控，推进行政执法和刑事司法紧密衔接，严厉打击假冒伪劣、套牌侵权等违法行为，推动市场环境持续优化，有力保障农业用种安全，夯实国家粮食安全种源基础。通知要求，坚持“露头就打”常态化监管，聚焦关键农时农事，开展春、秋季种子
 
 ## 正文
 
-第23届香格里拉对话会29日起至31日在新加坡举行，开幕式将于29日晚举行。
+中新网4月17日电 据农业农村部网站消息，近日农业农村部印发通知，在全国范围内部署开展2026年种业监管执法提升年活动，在严格常态化监管基础上强化全链条全流程精准管控，推进行政执法和刑事司法紧密衔接，严厉打击假冒伪劣、套牌侵权等违法行为，推动市场环境持续优化，有力保障农业用种安全，夯实国家粮食安全种源基础。
 
-来自全球40多个国家和地区的国防部长、高级军事官员、安全专家和学者，将围绕亚太安全局势等议题展开讨论。
+通知要求，坚持“露头就打”常态化监管，聚焦关键农时农事，开展春、秋季种子市场检查，分别以玉米、水稻、大豆和小麦、油菜等种子为重点，严查质量及包装标签、经营档案、备案等情况，严惩假冒伪劣、套牌侵权等违法违规行为。
 
-在中东局势持续紧张、全球供应链与能源安全风险上升背景下，本届对话会受到国际社会高度关注。
+夏季制种关键期开展基地检查，重点核查生产合同、亲本来源、品种权属等情况，严厉打击无证生产、盗取亲本、非法扩繁等行为。
 
-总台记者 刘畅：我现在是在新加坡香格里拉酒店，第23届香格里拉对话会将在这里召开。
+冬季开展企业检查，重点核查企业资质条件、生产经营档案、种子质量、品种真实性等情况。
 
-此次对话会将举行六场全体会议、两场部长级圆桌会议、三场特别会议和一场特别演讲。
+持续推进网络售种整治，加大监督抽查力度，强化抽检结果运用。
 
-与会代表将就亚洲不断变化的战略格局、应对跨区域安全威胁、加强亚洲海上安全等议题展开讨论。
+对部分网络售种商户集中县开展实地核查，严查虚假主体、许可备案信息不实及销售假冒伪劣种子等行为。
 
-新加坡国立大学治理与永续发展战略研究所所长 卢耀群：我认为，在香格里拉对话会讨论的众多全球议题中，最突出的议题之一就是亚洲安全。
+督促指导网络平台严格审核售种主体资质，清理整治无许可证或未备案售种商户，及时下架问题种子。
 
-重要的是各国领导人以及军方高层，以一种相互尊重的方式齐聚一堂，非常坦诚地讨论亚洲的重要性、区域主义以及能够惠及所有人民和所有经济体的全球主义。
+强化牛冷冻精液质量整治，加大冻精抽查力度，扩大抽检范围，推行“检打联动”，严厉打击销售伪劣冻精、未经审批进口冻精等违法违规行为。
 
 ## 相关推荐
 
-- 2026-06-30 09:14 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 09:12 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 08:54 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 09:02 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 08:49 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-30 09:01 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 08:53 - [人民锐评：网红不能困在无底线逐利里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 09:05 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 08:48 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 08:52 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 08:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 09:09 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 09:14 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 08:58 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 09:23 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md
+- 2026-06-30 08:58 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md
+- 2026-06-30 09:16 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md
+- 2026-06-30 09:22 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md
+- 2026-06-30 09:07 - 马航370搜寻最新消息<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md
+- 2026-06-30 09:08 - 人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md
+- 2026-06-30 09:16 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md
+- 2026-06-30 09:04 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md
+- 2026-06-30 08:59 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md
+- 2026-06-30 08:58 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md
+- 2026-06-30 09:23 - 金鹰奖视后提名预测<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md
+- 2026-06-30 09:10 - 王濛回复黄灿灿<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md
+- 2026-06-30 08:55 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md
+- 2026-06-30 09:17 - 巴西vs日本<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:01 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/56208.shtml)
-- 2026-06-30 08:54 - [内马尔替补](http://www.blog.minike.top/Article/details/6482030093.shtml)
-- 2026-06-30 08:58 - [德国连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/774671.shtml)
-- 2026-06-30 09:14 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/222630.shtml)
-- 2026-06-30 08:50 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/32116785.shtml)
-- 2026-06-30 09:04 - [郑钦文温网三连败西尼亚科娃](https://www.blog.minike.top/Article/details/554478691.shtml)
-- 2026-06-30 09:11 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/36930.shtml)
-- 2026-06-30 09:14 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/2905952.shtml)
-- 2026-06-30 08:59 - [郑钦文温网三连败西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/702985284.shtml)
-- 2026-06-30 09:04 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.share.minike.top/Article/details/75934894842.shtml)
-- 2026-06-30 09:12 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/7788197.shtml)
-- 2026-06-30 08:53 - [德国罚丢3粒点球](https://www.blog.minike.top/Article/details/625038.shtml)
-- 2026-06-30 09:17 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/5596721.shtml)
-- 2026-06-30 08:53 - [《名肘探科比》：科比大战裂口女](https://www.blog.kurohicncr.top/Article/details/76296863.shtml)
-- 2026-06-30 08:55 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/1340048556.shtml)
+- 2026-06-30 09:19 - 锐评T1战胜KC<br><br> | ??:http://www.share.minike.top/Article/details/7588457.shtml
+- 2026-06-30 09:21 - 董卿母亲癌症去世<br><br> | ??:http://www.share.kurohicncr.top/Article/details/5584309116.shtml
+- 2026-06-30 09:13 - 德国vs巴拉圭<br><br> | ??:https://www.share.kurohicncr.top/Article/details/436975129.shtml
+- 2026-06-30 09:12 - 谢依霖说杨幂是聚会第一把张罗手<br><br> | ??:https://www.blog.minike.top/Article/details/0586442764.shtml
+- 2026-06-30 09:19 - 高质量发展看新疆<br><br> | ??:https://www.share.kurohicncr.top/Article/details/08260747.shtml
+- 2026-06-30 09:19 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:http://www.share.minike.top/Article/details/44410349.shtml
+- 2026-06-30 09:08 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://www.blog.minike.top/Article/details/047079726.shtml
+- 2026-06-30 09:17 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:http://www.blog.minike.top/Article/details/88468395493.shtml
+- 2026-06-30 08:59 - 为什么香港的冲厕水是咸的？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/982733839049.shtml
+- 2026-06-30 09:21 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8321897.shtml
+- 2026-06-30 09:11 - 美人鱼<br><br> | ??:http://www.blog.minike.top/Article/details/76936455.shtml
+- 2026-06-30 08:55 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/313710.shtml
+- 2026-06-30 08:55 - 欧盟分楼层开空调惹争议<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/65591417.shtml
+- 2026-06-30 09:10 - 扫黑风暴<br><br> | ??:http://www.share.minike.top/Article/details/685823502.shtml
+- 2026-06-30 09:11 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://www.share.kurohicncr.top/Article/details/7465151137.shtml

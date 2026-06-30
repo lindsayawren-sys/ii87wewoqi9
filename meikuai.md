@@ -1,60 +1,59 @@
-# 零一汽车，成立不满4年，递表港交所
+# （乡村行·看振兴）山西闻喜千亩苹果花开春管忙 精细疏花夯实丰产根基
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财通社 5月28日，江苏零一汽车科技股份有限公司（下称“零一汽车”）向港交所主板递交上市申请。 招股书链接：https：//www1.hkexnews.hk/app/sehk/2026/108588/documents/sehk26052802579_c.pdf 零一汽车成立于2022年6月，总部位于
+中新网运城4月20日电 (李庭耀 杨秀文)谷雨时节，地处晋南的山西省运城市闻喜县的果园迎来盛花期。在阳隅镇瓮村千亩苹果种植基地，漫山遍野的苹果花洁白如雪、缀满枝头，果农们正抢抓农时，穿梭于花海林间开展精细化疏花作业，田间地头一派繁忙的春日耕耘景象。 当前正值果树花期管护黄金期。连片果园内花香袭人，层层叠叠的苹果花在枝头绽放。果农们指尖轻剪，细致地剔除弱花、劣花以及多余的花序，用
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网运城4月20日电 (李庭耀 杨秀文)谷雨时节，地处晋南的山西省运城市闻喜县的果园迎来盛花期。
 
-来源：财通社 5月28日，江苏零一汽车科技股份有限公司（下称“零一汽车”）向港交所主板递交上市申请。
+在阳隅镇瓮村千亩苹果种植基地，漫山遍野的苹果花洁白如雪、缀满枝头，果农们正抢抓农时，穿梭于花海林间开展精细化疏花作业，田间地头一派繁忙的春日耕耘景象。
 
-招股书链接：https：//www1.hkexnews.hk/app/sehk/2026/108588/documents/sehk26052802579_c.pdf 零一汽车成立于2022年6月，总部位于江苏太仓，是全球领先的新能源智能重卡科技公司，在自动驾驶重卡技术方面处于领先地位。
+当前正值果树花期管护黄金期。
 
-根据弗若斯特沙利文的资料，零一汽车是全球首家同时具备正向设计整车开发能力及重卡自动驾驶端到端多模态大语言模型的公司。
+连片果园内花香袭人，层层叠叠的苹果花在枝头绽放。
 
-公司主营新能源智能重卡整车销售、无人重卡解决方案两大业务，自主开发新能源应用的关键整车系统零部件，包括矩石四合一电驱桥、多源热管理系统及智能整车控制系统，并将其集成至统一整车平台。
+果农们指尖轻剪，细致地剔除弱花、劣花以及多余的花序，用心做好花期管护工作。
 
-2024年，零一汽车正式推出并开始交付惊蛰和小满两款新能源智能重卡车型。
+果树花期精细化管理是提升果品品质、保障稳产增收的关键一环。
 
-根据弗若斯特沙利文的资料，其创下了行业内以正向定义方式实现新能源智能重卡批量交付的最快记录。
+正在田间劳作的果农向记者介绍，苹果种植讲究疏花定果，生产中及时疏除腋花芽、瘦弱花枝与劣质花序，保留长势健壮、饱满优质的中心花，能够有效减少树体养分消耗，集中营养供给果实生长发育。
 
-近三年，公司的收入主要来源于新能源智能重卡的销售。
+这样做既能稳定提升坐果质量，又能促进果形周正、色泽优良，从源头上改善果品品相、提升商品价值，为秋季的优质丰产筑牢根基。
 
 ## 相关推荐
 
-- 2026-06-30 09:14 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 09:17 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 09:11 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 09:01 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 09:14 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 09:05 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 09:13 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 09:14 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 09:08 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 09:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 09:03 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 09:00 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 09:12 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 09:17 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 09:05 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md
+- 2026-06-30 09:19 - 追梦拒绝2770万美元球员选项<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md
+- 2026-06-30 09:20 - 日本博主：日本足球真的垃圾<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md
+- 2026-06-30 08:56 - 德国巴拉圭 折磨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md
+- 2026-06-30 09:23 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md
+- 2026-06-30 08:54 - 流金岁月<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md
+- 2026-06-30 08:58 - 三星投资计划<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md
+- 2026-06-30 09:06 - 张碧晨一开口梦回逐玉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md
+- 2026-06-30 09:07 - 人类...完蛋了...<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md
+- 2026-06-30 09:01 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md
+- 2026-06-30 08:57 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md
+- 2026-06-30 09:02 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md
+- 2026-06-30 09:17 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://www.blog.minike.top/Article/details/29789.shtml)
-- 2026-06-30 09:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/87497840263.shtml)
-- 2026-06-30 09:02 - [iPhone18e曝光](http://www.share.minike.top/Article/details/845267941676.shtml)
-- 2026-06-30 09:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/417866.shtml)
-- 2026-06-30 09:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/335377976.shtml)
-- 2026-06-30 09:05 - [德国北部枪击事件致5死](https://www.share.minike.top/Article/details/509940908.shtml)
-- 2026-06-30 09:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/845894.shtml)
-- 2026-06-30 08:53 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/1889380589.shtml)
-- 2026-06-30 09:09 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/199859.shtml)
-- 2026-06-30 09:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/705267193.shtml)
-- 2026-06-30 09:12 - [第3集丨“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/45202551.shtml)
-- 2026-06-30 08:52 - [日耳曼拖拉机](https://www.blog.minike.top/Article/details/6878317893.shtml)
-- 2026-06-30 09:10 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/067811554231.shtml)
-- 2026-06-30 08:54 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/53889968491.shtml)
-- 2026-06-30 08:56 - [德国队连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/7443620.shtml)
+- 2026-06-30 09:19 - 扬名立万<br><br> | ??:http://www.blog.minike.top/Article/details/448670.shtml
+- 2026-06-30 08:55 - 任素汐舞台上唱《王招君》<br><br> | ??:https://www.share.kurohicncr.top/Article/details/848301.shtml
+- 2026-06-30 09:04 - 青春环游记第三季<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/63182.shtml
+- 2026-06-30 09:19 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:http://www.share.minike.top/Article/details/3256014.shtml
+- 2026-06-30 09:11 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://www.blog.minike.top/Article/details/53496520.shtml
+- 2026-06-30 09:12 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:http://www.share.minike.top/Article/details/57368790791.shtml
+- 2026-06-30 09:20 - 高质量发展看新疆<br><br> | ??:http://www.share.minike.top/Article/details/2124227.shtml
+- 2026-06-30 09:13 - 内马尔替补<br><br> | ??:https://www.blog.minike.top/Article/details/72347688.shtml
+- 2026-06-30 09:09 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.share.minike.top/Article/details/84862657.shtml
+- 2026-06-30 09:22 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/84493324844.shtml
+- 2026-06-30 09:08 - “中国养猪场都用上空调了”！这是真的吗？【主播说三农】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/1926689008.shtml
+- 2026-06-30 09:17 - 索马里女大使：想和中国一起搞事业<br><br> | ??:http://www.share.minike.top/Article/details/71590.shtml
+- 2026-06-30 09:19 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4368852769.shtml
+- 2026-06-30 09:23 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:http://www.share.kurohicncr.top/Article/details/67605426652.shtml
+- 2026-06-30 09:05 - 巴西2-1绝杀日本<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6409182.shtml

@@ -1,61 +1,56 @@
-# 重庆快速路五横线关键节点工程通车
+# 以“稳”求“效” 千亿茅台业绩背后的长期主义
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月31日电 (张旭)5月31日凌晨，备受重庆市民关注的陶家隧道项目正式通车。该项目是重庆快速路五横线关键节点工程，其通车为当地交通格局优化、城市高质量发展注入全新动能。 陶家隧道项目(含长3.6公里的陶家隧道、1座互通式立交、3座简易立交)全长约13.5公里，东西走向，起于九龙坡区一纵线陶家立交，途经陶家镇，以特长隧道形式穿越中梁山，经跳磴、小南海等地，止于大渡口区
+4月16日晚间，贵州茅台发布2025年年报，报告显示，2025年公司实现营业总收入1720.54亿元，利润总额1147.55亿元，归母净利润823.20亿元。在白酒行业深度调整期，国内外市场都面临较大的困难和挑战下，贵州茅台作为行业龙头企业，这份业绩殊为不易。业内人士认为，在行业整体承压、消费动能重构的当下，贵州茅台并未谋求急功近利的短期增长，而是实事求是，不“唯指标论”，坚持
 
 ## 正文
 
-中新网重庆5月31日电 (张旭)5月31日凌晨，备受重庆市民关注的陶家隧道项目正式通车。
+4月16日晚间，贵州茅台发布2025年年报，报告显示，2025年公司实现营业总收入1720.54亿元，利润总额1147.55亿元，归母净利润823.20亿元。
 
-该项目是重庆快速路五横线关键节点工程，其通车为当地交通格局优化、城市高质量发展注入全新动能。
+在白酒行业深度调整期，国内外市场都面临较大的困难和挑战下，贵州茅台作为行业龙头企业，这份业绩殊为不易。
 
-陶家隧道项目(含长3.6公里的陶家隧道、1座互通式立交、3座简易立交)全长约13.5公里，东西走向，起于九龙坡区一纵线陶家立交，途经陶家镇，以特长隧道形式穿越中梁山，经跳磴、小南海等地，止于大渡口区快速路二纵线李家湾立交。
+业内人士认为，在行业整体承压、消费动能重构的当下，贵州茅台并未谋求急功近利的短期增长，而是实事求是，不“唯指标论”，坚持以“稳”求“效”，致力于自身市场化改革，这是一项系统性、长期性工程，改革红利不会马上释放。
 
-陶家隧道项目由重庆城投基础设施建设有限公司组织建设，由中铁大桥局、中交三航局九公司分标段承建。
+长远而言，随着市场化改革持续走深、各项举措稳步落地，改革带来的综合效益与发展红利，将会在未来逐步显现、持续兑现，为企业高质量发展积蓄动能，继续为股东、渠道、消费者创造长期价值。
 
-陶家隧道地质条件复杂，沿线岩溶、暗河、采空区、富水破碎带遍布，地表建筑密集、水环境敏感，施工风险高。
+对股东：以精细化管理打造市值管理标杆 对于投资者而言，评判一家公司的价值，不能只看短期的业绩利润，更要看其回馈股东的意愿与长期盈利能力。
 
-项目依托超前地质预报与监测预警，结合动态设计、动态施工模式，配套完善隐患排查及应急处置方案，顺利化解不良地质带来的难题，实现隧道安全贯通。
+长期以来，茅台的市值管理备受瞩目，其目标是成为A股市值管理的标杆企业，而核心抓手在于制度体系的建立与市值管理工具的灵活运用。
 
-此外，建设者们始终践行绿色建造理念，落实场地全封闭、裸土全覆盖、喷淋降尘、扬尘实时监测等举措，依托智慧工地调度中心实现线上全域巡查，凭借标准化管理获业界认可。
+当前，茅台正多措并举健全完善市值管理体系，包括发布实施《市值管理办法》《投资者关系管理办法》，持续提升市值管理精细化、规范化水平，这意味着，茅台对股东价值的维护不再是临时性的，而是有章可循、有据可依的常态化工作，通过规范化的投资者关系管理，主动倾听市场声音，及时回应股东关切。
 
-陶家隧道项目通车后，将直接服务双福、西彭、陶家、跳磴等组团，实现江津区、大渡口区、九龙坡区快速通达，对助推西部(重庆)科学城建设、加快成渝地区双城经济圈发展具有重要意义。
+在制度保障的基础上，茅台灵活运用分红、回购、大股东增持等一系列市场工具，打出“组合拳”。
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 09:14 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 08:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 08:57 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-30 08:52 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 08:58 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 08:48 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 08:56 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 09:08 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 09:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 09:07 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 09:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 09:11 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 08:53 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 09:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-30 09:10 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md
+- 2026-06-30 09:18 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md
+- 2026-06-30 08:59 - 健全中小学教师工资长效联动机制<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md
+- 2026-06-30 09:15 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md
+- 2026-06-30 08:55 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md
+- 2026-06-30 09:23 - 《共患难》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md
+- 2026-06-30 09:14 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md
+- 2026-06-30 09:17 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md
+- 2026-06-30 09:12 - 房价什么时候能涨<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md
+- 2026-06-30 09:10 - 内马尔替补<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:13 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/82118.shtml)
-- 2026-06-30 09:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/797474757653.shtml)
-- 2026-06-30 09:11 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/3656448.shtml)
-- 2026-06-30 09:14 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/9591876021.shtml)
-- 2026-06-30 09:03 - [急先锋](https://www.share.kurohicncr.top/Article/details/635377.shtml)
-- 2026-06-30 08:50 - [啊啊啊](http://www.share.minike.top/Article/details/47133216.shtml)
-- 2026-06-30 09:13 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.minike.top/Article/details/872411177860.shtml)
-- 2026-06-30 09:15 - [金牌调解](https://www.blog.minike.top/Article/details/73478348142.shtml)
-- 2026-06-30 08:59 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/119425595962.shtml)
-- 2026-06-30 09:15 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/7269617339.shtml)
-- 2026-06-30 09:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/125859106.shtml)
-- 2026-06-30 09:08 - [天道](http://www.share.kurohicncr.top/Article/details/730113386.shtml)
-- 2026-06-30 08:55 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/6108355047.shtml)
-- 2026-06-30 09:15 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/11106332497.shtml)
-- 2026-06-30 08:54 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/697252134207.shtml)
+- 2026-06-30 09:07 - 檀健次王楚然吻戏看热了<br><br> | ??:http://www.share.minike.top/Article/details/33971888.shtml
+- 2026-06-30 09:13 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://www.share.minike.top/Article/details/468163.shtml
+- 2026-06-30 09:09 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/954136383609.shtml
+- 2026-06-30 09:22 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:http://www.share.kurohicncr.top/Article/details/51281470.shtml
+- 2026-06-30 08:56 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://www.share.kurohicncr.top/Article/details/833463765.shtml
+- 2026-06-30 09:02 - 孙颖莎王楚钦晋级8强<br><br> | ??:https://www.share.minike.top/Article/details/9460115332.shtml
+- 2026-06-30 09:00 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:http://www.share.kurohicncr.top/Article/details/7753828.shtml
+- 2026-06-30 09:03 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://www.blog.minike.top/Article/details/67433.shtml
+- 2026-06-30 09:06 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.share.kurohicncr.top/Article/details/876915895590.shtml
+- 2026-06-30 08:54 - 普京为何将俄乌谈判时间表与伊朗挂钩<br><br> | ??:https://www.share.kurohicncr.top/Article/details/17709542309.shtml
+- 2026-06-30 09:09 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/467342269686.shtml
+- 2026-06-30 09:16 - 勇士续约波尔津吉斯<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3526003.shtml
+- 2026-06-30 09:08 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/541592585.shtml
+- 2026-06-30 09:21 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:http://www.blog.minike.top/Article/details/35410762.shtml
+- 2026-06-30 09:14 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://www.share.minike.top/Article/details/656520434.shtml

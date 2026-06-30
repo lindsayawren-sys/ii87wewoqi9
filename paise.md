@@ -1,54 +1,56 @@
-# 珠海边检总站年内查验量提前破亿 “刷脸”通关渐成主流
+# 4月18日美股成交额前20：法巴大幅上调苹果目标股价至300美元
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月31日 20:17 来源：中国新闻网 珠海边检总站对外公布，截至5月30日，该总站年内查验出入境人员已突破1亿人次大关，较2025年提前了16天。其中，查验内地赴港澳游旅客和港澳居民入出境数量分别达5500万和4200万人次，同比分别增长超9%和10%，粤港澳大湾区“硬联通”与“软联通”协同提速，三地“一小时生活圈”加速形成。 高效便捷的体验，源于智能
+周五美股成交额第1名特斯拉收高3.01%，成交361.6亿美元。特斯拉将向印度市场推出六座长轴距版Model Y L，由上海工厂出口。由于印度高达70%-110%的进口关税，其售价远高于中国市场，导致去年特斯拉在印销量仅227辆，被迫降价消化库存。该车型定位高于标准版，已确认进入澳新市场。 第2名英伟达收高1.68%，成交319.7亿美元。伯恩斯坦在一份研究报告中表示，英伟达即
 
 ## 正文
 
-发布时间：2026年05月31日 20:17 来源：中国新闻网 珠海边检总站对外公布，截至5月30日，该总站年内查验出入境人员已突破1亿人次大关，较2025年提前了16天。
+周五美股成交额第1名特斯拉收高3.01%，成交361.6亿美元。
 
-其中，查验内地赴港澳游旅客和港澳居民入出境数量分别达5500万和4200万人次，同比分别增长超9%和10%，粤港澳大湾区“硬联通”与“软联通”协同提速，三地“一小时生活圈”加速形成。
+特斯拉将向印度市场推出六座长轴距版Model Y L，由上海工厂出口。
 
-高效便捷的体验，源于智能通关模式的深度推广。
+由于印度高达70%-110%的进口关税，其售价远高于中国市场，导致去年特斯拉在印销量仅227辆，被迫降价消化库存。
 
-据了解，如今“刷脸”通关已成为大湾区跨境出行的主流方式。
+该车型定位高于标准版，已确认进入澳新市场。
 
-截至目前，珠海边检总站年内已保障超1800万人次旅客使用该模式通关，平均每5名出入境人员中就有1人选择“刷脸”通关。
+第2名英伟达收高1.68%，成交319.7亿美元。
 
-记者 邓媛雯 韦杰夫 广东报道 责任编辑：【叶攀】
+伯恩斯坦在一份研究报告中表示，英伟达即将推出的Vera Rubin平台可能进一步扩大其在人工智能硬件领域的领先地位。
+
+伯恩斯坦维持对英伟达的买入评级和300美元的目标价。
+
+该机构表示，计划于2026年下半年开始出货的新平台，其推理性能可能比当前系统提升约5倍，训练性能提升3.5倍。
 
 ## 相关推荐
 
-- 2026-06-30 09:00 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 08:51 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 09:15 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 09:03 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 08:58 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 09:11 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-30 08:56 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 09:11 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 09:00 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-30 09:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 09:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 09:06 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 08:55 - 日本博主：日本足球真的垃圾<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md
+- 2026-06-30 08:54 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md
+- 2026-06-30 09:11 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md
+- 2026-06-30 09:11 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md
+- 2026-06-30 09:06 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md
+- 2026-06-30 09:14 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md
+- 2026-06-30 08:54 - 日本博主：日本足球真的垃圾<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md
+- 2026-06-30 09:11 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md
+- 2026-06-30 09:14 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md
+- 2026-06-30 09:09 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - [内马尔安慰日本球员](https://www.blog.kurohicncr.top/Article/details/8444635.shtml)
-- 2026-06-30 08:53 - [巴拉圭门将](http://www.blog.kurohicncr.top/Article/details/4810159657.shtml)
-- 2026-06-30 09:14 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/42991.shtml)
-- 2026-06-30 09:01 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/06424.shtml)
-- 2026-06-30 08:57 - [德国队世界杯点球大战首败](https://www.blog.kurohicncr.top/Article/details/641296979867.shtml)
-- 2026-06-30 09:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/399594129.shtml)
-- 2026-06-30 09:09 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/2203580.shtml)
-- 2026-06-30 09:11 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.kurohicncr.top/Article/details/578924249.shtml)
-- 2026-06-30 08:59 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/82513.shtml)
-- 2026-06-30 08:58 - [田中碧失误](http://www.share.minike.top/Article/details/2462937895.shtml)
-- 2026-06-30 09:17 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/14298705590.shtml)
-- 2026-06-30 08:48 - [日本队5进世界杯淘汰赛0胜](https://www.share.kurohicncr.top/Article/details/139631500.shtml)
-- 2026-06-30 09:06 - [藤森庆子赢得秘鲁总统选举](https://www.blog.minike.top/Article/details/41714.shtml)
-- 2026-06-30 08:48 - [勇士续约波尔津吉斯](http://www.share.minike.top/Article/details/307768.shtml)
-- 2026-06-30 08:56 - [天道](http://www.share.kurohicncr.top/Article/details/22814703.shtml)
+- 2026-06-30 09:10 - “荒唐”背后的韩国足球<br><br> | ??:https://www.share.minike.top/Article/details/11699.shtml
+- 2026-06-30 09:16 - 德国进球被吹<br><br> | ??:http://www.share.kurohicncr.top/Article/details/641135.shtml
+- 2026-06-30 09:06 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/61617901984.shtml
+- 2026-06-30 09:00 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:http://www.share.kurohicncr.top/Article/details/018366.shtml
+- 2026-06-30 09:10 - 詹姆斯 勇士<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/23578.shtml
+- 2026-06-30 09:23 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://www.share.minike.top/Article/details/05506.shtml
+- 2026-06-30 09:00 - 锐评：网红不能困在无底线逐利里<br><br> | ??:http://www.share.kurohicncr.top/Article/details/26253818102.shtml
+- 2026-06-30 09:11 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:http://www.share.minike.top/Article/details/8625937333.shtml
+- 2026-06-30 09:20 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/86205215.shtml
+- 2026-06-30 09:06 - 女子用家人生日买彩票中1032万<br><br> | ??:http://www.share.kurohicncr.top/Article/details/214459012.shtml
+- 2026-06-30 09:06 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://www.blog.minike.top/Article/details/5846492586.shtml
+- 2026-06-30 09:16 - IGN评测电影版后室<br><br> | ??:http://www.blog.minike.top/Article/details/873493832.shtml
+- 2026-06-30 08:56 - 杨紫大银幕成绩单<br><br> | ??:http://www.blog.minike.top/Article/details/821953.shtml
+- 2026-06-30 09:17 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.share.minike.top/Article/details/2809449174.shtml
+- 2026-06-30 09:03 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://www.blog.minike.top/Article/details/14173794.shtml

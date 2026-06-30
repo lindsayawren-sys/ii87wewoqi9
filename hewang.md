@@ -1,51 +1,56 @@
-# 摩洛哥最大商业银行联席CEO：中国在非洲掀起工业投资热潮，令人鼓舞
+# 东西问丨关凯：不问真相、只贴标签，西方如此用“人权牌”抹黑中国民族政策
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月29日 23:21 来源：中国新闻网 近日，摩洛哥最大商业银行阿提佳瑞瓦法银行联席CEO尤瑟夫·鲁伊斯(Youssef Rouissi)在接受中新网专访时表示，中国自2026年5月1日起对53个非洲建交国全面实施零关税举措，这一政策将成为新增长动力，为中非贸易注入新活力。中企在非洲基础设施领域长期非常活跃，而如今中国正在非洲掀起工业投资浪潮。对非洲而言
+中新社北京4月19日电 题：不问真相、只贴标签，西方如此用“人权牌”抹黑中国民族政策 ——专访中央民族大学民族学与社会学学院院长关凯 作者 黄欣欣 “从整体上说，西方有一大批政客和所谓的‘人权专家’其实并不真正关心中国的少数民族过得好不好，只关心如何把民族议题放进单一的‘人权’叙事结构中，以打压中国。”中央民族大学民族学与社会学学院教授、院长关凯近日接受中新社“东西问”专访时表
 
 ## 正文
 
-发布时间：2026年05月29日 23:21 来源：中国新闻网 近日，摩洛哥最大商业银行阿提佳瑞瓦法银行联席CEO尤瑟夫·鲁伊斯(Youssef Rouissi)在接受中新网专访时表示，中国自2026年5月1日起对53个非洲建交国全面实施零关税举措，这一政策将成为新增长动力，为中非贸易注入新活力。
+中新社北京4月19日电 题：不问真相、只贴标签，西方如此用“人权牌”抹黑中国民族政策 ——专访中央民族大学民族学与社会学学院院长关凯 作者 黄欣欣 “从整体上说，西方有一大批政客和所谓的‘人权专家’其实并不真正关心中国的少数民族过得好不好，只关心如何把民族议题放进单一的‘人权’叙事结构中，以打压中国。
 
-中企在非洲基础设施领域长期非常活跃，而如今中国正在非洲掀起工业投资浪潮。
+”中央民族大学民族学与社会学学院教授、院长关凯近日接受中新社“东西问”专访时表示。
 
-对非洲而言，这是一个令人鼓舞的趋势，将有助于提升非洲原材料加工水平，并增加本地附加值。
+今年3月，十四届全国人大四次会议表决通过了《中华人民共和国民族团结进步促进法》。
 
-(记者 吴家驹) 责任编辑：【程春雨】
+西方有媒体污称这部法律涉及对少数民族进行“强制迁徙”“强制城市化”。
+
+针对此类不实指控，关凯认为，这是西方长期“污名化”中国民族政策的又一案例，不仅背离事实，更暴露其“人权”叙事的霸权本质。
+
+现将访谈实录摘要如下： 中新社记者：民族团结进步促进法提及“推进互嵌式社区环境建设”等促进各民族广泛交往交流交融的举措，在您看来，这与西方一些人指控的所谓“强制迁徙”“强制城市化”有何区别？
+
+关凯：基于中国式现代化迅猛发展的事实，中国促进各民族广泛交往交流交融是针对工业化、城市化进程中，人口出现高流动性、居住格局出现高混杂性趋势而提出的倡导性政策。
+
+而西方所指的所谓“强制迁徙”“强制城市化”，关键在于“强制”，隐含的是对少数民族自主性、自愿性的剥夺，二者存在本质区别。
 
 ## 相关推荐
 
-- 2026-06-30 09:06 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 08:55 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-30 08:57 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 09:11 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 09:16 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 08:58 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 08:52 - [德国身价是巴拉圭6倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 08:58 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 09:06 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 09:00 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-30 08:54 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 08:48 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 09:02 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 09:01 - 库尼亚赛后伸五指嘲讽日本<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md
+- 2026-06-30 09:16 - 我设置了全宇宙最安全的密码<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md
+- 2026-06-30 09:10 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md
+- 2026-06-30 09:05 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md
+- 2026-06-30 08:57 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md
+- 2026-06-30 09:06 - 电影抓特务上映11天破亿<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md
+- 2026-06-30 09:22 - 小娘惹<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md
+- 2026-06-30 09:01 - 你人生中最艰难的时候是怎么熬过来的？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md
+- 2026-06-30 09:18 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md
+- 2026-06-30 09:12 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/82337203006.shtml)
-- 2026-06-30 09:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/983082.shtml)
-- 2026-06-30 09:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/36376685.shtml)
-- 2026-06-30 09:01 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/7867748.shtml)
-- 2026-06-30 09:09 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/253241.shtml)
-- 2026-06-30 09:03 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/64074969576.shtml)
-- 2026-06-30 09:13 - [网红不能困在无底线逐利里](https://www.share.kurohicncr.top/Article/details/3212209.shtml)
-- 2026-06-30 09:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/49990231.shtml)
-- 2026-06-30 09:10 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.blog.kurohicncr.top/Article/details/36531.shtml)
-- 2026-06-30 08:53 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/9452540.shtml)
-- 2026-06-30 08:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/729511121657.shtml)
-- 2026-06-30 08:57 - [欧洲装一台空调有多难](https://www.blog.minike.top/Article/details/264080.shtml)
-- 2026-06-30 08:56 - [斛珠夫人](https://www.blog.minike.top/Article/details/3480943.shtml)
-- 2026-06-30 09:05 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/77994.shtml)
-- 2026-06-30 09:17 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/7475077642.shtml)
+- 2026-06-30 09:03 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/22417.shtml
+- 2026-06-30 09:03 - 美加墨世界杯：亚洲足球的得意与失意<br><br> | ??:http://www.blog.minike.top/Article/details/91568.shtml
+- 2026-06-30 09:07 - 为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？<br><br> | ??:https://www.share.minike.top/Article/details/76149.shtml
+- 2026-06-30 09:11 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://www.share.minike.top/Article/details/568103404866.shtml
+- 2026-06-30 09:01 - 金刚川<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/667976235148.shtml
+- 2026-06-30 09:10 - 亚洲球队全部出局<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7004589.shtml
+- 2026-06-30 08:56 - 爱很美味<br><br> | ??:http://www.blog.minike.top/Article/details/627099858190.shtml
+- 2026-06-30 09:19 - 巴西绝杀日本<br><br> | ??:https://www.blog.minike.top/Article/details/71835.shtml
+- 2026-06-30 09:04 - 安切洛蒂 换人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/80890470448.shtml
+- 2026-06-30 09:06 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://www.blog.minike.top/Article/details/082581262.shtml
+- 2026-06-30 09:22 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:http://www.blog.minike.top/Article/details/860928.shtml
+- 2026-06-30 09:05 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://www.blog.minike.top/Article/details/200127.shtml
+- 2026-06-30 09:14 - 考入南大计算机，复读考清北值吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/852649.shtml
+- 2026-06-30 09:00 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:http://www.blog.minike.top/Article/details/252649744085.shtml
+- 2026-06-30 09:09 - 酒店推行“24小时退房”引热议<br><br> | ??:http://www.blog.minike.top/Article/details/192053.shtml

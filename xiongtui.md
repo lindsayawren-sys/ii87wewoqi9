@@ -1,56 +1,59 @@
-# 闻“汛”而动筑牢“三道防线” 多方协同全力抢险救援守护安全底线
+# 富国银行：霍尔木兹海峡重新开放后，投资者应保持谨慎
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-央视网消息：极端强降雨频发，对防汛防御体系提出严峻考验。洪灾、内涝如何防御？水利专家表示，筑牢防汛的“三道防线”是关键。 雨水情监测预报“三道防线”是以流域为单元、由“天空地水工”一体化监测与模型耦合组成的递进式防御链。第一道防线由气象卫星、测雨雷达等构成，监测预报“云中雨”；第二道防线由雨量站网加产汇流水文模型构成，精准监测“落地雨”；第三道防线由水文站加洪水演进水动力学模型
+富国银行投资研究所全球股票策略师道格・比思认为，尽管受霍尔木兹海峡开放消息影响，股市在周五出现反弹，但投资者不应过于乐观。 “市场短期内更关心石油能否自由流通。但我们建议保持一定谨慎，” 他表示，“伊朗外长称，船只必须遵循伊朗指定的航线，这并不排除伊朗向油轮收取通行费的可能。该外长还补充说，此次开放仅持续至 4 月 21 日停火结束。” “一切仍取决于后续谈判进展。” 这位策略
 
 ## 正文
 
-央视网消息：极端强降雨频发，对防汛防御体系提出严峻考验。
+富国银行投资研究所全球股票策略师道格・比思认为，尽管受霍尔木兹海峡开放消息影响，股市在周五出现反弹，但投资者不应过于乐观。
 
-洪灾、内涝如何防御？
+“市场短期内更关心石油能否自由流通。
 
-水利专家表示，筑牢防汛的“三道防线”是关键。
+但我们建议保持一定谨慎，” 他表示，“伊朗外长称，船只必须遵循伊朗指定的航线，这并不排除伊朗向油轮收取通行费的可能。
 
-雨水情监测预报“三道防线”是以流域为单元、由“天空地水工”一体化监测与模型耦合组成的递进式防御链。
+该外长还补充说，此次开放仅持续至 4 月 21 日停火结束。
 
-第一道防线由气象卫星、测雨雷达等构成，监测预报“云中雨”；第二道防线由雨量站网加产汇流水文模型构成，精准监测“落地雨”；第三道防线由水文站加洪水演进水动力学模型组成，实现对洪水演进过程的监测预报。
+” “一切仍取决于后续谈判进展。
 
-近年来，我国“三道防线”建设有了重要进展。
+” 这位策略师指出。
 
-中国工程院院士、南京水利科学研究院科技委主任张建云表示，一是水文站网的布局持续在完善，二是水文监测能力明显提升，三是水文预报预警能力稳步提升。
+比思还表示，投资者对当前局势持乐观态度是可以理解的，但他认为他们忽略了谈判进程，转而关注企业盈利、通胀预期等基本面因素。
 
-目前，大江大河及其主要支流水文监测覆盖率达96%，中小河流水文监测覆盖率达73%。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 08:56 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 09:04 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 09:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 09:17 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 08:53 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 09:15 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 08:56 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 09:11 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 09:05 - [人民锐评网红诋毁袁隆平造谣企业家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 09:19 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md
+- 2026-06-30 09:10 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md
+- 2026-06-30 09:22 - 第一次对自信的力量有了实感<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md
+- 2026-06-30 09:23 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md
+- 2026-06-30 09:05 - 为什么小组赛出局会让韩国人破防<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md
+- 2026-06-30 09:18 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md
+- 2026-06-30 09:15 - “柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md
+- 2026-06-30 09:17 - 德国vs巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md
+- 2026-06-30 09:20 - 孙兴慜发长文致歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md
+- 2026-06-30 09:08 - 哈弗茨头球破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md
+- 2026-06-30 09:22 - 房价什么时候能涨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md
+- 2026-06-30 09:02 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md
+- 2026-06-30 09:17 - 7月1日起 一批新规即将落地<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:12 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/483562803328.shtml)
-- 2026-06-30 08:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/175650276.shtml)
-- 2026-06-30 09:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/825858317824.shtml)
-- 2026-06-30 08:51 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/40124450.shtml)
-- 2026-06-30 09:00 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/7047270111.shtml)
-- 2026-06-30 08:58 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/1649334.shtml)
-- 2026-06-30 08:52 - [锐评T1战胜KC](https://www.share.minike.top/Article/details/1905457.shtml)
-- 2026-06-30 09:14 - [千与千寻](https://www.blog.minike.top/Article/details/18749422350.shtml)
-- 2026-06-30 09:01 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/770959282.shtml)
-- 2026-06-30 09:11 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/295172655.shtml)
-- 2026-06-30 08:55 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/66286600.shtml)
-- 2026-06-30 09:06 - [杨紫学位证上就是杨紫](http://www.share.kurohicncr.top/Article/details/467088538.shtml)
-- 2026-06-30 08:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/2074932100.shtml)
-- 2026-06-30 09:03 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/67704590.shtml)
-- 2026-06-30 08:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/74743124470.shtml)
+- 2026-06-30 09:09 - 低智商犯罪三江口团建来了<br><br> | ??:http://www.share.minike.top/Article/details/6780319877.shtml
+- 2026-06-30 09:00 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://www.share.minike.top/Article/details/335746.shtml
+- 2026-06-30 09:15 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7545550.shtml
+- 2026-06-30 08:56 - 巴西足球能否再现昔日荣光<br><br> | ??:http://www.blog.minike.top/Article/details/11371990401.shtml
+- 2026-06-30 09:06 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.minike.top/Article/details/259043794943.shtml
+- 2026-06-30 09:10 - 郑钦文 四年一轮游<br><br> | ??:https://www.share.minike.top/Article/details/965349928145.shtml
+- 2026-06-30 09:23 - 锐评T1战胜KC<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1084875591.shtml
+- 2026-06-30 09:08 - 明星大侦探第一季<br><br> | ??:http://www.share.minike.top/Article/details/9758354.shtml
+- 2026-06-30 09:12 - 爱直接对嘴喝饮料的人天塌了<br><br> | ??:http://www.blog.minike.top/Article/details/55774.shtml
+- 2026-06-30 09:06 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.share.minike.top/Article/details/744117.shtml
+- 2026-06-30 09:12 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/22168.shtml
+- 2026-06-30 09:03 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:http://www.blog.minike.top/Article/details/3479926.shtml
+- 2026-06-30 08:57 - 我和我的家乡<br><br> | ??:https://www.share.kurohicncr.top/Article/details/875106405.shtml
+- 2026-06-30 08:58 - “荒唐”背后的韩国足球<br><br> | ??:http://www.blog.minike.top/Article/details/55555299.shtml
+- 2026-06-30 09:06 - 恋与深空已删除锅里洗澡文案<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8407324.shtml

@@ -1,45 +1,57 @@
-# 北京控股将于8月7日派发末期股息每股0.77港元
+# 乌克兰基辅发生枪击事件 致数人死亡
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-北京控股（00392）发布公告，将于2026年8月7日派发截至2025年12月31日止年度的末期股息每股0.77港元。责任编辑：卢昱君
+当地时间18日，乌克兰基辅市长称基辅市内一家超市发生枪击事件，已造成多人受伤及数人死亡。枪手藏身于超市内，抓捕行动正在进行。 枪击首先发生在基辅市戈洛西伊夫区的一处街道上，据医务人员消息，目前已有两人死亡。街道枪击事件中有五名伤者已被送往首都的医院救治，其中包括一名儿童，以及犯罪嫌疑人闯入并目前藏身的超市的一名保安。超市内也传出枪声，针对嫌犯的抓捕行动仍在进行中。(总台记者 王
 
 ## 正文
 
-北京控股（00392）发布公告，将于2026年8月7日派发截至2025年12月31日止年度的末期股息每股0.77港元。
+当地时间18日，乌克兰基辅市长称基辅市内一家超市发生枪击事件，已造成多人受伤及数人死亡。
 
-责任编辑：卢昱君
+枪手藏身于超市内，抓捕行动正在进行。
+
+枪击首先发生在基辅市戈洛西伊夫区的一处街道上，据医务人员消息，目前已有两人死亡。
+
+街道枪击事件中有五名伤者已被送往首都的医院救治，其中包括一名儿童，以及犯罪嫌疑人闯入并目前藏身的超市的一名保安。
+
+超市内也传出枪声，针对嫌犯的抓捕行动仍在进行中。
+
+(总台记者 王斌 王德禄)
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 09:14 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 09:00 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 09:03 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 08:57 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 08:50 - [内马尔安慰日本球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 09:17 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 08:49 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 08:54 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 08:54 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 08:53 - [陈小春人老了干什么也不心酸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 09:12 - 啊啊啊<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md
+- 2026-06-30 08:59 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md
+- 2026-06-30 09:09 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md
+- 2026-06-30 09:00 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md
+- 2026-06-30 09:09 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md
+- 2026-06-30 08:57 - 快递到家不能这样拆<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md
+- 2026-06-30 09:05 - 沉睡花园<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md
+- 2026-06-30 09:18 - 哈弗茨头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md
+- 2026-06-30 09:02 - 诺伊尔尽力了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md
+- 2026-06-30 09:14 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md
+- 2026-06-30 09:03 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md
+- 2026-06-30 09:10 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md
+- 2026-06-30 09:19 - 爱很美味<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md
+- 2026-06-30 08:55 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md
+- 2026-06-30 09:09 - 未来的飞机可能会用电吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/7594672.shtml)
-- 2026-06-30 09:16 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/33641710374.shtml)
-- 2026-06-30 08:48 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/35753824533.shtml)
-- 2026-06-30 09:01 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/539356048108.shtml)
-- 2026-06-30 08:52 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/771953126.shtml)
-- 2026-06-30 08:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/235784439062.shtml)
-- 2026-06-30 08:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/829390041207.shtml)
-- 2026-06-30 08:55 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/653023.shtml)
-- 2026-06-30 08:48 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.kurohicncr.top/Article/details/3786147.shtml)
-- 2026-06-30 08:49 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/244676.shtml)
-- 2026-06-30 09:17 - [日本球员说被绝杀非常不甘心](http://www.blog.minike.top/Article/details/25361039613.shtml)
-- 2026-06-30 09:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/816501090642.shtml)
-- 2026-06-30 09:16 - [三星投资计划](http://www.share.kurohicncr.top/Article/details/5677840.shtml)
-- 2026-06-30 09:12 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.minike.top/Article/details/996577.shtml)
-- 2026-06-30 08:58 - [王楚钦孙颖莎晋级混双八强](http://www.share.minike.top/Article/details/78071727162.shtml)
+- 2026-06-30 09:13 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.blog.minike.top/Article/details/53799314549.shtml
+- 2026-06-30 09:15 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://www.blog.minike.top/Article/details/900693.shtml
+- 2026-06-30 09:22 - 马耳他著名拱门坍塌致中国男子身亡<br><br> | ??:https://www.blog.minike.top/Article/details/03321.shtml
+- 2026-06-30 09:09 - 男子在京东买到“同仁堂”假药<br><br> | ??:http://www.blog.minike.top/Article/details/31658930233.shtml
+- 2026-06-30 09:11 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://www.share.kurohicncr.top/Article/details/898714192.shtml
+- 2026-06-30 09:23 - 日本主帅赛后回应淘汰出局<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/01617.shtml
+- 2026-06-30 08:58 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://www.blog.minike.top/Article/details/042354908809.shtml
+- 2026-06-30 09:16 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:http://www.blog.minike.top/Article/details/575890020153.shtml
+- 2026-06-30 08:57 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:http://www.share.kurohicncr.top/Article/details/054802.shtml
+- 2026-06-30 08:58 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5337861.shtml
+- 2026-06-30 09:22 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2734781.shtml
+- 2026-06-30 09:05 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3114075438.shtml
+- 2026-06-30 09:23 - 泰山建135公里刀片刺绳隔离网<br><br> | ??:https://www.share.kurohicncr.top/Article/details/940407.shtml
+- 2026-06-30 09:19 - 一生一世<br><br> | ??:https://www.share.minike.top/Article/details/27403556.shtml
+- 2026-06-30 09:16 - 金鹰奖视后提名预测<br><br> | ??:http://www.share.minike.top/Article/details/017950.shtml

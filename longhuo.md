@@ -1,60 +1,58 @@
-# 美方称接近达成协议并重申军事威胁 伊方称最终文本尚未完成
+# “文脉里的中国·山西站”活动启幕 五大主题线路解锁三晋文化密码
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-美国财政部长斯科特・贝森特于当地时间周四向记者表示，美伊两国即将达成一份结束战事的协议，但特朗普总统尚未批准该协议，白宫希望最终方案能满足多项核心条件。 贝森特在白宫称：“我们目前已有达成协议的基础。”他同时透露，双方一直在互换提案。“一切都取决于总统的决定，特朗普总统绝不会接受一份有损利益的协议。” 贝森特提出，伊朗必须同意处置高浓缩铀、承诺永不研发核武器，并全面重启霍尔木兹
+中新网太原4月17日电 (刘小红)4月15日晚，“文脉里的中国·山西站”启动仪式在太原古县城举行。该活动旨在深挖山西文脉内涵，让三晋文化焕发出新的生机与活力，引领大众开启一场探寻中华文脉的山西之旅。 此次活动由山西省文化和旅游厅与抖音集团以“文脉IP+平台赋能+达人创作”的模式携手打造。活动现场，发布了华夏之根、土木华章、晋魂春秋、雄关万里、表里山河5条文脉线路，为游客深度游览
 
 ## 正文
 
-美国财政部长斯科特・贝森特于当地时间周四向记者表示，美伊两国即将达成一份结束战事的协议，但特朗普总统尚未批准该协议，白宫希望最终方案能满足多项核心条件。
+中新网太原4月17日电 (刘小红)4月15日晚，“文脉里的中国·山西站”启动仪式在太原古县城举行。
 
-贝森特在白宫称：“我们目前已有达成协议的基础。
+该活动旨在深挖山西文脉内涵，让三晋文化焕发出新的生机与活力，引领大众开启一场探寻中华文脉的山西之旅。
 
-”他同时透露，双方一直在互换提案。
+此次活动由山西省文化和旅游厅与抖音集团以“文脉IP+平台赋能+达人创作”的模式携手打造。
 
-“一切都取决于总统的决定，特朗普总统绝不会接受一份有损利益的协议。
+活动现场，发布了华夏之根、土木华章、晋魂春秋、雄关万里、表里山河5条文脉线路，为游客深度游览山西提供了指引。
 
-” 贝森特提出，伊朗必须同意处置高浓缩铀、承诺永不研发核武器，并全面重启霍尔木兹海峡通航。
+山西省文化和旅游厅党组书记刘冲介绍，三晋文化是中华文明主根脉的重要直根系，是一部没有断代、立体鲜活的中华文明史诗。
 
-美国官员此前表示，上述内容都会纳入这份意向备忘录。
+此次精心推出的五大文脉主题线路，将根祖文化、古建艺术、晋商精神等文明承载与文化记忆巧妙串珠成链，期望以此吸引大家走进三晋大地，亲身感受中华文明的脉络走向。
 
-此前有美国官员称，两国即将达成一份为期60天的协议，协议规定双方在首个30天内逐步解除在海峡实施的封锁。
+活动启动后，50余位来自文史、文旅、古建、艺术、科普等领域的创作达人，沿着这些线路开展实地探访，并从游客视角解读山西，用优质内容创作让厚重文脉实现年轻化、可视化传播，助力山西文旅再掀新热度。
 
-若协议最终敲定，这将成为一份分阶段框架协议的首个环节。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 09:14 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 09:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 08:56 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 08:52 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 09:16 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 09:01 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 09:12 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 09:15 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 09:07 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 09:04 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 08:55 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 09:03 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 09:04 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 08:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 09:00 - 疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md
+- 2026-06-30 09:01 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md
+- 2026-06-30 08:55 - 世界杯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md
+- 2026-06-30 09:15 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md
+- 2026-06-30 08:56 - 斗破苍穹<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md
+- 2026-06-30 08:59 - 董卿母亲癌症去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md
+- 2026-06-30 09:19 - 媒体评泰山建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md
+- 2026-06-30 09:23 - 奔跑吧·黄河篇第二季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md
+- 2026-06-30 09:22 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md
+- 2026-06-30 09:09 - 赵今麦因“瘦而不柴”的体态出圈<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md
+- 2026-06-30 09:05 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md
+- 2026-06-30 09:12 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/584014843.shtml)
-- 2026-06-30 09:09 - [沉睡花园](http://www.blog.minike.top/Article/details/9380134561.shtml)
-- 2026-06-30 09:00 - [《共患难》](http://www.blog.minike.top/Article/details/870045007973.shtml)
-- 2026-06-30 09:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/7050238.shtml)
-- 2026-06-30 08:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/505122.shtml)
-- 2026-06-30 08:59 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/240758.shtml)
-- 2026-06-30 09:01 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/211915.shtml)
-- 2026-06-30 09:12 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/745476.shtml)
-- 2026-06-30 09:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/5822425542.shtml)
-- 2026-06-30 08:53 - [韩国道歉完日本道歉](http://www.blog.kurohicncr.top/Article/details/440538203.shtml)
-- 2026-06-30 08:51 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/242617460135.shtml)
-- 2026-06-30 08:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/0790222.shtml)
-- 2026-06-30 08:50 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/401962106.shtml)
-- 2026-06-30 08:48 - [IGN评测电影版后室](https://www.share.kurohicncr.top/Article/details/43255532.shtml)
-- 2026-06-30 08:49 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/531665717432.shtml)
+- 2026-06-30 09:03 - 田中碧失误<br><br> | ??:https://www.share.kurohicncr.top/Article/details/464262458.shtml
+- 2026-06-30 09:21 - 荷兰vs摩洛哥<br><br> | ??:https://www.share.minike.top/Article/details/05821.shtml
+- 2026-06-30 08:55 - 全球最火存储ETF纳入兆易创新<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5963477819.shtml
+- 2026-06-30 09:01 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://www.blog.minike.top/Article/details/715737583.shtml
+- 2026-06-30 09:04 - AI手机进入Agent时代<br><br> | ??:http://www.share.minike.top/Article/details/76692454864.shtml
+- 2026-06-30 09:17 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:http://www.share.minike.top/Article/details/38190523.shtml
+- 2026-06-30 09:15 - 韩国人为什么这么在乎输赢<br><br> | ??:http://www.share.minike.top/Article/details/6137340.shtml
+- 2026-06-30 09:21 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://www.share.kurohicncr.top/Article/details/710467649760.shtml
+- 2026-06-30 09:05 - 欧洲民众抢购空调降温<br><br> | ??:https://www.share.minike.top/Article/details/06898942922.shtml
+- 2026-06-30 09:23 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.blog.minike.top/Article/details/2686910129.shtml
+- 2026-06-30 08:59 - 德国巴拉圭 折磨<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/52385661428.shtml
+- 2026-06-30 09:14 - 金刚川<br><br> | ??:http://www.share.minike.top/Article/details/94579811370.shtml
+- 2026-06-30 08:54 - 这一刀 会很帅<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47717687090.shtml
+- 2026-06-30 09:11 - 球评巴西绝杀逆转日本<br><br> | ??:http://www.blog.minike.top/Article/details/60431023.shtml
+- 2026-06-30 09:18 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://www.share.kurohicncr.top/Article/details/11213982.shtml

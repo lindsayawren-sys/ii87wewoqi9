@@ -1,59 +1,59 @@
-# 从他者视角“看·见”中国 国博展示馆藏海外中国图像精品
+# 天津港新增直通南非外贸航线
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月29日电 (记者 应妮)“看·见——中国国家博物馆藏海外中国图像展”将于30日对公众开放。约300件(套)展品定格的光影，既折射出外国人对中国认知的演变历程，也让观众在这种回望中反观中国自身的发展。 展览以中国国家博物馆近年入藏的海外中国图像为核心，以时间为轴，以图像为镜，通过“远观”“凝视”“识见”三个单元层层铺展：从隔海想象中壮丽而浪漫的中国意象，到近代转型变
+中新网天津4月20日电 (记者 王君妍)记者19日从天津港集团获悉，天津港直航南非的集装箱班轮航线18日正式开通，填补了近年来天津港与南非港口间无直航航线的空白。 据了解，该航线共投入12艘5700至11000标准箱船舶实行周班运营。航线经新加坡，直达路易港、库哈港，重点挂靠南非最繁忙的集装箱枢纽港德班港，并经科伦坡、香港返回天津，形成闭环运输网络。 该航线主要服务钢材、建材、
 
 ## 正文
 
-中新社北京5月29日电 (记者 应妮)“看·见——中国国家博物馆藏海外中国图像展”将于30日对公众开放。
+中新网天津4月20日电 (记者 王君妍)记者19日从天津港集团获悉，天津港直航南非的集装箱班轮航线18日正式开通，填补了近年来天津港与南非港口间无直航航线的空白。
 
-约300件(套)展品定格的光影，既折射出外国人对中国认知的演变历程，也让观众在这种回望中反观中国自身的发展。
+据了解，该航线共投入12艘5700至11000标准箱船舶实行周班运营。
 
-展览以中国国家博物馆近年入藏的海外中国图像为核心，以时间为轴，以图像为镜，通过“远观”“凝视”“识见”三个单元层层铺展：从隔海想象中壮丽而浪漫的中国意象，到近代转型变局中的实地观察与审视探究，再到走进新中国后，于温润目光中感知到的蓬勃脉动与时代风华。
+航线经新加坡，直达路易港、库哈港，重点挂靠南非最繁忙的集装箱枢纽港德班港，并经科伦坡、香港返回天津，形成闭环运输网络。
 
-记者29日在现场看到，19世纪的英国画师托马斯·阿罗姆虽然从未踏足中国，却依据访华使团文献及随团画师作品创作了一系列中国题材铜版画，虽描绘江南女子缫丝劳作，画中人物却高鼻深目着欧式衣裙，充满对中国图景的浪漫想象，成为当时颇具影响力的中华图鉴；德国摄影师恩斯特·奥尔末镜头下，历经英法联军劫掠焚毁的圆明园沧桑肃穆，这是目前已知最早的圆明园影像；法国摄影师、现代新闻摄影之父布列松于1948年底到1949年深入中国，记录下庆祝上海解放的游行队伍欢呼雀跃的瞬间…… 尤为值得一提的，是先后22次到访中国的法国摄影师马克·吕布。
+该航线主要服务钢材、建材、化工品、汽车等货类出口南非市场。
 
-他是来访次数最多、时间跨度最长、记录新中国发展历程最系统的西方摄影师之一，其摄影作品持续发表于《生活》《国家地理》等国际主流媒体。
+相较以往中转运输模式，新航线开通后航程缩短约10天，可为天津港腹地企业提供更加便捷高效的出海通道，进一步降低物流成本、提升运输时效。
 
-中国国家博物馆研究馆员、该展策展人丁纯怡表示，跨越时光的海外中国图像汇集成一部多元立体的视觉档案。
+与此同时，来自南非的优质矿产品也将更快运抵天津，为区域工业生产提供稳定原料保障。
 
-期待每一位观者都能在这场“看·见”之旅中，读懂“看中国”的多元视角，感悟“见中国”所蕴含的文明底色。
+天津港集团相关负责人介绍，为确保新航线首航安全高效，码头与天津海关、天津海事局、天津边检总站等口岸单位密切协调配合，压缩船舶辅助作业时间，优化口岸通关效率。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-30 09:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 08:54 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 08:55 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 09:07 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 09:06 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 08:48 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 08:48 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 08:49 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 09:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 09:03 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 08:52 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 08:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 09:08 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 09:06 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md
+- 2026-06-30 09:00 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md
+- 2026-06-30 09:00 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md
+- 2026-06-30 09:09 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md
+- 2026-06-30 08:59 - 日本球迷输球后集体捡垃圾<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md
+- 2026-06-30 08:54 - AI手机进入Agent时代<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md
+- 2026-06-30 09:21 - MSI应援曲 如果季中成回忆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md
+- 2026-06-30 09:22 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md
+- 2026-06-30 09:07 - 这一刀 会很帅<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md
+- 2026-06-30 08:55 - 逃狱兄弟<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md
+- 2026-06-30 08:58 - 高考结束了，你会让孩子在家玩手机吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md
+- 2026-06-30 09:00 - 德国淘汰<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md
+- 2026-06-30 09:23 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:52 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](http://www.share.minike.top/Article/details/62085484226.shtml)
-- 2026-06-30 09:17 - [德国巴拉圭加时](https://www.blog.kurohicncr.top/Article/details/8336458817.shtml)
-- 2026-06-30 09:09 - [媒体：手机测评该挤挤水分了](http://www.share.minike.top/Article/details/4278369.shtml)
-- 2026-06-30 09:01 - [德国身价是巴拉圭6倍](https://www.share.minike.top/Article/details/0640036129.shtml)
-- 2026-06-30 09:07 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/25795884.shtml)
-- 2026-06-30 09:02 - [董路：谁赢谁是“正路子”](http://www.blog.minike.top/Article/details/561491578.shtml)
-- 2026-06-30 09:05 - [董路：谁赢谁是“正路子”](https://www.blog.minike.top/Article/details/05553712621.shtml)
-- 2026-06-30 09:04 - [德国北部枪击事件致5死](https://www.share.minike.top/Article/details/755199.shtml)
-- 2026-06-30 09:06 - [黄晓明夸昆凌引杨颖对比](https://www.blog.kurohicncr.top/Article/details/887528352.shtml)
-- 2026-06-30 08:52 - [存储芯片龙头提示风险](https://www.share.minike.top/Article/details/195412.shtml)
-- 2026-06-30 08:48 - [郑钦文温网一轮游](https://www.share.minike.top/Article/details/464360.shtml)
-- 2026-06-30 08:55 - [女心理师](https://www.blog.minike.top/Article/details/7906889.shtml)
-- 2026-06-30 08:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/886091865.shtml)
-- 2026-06-30 09:07 - [韩国道歉完日本道歉](http://www.blog.kurohicncr.top/Article/details/197467342.shtml)
-- 2026-06-30 08:59 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/3245981836.shtml)
+- 2026-06-30 08:55 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:http://www.blog.minike.top/Article/details/2736361871.shtml
+- 2026-06-30 09:14 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/154543100852.shtml
+- 2026-06-30 09:23 - 德国vs巴拉圭<br><br> | ??:http://www.share.minike.top/Article/details/367077.shtml
+- 2026-06-30 09:07 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/04564593.shtml
+- 2026-06-30 09:00 - 金牌调解<br><br> | ??:https://www.blog.minike.top/Article/details/54431934.shtml
+- 2026-06-30 09:23 - 日本球员说被绝杀非常不甘心<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0144575.shtml
+- 2026-06-30 09:23 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:http://www.blog.minike.top/Article/details/36071.shtml
+- 2026-06-30 09:23 - 男生180+，有腹肌是什么体验？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9104846741.shtml
+- 2026-06-30 08:58 - 杨紫大银幕成绩单如何<br><br> | ??:http://www.share.minike.top/Article/details/3937577361.shtml
+- 2026-06-30 09:23 - 有哪些值得一提的生活窍门？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/797579.shtml
+- 2026-06-30 09:02 - 穆祉丞回应获年度人气艺人<br><br> | ??:http://www.blog.minike.top/Article/details/706296.shtml
+- 2026-06-30 09:17 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://www.share.kurohicncr.top/Article/details/416867426.shtml
+- 2026-06-30 08:56 - 李准基参加文彩元婚礼<br><br> | ??:https://www.share.minike.top/Article/details/56092820.shtml
+- 2026-06-30 08:58 - 啥比桑吉尔夫排位练蓝防（最不抽象的一集）<br><br> | ??:https://www.share.minike.top/Article/details/178449083.shtml
+- 2026-06-30 09:06 - 千万不要随便扣肚脐<br><br> | ??:https://www.share.minike.top/Article/details/1388992.shtml

@@ -1,52 +1,54 @@
-# 知情人士称SpaceX下调IPO估值，马斯克辟谣
+# 美军：已有21艘船按美军指示掉头返回伊朗
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-来源：央视财经 据美国彭博社29日援引知情人士的话报道，美国太空探索技术公司（SpaceX）正寻求在其首次公开募股（IPO）中获得不低于1.8万亿美元的估值，低于今年4月市场传出的超2万亿美元目标估值。报道称，此次变动是公司与投行顾问及部分投资者沟通后做出的审慎调整，路演阶段仍可能根据市场反馈进一步上调估值。 不过，SpaceX首席执行官马斯克29日在社交平台X上发文辟谣，否认
+中新网4月18日电 据外媒18日报道，美军中央司令部在社交媒体发文称，自美军海上封锁以来，已有21艘船只按照美军指示掉头返回伊朗。 美军中央司令部消息还称，美国海军仍在执行海上封锁行动。4月17日，美军“迈克尔·墨菲”号驱逐舰在阿拉伯海执行巡逻任务。 据此前报道，伊朗17日宣布开放霍尔木兹海峡后，美国总统特朗普在社交媒体上连续发出多条帖文，“感谢”伊朗开放“伊朗海峡”，同时表示
 
 ## 正文
 
-来源：央视财经 据美国彭博社29日援引知情人士的话报道，美国太空探索技术公司（SpaceX）正寻求在其首次公开募股（IPO）中获得不低于1.8万亿美元的估值，低于今年4月市场传出的超2万亿美元目标估值。
+中新网4月18日电 据外媒18日报道，美军中央司令部在社交媒体发文称，自美军海上封锁以来，已有21艘船只按照美军指示掉头返回伊朗。
 
-报道称，此次变动是公司与投行顾问及部分投资者沟通后做出的审慎调整，路演阶段仍可能根据市场反馈进一步上调估值。
+美军中央司令部消息还称，美国海军仍在执行海上封锁行动。
 
-不过，SpaceX首席执行官马斯克29日在社交平台X上发文辟谣，否认相关报道，仅简短回复“不实”（False）。
+4月17日，美军“迈克尔·墨菲”号驱逐舰在阿拉伯海执行巡逻任务。
 
-记者：张博涵责任编辑：张恒星
+据此前报道，伊朗17日宣布开放霍尔木兹海峡后，美国总统特朗普在社交媒体上连续发出多条帖文，“感谢”伊朗开放“伊朗海峡”，同时表示美国将继续对伊朗实施海上封锁。
+
+特朗普说，“针对伊朗的海上封锁将继续有效，直至我们与伊朗的交易百分之百完成。
+
+”
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 08:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-30 09:14 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 09:12 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 09:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 09:03 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 09:11 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 08:49 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 08:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 09:12 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 08:53 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 09:00 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 08:58 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 09:12 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-30 09:02 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md
+- 2026-06-30 08:54 - 外国游客开始涌入中国农村<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md
+- 2026-06-30 09:01 - 日本反击率先破门<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md
+- 2026-06-30 09:13 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md
+- 2026-06-30 09:13 - 恋与深空已删除锅里洗澡文案<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md
+- 2026-06-30 09:03 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md
+- 2026-06-30 08:55 - 日本博主：日本足球真的垃圾<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md
+- 2026-06-30 09:14 - 世界杯欧洲队7战南美仅1胜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md
+- 2026-06-30 09:07 - iPhoneUltra黑色机模<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md
+- 2026-06-30 08:59 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md
+- 2026-06-30 09:19 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md
+- 2026-06-30 08:59 - 巴拉圭门将<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:53 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/014889.shtml)
-- 2026-06-30 09:03 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/3402369.shtml)
-- 2026-06-30 09:17 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/49302658.shtml)
-- 2026-06-30 09:00 - [房价什么时候能涨](http://www.share.minike.top/Article/details/515688203.shtml)
-- 2026-06-30 08:59 - [四川凉山落石砸毁车辆 3人遇难](http://www.share.kurohicncr.top/Article/details/429638495.shtml)
-- 2026-06-30 08:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/1013830604.shtml)
-- 2026-06-30 09:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/475580.shtml)
-- 2026-06-30 09:05 - [《共患难》](https://www.share.minike.top/Article/details/573358.shtml)
-- 2026-06-30 09:03 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/2653859845.shtml)
-- 2026-06-30 09:12 - [孙兴慜道歉](http://www.share.minike.top/Article/details/81346057937.shtml)
-- 2026-06-30 09:05 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/740358.shtml)
-- 2026-06-30 09:11 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/501010.shtml)
-- 2026-06-30 09:14 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/60767877.shtml)
-- 2026-06-30 08:54 - [扬名立万](http://www.share.minike.top/Article/details/61715104.shtml)
-- 2026-06-30 09:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/35745.shtml)
+- 2026-06-30 09:18 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/630222.shtml
+- 2026-06-30 09:01 - 电影抓特务上映11天破亿<br><br> | ??:https://www.share.kurohicncr.top/Article/details/013035349324.shtml
+- 2026-06-30 09:10 - 国务院：探索延长义务教育年限<br><br> | ??:http://www.blog.minike.top/Article/details/10039881870.shtml
+- 2026-06-30 09:08 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:https://www.share.kurohicncr.top/Article/details/631472112957.shtml
+- 2026-06-30 08:55 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/96746.shtml
+- 2026-06-30 09:01 - 巴西2比1日本<br><br> | ??:http://www.share.kurohicncr.top/Article/details/063301892.shtml
+- 2026-06-30 09:11 - 人类...完蛋了...<br><br> | ??:https://www.share.kurohicncr.top/Article/details/597723958.shtml
+- 2026-06-30 09:19 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://www.share.minike.top/Article/details/865341406.shtml
+- 2026-06-30 08:55 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:http://www.share.minike.top/Article/details/9256277227.shtml
+- 2026-06-30 09:09 - 老外对中国cosplay竟这样评价…<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2378981.shtml
+- 2026-06-30 09:20 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7739431.shtml
+- 2026-06-30 09:02 - 浪姐成团夜爆笑吐槽<br><br> | ??:http://www.share.kurohicncr.top/Article/details/2386983064.shtml
+- 2026-06-30 08:54 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/040297.shtml
+- 2026-06-30 09:20 - 低智商犯罪三江口团建来了<br><br> | ??:https://www.blog.minike.top/Article/details/484109.shtml
+- 2026-06-30 09:09 - 花少8要去世界杯举办国<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/944408865971.shtml

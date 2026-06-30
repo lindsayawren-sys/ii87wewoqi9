@@ -1,57 +1,52 @@
-# 中新社采访团赴菲律宾开展“福建漳州月港海丝寻迹”主题采访活动圆满结束
+# 中基协：基金经理要建立阶梯化的绩效薪酬调整机制
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网马尼拉5月31日电 (记者 张金川 张兴龙)5月29日，中国新闻社采访团赴菲律宾开展“福建漳州月港海丝寻迹”主题采访暨海外华文媒体交流活动圆满结束。 此次活动由中国新闻社福建分社、福建省漳州市人民政府新闻办公室共同主办，中国新闻社漳州支社承办，采访团深入走访、交流，通过海外华文媒体平台传播月港文化。 漳州是一座拥有1300多年历史的国家历史文化名城，是“海上丝绸之路”重要
+17日，中国证券投资基金业协会对2022年发布的《基金管理公司绩效考核与薪酬管理指引》进行了修订，形成《基金管理公司绩效考核管理指引》。《指引》指出，基金管理公司应当根据基金经理过去三年管理主动权益类基金的业绩比较基准对比、基金利润率的不同情形建立阶梯化的绩效薪酬调整机制。过去三年基金产品业绩低于业绩比较基准超过十个百分点且基金利润率为负的，基金经理绩效薪酬应当较上一年明显下降
 
 ## 正文
 
-中新网马尼拉5月31日电 (记者 张金川 张兴龙)5月29日，中国新闻社采访团赴菲律宾开展“福建漳州月港海丝寻迹”主题采访暨海外华文媒体交流活动圆满结束。
+17日，中国证券投资基金业协会对2022年发布的《基金管理公司绩效考核与薪酬管理指引》进行了修订，形成《基金管理公司绩效考核管理指引》。
 
-此次活动由中国新闻社福建分社、福建省漳州市人民政府新闻办公室共同主办，中国新闻社漳州支社承办，采访团深入走访、交流，通过海外华文媒体平台传播月港文化。
+《指引》指出，基金管理公司应当根据基金经理过去三年管理主动权益类基金的业绩比较基准对比、基金利润率的不同情形建立阶梯化的绩效薪酬调整机制。
 
-漳州是一座拥有1300多年历史的国家历史文化名城，是“海上丝绸之路”重要节点城市，早在500多年前，漳州先辈就漂洋过海到菲律宾马尼拉经商贸易，拉开了漳州和菲律宾经贸合作的序幕。
+过去三年基金产品业绩低于业绩比较基准超过十个百分点且基金利润率为负的，基金经理绩效薪酬应当较上一年明显下降，降幅不得少于百分之三十；低于业绩比较基准超过十个百分点但基金利润率为正的，基金经理绩效薪酬应当下降；显著超过业绩比较基准且基金利润率为正的，基金经理绩效薪酬可以合理适度提高。
 
-中新社此次组织采访团赴菲律宾开展深入采访，旨在进一步挖掘漳州月港作为明代中后期中国海上丝绸之路重要港口，以及“马尼拉大帆船贸易”重要起点所蕴含的世界性历史价值，进一步加强面向菲律宾及海外的传播，积极讲好漳州月港故事。
-
-活动期间，主办方举办“福建漳州月港海丝寻迹主题采访暨海外华文媒体交流活动”启动仪式和“田园都市文化名城——人这一辈子一定要去一趟漳州”主题图片展。
-
-采访团还前往菲律宾《世界日报》《商报》和菲中电视台、华语社区等华文媒体座谈，深化与华文媒体的交流合作以及探讨漳州月港国际传播等内容。
-
-漳州是中国著名侨乡，是闽南文化重要发祥地，海内外漳州人共同的精神原乡。
-
-中新社采访团还前往菲律宾漳州总商会、菲律宾漳厦龙同海总会、菲律宾漳浦新民同乡会等华社机构采访中菲经贸创新发展示范园区建设进展，以及“海外漳州人”在菲律宾拼搏创业的故事，感受中菲经贸与人文交流的活力。
+(总台央视记者 沙千)
 
 ## 相关推荐
 
-- 2026-06-30 08:51 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 09:08 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 09:00 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 09:06 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 08:53 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 08:59 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 08:51 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 09:17 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 08:54 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 09:10 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 09:13 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 09:21 - 德国巴拉圭进入点球大战<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md
+- 2026-06-30 09:20 - 德国罚丢3粒点球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md
+- 2026-06-30 09:11 - 存储芯片龙头提示风险<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md
+- 2026-06-30 09:16 - HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md
+- 2026-06-30 09:16 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md
+- 2026-06-30 09:12 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md
+- 2026-06-30 09:23 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md
+- 2026-06-30 09:05 - 杨紫肖战余生请多指教拍立得<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md
+- 2026-06-30 09:15 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md
+- 2026-06-30 08:56 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md
+- 2026-06-30 09:23 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md
+- 2026-06-30 09:02 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md
+- 2026-06-30 09:03 - 俄乌双方伤亡近180万人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md
+- 2026-06-30 09:14 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/1551948377.shtml)
-- 2026-06-30 09:16 - [泰山景区建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/967313326.shtml)
-- 2026-06-30 08:59 - [球评巴西绝杀逆转日本](https://www.share.kurohicncr.top/Article/details/33362.shtml)
-- 2026-06-30 09:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/4641338.shtml)
-- 2026-06-30 09:02 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/72577054.shtml)
-- 2026-06-30 09:03 - [德国连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/1407111.shtml)
-- 2026-06-30 08:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/504439998.shtml)
-- 2026-06-30 09:05 - [韩国道歉完日本道歉](https://www.share.minike.top/Article/details/670402078586.shtml)
-- 2026-06-30 08:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/78033835844.shtml)
-- 2026-06-30 08:51 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/23483.shtml)
-- 2026-06-30 09:12 - [孙兴慜道歉](https://www.share.minike.top/Article/details/536684.shtml)
-- 2026-06-30 09:04 - [郑钦文 四年一轮游](https://www.share.minike.top/Article/details/79384609127.shtml)
-- 2026-06-30 08:58 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/714420.shtml)
-- 2026-06-30 09:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/391118.shtml)
-- 2026-06-30 08:52 - [低智商犯罪三江口团建来了](https://www.blog.kurohicncr.top/Article/details/00416.shtml)
+- 2026-06-30 09:08 - 峡谷事故团队组队时有人提醒会下雨<br><br> | ??:http://www.share.kurohicncr.top/Article/details/319703.shtml
+- 2026-06-30 09:20 - 快递到家不能这样拆<br><br> | ??:http://www.share.kurohicncr.top/Article/details/028519.shtml
+- 2026-06-30 09:09 - 恋与深空回应争议<br><br> | ??:http://www.blog.minike.top/Article/details/46556.shtml
+- 2026-06-30 09:03 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://www.blog.minike.top/Article/details/029728263.shtml
+- 2026-06-30 09:05 - 豆包收费了，你还会用吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/7284198.shtml
+- 2026-06-30 09:17 - 三星投资计划<br><br> | ??:https://www.share.kurohicncr.top/Article/details/89845.shtml
+- 2026-06-30 09:00 - 乔家的儿女<br><br> | ??:https://www.share.kurohicncr.top/Article/details/648693628923.shtml
+- 2026-06-30 08:55 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/714978.shtml
+- 2026-06-30 08:58 - 金鹰奖视后提名预测<br><br> | ??:https://www.share.kurohicncr.top/Article/details/216483724.shtml
+- 2026-06-30 09:07 - IGN评测电影版后室<br><br> | ??:http://www.blog.minike.top/Article/details/687647.shtml
+- 2026-06-30 09:22 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/580354090458.shtml
+- 2026-06-30 09:14 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/240328.shtml
+- 2026-06-30 09:05 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/38065.shtml
+- 2026-06-30 09:19 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:http://www.share.minike.top/Article/details/3581906.shtml
+- 2026-06-30 09:20 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://www.blog.minike.top/Article/details/438798826.shtml

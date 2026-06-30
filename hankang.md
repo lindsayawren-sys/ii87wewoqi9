@@ -1,57 +1,57 @@
-# 山西太原举办首届婴幼儿爬行大赛 80组萌娃爬行迎“六一”
+# 游戏玩家深感被遗忘 英伟达最新游戏显卡产能将缩减最高40%
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网太原5月30日电 (高雨晴)为庆祝中国计划生育协会成立46周年，迎接“六一”国际儿童节，5月29日，山西省太原市首届婴幼儿爬行大赛暨“5·29宣传服务月”主题活动在小店区举行。活动以“萌力全开 爬向未来”为主题，吸引80组婴幼儿家庭参与。 比赛现场，小选手们在爬行垫上各显“萌”态，或快速前进，或好奇张望，家长们则使出浑身解数引导鼓励，现场笑声掌声不断。活动将趣味运动、亲子
+三十年来，除非你是游戏玩家，否则英伟达在大众眼中默默无闻。如今，人工智能浪潮让这家芯片企业一跃成为全球市值最高公司，而它最初的粉丝群体——游戏玩家，却深感自己被渐渐遗忘。 伯恩斯坦研究公司分析师斯泰西·拉斯贡表示：“游戏业务早已不再是公司的核心增长引擎，曾经它毫无疑问是。” 英伟达普及了图形处理器（GPU），正是这类芯片带来高帧率、高效渲染效果，成就了极致的游戏体验。 1999
 
 ## 正文
 
-中新网太原5月30日电 (高雨晴)为庆祝中国计划生育协会成立46周年，迎接“六一”国际儿童节，5月29日，山西省太原市首届婴幼儿爬行大赛暨“5·29宣传服务月”主题活动在小店区举行。
+三十年来，除非你是游戏玩家，否则英伟达在大众眼中默默无闻。
 
-活动以“萌力全开 爬向未来”为主题，吸引80组婴幼儿家庭参与。
+如今，人工智能浪潮让这家芯片企业一跃成为全球市值最高公司，而它最初的粉丝群体——游戏玩家，却深感自己被渐渐遗忘。
 
-比赛现场，小选手们在爬行垫上各显“萌”态，或快速前进，或好奇张望，家长们则使出浑身解数引导鼓励，现场笑声掌声不断。
+伯恩斯坦研究公司分析师斯泰西·拉斯贡表示：“游戏业务早已不再是公司的核心增长引擎，曾经它毫无疑问是。
 
-活动将趣味运动、亲子互动与科普宣传深度融合，突破传统科普宣传的单一模式，以民众喜闻乐见的方式走进家庭、贴近民众。
+” 英伟达普及了图形处理器（GPU），正是这类芯片带来高帧率、高效渲染效果，成就了极致的游戏体验。
 
-为保障参赛婴幼儿安全，主办方配备了专业医护人员、安保人员及应急救援物资。
+1999年英伟达推出首款GPU——GeForce 256时，为研发这款产品公司大规模裁员、濒临破产。
 
-活动现场还设置妇幼健康科普展位，集中展示全市普惠托育服务发展成果，向家长传播科学育儿知识。
+是全球玩家争相抢购这款全新处理器，将英伟达从生死边缘拉了回来。
 
-太原市委卫健工委书记、市卫健委主任张泽表示，婴幼儿阶段是儿童体格发育、动作发展、心智成长的黄金时期，爬行作为婴幼儿关键的大运动行为，看似简单，却对孩子肢体协调、平衡感知、专注力培养和探索意识养成有着至关重要的作用。
+如今人工智能需求暴涨，英伟达几乎所有营收都来自AI领域产品，而非游戏硬件。
 
-科学的早期运动、高质量的亲子陪伴，能够为孩子终身健康打下坚实基础。
+同时AI芯片生产加剧显存资源紧张，英伟达被迫做出利益取舍。
 
 ## 相关推荐
 
-- 2026-06-30 09:03 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 09:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 09:00 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 08:52 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 09:13 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 09:07 - [网红不能困在无底线逐利里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 08:56 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 08:49 - [日本队主帅道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 09:01 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 08:59 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 09:12 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 09:10 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md
+- 2026-06-30 09:12 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md
+- 2026-06-30 09:11 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md
+- 2026-06-30 09:07 - 酒店推行“24小时退房”引热议<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md
+- 2026-06-30 09:12 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md
+- 2026-06-30 08:55 - 李准基参加文彩元婚礼<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md
+- 2026-06-30 09:00 - 千与千寻<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md
+- 2026-06-30 09:08 - 吴启华卖肖像权拍AI电影<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md
+- 2026-06-30 08:54 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md
+- 2026-06-30 09:10 - 德国巴拉圭加时<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md
+- 2026-06-30 09:24 - 恋与深空<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:11 - [金鹰奖视后提名预测](http://www.share.minike.top/Article/details/607416157068.shtml)
-- 2026-06-30 09:04 - [德国进球被吹](https://www.blog.minike.top/Article/details/223361.shtml)
-- 2026-06-30 08:56 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/668941750.shtml)
-- 2026-06-30 09:03 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/047941802.shtml)
-- 2026-06-30 08:55 - [齐思钧回复张月](https://www.share.minike.top/Article/details/76981817476.shtml)
-- 2026-06-30 08:57 - [教育部披露：高考生篡改7名同学志愿](https://www.share.kurohicncr.top/Article/details/17270.shtml)
-- 2026-06-30 09:03 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/38475.shtml)
-- 2026-06-30 08:49 - [日本球员说被绝杀非常不甘心](http://www.blog.minike.top/Article/details/23264571978.shtml)
-- 2026-06-30 08:55 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/52505566.shtml)
-- 2026-06-30 09:04 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/0300873817.shtml)
-- 2026-06-30 09:12 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/7696635913.shtml)
-- 2026-06-30 09:14 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/0043441254.shtml)
-- 2026-06-30 09:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/46077275.shtml)
-- 2026-06-30 09:00 - [低智商犯罪三江口团建来了](http://www.blog.kurohicncr.top/Article/details/60646370030.shtml)
-- 2026-06-30 08:50 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/017840.shtml)
+- 2026-06-30 08:54 - 本科毕业生为何涌入专科学校<br><br> | ??:https://www.blog.minike.top/Article/details/579425.shtml
+- 2026-06-30 09:06 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:http://www.share.minike.top/Article/details/644443.shtml
+- 2026-06-30 09:11 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://www.blog.minike.top/Article/details/5526368.shtml
+- 2026-06-30 08:57 - 未来五年，教育强国这样建设<br><br> | ??:http://www.share.minike.top/Article/details/0836264.shtml
+- 2026-06-30 09:20 - 苗族银饰<br><br> | ??:http://www.blog.minike.top/Article/details/598392424.shtml
+- 2026-06-30 09:07 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:http://www.blog.minike.top/Article/details/4355253.shtml
+- 2026-06-30 09:15 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://www.blog.minike.top/Article/details/992671209072.shtml
+- 2026-06-30 08:59 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:http://www.blog.minike.top/Article/details/83609831.shtml
+- 2026-06-30 09:11 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:http://www.share.minike.top/Article/details/7372138122.shtml
+- 2026-06-30 09:07 - 索马里女大使：想和中国一起搞事业<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/5157396033.shtml
+- 2026-06-30 08:58 - 极限挑战第一季<br><br> | ??:http://www.share.kurohicncr.top/Article/details/278116761.shtml
+- 2026-06-30 09:15 - 明星大侦探第四季<br><br> | ??:https://www.share.kurohicncr.top/Article/details/47913974090.shtml
+- 2026-06-30 09:04 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:http://www.share.kurohicncr.top/Article/details/58246414.shtml
+- 2026-06-30 09:20 - 87克大金链到老庙黄金维修少了11克<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/146516.shtml
+- 2026-06-30 09:16 - 酒店推行“24小时退房”引热议<br><br> | ??:http://www.share.kurohicncr.top/Article/details/75670903140.shtml

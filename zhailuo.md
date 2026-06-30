@@ -1,57 +1,58 @@
-# 用时仅23个工作日，这类再融资项目跑出加速度！
+# 长城基金梁福睿：关注创新药行业具备中长期价值、能真正兑现和成长的公司
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 5月29日，沪市主板公司中科曙光可转债再融资项目提交注册，这是沪市主板首单适用“轻资产、高研发投入”的落地项目。 同日，科创板公司特宝生物的可转债再融资项目也提交注册。据悉，两家公司向不特定对象发行可转债项目从4月24日受理至5月29日提交注册，用时仅23个工作日。 中科曙光可转债项目也是首单沪市主板再融资“轻资产、高研发投入”
+近期，国内创新药及创新药产业链持续获得政策强力支持，叠加产业基本面改善与国际化突破，市场普遍看好其长期发展前景。国家药监局3月28日发布的信息显示，今年第一季度，我国创新药对外授权交易额超过600亿美元，接近2025年全年的一半。截至3月27日，今年我国已有10款创新药获批上市，其中2款为进口，8款为国产，创新药取得历史性突破。（以上数据仅供示意，不构成实际投资建议，投资需谨慎
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 5月29日，沪市主板公司中科曙光可转债再融资项目提交注册，这是沪市主板首单适用“轻资产、高研发投入”的落地项目。
+近期，国内创新药及创新药产业链持续获得政策强力支持，叠加产业基本面改善与国际化突破，市场普遍看好其长期发展前景。
 
-同日，科创板公司特宝生物的可转债再融资项目也提交注册。
+国家药监局3月28日发布的信息显示，今年第一季度，我国创新药对外授权交易额超过600亿美元，接近2025年全年的一半。
 
-据悉，两家公司向不特定对象发行可转债项目从4月24日受理至5月29日提交注册，用时仅23个工作日。
+截至3月27日，今年我国已有10款创新药获批上市，其中2款为进口，8款为国产，创新药取得历史性突破。
 
-中科曙光可转债项目也是首单沪市主板再融资“轻资产、高研发投入”落地项目。
+（以上数据仅供示意，不构成实际投资建议，投资需谨慎。
 
-公开资料显示，中科曙光成立于2006年3月，2014年11月在上交所主板上市，是国内高端计算领域和算力基础设施解决方案的领军企业，主营业务为高端计算机、存储、安全、数据中心产品的研发及制造。
+） 那么，2026年创新药行情会如何发展？
 
-根据募集说明书，公司“轻资产、高研发投入”特质突出，截至2025年末，公司实物资产占比仅11.85%，2023年至2025年平均研发投入占营业收入比例为12.56%，且最近三年累计研发投入合计53.34亿元，符合沪市主板“轻资产、高研发投入”认定标准。
+今年创新药阵营企业有哪些新亮点？
 
-本次发行可转债拟募集资金80亿元，将用于“面向人工智能的先进算力集群系统项目”“下一代高性能AI训推一体机项目”和“国产化先进存储系统项目”等项目，是响应国家战略部署、打造智能算力技术体系护城河的重要举措，通过本次募投项目实施，可以使先进算力集群系统整体技术水平与国际主流产品对齐，提升产业链的自主可控能力，推动人工智能与实体经济加速融合。
+有望迎来哪些催化？
 
-2025年，中科曙光营业收入同比增长13.81%，扣非归母净利润同比增长33.97%；2026年第一季度，公司业绩进一步增长，营业收入同比增长23.71%，扣非归母净利润同比增长53.30%。
+长城医药产业精选基金经理梁福睿近期就这些问题接受媒体采访，进行了专业剖析。
 
 ## 相关推荐
 
-- 2026-06-30 09:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 08:49 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 09:10 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 08:59 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 09:11 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 08:54 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 09:12 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 08:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 08:52 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 09:03 - [世界杯：荷兰vs摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 08:59 - [日本主帅：未能夺冠深感抱歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 09:04 - 萨内 看笑了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md
+- 2026-06-30 09:08 - 巴西绝杀<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md
+- 2026-06-30 09:18 - 田中碧失误<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md
+- 2026-06-30 09:08 - 郑钦文 四年一轮游<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md
+- 2026-06-30 09:16 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md
+- 2026-06-30 09:21 - 德国罚丢3粒点球<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md
+- 2026-06-30 09:18 - 开电动汽车真的很省钱吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md
+- 2026-06-30 09:05 - 齐思钧回复张月<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md
+- 2026-06-30 09:09 - 杨紫大银幕成绩单如何<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md
+- 2026-06-30 08:58 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md
+- 2026-06-30 09:04 - 巴拉圭先进球了<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md
+- 2026-06-30 08:54 - 国内最大沙漠发洪水意味着什么<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:12 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.minike.top/Article/details/425374267.shtml)
-- 2026-06-30 09:10 - [日本反击率先破门](http://www.share.minike.top/Article/details/960229358.shtml)
-- 2026-06-30 08:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/625513468277.shtml)
-- 2026-06-30 09:11 - [巴西绝杀](http://www.blog.minike.top/Article/details/9268590118.shtml)
-- 2026-06-30 09:10 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/365735165.shtml)
-- 2026-06-30 09:17 - [日本将帅赛后采访纷纷哽咽落泪](https://www.share.kurohicncr.top/Article/details/7043932693.shtml)
-- 2026-06-30 08:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/6071996.shtml)
-- 2026-06-30 09:05 - [输球后日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/010771744455.shtml)
-- 2026-06-30 09:10 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/73149.shtml)
-- 2026-06-30 08:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/6986969169.shtml)
-- 2026-06-30 09:04 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/1418925670.shtml)
-- 2026-06-30 09:09 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/495499176643.shtml)
-- 2026-06-30 09:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/19094537107.shtml)
-- 2026-06-30 09:14 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.kurohicncr.top/Article/details/52470579.shtml)
-- 2026-06-30 08:49 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/113636355.shtml)
+- 2026-06-30 09:14 - 【Reaction】女生最少的5款游戏<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/7481227646.shtml
+- 2026-06-30 09:20 - GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？<br><br> | ??:http://www.share.minike.top/Article/details/3192847.shtml
+- 2026-06-30 09:13 - 《名肘探科比》：科比大战裂口女<br><br> | ??:http://www.blog.minike.top/Article/details/894488.shtml
+- 2026-06-30 09:07 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://www.share.minike.top/Article/details/38729762.shtml
+- 2026-06-30 09:06 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:http://www.share.minike.top/Article/details/658742.shtml
+- 2026-06-30 09:21 - 你的妻子大喷菇—《植物娘大战僵尸》特别篇<br><br> | ??:https://www.blog.minike.top/Article/details/50916.shtml
+- 2026-06-30 09:18 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/49614394.shtml
+- 2026-06-30 09:00 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://www.share.minike.top/Article/details/9292937251.shtml
+- 2026-06-30 09:22 - 古代人对纳妾的态度是什么样的？<br><br> | ??:https://www.blog.minike.top/Article/details/00793.shtml
+- 2026-06-30 08:57 - 歌剧老师锐评歌手第6期<br><br> | ??:https://www.share.minike.top/Article/details/318771993911.shtml
+- 2026-06-30 09:18 - 贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/38134815412.shtml
+- 2026-06-30 08:59 - 如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？<br><br> | ??:https://www.blog.minike.top/Article/details/45112687895.shtml
+- 2026-06-30 09:01 - 杨紫学位证上就是杨紫<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5201239.shtml
+- 2026-06-30 09:15 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:http://www.share.minike.top/Article/details/779877.shtml
+- 2026-06-30 09:02 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://www.blog.minike.top/Article/details/51332.shtml

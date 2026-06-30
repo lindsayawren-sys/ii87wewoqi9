@@ -1,56 +1,54 @@
-# 标的指数1年暴涨152%！光模块+半导体全都有的——双创50ETF华宝（588330）续创历史新高，近2日吸金5580万元
+# 老年关节疼别乱补！专家科普哪些运动更有利保护关节
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-今日（5月29日）光模块龙头天孚通信、中际旭创继续刷新上市以来的高点，PCB龙头胜宏科技涨超5%，存储芯片龙头江波龙涨逾4%，覆盖创业板+科创板50只高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内价格盘中摸高0.3%，现涨0.07%，续创历史新高！ 伴随火热的行情，资金积极进场！数据显示，双创50ETF华宝（588330）近2日连续吸金，合计狂揽5580万元！
+发布时间：2026年04月19日 14:12 来源：中国新闻网 骨性关节炎作为老年人高发的退变性疾病，严重影响老年群体生活质量，常导致关节活动障碍，给日常起居带来不便。 4月18日，广东省老年保健协会关节再生医学分会、广东省医学教育协会骨科人工智能与手术机器人专业委员会成立。 南方医科大学南方医院关节与骨病外科副主任王健接受采访时表示，临床发现，大众对该病存在两大认知误区：一是
 
 ## 正文
 
-今日（5月29日）光模块龙头天孚通信、中际旭创继续刷新上市以来的高点，PCB龙头胜宏科技涨超5%，存储芯片龙头江波龙涨逾4%，覆盖创业板+科创板50只高成长龙头的硬科技宽基——双创50ETF华宝（588330）场内价格盘中摸高0.3%，现涨0.07%，续创历史新高！
+发布时间：2026年04月19日 14:12 来源：中国新闻网 骨性关节炎作为老年人高发的退变性疾病，严重影响老年群体生活质量，常导致关节活动障碍，给日常起居带来不便。
 
-伴随火热的行情，资金积极进场！
+4月18日，广东省老年保健协会关节再生医学分会、广东省医学教育协会骨科人工智能与手术机器人专业委员会成立。
 
-数据显示，双创50ETF华宝（588330）近2日连续吸金，合计狂揽5580万元！
+南方医科大学南方医院关节与骨病外科副主任王健接受采访时表示，临床发现，大众对该病存在两大认知误区：一是认为补充钙剂可治疗骨性关节炎，实则该病核心是关节软骨退变，而非骨质质量问题，单纯补钙效果有限；二是轻信药物能化掉骨刺，而骨刺(骨赘)与正常骨质结构一致，此类药物会损伤正常骨质，引发骨质疏松等问题。
 
-半导体方面，台积电计划于2026年下半年再度上调3纳米制程晶圆代工报价，涨幅最高可达15%，2027年可能进一步上涨5%至10%。
+他提醒，骨性关节炎需注重日常防护，减少关节负重和损伤，游泳、平路散步等非负重运动更利于关节保护，应避免爬楼等伤关节行为。
 
-业内人士指出，这将通过“先进制程需求外溢”“行业价格联动”“国产替代趋势深化”三重机制，从订单获取和盈利改善两个维度直接利好国产代工厂。
+随着AI技术发展，骨科机器人应运而生，破解了传统关节置换手术精准度不足的难题。
 
-光模块方面，招商证券指出，2026年光模块进入扩产大年。
+王健表示，骨科机器人可提升假体植入精度，减缓磨损，提高患者生存质量。
 
-以800G为代表的高速光模块受益于AI数据中心算力需求的持续爆发，各大光模块厂商纷纷开启新一轮扩产周期，对上游设备的采购需求随之高速增长。
-
-本轮光模块设备需求爆发的驱动力具有较强持续性。
+(记者 蔡敏婕 制作 王佳琪） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 09:16 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 08:55 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 09:04 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 08:52 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 09:04 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-30 08:58 - [iPhoneUltra黑色机模](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 09:12 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 08:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 09:03 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 09:09 - 开电动汽车真的很省钱吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md
+- 2026-06-30 09:16 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md
+- 2026-06-30 09:03 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md
+- 2026-06-30 09:06 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md
+- 2026-06-30 09:09 - 如果有二次元高中是什么样子的？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md
+- 2026-06-30 09:12 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md
+- 2026-06-30 09:18 - 世界杯巴拉圭点球淘汰德国<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md
+- 2026-06-30 08:57 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md
+- 2026-06-30 08:54 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md
+- 2026-06-30 09:08 - 男子中医院拔火罐致浅2度烧伤<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:03 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/190382255402.shtml)
-- 2026-06-30 08:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/1708611090.shtml)
-- 2026-06-30 08:59 - [低智商犯罪三江口团建来了](http://www.blog.kurohicncr.top/Article/details/360282.shtml)
-- 2026-06-30 09:08 - [德国4比5巴拉圭](https://www.blog.kurohicncr.top/Article/details/70767664.shtml)
-- 2026-06-30 09:00 - [泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/967629.shtml)
-- 2026-06-30 08:57 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/864839994561.shtml)
-- 2026-06-30 08:48 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.blog.kurohicncr.top/Article/details/594833070.shtml)
-- 2026-06-30 08:54 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/9024979.shtml)
-- 2026-06-30 08:58 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/68105264207.shtml)
-- 2026-06-30 09:05 - [自然光｜papi酱&窦文涛：驴与跑步机](http://www.share.kurohicncr.top/Article/details/74713380.shtml)
-- 2026-06-30 09:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/5660682192.shtml)
-- 2026-06-30 08:50 - [日本将帅赛后采访纷纷哽咽落泪](http://www.blog.kurohicncr.top/Article/details/8984802.shtml)
-- 2026-06-30 08:49 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/871221881146.shtml)
-- 2026-06-30 08:52 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/76313514473.shtml)
-- 2026-06-30 08:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/897332902.shtml)
+- 2026-06-30 09:19 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/91288500.shtml
+- 2026-06-30 09:16 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/527470163433.shtml
+- 2026-06-30 09:23 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/98673183236.shtml
+- 2026-06-30 09:04 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:http://www.share.minike.top/Article/details/826280909.shtml
+- 2026-06-30 09:01 - MSI应援曲 如果季中成回忆<br><br> | ??:https://www.blog.minike.top/Article/details/52537173.shtml
+- 2026-06-30 08:57 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://www.share.minike.top/Article/details/0779183.shtml
+- 2026-06-30 09:05 - 男子醉酒溺水获救后同行人拒协助抬人<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/66217452.shtml
+- 2026-06-30 09:19 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3630500.shtml
+- 2026-06-30 09:22 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:https://www.share.minike.top/Article/details/956373.shtml
+- 2026-06-30 09:10 - 徐亮怒斥世界杯踢假球<br><br> | ??:http://www.share.kurohicncr.top/Article/details/060008.shtml
+- 2026-06-30 09:08 - 一生一世<br><br> | ??:http://www.blog.minike.top/Article/details/21059.shtml
+- 2026-06-30 09:12 - 德国vs巴拉圭<br><br> | ??:https://www.blog.minike.top/Article/details/627399107010.shtml
+- 2026-06-30 09:04 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://www.blog.minike.top/Article/details/047516681054.shtml
+- 2026-06-30 08:57 - 董路：谁赢谁是“正路子”<br><br> | ??:http://www.blog.minike.top/Article/details/77305358.shtml
+- 2026-06-30 09:12 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://www.blog.minike.top/Article/details/59793646345.shtml

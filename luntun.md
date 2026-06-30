@@ -1,61 +1,47 @@
-# 美国上周初请失业金人数增至21.5万，创一个多月新高
+# 加拿大邮政将终止住宅邮件投递
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-美国劳工部周四公布的数据显示，截至5月23日当周，美国首次申请失业救济人数为21.5万人，较前一周修正后的21万人增加5000人，达到一个多月以来的最高水平，略高于市场预期的21.1万人。 更具统计平滑性的四周移动平均值从前一周的20.5万人升至20.9万人，反映出就业市场的边际放缓迹象。与此同时，截至5月16日当周的续请失业金人数为178.6万人，较前一周增加1.5万人，略高
+加拿大邮政公司将终止住宅邮件投递，并开始把13个社区约13.6万个地址转换为社区邮箱，这是其在五年内逐步取消上门投递以减少亏损的第一步。责任编辑：张俊 SF065
 
 ## 正文
 
-美国劳工部周四公布的数据显示，截至5月23日当周，美国首次申请失业救济人数为21.5万人，较前一周修正后的21万人增加5000人，达到一个多月以来的最高水平，略高于市场预期的21.1万人。
+加拿大邮政公司将终止住宅邮件投递，并开始把13个社区约13.6万个地址转换为社区邮箱，这是其在五年内逐步取消上门投递以减少亏损的第一步。
 
-更具统计平滑性的四周移动平均值从前一周的20.5万人升至20.9万人，反映出就业市场的边际放缓迹象。
-
-与此同时，截至5月16日当周的续请失业金人数为178.6万人，较前一周增加1.5万人，略高于市场预期的178万人。
-
-尽管初请数据出现反弹，但从历史纵向比较来看，今年的失业救济申请数量整体仍处于低位。
-
-近期多家知名科技公司宣布裁员消息备受市场瞩目，但尚未对整体申领数据形成显著冲击。
-
-美联储副主席菲利普·杰斐逊周三在东京发表演讲时表示，美国劳动力市场对当前的能源冲击表现出“很强的韧性”，鉴于这种韧性，美联储更应该将重点放在使通胀率回归到央行设定的2%目标上。
-
-他指出，能源和汽油价格的上涨是当前社会最关注的议题，美联储正在密切关注这对民众生活的影响。
-
-本周初请失业金人数的小幅回升，正值美联储政策制定者就利率路径展开激烈辩论之际。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 09:12 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 08:49 - [世界杯：荷兰vs摩洛哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-30 09:06 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 09:05 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 08:48 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 09:06 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 09:14 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 09:01 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 08:52 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 09:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 08:57 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 08:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 09:11 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 09:00 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 08:56 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md
+- 2026-06-30 09:01 - 女子遭下药退赔偿拟追刑责<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md
+- 2026-06-30 08:59 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md
+- 2026-06-30 08:54 - 手底下人带不动怎么办？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md
+- 2026-06-30 09:21 - 湖北云南这些涉汛信息都是假的<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md
+- 2026-06-30 09:07 - 女心理师<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md
+- 2026-06-30 09:04 - 美人鱼<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md
+- 2026-06-30 09:22 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md
+- 2026-06-30 09:23 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md
+- 2026-06-30 09:06 - 如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md
+- 2026-06-30 09:02 - 德国4比5巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md
+- 2026-06-30 09:09 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md
+- 2026-06-30 09:01 - 2021江苏卫视跨年演唱会<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:03 - [王楚钦孙颖莎晋级混双八强](http://www.share.kurohicncr.top/Article/details/639989712.shtml)
-- 2026-06-30 09:15 - [明星大侦探第四季](http://www.share.minike.top/Article/details/90053438.shtml)
-- 2026-06-30 09:01 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/282382687216.shtml)
-- 2026-06-30 08:54 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/232775.shtml)
-- 2026-06-30 08:48 - [德国连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/9972920.shtml)
-- 2026-06-30 09:08 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/2997625851.shtml)
-- 2026-06-30 08:54 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.share.kurohicncr.top/Article/details/213540.shtml)
-- 2026-06-30 08:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/9007879221.shtml)
-- 2026-06-30 09:01 - [流金岁月](http://www.share.minike.top/Article/details/6633566.shtml)
-- 2026-06-30 09:08 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/80607.shtml)
-- 2026-06-30 09:05 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/9533156534.shtml)
-- 2026-06-30 09:05 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/7648948499.shtml)
-- 2026-06-30 08:49 - [周冬雨多次说演不了话剧文城](https://www.blog.minike.top/Article/details/2373560523.shtml)
-- 2026-06-30 08:48 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/63952538.shtml)
-- 2026-06-30 08:55 - [德国4比5巴拉圭](https://www.share.kurohicncr.top/Article/details/7457427569.shtml)
+- 2026-06-30 09:22 - 网红峡谷5人溺亡 有人提醒会下雨<br><br> | ??:http://www.share.kurohicncr.top/Article/details/154842271266.shtml
+- 2026-06-30 09:15 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1293205933.shtml
+- 2026-06-30 09:19 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:http://www.share.minike.top/Article/details/37836382.shtml
+- 2026-06-30 09:14 - 日本淘汰<br><br> | ??:https://www.blog.minike.top/Article/details/4906954.shtml
+- 2026-06-30 09:19 - 上市央企地产商 两年换了三任董事长<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3787995008.shtml
+- 2026-06-30 09:19 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://www.blog.minike.top/Article/details/115740.shtml
+- 2026-06-30 09:07 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:http://www.blog.minike.top/Article/details/5994490326.shtml
+- 2026-06-30 09:03 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4558970585.shtml
+- 2026-06-30 09:01 - 金刚川<br><br> | ??:https://www.share.minike.top/Article/details/95985933.shtml
+- 2026-06-30 08:59 - 明星大侦探第一季<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/70543164.shtml
+- 2026-06-30 09:00 - 王源近几年没有路演了<br><br> | ??:http://www.share.minike.top/Article/details/084504008771.shtml
+- 2026-06-30 09:08 - 一生一世<br><br> | ??:https://www.share.minike.top/Article/details/67493.shtml
+- 2026-06-30 09:01 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6929582.shtml
+- 2026-06-30 09:11 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://www.blog.minike.top/Article/details/25223.shtml
+- 2026-06-30 09:12 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:http://www.blog.minike.top/Article/details/7002996.shtml

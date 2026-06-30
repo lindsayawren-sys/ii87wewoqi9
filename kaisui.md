@@ -1,60 +1,56 @@
-# 美丽中国行|“山林蓝宝石”铜蓝鹟首次现身北京密云
+# 中越企业昆明面对面交流 碰撞合作机遇
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中国青年报客户端讯(戴琪果 中青报·中青网记者 尹希宁)北京市密云区近日新记录了一种珍稀鸟类铜蓝鹟，这种鸟类系首次现身密云山林地带。 记者从北京市密云区了解到，铜蓝鹟属于雀形目鹟科小型鸟类，素有“鸟界蓝色妖姬”“山林蓝宝石”美誉。铜蓝鹟体长13至16厘米，小巧轻盈、身姿曼妙，成年雄鸟通体覆盖独特的铜蓝色羽毛，自带细腻金属光泽，阳光洒落时熠熠生辉，宛如打磨后的蓝宝石，眼部标志性的
+中新网昆明4月18日电 (记者 韩帅南)17日，中国—越南贸易投资促进交流会在昆明举办。来自中越两国的政府代表、企业及商协会代表齐聚一堂，面对面交流，碰撞合作机遇，挖掘市场潜力。 中国与越南山水相连、人缘相亲，是有着相近文化传统的好邻居、好伙伴。云南省位于中国西南边陲，与越南接壤，近年来两地在跨境贸易、人文交流等方面互动频繁。 在当天的交流会上，越方企业代表介绍了越南在医药、农
 
 ## 正文
 
-中国青年报客户端讯(戴琪果 中青报·中青网记者 尹希宁)北京市密云区近日新记录了一种珍稀鸟类铜蓝鹟，这种鸟类系首次现身密云山林地带。
+中新网昆明4月18日电 (记者 韩帅南)17日，中国—越南贸易投资促进交流会在昆明举办。
 
-记者从北京市密云区了解到，铜蓝鹟属于雀形目鹟科小型鸟类，素有“鸟界蓝色妖姬”“山林蓝宝石”美誉。
+来自中越两国的政府代表、企业及商协会代表齐聚一堂，面对面交流，碰撞合作机遇，挖掘市场潜力。
 
-铜蓝鹟体长13至16厘米，小巧轻盈、身姿曼妙，成年雄鸟通体覆盖独特的铜蓝色羽毛，自带细腻金属光泽，阳光洒落时熠熠生辉，宛如打磨后的蓝宝石，眼部标志性的黑色“眼罩”，显得俏皮灵动，雌鸟羽色稍显淡雅，蓝绿相间的羽翼清雅秀美，辨识度颇高。
+中国与越南山水相连、人缘相亲，是有着相近文化传统的好邻居、好伙伴。
 
-铜蓝鹟主要栖息于我国南方及西南地区的山地森林，偏爱开阔林缘、溪流附近的灌丛环境。
+云南省位于中国西南边陲，与越南接壤，近年来两地在跨境贸易、人文交流等方面互动频繁。
 
-此次铜蓝鹟在密云现身，进一步丰富了区域生物多样性图谱，同时也印证了密云作为东亚至澳大利西亚候鸟迁徙路线关键节点的生态优势。
+在当天的交流会上，越方企业代表介绍了越南在医药、农业等领域的优势，并欢迎中方企业赴越投资、合作。
 
-作为北京市鸟类多样性最丰富的区域之一，密云区生态禀赋优越，为各类野生鸟类提供了绝佳栖息繁衍环境。
+中方企业代表介绍了与越方企业在经贸、物流等领域的合作经验，并希望能够以此次交流为契机，进一步加强与越方在各领域的合作。
 
-截至目前，全区共记录野生鸟类430种，其中国家一级保护鸟类22种、国家二级保护鸟类75种、北京市级保护鸟类100种。
+参与交流的越方企业带来咖啡、燕窝、水果、副食品等优势产品，以及新材料、建筑等领域合作需求，与中方采购商与投资企业现场对接，精准匹配双方资源。
 
-北京市生态环境局资料显示，“十四五”期间，北京对全市十余个类群开展系统调查，并在此基础上，初步构建了指示生物类群观测体系，即在全市开展鸟类观测，在生态涵养区开展哺乳动物观测，在中心城区开展蝴蝶和蜻蜓观测，形成兼顾水陆、覆盖全市的观测网络。
+红河哈尼族彝族自治州商务局局长和涛在会上介绍，红河州拥有河口公路口岸、河口铁路口岸、金水河口岸3个国家级对越口岸。
 
 ## 相关推荐
 
-- 2026-06-30 09:12 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 08:48 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 09:07 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 09:04 - [网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-30 08:58 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 09:00 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 09:16 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 09:16 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 09:12 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 09:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 08:53 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 09:03 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 09:02 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 09:07 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 09:01 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md
+- 2026-06-30 09:09 - 扬名立万<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md
+- 2026-06-30 09:14 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md
+- 2026-06-30 08:59 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md
+- 2026-06-30 08:58 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md
+- 2026-06-30 09:11 - 明星大侦探第一季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md
+- 2026-06-30 09:21 - “柠檬茶能换怀表？”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md
+- 2026-06-30 08:58 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md
+- 2026-06-30 09:21 - 莫兰特转投开拓者效力<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md
+- 2026-06-30 09:00 - 黄晓明夸昆凌引杨颖对比<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/5790179.shtml)
-- 2026-06-30 09:17 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/849269872.shtml)
-- 2026-06-30 08:56 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/79869792537.shtml)
-- 2026-06-30 09:03 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/686541.shtml)
-- 2026-06-30 08:52 - [巴拉圭门将](https://www.share.minike.top/Article/details/58091852.shtml)
-- 2026-06-30 08:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/9812910.shtml)
-- 2026-06-30 08:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/07793443348.shtml)
-- 2026-06-30 09:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/6461910264.shtml)
-- 2026-06-30 09:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/98104758962.shtml)
-- 2026-06-30 09:09 - [iPhoneUltra黑色机模](http://www.share.minike.top/Article/details/6722545306.shtml)
-- 2026-06-30 09:13 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/966100879480.shtml)
-- 2026-06-30 09:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/8570686.shtml)
-- 2026-06-30 09:03 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/64340.shtml)
-- 2026-06-30 09:01 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/86445071950.shtml)
-- 2026-06-30 09:15 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/4735019.shtml)
+- 2026-06-30 09:06 - 小娘惹<br><br> | ??:http://www.blog.minike.top/Article/details/146464964.shtml
+- 2026-06-30 09:16 - 送你一朵小红花<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3599447.shtml
+- 2026-06-30 09:06 - 女子清吧被陌生人投放伟哥<br><br> | ??:http://www.blog.minike.top/Article/details/554719.shtml
+- 2026-06-30 09:11 - 我觉得你是在无中生友<br><br> | ??:https://www.blog.minike.top/Article/details/0440583404.shtml
+- 2026-06-30 09:10 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/33888.shtml
+- 2026-06-30 09:02 - 内马尔中场休息积极鼓励队友<br><br> | ??:https://www.share.kurohicncr.top/Article/details/59127165.shtml
+- 2026-06-30 09:24 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.blog.minike.top/Article/details/424425111046.shtml
+- 2026-06-30 09:15 - 曝娱乐圈大部分明星失业<br><br> | ??:http://www.share.kurohicncr.top/Article/details/9293101.shtml
+- 2026-06-30 09:10 - 王健林甩卖超80座万达广场<br><br> | ??:http://www.blog.minike.top/Article/details/7843249.shtml
+- 2026-06-30 09:21 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1292716163.shtml
+- 2026-06-30 09:17 - 四川宜宾地震为何震感明显<br><br> | ??:https://www.blog.minike.top/Article/details/179379898.shtml
+- 2026-06-30 09:13 - 内马尔中场休息积极鼓励队友<br><br> | ??:http://www.blog.minike.top/Article/details/23999.shtml
+- 2026-06-30 09:16 - 巴西把自己踢晕了<br><br> | ??:http://www.blog.minike.top/Article/details/0023433618.shtml
+- 2026-06-30 09:14 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://www.share.minike.top/Article/details/171115339.shtml
+- 2026-06-30 09:03 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/1801219.shtml

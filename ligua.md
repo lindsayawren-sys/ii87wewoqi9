@@ -1,56 +1,52 @@
-# 以总理内塔尼亚胡：已命令以军控制加沙地带70%区域
+# 晶科电子股份控股股东集团及高管拟进一步增持公司H股
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网5月29日电 据美国有线电视新闻网(CNN)报道，以色列总理内塔尼亚胡当地时间28日表示，他已下令以军将控制加沙地带70%区域。 据报道，内塔尼亚胡当天在被占领的约旦河西岸出席活动，他在采访中表示，以军目前控制加沙地带约60%的区域，他已下令将控制范围扩大至约70%。“之前是50%，现在已经达到60%。我的指示是，一步一步来——70%。” 据报道，内塔尼亚胡还证实，以色列
+晶科电子股份（02551）公布，公司于2026年4月20日收到公司控股股东集团及高级管理人员的通知，基于对集团未来发展前景的乐观判断和集团将持续、稳定及健康发展的信心，以及对集团长远投资价值的充分认同，控股股东集团及高管计划自本公告之日起3个月内于公开市场交易中进一步增持公司H股股份。 截至本公告日期，控股股东集团于合共65，218，835股H股股份及171，316，739股内
 
 ## 正文
 
-中新网5月29日电 据美国有线电视新闻网(CNN)报道，以色列总理内塔尼亚胡当地时间28日表示，他已下令以军将控制加沙地带70%区域。
+晶科电子股份（02551）公布，公司于2026年4月20日收到公司控股股东集团及高级管理人员的通知，基于对集团未来发展前景的乐观判断和集团将持续、稳定及健康发展的信心，以及对集团长远投资价值的充分认同，控股股东集团及高管计划自本公告之日起3个月内于公开市场交易中进一步增持公司H股股份。
 
-据报道，内塔尼亚胡当天在被占领的约旦河西岸出席活动，他在采访中表示，以军目前控制加沙地带约60%的区域，他已下令将控制范围扩大至约70%。
+截至本公告日期，控股股东集团于合共65，218，835股H股股份及171，316，739股内资股中拥有权益，合计占公司已发行股份总数约44.04%。
 
-“之前是50%，现在已经达到60%。
+按照控股股东集团的意向，于本次增持计划实施后，控股股东集团于公司的总持股量将预计不会导致根据《公司收购及合并守则》规则26，就香港上市公司的控股股东于任何 12个月期间所持30%至50%的股权而言作出强制要约的责任（即将不会使其总持股量较其于建议收购事项前十二个月的最低持股水平增加超过2%）。
 
-我的指示是，一步一步来——70%。
+根据公司所得资料及据董事会所知，预计本次增持计划完成后，公司将继续符合上市规则最低公众持股量的百分比规定。
 
-” 据报道，内塔尼亚胡还证实，以色列军队正在“深化”在黎巴嫩的军事行动。
-
-此前不久，以色列国防军发言人宣布，以军将对黎巴嫩真主党展开“强力打击”，宰赫拉尼河以南所有区域均被视为“战区”。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 09:14 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 08:49 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 08:50 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 09:09 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-30 08:50 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 08:58 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 08:54 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 08:51 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 08:54 - [巴拉圭门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 09:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 09:06 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 09:07 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 09:12 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 09:00 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 09:07 - 博世们还在犹豫 美的们已经卖断货<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md
+- 2026-06-30 09:00 - 内马尔替补<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md
+- 2026-06-30 09:23 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md
+- 2026-06-30 08:56 - 如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md
+- 2026-06-30 09:02 - 对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md
+- 2026-06-30 09:08 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md
+- 2026-06-30 09:16 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md
+- 2026-06-30 08:56 - “以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md
+- 2026-06-30 09:12 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md
+- 2026-06-30 08:58 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md
+- 2026-06-30 09:10 - 青春环游记第三季<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md
+- 2026-06-30 09:08 - 郑钦文温网三连败西尼亚科娃<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:01 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/052659.shtml)
-- 2026-06-30 09:16 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/5998431.shtml)
-- 2026-06-30 09:05 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](https://www.blog.minike.top/Article/details/3192780752.shtml)
-- 2026-06-30 09:10 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/451723652618.shtml)
-- 2026-06-30 08:56 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/010966934.shtml)
-- 2026-06-30 09:12 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.minike.top/Article/details/24705.shtml)
-- 2026-06-30 08:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/9284789629.shtml)
-- 2026-06-30 09:07 - [日本队5进世界杯淘汰赛0胜](https://www.blog.minike.top/Article/details/58495335518.shtml)
-- 2026-06-30 09:06 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/9088480707.shtml)
-- 2026-06-30 09:16 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/563461110.shtml)
-- 2026-06-30 08:55 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/40516809967.shtml)
-- 2026-06-30 09:12 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://www.blog.kurohicncr.top/Article/details/18283.shtml)
-- 2026-06-30 08:57 - [4000美元是黄金新一轮下跌的开始吗](http://www.blog.minike.top/Article/details/705718231.shtml)
-- 2026-06-30 09:10 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/91830745476.shtml)
-- 2026-06-30 09:10 - [教育部披露：高考生篡改7名同学志愿](http://www.blog.minike.top/Article/details/4170923602.shtml)
+- 2026-06-30 09:18 - 巴西足球能否再现昔日荣光<br><br> | ??:http://www.share.kurohicncr.top/Article/details/10264938357.shtml
+- 2026-06-30 09:09 - F1奥地利站赛后复盘<br><br> | ??:https://www.blog.minike.top/Article/details/361673901711.shtml
+- 2026-06-30 08:56 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3199981230.shtml
+- 2026-06-30 09:20 - 乔家的儿女<br><br> | ??:http://www.share.minike.top/Article/details/52529685.shtml
+- 2026-06-30 09:03 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9035595119.shtml
+- 2026-06-30 09:07 - 这一刀 会很帅<br><br> | ??:https://www.share.minike.top/Article/details/57566.shtml
+- 2026-06-30 09:15 - 主人解开狗绳2只狗将路人撕咬致死<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6220367963.shtml
+- 2026-06-30 09:02 - 逃狱兄弟<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/813406668.shtml
+- 2026-06-30 09:22 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9174558.shtml
+- 2026-06-30 09:13 - 德国巴拉圭进入点球大战<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/975633906583.shtml
+- 2026-06-30 09:13 - 锐评T1战胜KC<br><br> | ??:https://www.share.minike.top/Article/details/5066881.shtml
+- 2026-06-30 09:19 - 德国vs巴拉圭<br><br> | ??:http://www.share.minike.top/Article/details/48982.shtml
+- 2026-06-30 09:16 - 开电动汽车真的很省钱吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4900324.shtml
+- 2026-06-30 09:12 - 存储芯片龙头提示风险<br><br> | ??:https://www.blog.minike.top/Article/details/8589248.shtml
+- 2026-06-30 09:22 - 一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/41526.shtml

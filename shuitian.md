@@ -1,57 +1,58 @@
-# 2026年法网：女单卫冕冠军高芙止步第三轮
+# 本轮牛市再次见证历史！源杰科技登顶A股第一高价股
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新社巴黎5月30日电 (记者 李洋)正在进行中的2026年法国网球公开赛当地时间30日再爆冷门，女单卫冕冠军、美国名将高芙被对手击败，止步第三轮。 世界排名第四的高芙当天迎战赛会第28号种子、奥地利选手波塔波娃。波塔波娃率先进入状态，强势开局，一度以3：1领先。随后高芙连赢4局，并在关键时刻成功拿下盘点，从而以6：4先赢一盘。 第二盘开局波塔波娃仍强势出击，连破带保将比分优势
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|王砚丹 每经编辑|叶峰 4月17日，A股市场再次见证历史！ 科创板光芯片龙头源杰科技（688498）大幅冲高，最高触及1460.08元/股，成功超越贵州茅台，新晋为A股第一高价股。截至收盘，源杰科技股价报1445元/股，涨幅10.05%，总市值超过1200亿元。 利好突发！下游中际旭创业绩大超预期
 
 ## 正文
 
-中新社巴黎5月30日电 (记者 李洋)正在进行中的2026年法国网球公开赛当地时间30日再爆冷门，女单卫冕冠军、美国名将高芙被对手击败，止步第三轮。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-世界排名第四的高芙当天迎战赛会第28号种子、奥地利选手波塔波娃。
+每经记者|王砚丹 每经编辑|叶峰 4月17日，A股市场再次见证历史！
 
-波塔波娃率先进入状态，强势开局，一度以3：1领先。
+科创板光芯片龙头源杰科技（688498）大幅冲高，最高触及1460.08元/股，成功超越贵州茅台，新晋为A股第一高价股。
 
-随后高芙连赢4局，并在关键时刻成功拿下盘点，从而以6：4先赢一盘。
+截至收盘，源杰科技股价报1445元/股，涨幅10.05%，总市值超过1200亿元。
 
-第二盘开局波塔波娃仍强势出击，连破带保将比分优势扩大至4：1。
+利好突发！
 
-高芙在不利状态下展现了卫冕冠军的实力，逐渐追平比分，并将比赛拖至抢七局。
+下游中际旭创业绩大超预期 源杰科技今日大涨来源于消息面上的刺激，而消息面来自另一只大牛股中际旭创。
 
-但抢七局高芙发挥大失水准，只拿到1分，以6(1)：7告负。
+4月16日晚间中际旭创公告称，2026年第一季度实现营业收入194.96亿元，同比增长192.12%；归属于上市公司股东的净利润为57.35亿元，同比增长262.28%。
 
-决胜盘高芙试图控制场上局面，先以3：1领先。
+中际旭创发布一季报后，国金证券、广发证券等分析师认为，该公司各项指标均超市场预期。
 
 ## 相关推荐
 
-- 2026-06-30 09:12 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 09:08 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 09:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 08:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 08:55 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 09:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 08:52 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 08:50 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 09:13 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 09:12 - [日本主帅：未能夺冠深感抱歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 09:08 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 08:58 - 人可以极简主义到什么程度？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md
+- 2026-06-30 09:14 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md
+- 2026-06-30 08:56 - 第一炉香<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md
+- 2026-06-30 08:59 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md
+- 2026-06-30 08:54 - 开电动汽车真的很省钱吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md
+- 2026-06-30 09:21 - 恋与深空<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md
+- 2026-06-30 09:05 - 王欣瑜连续4年晋级温网第二轮<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md
+- 2026-06-30 09:08 - 田中碧失误<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md
+- 2026-06-30 08:57 - 俄乌双方伤亡近180万人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md
+- 2026-06-30 09:06 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md
+- 2026-06-30 08:57 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md
+- 2026-06-30 09:19 - 韩国世界杯出局是主帅一个人的锅吗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:49 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/96599.shtml)
-- 2026-06-30 08:49 - [为什么小组赛出局会让韩国人破防](https://www.blog.kurohicncr.top/Article/details/3956750.shtml)
-- 2026-06-30 08:53 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/60834903161.shtml)
-- 2026-06-30 09:11 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/996615233715.shtml)
-- 2026-06-30 09:14 - [千香](https://www.blog.minike.top/Article/details/0298364.shtml)
-- 2026-06-30 09:10 - [全新问界M9现身美国街头](https://www.blog.kurohicncr.top/Article/details/561590.shtml)
-- 2026-06-30 09:11 - [如果有二次元高中是什么样子的？](https://www.share.minike.top/Article/details/470717600028.shtml)
-- 2026-06-30 08:48 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/00467.shtml)
-- 2026-06-30 09:08 - [大蒜晒外面被路过女子连盆端走](https://www.share.minike.top/Article/details/2827237.shtml)
-- 2026-06-30 09:05 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/5830973860.shtml)
-- 2026-06-30 09:12 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/980465709.shtml)
-- 2026-06-30 09:15 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/26424796.shtml)
-- 2026-06-30 08:50 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/49785340.shtml)
-- 2026-06-30 09:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/6993074.shtml)
-- 2026-06-30 08:49 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/2987538.shtml)
+- 2026-06-30 09:17 - 一见倾心<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/01128461763.shtml
+- 2026-06-30 09:17 - 曝詹姆斯即将与勇士会面<br><br> | ??:http://www.share.kurohicncr.top/Article/details/57161236.shtml
+- 2026-06-30 09:16 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:http://www.share.kurohicncr.top/Article/details/761287032.shtml
+- 2026-06-30 09:18 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/65421.shtml
+- 2026-06-30 09:16 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/254489839303.shtml
+- 2026-06-30 09:00 - 速度与激情9<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2745191447.shtml
+- 2026-06-30 09:10 - 如果有二次元高中是什么样子的？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/65061.shtml
+- 2026-06-30 09:00 - 为什么会有「念旧」的心理？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/968526254.shtml
+- 2026-06-30 09:11 - 孙兴慜道歉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/99740218859.shtml
+- 2026-06-30 09:08 - 花少8要去世界杯举办国<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/71448869206.shtml
+- 2026-06-30 09:20 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://www.blog.minike.top/Article/details/11712247.shtml
+- 2026-06-30 09:17 - 武磊：巴西队赢的并不轻松<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/32247336.shtml
+- 2026-06-30 09:08 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://www.share.minike.top/Article/details/24046837.shtml
+- 2026-06-30 09:23 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://www.share.minike.top/Article/details/42807792.shtml
+- 2026-06-30 09:08 - 开电动汽车真的很省钱吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/577921969050.shtml

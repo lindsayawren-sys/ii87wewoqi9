@@ -1,61 +1,58 @@
-# 华政副教授窦鹏娟：金融法治建设进入“顶层设计+系统推进”的新阶段
+# 早盘：美股继续上扬 道指涨逾800点
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 原标题：专访华政副教授窦鹏娟：金融法治建设进入“顶层设计+系统推进”的新阶段 全国人大常委会法工委副主任黄薇5月27日在国新办新闻发布会上表示，今年全国人大常委会的年度立法工作计划已制定并公布。在加快金融领域立法方面，将制定金融法、金融稳定法，修改银行业监督管理法、中国人民银行法，同时注重对金融领域其他立法的研究论证工作。 这一
+北京时间4月17日晚，美股周五早盘继续上扬。道指涨逾800点，纳指与标普500指数再创新高。以色列与黎巴嫩宣布停火后，伊朗宣布霍尔木兹海峡完全开放。原油价格暴跌。 道指涨830.61点，涨幅为1.71%，报49409.33点；纳指涨293.88点，涨幅为1.22%，报24396.58点；标普500指数涨72.81点，涨幅为1.03%，报7114.09点。 伊朗外交部长赛义德-阿
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 原标题：专访华政副教授窦鹏娟：金融法治建设进入“顶层设计+系统推进”的新阶段 全国人大常委会法工委副主任黄薇5月27日在国新办新闻发布会上表示，今年全国人大常委会的年度立法工作计划已制定并公布。
+北京时间4月17日晚，美股周五早盘继续上扬。
 
-在加快金融领域立法方面，将制定金融法、金融稳定法，修改银行业监督管理法、中国人民银行法，同时注重对金融领域其他立法的研究论证工作。
+道指涨逾800点，纳指与标普500指数再创新高。
 
-这一消息释放出哪些信号？
+以色列与黎巴嫩宣布停火后，伊朗宣布霍尔木兹海峡完全开放。
 
-金融法出台将带来怎样的影响？
+原油价格暴跌。
 
-当前金融法立法面临哪些问题与争议？
+道指涨830.61点，涨幅为1.71%，报49409.33点；纳指涨293.88点，涨幅为1.22%，报24396.58点；标普500指数涨72.81点，涨幅为1.03%，报7114.09点。
 
-未来金融法治有哪些值得关注的趋势？
+伊朗外交部长赛义德-阿巴斯-阿拉格奇周五在X平台上发文称：“为配合黎巴嫩停火，现宣布在停火剩余期间，所有商船可按伊朗伊斯兰共和国港口与海事组织已公布的协调航线，完全开放通行霍尔木兹海峡。
 
-围绕上述问题，本报记者专访了华东政法大学经济法学院副教授窦鹏娟，请她为我们一一解读。
+” 作为回应，美国总统特朗普17日说，感谢伊朗开放霍尔木兹海峡。
 
-金融法治建设驶入“快车道” 窦鹏娟认为，5月27日国新办新闻发布会上公布的2026年度立法工作计划中金融领域的立法计划，是“十五五”开局之年我国在金融法治建设方面的重大部署。
+特朗普在社交媒体上写道：“伊朗刚刚宣布，伊朗海峡已完全开放，可全面通行。
 
 ## 相关推荐
 
-- 2026-06-30 08:51 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 08:49 - [杨紫肖战余生请多指教拍立得](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 08:56 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 08:58 - [快递到家不能这样拆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 08:54 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 08:58 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 08:52 - [德国北部枪击事件致5死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 08:52 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 09:16 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 08:58 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 09:01 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 08:49 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 09:11 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 09:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 09:01 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 09:17 - 手底下人带不动怎么办？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md
+- 2026-06-30 09:21 - IGN评测电影版后室<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md
+- 2026-06-30 09:13 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md
+- 2026-06-30 09:06 - 第一炉香<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md
+- 2026-06-30 09:04 - 王菲谢霆锋十指紧扣好甜<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md
+- 2026-06-30 09:13 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md
+- 2026-06-30 09:04 - 爱很美味<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md
+- 2026-06-30 09:17 - 第一炉香<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md
+- 2026-06-30 09:09 - 李在明向韩国两大财阀90度鞠躬<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md
+- 2026-06-30 09:08 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md
+- 2026-06-30 09:04 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md
+- 2026-06-30 09:12 - 荀彧和曹操反目成仇的根本原因是什么？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:13 - [网友写差评被店家“挂”门口避雷](http://www.blog.kurohicncr.top/Article/details/86133478186.shtml)
-- 2026-06-30 09:15 - [日本主帅：未能夺冠深感抱歉](https://www.blog.kurohicncr.top/Article/details/3395374096.shtml)
-- 2026-06-30 08:49 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/369201261576.shtml)
-- 2026-06-30 08:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/810894.shtml)
-- 2026-06-30 09:03 - [日本球员说被绝杀非常不甘心](http://www.blog.minike.top/Article/details/374435550557.shtml)
-- 2026-06-30 09:05 - [德国队世界杯点球大战首败](http://www.share.kurohicncr.top/Article/details/176242712043.shtml)
-- 2026-06-30 09:06 - [毒液2](https://www.share.minike.top/Article/details/83633.shtml)
-- 2026-06-30 08:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/973433868988.shtml)
-- 2026-06-30 09:05 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/906776171.shtml)
-- 2026-06-30 09:13 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/48457683466.shtml)
-- 2026-06-30 08:58 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/7286732.shtml)
-- 2026-06-30 08:55 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/5614728704.shtml)
-- 2026-06-30 09:05 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/454125267016.shtml)
-- 2026-06-30 09:15 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/0355676733.shtml)
-- 2026-06-30 09:06 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/744905258.shtml)
+- 2026-06-30 09:09 - 全球最火存储ETF纳入兆易创新<br><br> | ??:http://www.blog.minike.top/Article/details/473497.shtml
+- 2026-06-30 09:09 - 左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？<br><br> | ??:https://www.blog.minike.top/Article/details/928365501.shtml
+- 2026-06-30 08:56 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/81426900.shtml
+- 2026-06-30 09:23 - 诺伊尔尽力了<br><br> | ??:https://www.blog.minike.top/Article/details/182144.shtml
+- 2026-06-30 09:06 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8778708.shtml
+- 2026-06-30 08:55 - 为什么香港的冲厕水是咸的？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/664178.shtml
+- 2026-06-30 09:18 - 12人以护剧为名敲诈剧组艺人被抓<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/25365124082.shtml
+- 2026-06-30 09:12 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://www.share.minike.top/Article/details/4226068253.shtml
+- 2026-06-30 09:00 - 考入南大计算机，复读考清北值吗？<br><br> | ??:http://www.blog.minike.top/Article/details/438061287335.shtml
+- 2026-06-30 09:19 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://www.blog.minike.top/Article/details/888231747.shtml
+- 2026-06-30 09:14 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/7978202876.shtml
+- 2026-06-30 09:10 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:http://www.share.minike.top/Article/details/9650368437.shtml
+- 2026-06-30 09:20 - 苗族银饰<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/87810239.shtml
+- 2026-06-30 09:04 - 中国猪圈装空调让欧洲网友破防<br><br> | ??:https://www.blog.minike.top/Article/details/90772.shtml
+- 2026-06-30 08:55 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://www.blog.minike.top/Article/details/07086.shtml

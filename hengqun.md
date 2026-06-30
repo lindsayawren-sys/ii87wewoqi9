@@ -1,52 +1,56 @@
-# 解放军南部战区位中国黄岩岛领海领空及周边区域组织战备警巡
+# 用技能给学历“加码” 北京助力毕业生与企业双向奔赴
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月31日电 据中国人民解放军南部战区社交平台官方账号消息，5月31日，中国人民解放军南部战区组织海空兵力位中国黄岩岛领海领空及周边海空域开展战备警巡。黄岩岛是中国固有领土。5月份以来，战区部队持续加强黄岩岛领海周边海空域巡逻警戒，有力有效应对各类侵权挑衅行径，坚决捍卫国家主权安全，坚定维护南海地区和平稳定。(完)
+本报讯(中青报·中青网记者 尹希宁)“有人没活干、有活没人干”——这一结构性就业矛盾如何缓解？近日，北京首期大学生技师班学生顺利通过考核，其实践或将为破解就业难提供参考答案。 2025年10月，北京市面向离校未就业高校毕业生，在北京电子信息技师学院开设首期大学生技师班，与3家集成电路领域重点企业合作，开展订单联合培养，通过“校企共育、工学一体”培养模式，全面培育“知识+技能”复
 
 ## 正文
 
-中新社北京5月31日电 据中国人民解放军南部战区社交平台官方账号消息，5月31日，中国人民解放军南部战区组织海空兵力位中国黄岩岛领海领空及周边海空域开展战备警巡。
+本报讯(中青报·中青网记者 尹希宁)“有人没活干、有活没人干”——这一结构性就业矛盾如何缓解？
 
-黄岩岛是中国固有领土。
+近日，北京首期大学生技师班学生顺利通过考核，其实践或将为破解就业难提供参考答案。
 
-5月份以来，战区部队持续加强黄岩岛领海周边海空域巡逻警戒，有力有效应对各类侵权挑衅行径，坚决捍卫国家主权安全，坚定维护南海地区和平稳定。
+2025年10月，北京市面向离校未就业高校毕业生，在北京电子信息技师学院开设首期大学生技师班，与3家集成电路领域重点企业合作，开展订单联合培养，通过“校企共育、工学一体”培养模式，全面培育“知识+技能”复合型人才。
 
-(完)
+经过半年多的学习，首期大学生技师班学生顺利通过电工高级工考核，拿到了企业实习就业所需的职业技能等级证书。
+
+班里3名学生还在第九届中华职业教育创新创业大赛北京赛区比赛中，获得商业娱乐综合体(汇英港)项目组高职组三等奖。
+
+今年5月，该班学生将与企业开展双向选择，7月将进入企业实习。
+
+实习结束后，符合条件的学生可直接入职。
+
+记者从北京市人力资源和社会保障局了解到，北京今年将“加码”培育人才，继续开设6个全日制大学生技师班，专业涵盖智能制造技术应用、生物制药、多媒体制作(全媒体运营师方向)、电子技术应用(集成电路技术方向)、汽车维修(新能源汽车现场工程师方向)、工艺美术等方向。
 
 ## 相关推荐
 
-- 2026-06-30 09:04 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-30 08:48 - [吴启华卖肖像权拍AI电影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 08:56 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 08:54 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 08:57 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 09:06 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 09:09 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 09:08 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 09:00 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 08:49 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 08:50 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 08:54 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-30 08:51 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 09:13 - [板面：为什么那么多人爱吃？？！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 09:22 - 消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md
+- 2026-06-30 09:15 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md
+- 2026-06-30 08:59 - 张碧晨一开口梦回逐玉<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md
+- 2026-06-30 09:19 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md
+- 2026-06-30 09:10 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md
+- 2026-06-30 08:56 - 日本球迷输球后集体捡垃圾<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md
+- 2026-06-30 09:10 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md
+- 2026-06-30 09:10 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md
+- 2026-06-30 08:59 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md
+- 2026-06-30 09:01 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:14 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/651910.shtml)
-- 2026-06-30 08:54 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/56190757.shtml)
-- 2026-06-30 09:00 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/45978559.shtml)
-- 2026-06-30 09:15 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/872998914990.shtml)
-- 2026-06-30 09:02 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/04633.shtml)
-- 2026-06-30 09:09 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/3614275.shtml)
-- 2026-06-30 09:16 - [郑钦文 四年一轮游](http://www.blog.kurohicncr.top/Article/details/88887259.shtml)
-- 2026-06-30 09:04 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/71284.shtml)
-- 2026-06-30 09:11 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/808910163440.shtml)
-- 2026-06-30 08:56 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/149506.shtml)
-- 2026-06-30 08:56 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/146668.shtml)
-- 2026-06-30 08:53 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/36539992.shtml)
-- 2026-06-30 09:04 - [马航370搜寻最新消息](http://www.share.minike.top/Article/details/28465339618.shtml)
-- 2026-06-30 09:13 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/374202164.shtml)
-- 2026-06-30 09:02 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.minike.top/Article/details/262968.shtml)
+- 2026-06-30 09:23 - 爱很美味<br><br> | ??:https://www.share.kurohicncr.top/Article/details/915592117.shtml
+- 2026-06-30 09:23 - 日本进球<br><br> | ??:http://www.share.kurohicncr.top/Article/details/463582.shtml
+- 2026-06-30 09:08 - 如何评价DeepSeek 提出的 DSpark 推理加速方案？<br><br> | ??:https://www.blog.minike.top/Article/details/45068976.shtml
+- 2026-06-30 08:58 - 全新问界M9现身美国街头<br><br> | ??:http://www.blog.minike.top/Article/details/901846606675.shtml
+- 2026-06-30 09:10 - 中国新一轮出口管制直指日本命脉<br><br> | ??:http://www.share.minike.top/Article/details/25675093582.shtml
+- 2026-06-30 09:23 - 发明linux、python、redis、nginx、sqlite的人算不算天才？<br><br> | ??:https://www.share.minike.top/Article/details/46663775.shtml
+- 2026-06-30 09:00 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://www.share.kurohicncr.top/Article/details/83626.shtml
+- 2026-06-30 09:05 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:http://www.share.minike.top/Article/details/58516.shtml
+- 2026-06-30 09:04 - 内马尔未登场 安切洛蒂赛后回应<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9435911665.shtml
+- 2026-06-30 09:11 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:http://www.blog.minike.top/Article/details/5768198803.shtml
+- 2026-06-30 09:01 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:http://www.share.kurohicncr.top/Article/details/12512492.shtml
+- 2026-06-30 09:00 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://www.blog.minike.top/Article/details/908393074.shtml
+- 2026-06-30 09:12 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:http://www.share.minike.top/Article/details/2352827.shtml
+- 2026-06-30 09:20 - 杨紫被质疑未使用原名纯属误解<br><br> | ??:https://www.share.minike.top/Article/details/79848096.shtml
+- 2026-06-30 09:00 - F1奥地利站赛后复盘<br><br> | ??:https://www.blog.minike.top/Article/details/0512971.shtml

@@ -1,61 +1,56 @@
-# 侨批里的百年记忆
+# “连装都懒得装”，哈里斯抨击特朗普打伊朗：意图转移公众对爱泼斯坦案的关注，美国人不想打！
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新社合肥5月29日电 题：侨批里的百年记忆 作者 江婉琪 赵强 “皖美如画·RCEP成员国华人书画大赛”优秀作品展29日正在黄山举行。泰国中华总商会主席林楚钦在书法作品《侨批》前端详着。他讲起小时候跟父亲回老家汕头要坐一整晚的车，记忆最深刻的是身上的衣服。 “每次回乡，都要穿很多衣服。因为回去之后，要把衣服一件一件脱下来，留给家乡的亲人。”林楚钦回忆说，“大部分人一辈子赚的钱
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！美国前副总统卡玛拉·哈里斯18日在底特律参加一场活动时称，美国总统特朗普想利用对伊朗的军事打击转移美国公众对爱泼斯坦案的关注，“美国人并不想要”这场战争。 哈里斯当天在底特律一场民主党活动上发表讲话时说，特朗普被以色列总理内塔尼亚胡“拖入”与伊朗的战争，同时借这场军事行动“徒劳地尝试转移公众对爱泼斯坦案的关
 
 ## 正文
 
-中新社合肥5月29日电 题：侨批里的百年记忆 作者 江婉琪 赵强 “皖美如画·RCEP成员国华人书画大赛”优秀作品展29日正在黄山举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-泰国中华总商会主席林楚钦在书法作品《侨批》前端详着。
+美国前副总统卡玛拉·哈里斯18日在底特律参加一场活动时称，美国总统特朗普想利用对伊朗的军事打击转移美国公众对爱泼斯坦案的关注，“美国人并不想要”这场战争。
 
-他讲起小时候跟父亲回老家汕头要坐一整晚的车，记忆最深刻的是身上的衣服。
+哈里斯当天在底特律一场民主党活动上发表讲话时说，特朗普被以色列总理内塔尼亚胡“拖入”与伊朗的战争，同时借这场军事行动“徒劳地尝试转移公众对爱泼斯坦案的关注”，想要“到处耀武扬威，装出一副可以随便动用美国武力、想打谁就打谁的样子”。
 
-“每次回乡，都要穿很多衣服。
+近期民调显示，多数美国人不赞成美国对伊朗动武，希望美国政府尽快结束战事，即便战事没有达到美方先前设定目标。
 
-因为回去之后，要把衣服一件一件脱下来，留给家乡的亲人。
+哈里斯还抨击特朗普政府是美国历史上“最腐败、最冷酷无情且最无能”的政府，称特朗普是二战以来首个“将维护盟友关系责任弃之不顾”的美国总统，也是第一个“无视维护尊重主权和领土完整等国际规则重要性，连装都懒得装”的美国总统。
 
-”林楚钦回忆说，“大部分人一辈子赚的钱，全部寄回我们的家乡。
+法国、德国等国高层指责美国对伊朗发动军事打击前并未知会北约盟友，在战事已殃及盟友安全和利益情况下，仍无视盟友“止战”关切。
 
-” 侨批又称银信，是近代海外华侨华人寄给家乡眷属的书信与汇款的合称，被已故国学大师饶宗颐誉为“海邦剩馥”。
+特朗普则多次抱怨北约盟友“不给力”，抨击北约是“纸老虎”甚至威胁要“退群”。
 
-2013年，侨批档案入选联合国教科文组织《世界记忆名录》。
+分析人士认为，尽管特朗普在美国法律约束下不能直接“退群”，但跨大西洋关系已面临考验。
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 09:00 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 09:03 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-30 08:53 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 09:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 09:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 08:52 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 09:14 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 08:56 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 08:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 08:55 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 08:50 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 08:51 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 08:50 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 09:07 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 08:59 - 德国vs巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md
+- 2026-06-30 09:10 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md
+- 2026-06-30 09:15 - 斛珠夫人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md
+- 2026-06-30 09:08 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md
+- 2026-06-30 09:21 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md
+- 2026-06-30 09:14 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md
+- 2026-06-30 09:08 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md
+- 2026-06-30 09:16 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md
+- 2026-06-30 08:55 - 送你一朵小红花<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md
+- 2026-06-30 09:17 - 为什么会有「念旧」的心理？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:15 - [诺伊尔尽力了](https://www.blog.kurohicncr.top/Article/details/30746265.shtml)
-- 2026-06-30 08:52 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/329318656.shtml)
-- 2026-06-30 09:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/44963249.shtml)
-- 2026-06-30 09:12 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/154298.shtml)
-- 2026-06-30 09:14 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/5241741560.shtml)
-- 2026-06-30 09:07 - [杨紫大银幕成绩单如何](http://www.share.kurohicncr.top/Article/details/19325336.shtml)
-- 2026-06-30 09:08 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/8416083.shtml)
-- 2026-06-30 09:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/7195019.shtml)
-- 2026-06-30 09:07 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/71203832.shtml)
-- 2026-06-30 09:14 - [陈幸同晋级WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/6348737061.shtml)
-- 2026-06-30 09:11 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/314452.shtml)
-- 2026-06-30 08:49 - [莫兰特被交易到开拓者](https://www.blog.minike.top/Article/details/121570.shtml)
-- 2026-06-30 09:04 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/786909.shtml)
-- 2026-06-30 08:50 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/03780582.shtml)
-- 2026-06-30 09:03 - [委内瑞拉地震死亡人数升至1719人](https://www.share.kurohicncr.top/Article/details/72896.shtml)
+- 2026-06-30 09:10 - 美股收盘 热门中概股普涨<br><br> | ??:http://www.share.minike.top/Article/details/619494153139.shtml
+- 2026-06-30 09:19 - 有什么好的高中网课推荐吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/535883342705.shtml
+- 2026-06-30 09:08 - 领克900大型SUV值得购买吗?<br><br> | ??:http://www.share.kurohicncr.top/Article/details/688126554.shtml
+- 2026-06-30 09:14 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:https://www.blog.minike.top/Article/details/64205.shtml
+- 2026-06-30 09:02 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/14335701.shtml
+- 2026-06-30 09:23 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:http://www.share.kurohicncr.top/Article/details/50632.shtml
+- 2026-06-30 09:15 - 赛博朋克边缘行者2预告片<br><br> | ??:https://www.share.kurohicncr.top/Article/details/30269.shtml
+- 2026-06-30 09:19 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:http://www.share.kurohicncr.top/Article/details/959604745267.shtml
+- 2026-06-30 09:22 - 警方介入洪明甫死亡威胁<br><br> | ??:http://www.share.kurohicncr.top/Article/details/905217747500.shtml
+- 2026-06-30 09:23 - 我觉得你是在无中生友<br><br> | ??:https://www.blog.minike.top/Article/details/48632.shtml
+- 2026-06-30 09:06 - 欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？<br><br> | ??:https://www.share.minike.top/Article/details/48933625293.shtml
+- 2026-06-30 09:02 - 杨紫大银幕成绩单如何<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/335610772.shtml
+- 2026-06-30 08:56 - 如何把斧兵改造成精英怪？提高攻速移速！！！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/11838467.shtml
+- 2026-06-30 09:11 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:https://www.blog.minike.top/Article/details/04748644638.shtml
+- 2026-06-30 09:08 - 王曼昱被突如其来的话筒逗笑了<br><br> | ??:http://www.blog.minike.top/Article/details/2877272147.shtml

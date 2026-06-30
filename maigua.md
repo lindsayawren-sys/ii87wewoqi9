@@ -1,59 +1,50 @@
-# 我国牵头修订的金融业通用报文方案国际标准正式发布
+# 苏林、查波访华为何要去广西、湖南？
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-记者今天（5月29日）了解到，我国牵头修订的国际标准《金融服务 金融业通用报文方案 第5部分：概念互操作性和反向工程》（ISO 20022-5：2026）和《金融服务 金融业通用报文方案 第7部分：注册》（ISO 20022-7：2026）经国际标准化组织（ISO）批准发布。 《金融服务 金融业通用报文方案》（ISO 20022）是全球金融领域应用最广泛、影响最深远的基础性国际
+发布时间：2026年04月17日 17:06 来源：中国新闻网 越南领导人苏林离开北京直奔广西，莫桑比克总统查波把访华首站选在了湖南。很多人就问：为什么去这两个地方？(魏园 李星佑 谌瑞晨） 责任编辑：【魏园】
 
 ## 正文
 
-记者今天（5月29日）了解到，我国牵头修订的国际标准《金融服务 金融业通用报文方案 第5部分：概念互操作性和反向工程》（ISO 20022-5：2026）和《金融服务 金融业通用报文方案 第7部分：注册》（ISO 20022-7：2026）经国际标准化组织（ISO）批准发布。
+发布时间：2026年04月17日 17:06 来源：中国新闻网 越南领导人苏林离开北京直奔广西，莫桑比克总统查波把访华首站选在了湖南。
 
-《金融服务 金融业通用报文方案》（ISO 20022）是全球金融领域应用最广泛、影响最深远的基础性国际标准之一，被誉为金融信息交换的“世界语言”。
+很多人就问：为什么去这两个地方？
 
-基于该标准构建的ISO 20022报文库已覆盖支付清算、证券等主要金融业务领域，正逐步成为全球金融机构与金融基础设施互联互通的核心通信载体。
-
-近年来，在金融稳定理事会（FSB）、国际清算银行（BIS）等国际组织的倡议推动下，全球金融体系加速应用ISO 20022报文。
-
-针对此过程中不同报文标准的业务模型和数据要素差异大、难以顺畅转换，以及金融机构普遍面临的“获取材料难、版本追溯难、技术响应慢”等痛点，我国与美国、英国、日本等国家通力合作，分别针对标准的元模型、建模、语法进行修订，更新了应用程序接口（API）、数据类型、语法生成规则等内容，共同完善了ISO 20022标准体系。
-
-其中，ISO 20022-5通过建立转换接口，在不同报文标准之间搭建起高效互联互通的“桥梁”，有效改善了跨境支付等金融服务效率。
-
-ISO 20022-7强化版本追溯机制，明确注册服务责任主体，优化技术支持渠道，避免因版本不一致导致的数据断层，助力更多银行、支付机构能够快速、顺畅地接入ISO 20022标准体系。
-
-该两项标准的发布，凝聚了17个国家及6个国际金融机构共50余名金融领域专家的智慧与共识，将进一步提升金融服务效率与全球跨境交易的便利化水平，为构建开放融通的国际金融体系提供技术支撑。
+(魏园 李星佑 谌瑞晨） 责任编辑：【魏园】
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 08:56 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 09:14 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 09:06 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 08:53 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 08:48 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 08:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 09:10 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 09:06 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 09:16 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 08:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 09:07 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 09:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 09:00 - 极限挑战第一季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md
+- 2026-06-30 09:21 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md
+- 2026-06-30 09:11 - “草莓月亮”浪漫现身<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md
+- 2026-06-30 09:17 - 千与千寻<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md
+- 2026-06-30 08:58 - 陈小春人老了干什么也不心酸<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md
+- 2026-06-30 09:00 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md
+- 2026-06-30 09:06 - 金牌调解<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md
+- 2026-06-30 09:21 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md
+- 2026-06-30 09:03 - 被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md
+- 2026-06-30 09:18 - 日本主帅赛后回应淘汰出局<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md
+- 2026-06-30 09:04 - 美媒：美军第五舰队司令部已无法使用<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md
+- 2026-06-30 09:20 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md
+- 2026-06-30 09:23 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md
+- 2026-06-30 09:00 - 超神人辉夜姬 第二集<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:07 - [欧洲装一台空调有多难](https://www.share.minike.top/Article/details/90889293.shtml)
-- 2026-06-30 08:49 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/1504251.shtml)
-- 2026-06-30 09:01 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/8704465.shtml)
-- 2026-06-30 09:14 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/282563975.shtml)
-- 2026-06-30 08:59 - [第一次对自信的力量有了实感](https://www.blog.kurohicncr.top/Article/details/45549956.shtml)
-- 2026-06-30 08:49 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/953438566.shtml)
-- 2026-06-30 09:02 - [全球芯片巨头史诗级扩产](http://www.share.kurohicncr.top/Article/details/87923239.shtml)
-- 2026-06-30 09:16 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/628633164365.shtml)
-- 2026-06-30 09:16 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/7722756.shtml)
-- 2026-06-30 08:56 - [女子遭下药退赔偿拟追刑责](https://www.blog.kurohicncr.top/Article/details/848527067821.shtml)
-- 2026-06-30 08:53 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/13435385.shtml)
-- 2026-06-30 09:02 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/19439680559.shtml)
-- 2026-06-30 09:02 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/283697.shtml)
-- 2026-06-30 08:58 - [Melo向柳智敏张元英道歉](https://www.blog.kurohicncr.top/Article/details/18051.shtml)
-- 2026-06-30 08:56 - [毒液2](https://www.blog.minike.top/Article/details/1495379055.shtml)
+- 2026-06-30 08:58 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:https://www.share.minike.top/Article/details/238266.shtml
+- 2026-06-30 08:54 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/122362.shtml
+- 2026-06-30 08:54 - 佐野海舟远射破门<br><br> | ??:http://www.share.minike.top/Article/details/91609421171.shtml
+- 2026-06-30 09:05 - 这些7月新规影响你我<br><br> | ??:https://www.share.minike.top/Article/details/57712729.shtml
+- 2026-06-30 09:09 - 董卿母亲癌症去世<br><br> | ??:http://www.share.minike.top/Article/details/5447009.shtml
+- 2026-06-30 09:04 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:http://www.share.minike.top/Article/details/13612105.shtml
+- 2026-06-30 09:13 - 日本球员说被绝杀非常不甘心<br><br> | ??:http://www.share.kurohicncr.top/Article/details/150234926.shtml
+- 2026-06-30 08:56 - 未来的飞机可能会用电吗？<br><br> | ??:http://www.share.minike.top/Article/details/34130.shtml
+- 2026-06-30 09:18 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/259709426.shtml
+- 2026-06-30 09:04 - 板面：为什么那么多人爱吃？？！<br><br> | ??:http://www.share.kurohicncr.top/Article/details/914267353.shtml
+- 2026-06-30 09:20 - 杨紫学位证上就是杨紫<br><br> | ??:https://www.share.minike.top/Article/details/34119978561.shtml
+- 2026-06-30 08:59 - 马航370搜寻最新消息<br><br> | ??:http://www.blog.minike.top/Article/details/88208.shtml
+- 2026-06-30 09:20 - 美人鱼<br><br> | ??:https://www.share.minike.top/Article/details/86226450.shtml
+- 2026-06-30 09:07 - 巴西绝杀<br><br> | ??:https://www.share.kurohicncr.top/Article/details/9253398925.shtml
+- 2026-06-30 09:02 - 巴西替补奇兵读秒绝杀<br><br> | ??:http://www.share.minike.top/Article/details/561311252.shtml

@@ -1,61 +1,56 @@
-# （台海观澜）金门旅游业者期待更多陆客赴金 盼“小三通”增加船班
+# 大型石油巨头斥资数十亿投向偏远钻井区域，以规避伊朗局势动荡风险
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新社厦门5月29日电 (吴冠标)第二十一届海峡旅游博览会29日在厦门开幕，吸引台湾地区30余家企业参展，200余名台湾旅游业界人士参会。金门县政府观光处处长许绩鑫在展会上称，欢迎更多大陆旅客到金门体验“金门味”。 许绩鑫表示，金门文旅活动精彩纷呈，浯岛城隍文化季刚刚落幕，亲子嘉年华、风狮爷文化季、中秋博饼等活动又将登场。近期上海居民赴金门自由行政策落地，金门旅游业界正准备迎接
+埃克森美孚、雪佛龙以及其他能源企业正加紧寻找新的油气勘探区域——远离中东战乱带来的风险。 埃克森美孚近期公布了一项潜在计划，拟向尼日利亚深水油田投入至多240亿美元；与此同时，雪佛龙扩大了在委内瑞拉的业务布局。英国石油公司收购了纳米比亚近海区块的油气权益，道达尔能源则与土耳其签署了勘探协议。能源研究咨询公司伍德麦肯兹周四预计，未来数年，各大石油企业有望通过勘探业务合计创造120
 
 ## 正文
 
-中新社厦门5月29日电 (吴冠标)第二十一届海峡旅游博览会29日在厦门开幕，吸引台湾地区30余家企业参展，200余名台湾旅游业界人士参会。
+埃克森美孚、雪佛龙以及其他能源企业正加紧寻找新的油气勘探区域——远离中东战乱带来的风险。
 
-金门县政府观光处处长许绩鑫在展会上称，欢迎更多大陆旅客到金门体验“金门味”。
+埃克森美孚近期公布了一项潜在计划，拟向尼日利亚深水油田投入至多240亿美元；与此同时，雪佛龙扩大了在委内瑞拉的业务布局。
 
-许绩鑫表示，金门文旅活动精彩纷呈，浯岛城隍文化季刚刚落幕，亲子嘉年华、风狮爷文化季、中秋博饼等活动又将登场。
+英国石油公司收购了纳米比亚近海区块的油气权益，道达尔能源则与土耳其签署了勘探协议。
 
-近期上海居民赴金门自由行政策落地，金门旅游业界正准备迎接好这波客流。
+能源研究咨询公司伍德麦肯兹周四预计，未来数年，各大石油企业有望通过勘探业务合计创造1200亿美元的价值。
 
-上海市文化和旅游局4月29日发布公告称，即日起，上海居民可通过上海市、福建省具备相关资质的旅行社报名赴金门、马祖的团队游和个人游。
+伊朗对能源设施发动袭击，加之波斯湾地区航运受阻，引发了全球范围内的石油争夺，部分西方石油企业因此损失数十亿美元营收。
 
-“5月初我们就到上海开展文旅对接及调研，并针对当地旅客需求规划了不同风格的旅游推荐路线。
+不过，能源价格飙升为石油行业带来了巨额现金收益，预计将助力企业进军此前难以涉足或数年前已放弃的区域。
 
-”金门县旅行商业同业公会理事长翁炳信说，随着福建、上海居民赴金门、马祖旅游陆续恢复，金门旅游业回温明显。
+在此之前，许多钻探企业为向股东返还更多资金，已削减了勘探支出。
 
-数据显示，截至5月26日，今年厦门口岸两岸往来旅客量已超过百万人次，厦门边检总站高崎边检站已累计查验福建、上海居民前往金门旅游旅客近6万人次。
+“永远不要低估上游业务从业者对机遇的热衷。
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 09:07 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 09:15 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 08:57 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 09:15 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 09:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 09:10 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 08:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 09:06 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-30 09:00 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 09:13 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 08:53 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 09:13 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 08:51 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 08:51 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 08:57 - 德国vs巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md
+- 2026-06-30 09:22 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md
+- 2026-06-30 09:20 - 恋与深空<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md
+- 2026-06-30 09:20 - 毒液2<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md
+- 2026-06-30 09:19 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md
+- 2026-06-30 08:58 - IGN评测电影版后室<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md
+- 2026-06-30 09:16 - 德国进球被吹<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md
+- 2026-06-30 09:21 - 被巴西绝杀后 日球员田中碧跪地痛哭<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md
+- 2026-06-30 09:09 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md
+- 2026-06-30 09:23 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/694574501682.shtml)
-- 2026-06-30 09:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/28635706.shtml)
-- 2026-06-30 09:03 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/62971721237.shtml)
-- 2026-06-30 08:51 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/604407261.shtml)
-- 2026-06-30 09:01 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/3411869954.shtml)
-- 2026-06-30 08:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/881603703086.shtml)
-- 2026-06-30 08:52 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/18518.shtml)
-- 2026-06-30 09:07 - [张月收到黄灿灿辣货两眼发光](https://www.share.kurohicncr.top/Article/details/779522.shtml)
-- 2026-06-30 08:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/066260588.shtml)
-- 2026-06-30 08:58 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/446974831672.shtml)
-- 2026-06-30 08:55 - [巴西在进攻三区完成210脚传球](https://www.share.minike.top/Article/details/3734510131.shtml)
-- 2026-06-30 09:09 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/7254179893.shtml)
-- 2026-06-30 09:11 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/52887070106.shtml)
-- 2026-06-30 08:57 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/319967805.shtml)
-- 2026-06-30 09:16 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/26879.shtml)
+- 2026-06-30 09:11 - 董卿母亲癌症去世<br><br> | ??:https://www.blog.minike.top/Article/details/88986.shtml
+- 2026-06-30 08:54 - 沙丘<br><br> | ??:http://www.share.kurohicncr.top/Article/details/77198183835.shtml
+- 2026-06-30 09:07 - 2026年WTT美国大满贯，国乒自带球桌是真实的吗？<br><br> | ??:http://www.blog.minike.top/Article/details/22768515724.shtml
+- 2026-06-30 08:55 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/357962689.shtml
+- 2026-06-30 09:06 - 日本博主：日本足球真的垃圾<br><br> | ??:http://www.blog.minike.top/Article/details/02792596.shtml
+- 2026-06-30 08:56 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:http://www.share.minike.top/Article/details/15595.shtml
+- 2026-06-30 09:23 - 哈弗茨头球破门<br><br> | ??:https://www.share.kurohicncr.top/Article/details/370684416878.shtml
+- 2026-06-30 09:06 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:http://www.blog.minike.top/Article/details/4971418721.shtml
+- 2026-06-30 09:13 - 沉睡花园<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/0843742.shtml
+- 2026-06-30 09:23 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://www.share.minike.top/Article/details/5424578.shtml
+- 2026-06-30 08:55 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/91914307794.shtml
+- 2026-06-30 09:07 - 《虎吹最难绷の一集》<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/20227.shtml
+- 2026-06-30 09:15 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:http://www.blog.minike.top/Article/details/32518077.shtml
+- 2026-06-30 09:20 - 法媒点赞中国小区楼顶“人工降雨”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/322096200.shtml
+- 2026-06-30 09:04 - 中国对日本再出重拳<br><br> | ??:http://www.blog.minike.top/Article/details/747855247175.shtml

@@ -1,56 +1,58 @@
-# 美中积极探索正确相处之道将造福世界
+# 海航控股去年净利19.8亿元扭亏为盈，四家子公司实现盈利
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-原标题：美中积极探索正确相处之道将造福世界(国际论坛) 以此次美中元首会晤为新起点，双方力求以实际行动构建“中美建设性战略稳定关系”，尊重彼此核心利益和重大关切，将推动双边关系平稳运行，为全球稳定与发展作出更大贡献 不久前举行的美中元首北京会晤，为推动两国关系稳定、健康、可持续发展创造了重要条件。去年以来，美中关系虽历经跌宕起伏，但在双方共同努力下总体保持稳定。此次美中元首会晤
+中国第四大航空集团海航去年实现扭亏为盈。 4月17日晚间，海航控股（600221.SH）发布2025年年报。去年实现营收684.71亿元，同比增4.96%。实现归母净利润19.8亿元，扣非后净利润9.3亿元，实现扭亏为盈，利润在四大航中位列第一。去年，经营活动产生的现金流量净额达160.51亿元，同比上升13.57%，主要系民航市场持续向好，航空销售额上升所致。 据Wind数据
 
 ## 正文
 
-原标题：美中积极探索正确相处之道将造福世界(国际论坛) 以此次美中元首会晤为新起点，双方力求以实际行动构建“中美建设性战略稳定关系”，尊重彼此核心利益和重大关切，将推动双边关系平稳运行，为全球稳定与发展作出更大贡献 不久前举行的美中元首北京会晤，为推动两国关系稳定、健康、可持续发展创造了重要条件。
+中国第四大航空集团海航去年实现扭亏为盈。
 
-去年以来，美中关系虽历经跌宕起伏，但在双方共同努力下总体保持稳定。
+4月17日晚间，海航控股（600221.SH）发布2025年年报。
 
-此次美中元首会晤期间，双方确定了“中美建设性战略稳定关系”的新定位，为未来3年乃至更长时间的美中关系发展提供战略指引，也为双方坦诚沟通、和平共处搭建了战略框架。
+去年实现营收684.71亿元，同比增4.96%。
 
-美中确定双边关系新定位，不仅有利于两国，也将为世界各国带来更多发展繁荣机遇。
+实现归母净利润19.8亿元，扣非后净利润9.3亿元，实现扭亏为盈，利润在四大航中位列第一。
 
-更为关键的是，构建稳定、具有前瞻性的美中关系，是推进全球治理体系改革的重要前提。
+去年，经营活动产生的现金流量净额达160.51亿元，同比上升13.57%，主要系民航市场持续向好，航空销售额上升所致。
 
-美中双方积极探索正确相处之道、找到共同目标，全球治理体系改革才能真正落地、长久维系。
+据Wind数据显示，近三年来海航控股营收逐年增长，疫情后2023年和2025年实现盈利，2025年净利润处于历史中等水平。
 
-双方在气候变化、海洋治理等领域加强沟通合作，共同完善全球治理，将有望开启全球繁荣发展的新阶段。
+3月底，三大航空央企国航、东航、南航披露了2025年财报，去年营收均创历史新高，不过盈利表现分化。
 
-经贸关系是美中关系的压舱石。
+去年，南航实现自2020年亏损以来的首次盈利，达到8.57亿元。
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 08:51 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 08:51 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 09:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 09:08 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 09:11 - [马宁怒怼巴拉圭教练组](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 09:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 09:03 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 09:08 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 09:02 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 09:19 - 萨内 看笑了<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md
+- 2026-06-30 09:03 - 国务院：探索延长义务教育年限<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md
+- 2026-06-30 09:11 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md
+- 2026-06-30 09:10 - 日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md
+- 2026-06-30 09:11 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md
+- 2026-06-30 09:19 - 租房时你会更看重「住得舒服」，还是「每天通勤更方便」？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md
+- 2026-06-30 09:17 - 女子清吧被陌生人投放伟哥<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md
+- 2026-06-30 08:58 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md
+- 2026-06-30 09:19 - 马耳他著名拱门坍塌致一中国男子身亡<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md
+- 2026-06-30 08:55 - 如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md
+- 2026-06-30 09:18 - 德国巴拉圭加时<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md
+- 2026-06-30 09:09 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/97808838470.shtml)
-- 2026-06-30 09:05 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/3602141980.shtml)
-- 2026-06-30 09:07 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/9372876.shtml)
-- 2026-06-30 09:03 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/086140.shtml)
-- 2026-06-30 08:52 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/532348666242.shtml)
-- 2026-06-30 08:57 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/211308063463.shtml)
-- 2026-06-30 09:01 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](http://www.share.kurohicncr.top/Article/details/1167939096.shtml)
-- 2026-06-30 09:08 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/077423.shtml)
-- 2026-06-30 08:57 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/38544268.shtml)
-- 2026-06-30 09:02 - [王濛回复黄灿灿](https://www.share.minike.top/Article/details/6980834548.shtml)
-- 2026-06-30 08:59 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/4389880.shtml)
-- 2026-06-30 08:50 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/17314180872.shtml)
-- 2026-06-30 08:59 - [黄晓明晒和周杰伦的合照](https://www.share.kurohicncr.top/Article/details/485105.shtml)
-- 2026-06-30 09:13 - [日本进球](http://www.blog.kurohicncr.top/Article/details/29729309731.shtml)
-- 2026-06-30 09:06 - [德国爆冷点球大战不敌巴拉圭](https://www.share.kurohicncr.top/Article/details/82753.shtml)
+- 2026-06-30 09:08 - 莫兰特被交易到开拓者<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/181993459.shtml
+- 2026-06-30 09:05 - 日耳曼拖拉机<br><br> | ??:http://www.share.minike.top/Article/details/52756566237.shtml
+- 2026-06-30 09:02 - 穆祉丞回应获年度人气艺人<br><br> | ??:http://www.blog.minike.top/Article/details/256743.shtml
+- 2026-06-30 09:12 - 荷兰vs摩洛哥<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2614601.shtml
+- 2026-06-30 08:58 - 詹姆斯 勇士<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47114815.shtml
+- 2026-06-30 08:58 - 千香<br><br> | ??:https://www.blog.minike.top/Article/details/73076786620.shtml
+- 2026-06-30 09:01 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/23418518.shtml
+- 2026-06-30 09:16 - 日本球迷输球后集体捡垃圾<br><br> | ??:http://www.share.minike.top/Article/details/8985999067.shtml
+- 2026-06-30 09:11 - 本科毕业生为何涌入专科学校<br><br> | ??:https://www.share.kurohicncr.top/Article/details/624158966.shtml
+- 2026-06-30 09:00 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:https://www.blog.minike.top/Article/details/72452.shtml
+- 2026-06-30 09:01 - 孙兴慜发长文致歉<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/706469425.shtml
+- 2026-06-30 08:58 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://www.share.minike.top/Article/details/243589998.shtml
+- 2026-06-30 09:13 - 如何评价杨紫白玉兰获奖<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/032715.shtml
+- 2026-06-30 08:55 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:http://www.share.minike.top/Article/details/14243930.shtml
+- 2026-06-30 09:06 - 恋与深空已删除锅里洗澡文案<br><br> | ??:https://www.share.minike.top/Article/details/686602.shtml

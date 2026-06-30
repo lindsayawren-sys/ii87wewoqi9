@@ -1,57 +1,61 @@
-# 《给阿嬷的情书》带火“潮汕游” 税收服务助力广东文旅融合
+# 奢侈品财报揭示中东冲突的广泛冲击
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网广州5月31日电(郭军 岳瑞轩)潮汕方言电影《给阿嬷的情书》热映，不仅带火了潮汕文化，更点燃了当地文旅消费热情。汕头小公园、潮州泰佛殿等取景地游客激增，住宿、餐饮、文创销售全线飘红。光影破圈的背后，是广东深厚的岭南文化底蕴，更是税收政策精准滴灌、税务服务全程护航的坚实支撑。广东作为文化强省，拥有165项国家级非物质文化遗产、190名国家级非遗代表性传承人及131家全国重点
+本周，爱马仕、LVMH和开云集团相继公布的第一季度财报，清晰地揭示了中东冲突对全球奢侈品行业的广泛冲击。从迪拜购物中心的人流锐减到巴黎门店的游客缺失，这场战争的影响已从区域市场蔓延至全球，甚至连一向抗周期的爱马仕也未能幸免。 爱马仕：增速大幅放缓，股价创纪录暴跌 素来被视为奢侈品行业“定海神针”的爱马仕此次遭遇重挫。财报显示，公司一季度合并营收为40.7亿欧元，按固定汇率计算同
 
 ## 正文
 
-中新网广州5月31日电(郭军 岳瑞轩)潮汕方言电影《给阿嬷的情书》热映，不仅带火了潮汕文化，更点燃了当地文旅消费热情。
+本周，爱马仕、LVMH和开云集团相继公布的第一季度财报，清晰地揭示了中东冲突对全球奢侈品行业的广泛冲击。
 
-汕头小公园、潮州泰佛殿等取景地游客激增，住宿、餐饮、文创销售全线飘红。
+从迪拜购物中心的人流锐减到巴黎门店的游客缺失，这场战争的影响已从区域市场蔓延至全球，甚至连一向抗周期的爱马仕也未能幸免。
 
-光影破圈的背后，是广东深厚的岭南文化底蕴，更是税收政策精准滴灌、税务服务全程护航的坚实支撑。
+爱马仕：增速大幅放缓，股价创纪录暴跌 素来被视为奢侈品行业“定海神针”的爱马仕此次遭遇重挫。
 
-广东作为文化强省，拥有165项国家级非物质文化遗产、190名国家级非遗代表性传承人及131家全国重点文物保护单位。
+财报显示，公司一季度合并营收为40.7亿欧元，按固定汇率计算同比增长5.6%，远低于市场预期的7.44%及上年同期的9.8%。
 
-侨乡文化、潮汕文化、客家文化等地域瑰宝，为产业发展提供了不竭源泉。
+受此影响，爱马仕股价一度暴跌逾14%，创下自1989年上市以来的最大单日跌幅，市值蒸发超250亿欧元。
 
-《给阿嬷的情书》中，侨批作为核心文化符号，承载着潮汕侨胞的家国情怀与人文记忆。
+包含中东在内的“其他地区”销售额同比下滑5.9%，至1.6亿欧元。
 
-这项世界记忆遗产，其征集、收藏、数字化与活化，离不开税收政策的有力支持。
+爱马仕首席财务官在财报电话会上指出，中东局势对集团一季度整体增长造成了约1.5个百分点的拖累。
 
-税收数据显示，2023年至2025年，广东1.6万余户非遗保护相关机构及经营主体享受系列税费减免累计超1.36亿元；仅潮汕地区(潮州、汕头、揭阳)，非遗保护经营主体近三年就享受税费减免近500万元。
+他还透露，1月和2月该地区还保持着两位数的强劲增长，但“3月戛然而止”。
 
 ## 相关推荐
 
-- 2026-06-30 09:04 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 08:48 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 09:14 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 08:55 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 08:59 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 09:07 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 09:11 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 09:07 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 09:09 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 08:53 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 09:11 - [王濛回复黄灿灿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 08:56 - 徐亮怒斥世界杯踢假球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md
+- 2026-06-30 09:02 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md
+- 2026-06-30 09:09 - 安切洛蒂 换人<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md
+- 2026-06-30 09:07 - 高质量发展看新疆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md
+- 2026-06-30 09:04 - 一见倾心<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md
+- 2026-06-30 09:06 - 日本队主帅道歉<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md
+- 2026-06-30 08:56 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md
+- 2026-06-30 09:01 - 请回答王牌2019<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md
+- 2026-06-30 09:10 - 孙兴慜道歉<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md
+- 2026-06-30 09:03 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md
+- 2026-06-30 09:19 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md
+- 2026-06-30 09:14 - 我们看到的星星是不是有些已经不存在了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md
+- 2026-06-30 09:20 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md
+- 2026-06-30 09:05 - 尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md
+- 2026-06-30 09:04 - 亚洲球队全部出局<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/55125465.shtml)
-- 2026-06-30 08:58 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/318356.shtml)
-- 2026-06-30 08:50 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/0444791331.shtml)
-- 2026-06-30 09:17 - [名记：灰熊将莫兰特交易至开拓者](http://www.blog.minike.top/Article/details/77487.shtml)
-- 2026-06-30 09:14 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/53184782112.shtml)
-- 2026-06-30 09:09 - [王楚钦孙颖莎晋级混双八强](http://www.blog.kurohicncr.top/Article/details/1232040379.shtml)
-- 2026-06-30 08:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/63344105962.shtml)
-- 2026-06-30 08:53 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/16961.shtml)
-- 2026-06-30 09:09 - [日耳曼拖拉机](https://www.share.minike.top/Article/details/29106564979.shtml)
-- 2026-06-30 08:48 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/2227407.shtml)
-- 2026-06-30 09:07 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/04585888823.shtml)
-- 2026-06-30 09:15 - [一生一世](http://www.share.minike.top/Article/details/60471.shtml)
-- 2026-06-30 08:55 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.blog.minike.top/Article/details/083117.shtml)
-- 2026-06-30 09:15 - [F1奥地利站赛后复盘](https://www.blog.minike.top/Article/details/422940632.shtml)
-- 2026-06-30 09:01 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/8483161578.shtml)
+- 2026-06-30 09:20 - 王濛回复黄灿灿<br><br> | ??:http://www.share.minike.top/Article/details/88534032447.shtml
+- 2026-06-30 09:12 - 蜘蛛侠:平行宇宙<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/14773325455.shtml
+- 2026-06-30 09:15 - 五哈和他们的朋友<br><br> | ??:https://www.share.kurohicncr.top/Article/details/66890555460.shtml
+- 2026-06-30 09:22 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:http://www.blog.minike.top/Article/details/5690752460.shtml
+- 2026-06-30 09:12 - 巴西醒醒 这是淘汰赛<br><br> | ??:http://www.share.kurohicncr.top/Article/details/53014675886.shtml
+- 2026-06-30 09:17 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/164002163327.shtml
+- 2026-06-30 09:10 - 男子在京东买到“同仁堂”假药<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/4619606919.shtml
+- 2026-06-30 09:23 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:http://www.blog.minike.top/Article/details/928609778.shtml
+- 2026-06-30 09:07 - 巴拉圭门将<br><br> | ??:https://www.share.minike.top/Article/details/1355644729.shtml
+- 2026-06-30 08:59 - 歌剧老师锐评歌手第6期<br><br> | ??:https://www.share.minike.top/Article/details/251740.shtml
+- 2026-06-30 09:18 - iPhoneUltra黑色机模<br><br> | ??:http://www.blog.minike.top/Article/details/0889425.shtml
+- 2026-06-30 09:13 - 第一次对自信的力量有了实感<br><br> | ??:http://www.blog.minike.top/Article/details/61382.shtml
+- 2026-06-30 09:15 - 速度与激情9<br><br> | ??:http://www.share.kurohicncr.top/Article/details/134194434.shtml
+- 2026-06-30 09:11 - 披荆斩棘的哥哥<br><br> | ??:https://www.blog.minike.top/Article/details/822685868.shtml
+- 2026-06-30 09:17 - 女子清吧被陌生人投放伟哥<br><br> | ??:http://www.share.kurohicncr.top/Article/details/4029866207.shtml

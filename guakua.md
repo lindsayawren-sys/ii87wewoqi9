@@ -1,60 +1,58 @@
-# 高水平应用型高校联盟在沪成立 共绘高质量发展蓝图
+# 二十届中央第七轮巡视完成进驻
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网上海5月30日电 (牛海 董真 许婧)记者30日获悉，高水平应用型高校联盟在上海成立，同步召开联盟预备会暨第一届第一次理事会。同期举办的应用型高校高质量发展研讨会，汇聚全国百余所应用型高校负责人、教育主管部门代表、行业专家及国际学者，围绕高等教育分类改革、产业人才培育等关键领域展开研讨。 该联盟由教育部学校规划建设发展中心指导，上海理工大学、上海虹桥产教融合国际促进中心联
+新华社北京4月18日电 根据党中央关于巡视工作的统一部署，近日，二十届中央第七轮巡视完成进驻工作。15个中央巡视组将对36家中央和国家机关开展常规巡视。 被巡视单位分别召开巡视进驻动员会。各中央巡视组组长作动员讲话，对深入学习贯彻习近平总书记关于巡视工作的重要讲话精神，扎实开展巡视工作提出要求。 各中央巡视组组长强调，中央和国家机关是践行“两个维护”的第一方阵，是贯彻落实党中央
 
 ## 正文
 
-中新网上海5月30日电 (牛海 董真 许婧)记者30日获悉，高水平应用型高校联盟在上海成立，同步召开联盟预备会暨第一届第一次理事会。
+新华社北京4月18日电 根据党中央关于巡视工作的统一部署，近日，二十届中央第七轮巡视完成进驻工作。
 
-同期举办的应用型高校高质量发展研讨会，汇聚全国百余所应用型高校负责人、教育主管部门代表、行业专家及国际学者，围绕高等教育分类改革、产业人才培育等关键领域展开研讨。
+15个中央巡视组将对36家中央和国家机关开展常规巡视。
 
-该联盟由教育部学校规划建设发展中心指导，上海理工大学、上海虹桥产教融合国际促进中心联合发起，是全国高水平应用型本科院校、相关企事业单位及行业组织自愿组成的全国性、开放性协同共同体，是推动应用型高校分类改革、内涵与特色发展的重要平台。
+被巡视单位分别召开巡视进驻动员会。
 
-本次研讨会由教育部学校规划建设发展中心主办，上海理工大学、中德产学研用创新联合体秘书处承办，各方齐聚共探应用型高校高质量发展路径。
+各中央巡视组组长作动员讲话，对深入学习贯彻习近平总书记关于巡视工作的重要讲话精神，扎实开展巡视工作提出要求。
 
-上海理工大学党委书记王凌宇表示，联盟的成立开启了应用型高校协同发展新起点。
+各中央巡视组组长强调，中央和国家机关是践行“两个维护”的第一方阵，是贯彻落实党中央决策部署的“最初一公里”。
 
-学校作为联盟理事长及秘书处单位，将携手合作方，以服务、机制、项目为核心抓手，完善联盟运行体系，推动各成员共建共享、协同发力，打造集协同创新、智库服务、成果共享、国际交流于一体的优质平台，为教育强国建设和中国式现代化贡献力量。
+今年是“十五五”开局之年，对中央和国家机关开展巡视，是推动被巡视党组织加强党的政治建设、始终做到“两个维护”，强化党的宗旨意识、树立和践行正确政绩观，深化党的自我革命、持之以恒推进全面从严治党的重要举措。
 
-上海虹桥国际中央商务区管委会党组书记、常务副主任孔福安表示，联盟搭建了校地合作桥梁、凝聚了产教融合合力。
+被巡视党组织要提高政治站位，切实把思想和行动统一到党中央决策部署上来，以高度的责任感使命感完成好党中央交给的巡视任务。
 
-商务区将持续搭建产教融合平台、完善人才服务政策，欢迎联盟高校共建实习基地、联合实验室与技术转移中心，探索产教融合新路径，实现校地互利共赢。
+各中央巡视组组长指出，巡视是党内监督的战略性制度安排，是管党治党的利剑、治国理政的利器。
 
 ## 相关推荐
 
-- 2026-06-30 09:10 - [内马尔未登场 安切洛蒂赛后回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 08:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 08:58 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 09:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 08:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 09:06 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 09:04 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 09:00 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 08:48 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 08:58 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 09:08 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 09:10 - [陈小春人老了干什么也不心酸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 09:08 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 09:04 - [收到补税提醒尽快办理 明起有滞纳金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 08:54 - 周生如故<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md
+- 2026-06-30 08:56 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md
+- 2026-06-30 09:13 - 曝娱乐圈大部分明星失业<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md
+- 2026-06-30 09:11 - 四川宜宾地震为何震感明显<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md
+- 2026-06-30 09:12 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md
+- 2026-06-30 09:16 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md
+- 2026-06-30 09:09 - 小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md
+- 2026-06-30 09:06 - “柠檬茶能换怀表？”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md
+- 2026-06-30 09:15 - 高考填志愿父亲和女儿产生分歧<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md
+- 2026-06-30 08:59 - 现在叛逆期的孩子最怕的是什么？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md
+- 2026-06-30 09:07 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md
+- 2026-06-30 09:11 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:09 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/99696.shtml)
-- 2026-06-30 09:06 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/56646.shtml)
-- 2026-06-30 09:17 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/7636656.shtml)
-- 2026-06-30 09:04 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/51425810.shtml)
-- 2026-06-30 08:54 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.kurohicncr.top/Article/details/0731592.shtml)
-- 2026-06-30 08:58 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/31598417.shtml)
-- 2026-06-30 08:57 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/5895652816.shtml)
-- 2026-06-30 08:55 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/4880391.shtml)
-- 2026-06-30 09:15 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/461903520.shtml)
-- 2026-06-30 09:17 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.minike.top/Article/details/14019654077.shtml)
-- 2026-06-30 09:15 - [追梦拒绝2770万美元球员选项](https://www.blog.kurohicncr.top/Article/details/2040708.shtml)
-- 2026-06-30 09:12 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/84873.shtml)
-- 2026-06-30 09:05 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.share.minike.top/Article/details/072235753.shtml)
-- 2026-06-30 09:07 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/2897274.shtml)
-- 2026-06-30 08:54 - [欧洲民众抢购空调降温](http://www.share.kurohicncr.top/Article/details/79460.shtml)
+- 2026-06-30 08:58 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:http://www.share.minike.top/Article/details/6204596269.shtml
+- 2026-06-30 09:00 - 高考结束，该不该外出打工体验？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/6008758472.shtml
+- 2026-06-30 09:01 - 日本淘汰<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1613211042.shtml
+- 2026-06-30 09:02 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/12588124.shtml
+- 2026-06-30 09:23 - 老外对中国cosplay竟这样评价…<br><br> | ??:http://www.share.minike.top/Article/details/789831689.shtml
+- 2026-06-30 09:18 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/531291.shtml
+- 2026-06-30 09:05 - 网红不能困在无底线逐利里<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/45394482306.shtml
+- 2026-06-30 09:07 - 如果有二次元高中是什么样子的？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/00451257.shtml
+- 2026-06-30 09:17 - 浪姐成团夜爆笑吐槽<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/55096953384.shtml
+- 2026-06-30 09:09 - 日本五次世界杯淘汰赛全败<br><br> | ??:http://www.share.kurohicncr.top/Article/details/805680675.shtml
+- 2026-06-30 09:21 - 《虎吹最难绷の一集》<br><br> | ??:http://www.share.minike.top/Article/details/6992284.shtml
+- 2026-06-30 09:10 - 第一炉香<br><br> | ??:https://www.blog.minike.top/Article/details/242193.shtml
+- 2026-06-30 09:23 - 穆祉丞回应获年度人气艺人<br><br> | ??:https://www.share.minike.top/Article/details/367872486172.shtml
+- 2026-06-30 09:04 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://www.share.kurohicncr.top/Article/details/3031160145.shtml
+- 2026-06-30 09:23 - 苗族银饰<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/732201.shtml

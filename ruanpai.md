@@ -1,58 +1,56 @@
-# 突发！霍尔木兹海峡，发现疑似水雷！阿曼发布航行警告
+# 上海探索“AI+无线电”融合发展 积极培育创新人才
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-霍尔木兹海峡阿曼领海内发现疑似水雷。 当地时间5月30日，阿曼海事安全中心发布通告称，由于在霍尔木兹海峡阿曼领海范围内的沿岸通航带以西海域发现一件疑似水雷的漂浮物，该中心呼吁所有船舶、海员及渔民在相关海域活动时提高警惕，与可疑物体保持安全距离，并及时向有关部门报告。 另外，据伊朗媒体30日报道，伊朗议会主席团成员萨利米表示，伊朗对霍尔木兹海峡“实施主权管辖”的计划即将在议会获得
+中新网上海4月17日电 (记者 郑莹莹)2026全球“Al+无线电”挑战赛17日在复旦大学启动。 国际电信联盟电信标准化局副局长比莱尔·贾穆西在视频致辞中表示，人工智能是破解频谱治理难题的关键路径，只有坚持AI和无线电融合，才能让有限的频谱资源释放更大的价值。 无线电是一种看不见的电磁波，它与人们的生活息息相关。比如无线电频段中的特高频是指300MHz(兆赫兹)至3000MHz
 
 ## 正文
 
-霍尔木兹海峡阿曼领海内发现疑似水雷。
+中新网上海4月17日电 (记者 郑莹莹)2026全球“Al+无线电”挑战赛17日在复旦大学启动。
 
-当地时间5月30日，阿曼海事安全中心发布通告称，由于在霍尔木兹海峡阿曼领海范围内的沿岸通航带以西海域发现一件疑似水雷的漂浮物，该中心呼吁所有船舶、海员及渔民在相关海域活动时提高警惕，与可疑物体保持安全距离，并及时向有关部门报告。
+国际电信联盟电信标准化局副局长比莱尔·贾穆西在视频致辞中表示，人工智能是破解频谱治理难题的关键路径，只有坚持AI和无线电融合，才能让有限的频谱资源释放更大的价值。
 
-另外，据伊朗媒体30日报道，伊朗议会主席团成员萨利米表示，伊朗对霍尔木兹海峡“实施主权管辖”的计划即将在议会获得批准，并有望以永久性法律的形式获得通过。
+无线电是一种看不见的电磁波，它与人们的生活息息相关。
 
-据伊朗学生通讯社报道，萨利米说，只有伊朗和阿曼有权就霍尔木兹海峡的管理方式作出决定。
+比如无线电频段中的特高频是指300MHz(兆赫兹)至3000MHz之间的频段，这是数字宽带通信的主干道，2G、3G、4G移动通信以及Wi-Fi、蓝牙等都使用这段频率。
 
-伊朗方面已与阿曼展开沟通，阿曼方面也表达了初步同意，相关方案有望在近期敲定。
+来自上海市经济和信息化委员会方面的数据显示，2025年，上海有394家规模以上人工智能企业，产业规模超6370亿元，其产业基础能力与创新生态建设通过“人工智能+”行动计划得到进一步的巩固与拓展。
 
-此外，据伊朗媒体报道，尽管美国总统特朗普日前称对伊朗的海上封锁即将解除，但相关封锁措施仍在持续，美国仍在试图阻止伊朗船只通行。
+上海市经济和信息化委员会副主任潘焱称，产业基础为上海推动人工智能与无线电的深度融合提供了条件。
 
-伊朗塔斯尼姆通讯社的报道说，美国针对伊朗的海上封锁“作为一种敌对行动依然存在”。
+2026全球“AI+无线电”挑战赛的初赛聚焦多模态无人机识别，复赛升级为复杂环境下的目标身份关联与三维定位。
 
-部分伊朗船只在特朗普发表相关表态后尝试通过封锁区域，但遭美军舰警告要求立即返回。
+今年赛事还特设青少年组，鼓励和支持18岁以下的青少年学习无线电知识和人工智能技能，为“AI+无线电”领域培养具有创新潜质的后备人才。
 
 ## 相关推荐
 
-- 2026-06-30 09:12 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 08:59 - [吴启华卖肖像权拍AI电影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 08:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 09:12 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 09:04 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 08:53 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 08:56 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 09:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-30 08:53 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 09:16 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 09:13 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 08:56 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 08:57 - 四川凉山落石砸毁车辆 3人遇难<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md
+- 2026-06-30 09:22 - 小娘惹<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md
+- 2026-06-30 09:04 - 日本队主帅道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md
+- 2026-06-30 09:20 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md
+- 2026-06-30 09:01 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md
+- 2026-06-30 09:09 - 韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md
+- 2026-06-30 09:14 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md
+- 2026-06-30 09:20 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md
+- 2026-06-30 09:06 - 《恋与深空》被指触碰民族伤痛红线<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md
+- 2026-06-30 09:12 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:13 - [亚洲球队全部出局](http://www.share.minike.top/Article/details/41417.shtml)
-- 2026-06-30 08:54 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/8399855478.shtml)
-- 2026-06-30 08:59 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/0018700.shtml)
-- 2026-06-30 09:11 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/515936803.shtml)
-- 2026-06-30 08:58 - [日本队5进世界杯淘汰赛0胜](http://www.share.minike.top/Article/details/39125657144.shtml)
-- 2026-06-30 09:17 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/973561667344.shtml)
-- 2026-06-30 09:02 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/72317155440.shtml)
-- 2026-06-30 08:52 - [《名肘探科比》：科比大战裂口女](https://www.share.minike.top/Article/details/35893.shtml)
-- 2026-06-30 09:03 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/036994.shtml)
-- 2026-06-30 08:51 - [泰山建135公里刀片刺绳隔离网](https://www.blog.kurohicncr.top/Article/details/127691774086.shtml)
-- 2026-06-30 09:14 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/52832.shtml)
-- 2026-06-30 08:50 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/797322819.shtml)
-- 2026-06-30 09:16 - [媒体：手机测评该挤挤水分了](https://www.blog.minike.top/Article/details/8958102.shtml)
-- 2026-06-30 09:15 - [低智商犯罪三江口团建来了](http://www.blog.kurohicncr.top/Article/details/5927622406.shtml)
-- 2026-06-30 09:01 - [德国进球被吹](http://www.blog.minike.top/Article/details/7325847.shtml)
+- 2026-06-30 09:20 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:http://www.share.kurohicncr.top/Article/details/07475656.shtml
+- 2026-06-30 09:18 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://www.blog.minike.top/Article/details/7951407.shtml
+- 2026-06-30 09:02 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.blog.minike.top/Article/details/1579016098.shtml
+- 2026-06-30 09:19 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/610544597766.shtml
+- 2026-06-30 08:57 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:http://www.blog.minike.top/Article/details/602035735.shtml
+- 2026-06-30 09:22 - 四川宜宾地震为何震感明显<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/15787.shtml
+- 2026-06-30 09:05 - 《共患难》<br><br> | ??:https://www.share.minike.top/Article/details/828848736316.shtml
+- 2026-06-30 09:15 - 郑钦文 四年一轮游<br><br> | ??:http://www.blog.minike.top/Article/details/433308726.shtml
+- 2026-06-30 09:13 - 德国队回应爆冷淘汰<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2833025.shtml
+- 2026-06-30 09:03 - 法媒点赞中国小区楼顶“人工降雨”<br><br> | ??:http://www.share.kurohicncr.top/Article/details/691618427961.shtml
+- 2026-06-30 09:09 - “荒唐”背后的韩国足球<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/56816.shtml
+- 2026-06-30 09:12 - 法总统候选人：拒绝与中国激烈对抗<br><br> | ??:https://www.share.kurohicncr.top/Article/details/828132402.shtml
+- 2026-06-30 09:22 - 巴西把自己踢晕了<br><br> | ??:https://www.blog.minike.top/Article/details/0473627238.shtml
+- 2026-06-30 08:55 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://www.share.minike.top/Article/details/779877.shtml
+- 2026-06-30 08:59 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:http://www.blog.minike.top/Article/details/525645528.shtml

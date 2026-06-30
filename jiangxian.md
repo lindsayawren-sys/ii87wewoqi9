@@ -1,50 +1,60 @@
-# 《习近平法治文选》第一卷英文版出版发行
+# 北京城市副中心马拉松暨“通北”马拉松落下帷幕
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新社北京5月31日电 中共中央党史和文献研究院翻译的《习近平法治文选》第一卷英文版，近日由中央编译出版社出版，面向海内外发行。 《习近平法治文选》第一卷由中共中央党史和文献研究院编辑，收入习近平同志2012年12月至2025年2月期间关于法治建设最重要、最基本的著作，为全党全国各族人民深入学习贯彻习近平新时代中国特色社会主义思想特别是习近平法治思想提供了权威教材。 这部著作英
+中新网北京4月19日电 4月19日7时30分，随着发令枪响，来自海内外的1.2万名跑者涌出起点。经过激烈角逐，田杰斩获男子组冠军，李昊宗获得男子组亚军，包毕力格获得男子组季军；敖苹平获得女子组冠军，拉毛吉获得女子组亚军，房广霞获得女子组季军。 本届赛事报名热度再创新高，参赛选手覆盖20个国家，男女比例均衡，参赛年龄跨度从20岁至77岁，共同感受马拉松运动的激情与魅力。本次赛事中
 
 ## 正文
 
-中新社北京5月31日电 中共中央党史和文献研究院翻译的《习近平法治文选》第一卷英文版，近日由中央编译出版社出版，面向海内外发行。
+中新网北京4月19日电 4月19日7时30分，随着发令枪响，来自海内外的1.2万名跑者涌出起点。
 
-《习近平法治文选》第一卷由中共中央党史和文献研究院编辑，收入习近平同志2012年12月至2025年2月期间关于法治建设最重要、最基本的著作，为全党全国各族人民深入学习贯彻习近平新时代中国特色社会主义思想特别是习近平法治思想提供了权威教材。
+经过激烈角逐，田杰斩获男子组冠军，李昊宗获得男子组亚军，包毕力格获得男子组季军；敖苹平获得女子组冠军，拉毛吉获得女子组亚军，房广霞获得女子组季军。
 
-这部著作英文版的出版发行，有助于国外读者深入了解习近平法治思想的丰富内涵，了解新时代中国特色社会主义法治建设发生的历史性变革、取得的历史性成就，了解中国智慧、中国实践为世界法治文明建设作出的重要贡献，对于增强国际社会践行国际法治精神、开展国际法治合作、携手共建人类命运共同体的共同认识，推动全球治理朝着更加公正合理的方向发展，具有重要意义。
+本届赛事报名热度再创新高，参赛选手覆盖20个国家，男女比例均衡，参赛年龄跨度从20岁至77岁，共同感受马拉松运动的激情与魅力。
 
-(完)
+本次赛事中，人大通州校区为赛事提供了起终点、嘉年华、跑者沙龙活动的场地支持，还招募了约300名大学生志愿者参与赛事的完赛服务保障工作。
+
+而与往届赛事相比，今年的赛道是一次从“城市副中心表达”向“区域融合成果展现”的升华，赛事的赛道延伸进“通北示范区”的大厂回族自治县，让“一核两翼”战略从宏大叙事走向生动实践。
+
+本届赛事延续了备受欢迎的“跑团精英排行榜”活动，来自京冀地区乃至全国超过260多个跑团、3700多人参与报名，其中的48个跑团脱颖而出，入围本届跑团精英排行榜。
+
+参与的跑团中不仅有“北京奥森跑团”“北京通州长跑营”“二环特训队”“人大马拉松”“副中心跑团”等本地资深跑团，也有来自河北的“香河县长跑协会”“大厂马协”“三河市马拉松协会”等团队。
+
+作为由中国田径协会认证的A1类全程马拉松赛事，“北副马”在跑者成绩公平公正上追求极致。
 
 ## 相关推荐
 
-- 2026-06-30 09:13 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 09:01 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 09:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-30 09:14 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 09:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 08:59 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 09:02 - [世界杯名画巴拉圭钢铁防线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 09:04 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 08:57 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 09:05 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 09:10 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 08:55 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 09:06 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md
+- 2026-06-30 09:10 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md
+- 2026-06-30 08:58 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md
+- 2026-06-30 08:54 - 檀健次王楚然吻戏看热了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md
+- 2026-06-30 08:54 - 外国游客开始涌入中国农村<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md
+- 2026-06-30 09:22 - hanser X 赖美云《室内系的Track Maker》<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md
+- 2026-06-30 09:04 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md
+- 2026-06-30 09:03 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md
+- 2026-06-30 09:11 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md
+- 2026-06-30 09:09 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md
+- 2026-06-30 09:19 - 找到了10年前跪舔b站的视频<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md
+- 2026-06-30 09:10 - 《名肘探科比》：科比大战裂口女<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md
+- 2026-06-30 09:06 - 欧洲空调卖疯了 下一个爆款是储能吗<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md
+- 2026-06-30 08:58 - 我和我的家乡<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:02 - [《共患难》](http://www.share.kurohicncr.top/Article/details/820634979.shtml)
-- 2026-06-30 09:15 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/19956523899.shtml)
-- 2026-06-30 09:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/023036415847.shtml)
-- 2026-06-30 09:09 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/9217924899.shtml)
-- 2026-06-30 08:53 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/45423.shtml)
-- 2026-06-30 09:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/1552368.shtml)
-- 2026-06-30 08:56 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/2634284254.shtml)
-- 2026-06-30 09:01 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/8018812.shtml)
-- 2026-06-30 09:17 - [巴拉圭进球](https://www.share.kurohicncr.top/Article/details/825897.shtml)
-- 2026-06-30 09:01 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/623867.shtml)
-- 2026-06-30 09:13 - [大蒜晒外面被路过女子连盆端走](http://www.share.minike.top/Article/details/2179902785.shtml)
-- 2026-06-30 09:14 - [日本主帅：未能夺冠深感抱歉](http://www.share.minike.top/Article/details/0136405.shtml)
-- 2026-06-30 09:15 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/47430283019.shtml)
-- 2026-06-30 09:14 - [藤森庆子赢得秘鲁总统选举](https://www.share.kurohicncr.top/Article/details/552141052.shtml)
-- 2026-06-30 08:53 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/0956131.shtml)
+- 2026-06-30 09:19 - 陈小春人老了干什么也不心酸<br><br> | ??:http://www.share.kurohicncr.top/Article/details/79952385933.shtml
+- 2026-06-30 09:16 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://www.blog.minike.top/Article/details/0403659345.shtml
+- 2026-06-30 09:11 - 花少8要去世界杯举办国<br><br> | ??:https://www.share.kurohicncr.top/Article/details/54269315.shtml
+- 2026-06-30 09:08 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/701638.shtml
+- 2026-06-30 09:12 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/2002761221.shtml
+- 2026-06-30 09:05 - 徐亮怒斥世界杯踢假球<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/19742491.shtml
+- 2026-06-30 09:06 - 德国 传控<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/05127.shtml
+- 2026-06-30 09:06 - 全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9286208700.shtml
+- 2026-06-30 08:54 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.share.minike.top/Article/details/462153034421.shtml
+- 2026-06-30 08:56 - 巴西醒醒 这是淘汰赛<br><br> | ??:https://www.blog.minike.top/Article/details/90324407.shtml
+- 2026-06-30 09:21 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:http://www.share.minike.top/Article/details/207716166.shtml
+- 2026-06-30 09:22 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:http://www.blog.minike.top/Article/details/322878.shtml
+- 2026-06-30 09:09 - 小娘惹<br><br> | ??:http://www.blog.minike.top/Article/details/2670812178.shtml
+- 2026-06-30 09:18 - 世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？<br><br> | ??:https://www.share.minike.top/Article/details/36106490729.shtml
+- 2026-06-30 09:00 - 欧洲家电巨头为何输掉了这个夏天<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/026297605916.shtml

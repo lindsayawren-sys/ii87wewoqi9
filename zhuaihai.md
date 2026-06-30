@@ -1,59 +1,56 @@
-# 鹏博士（600804）股民索赔再向法院提交立案，倒计时不足2月
+# （乡村行·看振兴）“00后”兄妹返乡创业 直播间里打造“黄金产业”
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-2026年5月27日，上海久诚律师事务所股民索赔律师许峰代理的鹏博士（600804）虚假陈述引发的投资者索赔案再向法院提交一次立案。 2026年1月底，许峰律师代理的一位鹏博士投资者通过调解获赔到位，其他鹏博士投资者索赔案已向法院申请强制执行。（许峰律师专栏） 鹏博士投资者索赔案已有投资者胜诉判决，许峰律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托
+中新网陕西大荔4月17日电 题：“00后”兄妹返乡创业 直播间里打造“黄金产业” 作者 杨英琦 赵卓昱 朱睿成 “家人们闻闻！今早刚采的头茬芦笋，撒点盐就鲜掉眉毛，现采现发下午就走！”清晨，渭南市大荔县苏村镇槐园村的芦笋地还浸在微凉的晨雾里，“00后”姑娘马绒绒就在田埂边支起一口铸铁锅，她一手翻炒芦笋片，一手对着手机介绍，直播间里可以看到，她身后的田地里一片繁忙。 表兄张舒琪正
 
 ## 正文
 
-2026年5月27日，上海久诚律师事务所股民索赔律师许峰代理的鹏博士（600804）虚假陈述引发的投资者索赔案再向法院提交一次立案。
+中新网陕西大荔4月17日电 题：“00后”兄妹返乡创业 直播间里打造“黄金产业” 作者 杨英琦 赵卓昱 朱睿成 “家人们闻闻！
 
-2026年1月底，许峰律师代理的一位鹏博士投资者通过调解获赔到位，其他鹏博士投资者索赔案已向法院申请强制执行。
+今早刚采的头茬芦笋，撒点盐就鲜掉眉毛，现采现发下午就走！
 
-（许峰律师专栏） 鹏博士投资者索赔案已有投资者胜诉判决，许峰律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+”清晨，渭南市大荔县苏村镇槐园村的芦笋地还浸在微凉的晨雾里，“00后”姑娘马绒绒就在田埂边支起一口铸铁锅，她一手翻炒芦笋片，一手对着手机介绍，直播间里可以看到，她身后的田地里一片繁忙。
 
-2024年8月16日晚，鹏博士公告收到证监会《行政处罚决定书》，经查明，当事人违法事实如下： 一、鹏博士未按规定披露关联交易。
+表兄张舒琪正带着五六名工人弯腰劳作，剪刀咔嚓作响，带着晨露的芦笋被轻轻剪下，整齐码进竹筐。
 
-二、鹏博士未按规定披露重大合同。
+一年前，这对兄妹还在西安工作，如今却成为守着30亩芦笋地、带着乡亲们闯销路的“新农人”。
 
-三、鹏博士2012年-2022年年报存在虚假记载 鹏博士2012年虚增利润42，456，137.95元，占当年利润总额比例为17.43%。
+“我们家跟芦笋打了十几年交道，爸妈2012年就开始种，我是在芦笋地里长大的。
 
-鹏博士2012年-2015年年报均虚增资产，2016年年报虚增资产162，000，000.00元、虚增利润162，000，000.00元，占当年利润总额比例为17.48%。
+”歇口气的间隙，马绒绒擦了擦额角的汗，“以前每次回家，看到爸妈辛辛苦苦种的好笋被收购商压价，就想着回来帮家里做点不一样的。
 
-鹏博士2016年-2019年年报均虚增资产。
+” 两人的决定遭到父母坚决反对。
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 09:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 09:02 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 09:06 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 09:11 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 08:52 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 09:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 09:04 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 09:07 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 08:48 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 08:51 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 09:10 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 08:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 09:05 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md
+- 2026-06-30 09:18 - 孙颖莎王楚钦晋级8强<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md
+- 2026-06-30 09:09 - 手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md
+- 2026-06-30 09:16 - 大学生遇地震裹被子从5楼冲下<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md
+- 2026-06-30 08:58 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md
+- 2026-06-30 09:11 - 日本队5进世界杯淘汰赛0胜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md
+- 2026-06-30 09:10 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md
+- 2026-06-30 09:01 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md
+- 2026-06-30 09:13 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md
+- 2026-06-30 09:22 - “草莓月亮”浪漫现身<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:50 - [存储芯片龙头提示风险](http://www.share.kurohicncr.top/Article/details/167057223.shtml)
-- 2026-06-30 08:53 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/8381358816.shtml)
-- 2026-06-30 09:10 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/02600367.shtml)
-- 2026-06-30 09:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/671371.shtml)
-- 2026-06-30 08:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/4682496035.shtml)
-- 2026-06-30 09:12 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/07658657752.shtml)
-- 2026-06-30 09:00 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/883014987261.shtml)
-- 2026-06-30 08:56 - [内马尔安慰日本球员](https://www.blog.minike.top/Article/details/55533216.shtml)
-- 2026-06-30 09:10 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/817623.shtml)
-- 2026-06-30 09:14 - [大蒜晒外面被路过女子连盆端走](http://www.share.minike.top/Article/details/181576.shtml)
-- 2026-06-30 09:01 - [日本反击率先破门](https://www.share.minike.top/Article/details/599566.shtml)
-- 2026-06-30 08:53 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/616061.shtml)
-- 2026-06-30 09:01 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.minike.top/Article/details/47000489824.shtml)
-- 2026-06-30 09:04 - [第3集丨“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/380974.shtml)
-- 2026-06-30 08:49 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/22422828.shtml)
+- 2026-06-30 08:58 - 锐评T1战胜KC<br><br> | ??:https://www.blog.minike.top/Article/details/62546290317.shtml
+- 2026-06-30 08:54 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:https://www.blog.minike.top/Article/details/24352200.shtml
+- 2026-06-30 09:08 - 世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？<br><br> | ??:http://www.share.minike.top/Article/details/8711098882.shtml
+- 2026-06-30 08:57 - 乔家的儿女<br><br> | ??:http://www.share.kurohicncr.top/Article/details/757491765520.shtml
+- 2026-06-30 09:07 - 巴西若输日本将创36年最差纪录<br><br> | ??:http://www.share.minike.top/Article/details/432722123.shtml
+- 2026-06-30 09:02 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://www.share.kurohicncr.top/Article/details/268085066.shtml
+- 2026-06-30 09:19 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/494922117.shtml
+- 2026-06-30 09:15 - 免费试吃发差评被店家挂店门避雷<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/50914.shtml
+- 2026-06-30 09:10 - 我设置了全宇宙最安全的密码<br><br> | ??:http://www.share.minike.top/Article/details/3824956111.shtml
+- 2026-06-30 09:22 - 卡塞米罗头球破门<br><br> | ??:https://www.share.minike.top/Article/details/148388789.shtml
+- 2026-06-30 09:10 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:http://www.share.kurohicncr.top/Article/details/32102.shtml
+- 2026-06-30 08:55 - 手底下人带不动怎么办？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8244041.shtml
+- 2026-06-30 09:17 - 德国队世界杯点球大战首败<br><br> | ??:https://www.share.minike.top/Article/details/04740.shtml
+- 2026-06-30 08:56 - 荷兰VS摩洛哥<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/85077047167.shtml
+- 2026-06-30 09:20 - 日本主帅赛后回应淘汰出局<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/88297222.shtml

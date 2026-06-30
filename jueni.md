@@ -1,56 +1,58 @@
-# 全国大学生讲解大会研学活动展现大同古今交融新活力
+# 两项全球高危漏洞被发现 360首次公开漏洞挖掘智能体体系
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网大同5月29日电 (记者 胡健)“这是我第二次参加全国大学生讲解大会，如今AI、数字技术深度融入文化传播领域，亲眼见证科技赋能传统文化，也深深感受到时代发展与科技革新带来的力量。”来自云南艺术学院的参赛选手杨云翔感慨道。 日前，2026(第三届)全国大学生讲解大会主题研学活动在山西大同开展，来自全国各高校的46名晋级选手分为文旅赛道与红色赛道两支队伍，开展沉浸式实地研学，
+近日，360集团(SH：601360)自主研发的漏洞挖掘智能体成功发现两项潜伏多年的重大安全漏洞——Windows内核提权漏洞和Office远程代码执行漏洞，均已上报国家漏洞库并完成修复。相关漏洞影响全球超10亿Windows及Office用户，波及个人终端、政企办公系统及关键基础设施环境。这也是我国首次公开披露智能体规模化发现基础软件核心漏洞的能力成果。 此次曝光的两项漏洞均
 
 ## 正文
 
-中新网大同5月29日电 (记者 胡健)“这是我第二次参加全国大学生讲解大会，如今AI、数字技术深度融入文化传播领域，亲眼见证科技赋能传统文化，也深深感受到时代发展与科技革新带来的力量。
+近日，360集团(SH：601360)自主研发的漏洞挖掘智能体成功发现两项潜伏多年的重大安全漏洞——Windows内核提权漏洞和Office远程代码执行漏洞，均已上报国家漏洞库并完成修复。
 
-”来自云南艺术学院的参赛选手杨云翔感慨道。
+相关漏洞影响全球超10亿Windows及Office用户，波及个人终端、政企办公系统及关键基础设施环境。
 
-日前，2026(第三届)全国大学生讲解大会主题研学活动在山西大同开展，来自全国各高校的46名晋级选手分为文旅赛道与红色赛道两支队伍，开展沉浸式实地研学，近距离触摸大同人文底蕴、红色基因与城市转型活力。
+这也是我国首次公开披露智能体规模化发现基础软件核心漏洞的能力成果。
 
-本次活动以“美丽中国，我来解说，云动天下，青春大同”为主题，依托大同独有的历史文脉、边塞文化、工业底蕴与红色资源，打造双线并行的特色研学体系，让青年学子以青春视角解码大同城市内涵。
+此次曝光的两项漏洞均属于影响范围广、风险等级高的基础软件安全隐患。
 
-文旅赛道深耕大同千年古都文脉，带领选手沉浸式探寻城市文旅内核。
+其中，潜伏近5年的Windows内核提权漏洞为高危系统级漏洞，被利用后可能获取系统最高权限，进而实现数据窃取甚至系统瘫痪，对全球亿万用户终端及关键基础设施环境构成严重安全风险。
 
-学子们来到世界文化遗产云冈石窟，了解其发展历史、艺术特色与保护成果，真切体悟中西艺术交融的独特魅力。
+另一项潜伏8年之久的Office远程代码执行漏洞被评定为Critical(最高危)级别，广泛影响使用Office办公软件的终端环境，一旦被利用，用户在打开Word、PPT等常见文档时即可能面临远程控制风险。
 
-此后，研学团队登上大同李二口长城，饱览雄浑边塞风光，感悟厚重的军事长城文化；探访魏公坊非遗传承博物馆，近距离观摩老醋酿造工序，体会传统非遗技艺代代相传的鲜活生命力。
+值得关注的是，该漏洞已潜伏多年，传统检测方式长期未能有效识别，360漏洞挖掘智能体在自动化分析过程中实现分钟级快速定位。
 
-红色赛道聚焦工业传承、城市转型与红色初心，带领学子感悟大同多元发展脉络。
+凭借此次精准发现，360获微软安全响应中心(MSRC)致谢，充分显示出智能体技术在复杂漏洞发现领域的规模化应用潜力。
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 08:59 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 08:52 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 09:04 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 09:14 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 08:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 08:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 09:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 09:02 - [妻子撞死家暴丈夫案二审案情反转](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 08:53 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 09:11 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md
+- 2026-06-30 09:01 - 第3集丨“柠檬茶能换怀表？”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md
+- 2026-06-30 09:24 - 上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md
+- 2026-06-30 09:19 - 重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md
+- 2026-06-30 09:16 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md
+- 2026-06-30 09:22 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md
+- 2026-06-30 08:55 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md
+- 2026-06-30 09:07 - 巴西2比1日本<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md
+- 2026-06-30 09:10 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md
+- 2026-06-30 09:18 - 王健林甩卖超80座万达广场<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md
+- 2026-06-30 09:23 - iPhone18e曝光<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md
+- 2026-06-30 09:15 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/2179616405.shtml)
-- 2026-06-30 09:06 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/09545553768.shtml)
-- 2026-06-30 09:07 - [日本球迷被强行披上巴西国旗](https://www.blog.kurohicncr.top/Article/details/93095216912.shtml)
-- 2026-06-30 09:16 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/44065805.shtml)
-- 2026-06-30 09:00 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/65040791967.shtml)
-- 2026-06-30 08:53 - [泰山景区建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/74426.shtml)
-- 2026-06-30 08:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/011680747136.shtml)
-- 2026-06-30 09:05 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/226578.shtml)
-- 2026-06-30 08:54 - [网友写差评被店家“挂”门口避雷](http://www.blog.minike.top/Article/details/93415601310.shtml)
-- 2026-06-30 08:52 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/064005916915.shtml)
-- 2026-06-30 09:06 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/621557293.shtml)
-- 2026-06-30 08:56 - [日耳曼拖拉机](https://www.share.kurohicncr.top/Article/details/30197708.shtml)
-- 2026-06-30 08:52 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/212141720.shtml)
-- 2026-06-30 08:48 - [泰山景区建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/000627.shtml)
-- 2026-06-30 09:05 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/5044081486.shtml)
+- 2026-06-30 08:57 - 巴西vs日本<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/45717.shtml
+- 2026-06-30 08:55 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5850716340.shtml
+- 2026-06-30 09:09 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1074239.shtml
+- 2026-06-30 09:00 - 妻子撞死家暴丈夫案二审案情反转<br><br> | ??:https://www.blog.minike.top/Article/details/9099143.shtml
+- 2026-06-30 09:21 - 亚洲球队全部告别世界杯<br><br> | ??:https://www.blog.minike.top/Article/details/314435617111.shtml
+- 2026-06-30 09:07 - 如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6254648.shtml
+- 2026-06-30 08:55 - 千与千寻<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9298843700.shtml
+- 2026-06-30 09:11 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/62582727838.shtml
+- 2026-06-30 09:22 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://www.blog.minike.top/Article/details/27530428.shtml
+- 2026-06-30 08:56 - 2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/30338142.shtml
+- 2026-06-30 08:57 - 法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？<br><br> | ??:https://www.share.minike.top/Article/details/565981137.shtml
+- 2026-06-30 09:16 - 全网说丑的玫瑰空调卖了5万台<br><br> | ??:http://www.share.minike.top/Article/details/907094.shtml
+- 2026-06-30 09:21 - 扫黑风暴<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/83919.shtml
+- 2026-06-30 08:57 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/027087488.shtml
+- 2026-06-30 09:23 - 世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/20543.shtml

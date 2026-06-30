@@ -1,59 +1,60 @@
-# 【美丽中国行·匠心护青绿 劳动绘山河】代代治沙人 同心筑绿廊
+# 霍尔木兹海峡反复“开关”，剧烈波动之下周期板块如何投资？
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-鄂尔多斯人用一代接着一代干的定力，改变了沙漠改写了历史 【美丽中国行·匠心护青绿 劳动绘山河】代代治沙人 同心筑绿廊 地处黄河几字弯的鄂尔多斯，曾经饱受毛乌素沙地和库布其沙漠的侵扰，土地沙化严重，群众生产生活深受影响。 数十年来，当地农牧民主动扛起治沙重任，从宝日勒岱带领群众开启“牧区大寨”治沙先河，到殷玉珍等治沙楷模扎根沙海，再到新时代青年与科技团队接力攻坚，鄂尔多斯治沙人一
+近期霍尔木兹海峡局势反复拉锯，牵动着全球能源市场的神经，也搅动了资源品及周期板块的行情走势。 面对不确定性加大的宏观环境，长城基金旗下周期板块基金经理陈子扬坦言，周期行业波动加大，投资难度随之上升。但专业的周期股投资从来不是赚“情绪博弈”的钱，而是锚定长期趋势，寻找具备确定性的产业逻辑。 陈子扬判断，本轮始于2018-2019年的大宗商品大产能周期尚未结束，供给端的长期刚性约束
 
 ## 正文
 
-鄂尔多斯人用一代接着一代干的定力，改变了沙漠改写了历史 【美丽中国行·匠心护青绿 劳动绘山河】代代治沙人 同心筑绿廊 地处黄河几字弯的鄂尔多斯，曾经饱受毛乌素沙地和库布其沙漠的侵扰，土地沙化严重，群众生产生活深受影响。
+近期霍尔木兹海峡局势反复拉锯，牵动着全球能源市场的神经，也搅动了资源品及周期板块的行情走势。
 
-数十年来，当地农牧民主动扛起治沙重任，从宝日勒岱带领群众开启“牧区大寨”治沙先河，到殷玉珍等治沙楷模扎根沙海，再到新时代青年与科技团队接力攻坚，鄂尔多斯治沙人一茬接着一茬干、一棒连着一棒跑。
+面对不确定性加大的宏观环境，长城基金旗下周期板块基金经理陈子扬坦言，周期行业波动加大，投资难度随之上升。
 
-靠着一辈辈人的接续拼搏与付出，鄂尔多斯的流动沙丘逐步固定，荒漠渐渐铺满绿意，换来了这片土地的生态巨变。
+但专业的周期股投资从来不是赚“情绪博弈”的钱，而是锚定长期趋势，寻找具备确定性的产业逻辑。
 
-在沙地里刨出希望 5月中旬的一场降雨，温润了毛乌素沙地，为播撒草籽提供了绝佳时机。
+陈子扬判断，本轮始于2018-2019年的大宗商品大产能周期尚未结束，供给端的长期刚性约束仍是核心支撑，当前的剧烈震荡恰恰是筛选优质标的、布局确定性机会的窗口期。
 
-趁着墒情，鄂尔多斯市乌审旗的治沙群众在沙地上开展草籽点播作业，一粒粒草籽伴着湿润泥土落定沙丘，在雨水滋养下静待破土出苗。
+以供给为锚，穿越不确定性 在复杂多变的市场中寻找相对确定的机会，是当前投资的核心课题。
 
-乌审旗位于鄂尔多斯市的西南部，全境处于毛乌素沙地腹部。
+对陈子扬而言，供给端正是他的解题抓手。
 
-20世纪50年代，全旗的荒漠化和沙化土地面积达90%以上。
+他指出，周期投资的底层逻辑在于供需关系，但研究重心应更多落在供给端。
 
-在绝境中，以宝日勒岱为代表的第一代乌审旗治沙人率先吹响了拓荒的号角。
+在他看来，需求端变化快、突发因素多，既受宏观经济、政策调控影响，又容易被地缘事件、市场情绪左右，几乎无法精准预判。
 
 ## 相关推荐
 
-- 2026-06-30 09:04 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 09:08 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 08:49 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 09:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 08:51 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 08:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 09:08 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 09:11 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 09:16 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 08:56 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 09:14 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 08:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 08:55 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 09:12 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md
+- 2026-06-30 09:07 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md
+- 2026-06-30 09:19 - 藤森庆子赢得秘鲁总统选举<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md
+- 2026-06-30 09:17 - 巴西若输日本将创36年最差纪录<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md
+- 2026-06-30 08:57 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md
+- 2026-06-30 09:14 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md
+- 2026-06-30 09:16 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md
+- 2026-06-30 08:58 - 明星大侦探第一季<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md
+- 2026-06-30 09:19 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md
+- 2026-06-30 09:00 - 逃狱兄弟<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md
+- 2026-06-30 09:10 - 董卿父亲报纸上发文悼念亡妻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md
+- 2026-06-30 09:15 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md
+- 2026-06-30 09:18 - 有人见过武则天的画像吗，非常好奇？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md
+- 2026-06-30 09:02 - 豆包收费了，你还会用吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:51 - [黄晓明晒和周杰伦的合照](http://www.blog.minike.top/Article/details/36402739637.shtml)
-- 2026-06-30 09:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/673000214.shtml)
-- 2026-06-30 09:02 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/7293009789.shtml)
-- 2026-06-30 09:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/0753166.shtml)
-- 2026-06-30 09:00 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/7904025349.shtml)
-- 2026-06-30 08:52 - [内马尔安慰日本球员](https://www.blog.minike.top/Article/details/404470647263.shtml)
-- 2026-06-30 08:49 - [德国进球被吹](http://www.share.kurohicncr.top/Article/details/8825150948.shtml)
-- 2026-06-30 08:55 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/8854910.shtml)
-- 2026-06-30 09:13 - [巴拉圭点球大战淘汰德国进16强](http://www.share.minike.top/Article/details/17496030087.shtml)
-- 2026-06-30 08:58 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/1396654.shtml)
-- 2026-06-30 08:51 - [周生如故](https://www.share.minike.top/Article/details/7626453674.shtml)
-- 2026-06-30 09:13 - [我和我的家乡](http://www.blog.minike.top/Article/details/641654.shtml)
-- 2026-06-30 08:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/69419066.shtml)
-- 2026-06-30 08:53 - [世界杯：荷兰vs摩洛哥](http://www.blog.minike.top/Article/details/0677008.shtml)
-- 2026-06-30 09:06 - [黄晓明夸昆凌引杨颖对比](https://www.share.minike.top/Article/details/68934.shtml)
+- 2026-06-30 08:56 - 中国新一轮出口管制直指日本命脉<br><br> | ??:https://www.blog.minike.top/Article/details/577018721202.shtml
+- 2026-06-30 09:08 - 阿娇瘦了10斤<br><br> | ??:https://www.share.kurohicncr.top/Article/details/0961900538.shtml
+- 2026-06-30 09:12 - 小娘惹<br><br> | ??:https://www.share.kurohicncr.top/Article/details/429626.shtml
+- 2026-06-30 09:05 - 英语考了145的人竟然教数学<br><br> | ??:https://www.share.minike.top/Article/details/461652394.shtml
+- 2026-06-30 09:23 - 2021江苏卫视跨年演唱会<br><br> | ??:http://www.share.minike.top/Article/details/6543113599.shtml
+- 2026-06-30 08:55 - 2021江苏卫视跨年演唱会<br><br> | ??:http://www.share.minike.top/Article/details/20145830407.shtml
+- 2026-06-30 09:15 - 当我知道豆包有后台审核人员<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/8448611242.shtml
+- 2026-06-30 09:02 - 张月收到黄灿灿辣货两眼发光<br><br> | ??:http://www.share.kurohicncr.top/Article/details/81322237211.shtml
+- 2026-06-30 09:00 - 日本将帅赛后采访纷纷哽咽落泪<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/56060219.shtml
+- 2026-06-30 09:16 - 德国身价是巴拉圭6倍<br><br> | ??:https://www.share.minike.top/Article/details/4530419.shtml
+- 2026-06-30 09:14 - 日本队被绝杀后鞠躬致谢观众<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0880453.shtml
+- 2026-06-30 08:58 - 恋与深空<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/379510323103.shtml
+- 2026-06-30 09:20 - Melo向柳智敏张元英道歉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/8456049442.shtml
+- 2026-06-30 09:05 - 阿娇瘦了10斤<br><br> | ??:http://www.blog.minike.top/Article/details/3061943138.shtml
+- 2026-06-30 09:01 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/15667587865.shtml

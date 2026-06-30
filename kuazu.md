@@ -1,61 +1,60 @@
-# 大埔队夺得香港“冠忠巴士60周年足总杯”冠军
+# 海峡两岸各民族同胞相约福建上杭欢度“三月三” 交流话团圆
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-外资加仓中国，对中国市场投下信任票灵隐寺，你变了！人这一辈子，一定要去一趟“华北明珠”白洋淀！非法从事试管婴儿手术背后：求子路上为何陷阱重重？6月新规来了！事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？厄尔尼诺将如
+发布时间：2026年04月19日 19:04 来源：中国新闻网 4月18日，中华一家亲·2026海峡两岸各民族欢度“三月三”暨福建省第十三届“三月三”畲族文化周在福建龙岩上杭县拉开帷幕。近千位闽台两地嘉宾及两岸各族同胞汇聚一堂，用欢歌联结情谊，用交流共话团圆。 开场歌舞《母亲是中华》欢快热烈，将现场观众瞬间带入对中华文化的深厚情感中。来自台湾的阿美人同胞带来歌曲《我们要在一起》
 
 ## 正文
 
-外资加仓中国，对中国市场投下信任票灵隐寺，你变了！
+发布时间：2026年04月19日 19:04 来源：中国新闻网 4月18日，中华一家亲·2026海峡两岸各民族欢度“三月三”暨福建省第十三届“三月三”畲族文化周在福建龙岩上杭县拉开帷幕。
 
-人这一辈子，一定要去一趟“华北明珠”白洋淀！
+近千位闽台两地嘉宾及两岸各族同胞汇聚一堂，用欢歌联结情谊，用交流共话团圆。
 
-非法从事试管婴儿手术背后：求子路上为何陷阱重重？
+开场歌舞《母亲是中华》欢快热烈，将现场观众瞬间带入对中华文化的深厚情感中。
 
-6月新规来了！
+来自台湾的阿美人同胞带来歌曲《我们要在一起》，表达了恋人之间最深的承诺。
 
-事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？
+在龙岩扎根的台湾青年也在晚会现场分享了自己跨越海峡对接族谱和在龙岩安家立业的日常。
 
-从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？
+晚会现场，为纪念台湾光复80周年创作的主题歌曲《中华儿女情》再次唱响，台湾少数民族同胞加入大合唱，将晚会推向高潮。
 
-厄尔尼诺将如何影响我国后续天气形势？
+记者了解到，活动周期间还举办了族谱对接、经典诵读、两岸各民族汀江对歌等活动，吸引来自两岸各民族同胞广泛参与。
 
-中国气象局回应“抹黑门”丑闻发酵 “高市泡沫”或将破裂德国汉学家培高德：德国社会如何更好理解当代中国？
+(记者 吴晟炜） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 09:17 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 09:05 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 09:12 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 08:48 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 09:06 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 09:02 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 09:11 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 08:49 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 08:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 09:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 09:00 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 09:16 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 08:57 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 08:56 - [球评巴西绝杀逆转日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 09:06 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 09:00 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md
+- 2026-06-30 08:55 - 恋与深空回应争议<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md
+- 2026-06-30 09:18 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md
+- 2026-06-30 09:17 - 媒体：手机测评该挤挤水分了<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md
+- 2026-06-30 09:22 - 收到补税提醒尽快办理 明起有滞纳金<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md
+- 2026-06-30 08:57 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md
+- 2026-06-30 08:54 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md
+- 2026-06-30 09:02 - 《鸣潮》玄方主题曲 MV | 定玄<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md
+- 2026-06-30 09:12 - 急先锋<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md
+- 2026-06-30 09:08 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md
+- 2026-06-30 09:07 - 锐评T1战胜KC<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md
+- 2026-06-30 09:21 - 马航370搜寻最新消息<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md
+- 2026-06-30 09:00 - 披荆斩棘的哥哥<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md
+- 2026-06-30 09:14 - 刘宇宁是去进货了吗<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:12 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/67378683.shtml)
-- 2026-06-30 09:17 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/085571430.shtml)
-- 2026-06-30 09:17 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/723335138.shtml)
-- 2026-06-30 08:49 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/35997.shtml)
-- 2026-06-30 08:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/140766161.shtml)
-- 2026-06-30 09:08 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.minike.top/Article/details/78937004400.shtml)
-- 2026-06-30 09:06 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/11895992.shtml)
-- 2026-06-30 09:02 - [第一次对自信的力量有了实感](http://www.blog.minike.top/Article/details/68097605456.shtml)
-- 2026-06-30 09:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/8037050.shtml)
-- 2026-06-30 08:57 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/9555141.shtml)
-- 2026-06-30 09:11 - [德国进球被吹](http://www.blog.minike.top/Article/details/1043380.shtml)
-- 2026-06-30 09:14 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/7759337628.shtml)
-- 2026-06-30 08:56 - [输球后日本球迷被强行披上巴西国旗](https://www.blog.minike.top/Article/details/9317274.shtml)
-- 2026-06-30 09:15 - [千与千寻](https://www.share.kurohicncr.top/Article/details/7730791.shtml)
-- 2026-06-30 09:02 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/8890173489.shtml)
+- 2026-06-30 09:17 - 老人卖菜获博主帮助后遇车祸去世<br><br> | ??:http://www.share.minike.top/Article/details/22415172.shtml
+- 2026-06-30 09:01 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3997297.shtml
+- 2026-06-30 09:06 - 2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？<br><br> | ??:https://www.blog.minike.top/Article/details/182830569.shtml
+- 2026-06-30 09:24 - 女儿从清华毕业 爸爸晒出17年对比照<br><br> | ??:http://www.share.minike.top/Article/details/34797189.shtml
+- 2026-06-30 09:01 - 德国身价是巴拉圭6倍<br><br> | ??:https://www.share.kurohicncr.top/Article/details/82147972056.shtml
+- 2026-06-30 09:06 - 张碧晨一开口梦回逐玉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/3705907076.shtml
+- 2026-06-30 09:03 - 男子诋毁袁隆平科研成果被刑拘<br><br> | ??:http://www.blog.minike.top/Article/details/0985361.shtml
+- 2026-06-30 09:12 - 如果有二次元高中是什么样子的？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/451327.shtml
+- 2026-06-30 09:17 - 蜘蛛侠:平行宇宙<br><br> | ??:https://www.share.minike.top/Article/details/1032590335.shtml
+- 2026-06-30 08:54 - 男子在非洲务工死亡 公司不认可工亡<br><br> | ??:https://www.blog.minike.top/Article/details/6603167.shtml
+- 2026-06-30 09:23 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/956424509.shtml
+- 2026-06-30 09:18 - 「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！<br><br> | ??:https://www.share.minike.top/Article/details/20627914.shtml
+- 2026-06-30 09:01 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4836162.shtml
+- 2026-06-30 09:16 - 诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/19918722.shtml
+- 2026-06-30 08:57 - 卖菜老人获博主帮助后遇车祸去世<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/3771640.shtml

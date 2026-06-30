@@ -1,55 +1,56 @@
-# “超碳一号”第二台机组成功并网发电
+# 宁夏：特色产品8小时直抵中东 打造内陆开放新高地
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-记者今天(31日)从中核集团获悉，近日，位于贵州六盘水的超临界二氧化碳余热发电项目——“超碳一号”的第二台机组，成功实现并网发电，标志着全球首个超临界二氧化碳余热发电技术示范工程全面建成。两台机组全部投运后，“超碳一号”将形成30兆瓦稳定装机容量。超临界二氧化碳余热发电就是把工厂排出的高温废热，用超临界状态的二氧化碳循环带动发电机发电，简单来说就是“废热变电”。 据介绍，“超碳
+中新网银川4月17日电 (记者 李佩珊)地处西北内陆、不沿边不靠海的宁夏，通过不断完善立体开放通道，推动特色产品8小时直抵中东及海外市场，加快建设更高水平内陆开放型经济试验区，积极打造中国向西开放重要节点。宁夏回族自治区党委常委、自治区政府常务副主席陈春平17日在宁夏政府新闻办举办的新闻发布会上介绍，宁夏已与170多个国家和地区开展经贸往来，同44个国家建立68对友好城市关系，
 
 ## 正文
 
-记者今天(31日)从中核集团获悉，近日，位于贵州六盘水的超临界二氧化碳余热发电项目——“超碳一号”的第二台机组，成功实现并网发电，标志着全球首个超临界二氧化碳余热发电技术示范工程全面建成。
+中新网银川4月17日电 (记者 李佩珊)地处西北内陆、不沿边不靠海的宁夏，通过不断完善立体开放通道，推动特色产品8小时直抵中东及海外市场，加快建设更高水平内陆开放型经济试验区，积极打造中国向西开放重要节点。
 
-两台机组全部投运后，“超碳一号”将形成30兆瓦稳定装机容量。
+宁夏回族自治区党委常委、自治区政府常务副主席陈春平17日在宁夏政府新闻办举办的新闻发布会上介绍，宁夏已与170多个国家和地区开展经贸往来，同44个国家建立68对友好城市关系，累计吸引外资企业1000余家。
 
-超临界二氧化碳余热发电就是把工厂排出的高温废热，用超临界状态的二氧化碳循环带动发电机发电，简单来说就是“废热变电”。
+宁夏连续举办七届中阿博览会，不断深化同阿拉伯国家及共建“一带一路”国家的交流合作。
 
-据介绍，“超碳一号”全球示范工程第一台机组于2025年12月20日正式投入商业运行，截至目前已稳定运行超5个月，各项性能指标均达到或优于设计标准，核心设备可靠性、系统稳定性经受住了长时间多工况的实战检验。
+“十五五”期间，宁夏将实施全域开放，坚持对内对外开放协同推进。
 
-此次第二台机组顺利并网发电，“超碳一号”工程即将转入正式商业运行。
+陈春平表示，宁夏将深度参与高质量共建“一带一路”，发挥中阿博览会、国际葡萄酒博览会等平台作用，建好用好国际葡萄与葡萄酒宁夏交流合作中心、中国—中亚荒漠化防治合作中心，拓展经贸、投资、产业等领域务实合作。
 
-(总台央视记者 杨潇 吴天白)
+同时，宁夏将加强区域协作，深度参与西电东送、东数西算、东西部科技协同创新，促进内外联动发展。
+
+作为西部陆海新通道重要节点，宁夏开放通道日趋完善。
+
+目前，宁夏高铁网络贯通南北，中欧(亚)班列、南向陆海新通道班列常态化开行，航空与铁路客运量均突破千万人次。
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-30 09:04 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 09:16 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 09:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 08:57 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 08:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 08:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 08:49 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 08:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 09:17 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 08:53 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 09:08 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 09:08 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 09:22 - 本科毕业生为何涌入专科学校<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md
+- 2026-06-30 09:00 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md
+- 2026-06-30 09:00 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md
+- 2026-06-30 09:08 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md
+- 2026-06-30 09:17 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md
+- 2026-06-30 09:20 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md
+- 2026-06-30 09:03 - 4种红薯的满分吃法！有手就会…但能让你大为震撼！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md
+- 2026-06-30 09:07 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md
+- 2026-06-30 09:15 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md
+- 2026-06-30 08:59 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:11 - [女心理师](http://www.share.kurohicncr.top/Article/details/32143335.shtml)
-- 2026-06-30 09:06 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/5161029115.shtml)
-- 2026-06-30 08:56 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/49371559131.shtml)
-- 2026-06-30 08:56 - [韩国道歉完日本道歉](http://www.share.minike.top/Article/details/42610.shtml)
-- 2026-06-30 08:54 - [教育部披露：高考生篡改7名同学志愿](https://www.share.minike.top/Article/details/481733498.shtml)
-- 2026-06-30 09:03 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/97667.shtml)
-- 2026-06-30 08:52 - [名记：灰熊将莫兰特交易至开拓者](http://www.blog.minike.top/Article/details/11334840.shtml)
-- 2026-06-30 08:51 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/44686.shtml)
-- 2026-06-30 09:03 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/5811037.shtml)
-- 2026-06-30 08:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/7139792.shtml)
-- 2026-06-30 08:52 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/491399116881.shtml)
-- 2026-06-30 08:50 - [千香](https://www.blog.kurohicncr.top/Article/details/0470962468.shtml)
-- 2026-06-30 09:07 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/19383.shtml)
-- 2026-06-30 08:56 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/209880120560.shtml)
-- 2026-06-30 08:52 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/16288.shtml)
+- 2026-06-30 09:06 - 如何看待武亮说大学生生活费1500就够用这一言论？<br><br> | ??:http://www.blog.minike.top/Article/details/373801.shtml
+- 2026-06-30 09:20 - 王源近几年没有路演了<br><br> | ??:https://www.share.minike.top/Article/details/552814076978.shtml
+- 2026-06-30 08:58 - 德国巴拉圭 折磨<br><br> | ??:http://www.blog.minike.top/Article/details/78815485.shtml
+- 2026-06-30 09:11 - 三星投资计划<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/47777160.shtml
+- 2026-06-30 09:20 - 好像看到了人类带孩子崩溃的样子<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/66245035533.shtml
+- 2026-06-30 09:10 - 恋与深空<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8512278242.shtml
+- 2026-06-30 09:15 - 木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？<br><br> | ??:http://www.share.minike.top/Article/details/085610.shtml
+- 2026-06-30 08:57 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://www.share.minike.top/Article/details/020629601.shtml
+- 2026-06-30 08:54 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/926788134045.shtml
+- 2026-06-30 09:12 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:http://www.share.minike.top/Article/details/9194450.shtml
+- 2026-06-30 08:59 - 如何改变自己太负责任的性格?<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/00302.shtml
+- 2026-06-30 09:09 - 女子用家人生日买彩票中1032万<br><br> | ??:http://www.share.minike.top/Article/details/1751912.shtml
+- 2026-06-30 09:19 - 巴西若输日本将创36年最差纪录<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1221529629.shtml
+- 2026-06-30 08:55 - 覃予萱晋级WTT美国大满贯女单32强<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0743872.shtml
+- 2026-06-30 08:59 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/46728.shtml

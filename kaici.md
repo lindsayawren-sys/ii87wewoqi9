@@ -1,58 +1,61 @@
-# 【好评中国】公交站点里的开放共赢图景
+# 广西桂林举办首届“粉超” 中外米粉碰撞“新味”
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-在江苏苏州太仓，一趟103路公交车走出了别样风景。托克斯站、通快机床站、克恩里伯斯站……一个个以德企命名的站点依次排布，串起一条名副其实的“流动产业链”。寻常的公交站点，成为当地产业发展最鲜活的注脚，也映照出太仓开放合作、互利共赢的发展图景。公交站点既是城市对外开放的独特名片，也是太仓深耕对外合作、做实产业融合的生动缩影。乘车穿行于这些站点之间，便能“集齐”新能源汽车电驱系统的
+中新社桂林4月17日电 (俞靖 莫伟雯 欧惠兰)“桂林米粉与越南河粉均以鲜汤诱人，这让我想起家乡滋味。”在桂越南籍留学生武氏琼17日受访时说。当日，为期4天的潮动三月三·桂林首届米粉超级联赛(简称“粉超”)在广西桂林开幕。 本届赛事是中国首个以米粉文化为核心的专业赛事与文旅交流盛会，以“粉聚桂林·香飘世界”为主题，汇聚来自中国各地近百支队伍参赛，旨在以粉为媒，搭建助力米粉产业创
 
 ## 正文
 
-在江苏苏州太仓，一趟103路公交车走出了别样风景。
+中新社桂林4月17日电 (俞靖 莫伟雯 欧惠兰)“桂林米粉与越南河粉均以鲜汤诱人，这让我想起家乡滋味。
 
-托克斯站、通快机床站、克恩里伯斯站……一个个以德企命名的站点依次排布，串起一条名副其实的“流动产业链”。
+”在桂越南籍留学生武氏琼17日受访时说。
 
-寻常的公交站点，成为当地产业发展最鲜活的注脚，也映照出太仓开放合作、互利共赢的发展图景。
+当日，为期4天的潮动三月三·桂林首届米粉超级联赛(简称“粉超”)在广西桂林开幕。
 
-公交站点既是城市对外开放的独特名片，也是太仓深耕对外合作、做实产业融合的生动缩影。
+本届赛事是中国首个以米粉文化为核心的专业赛事与文旅交流盛会，以“粉聚桂林·香飘世界”为主题，汇聚来自中国各地近百支队伍参赛，旨在以粉为媒，搭建助力米粉产业创新和推广中国米粉美食文化的重要平台。
 
-乘车穿行于这些站点之间，便能“集齐”新能源汽车电驱系统的核心零部件。
+活动现场展台架起直径三米大锅，熬制卤水制作桂林米粉。
 
-太仓对德合作始于1993年。
+现场香味弥漫，民众争相品尝。
 
-33年间，这里已集聚德企超560家，90%以上早期落户的德企完成了增资扩产，实现了从“一家企业”到“一条马路”再到“一个片区”的发展跃升。
+桂林米粉制作技艺代表性传承人龙付孙表示，当地米粉企业以赛事造势，在广西“三月三”假期展示香料入味、熬汤制粉等步骤，让更多人认识桂林米粉制作技艺，为桂林米粉技艺传承和米粉品牌提升提供了新思路。
 
-目前，太仓已有800多家本土企业与德企建立起深度合作，合作层次从供应链配套升级为创新链融合，合作模式也从单向招引转向双向互动。
+现场一处东盟特色米粉摊位前，越南留学生武氏琼与许美银用中文推广马来西亚叻沙、泰国丸子清汤米粉等东南亚美食。
 
 ## 相关推荐
 
-- 2026-06-30 09:02 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 09:14 - [iPhoneUltra黑色机模](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 09:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 09:15 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 09:06 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-30 09:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 09:05 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 09:04 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 09:18 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 09:02 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 08:57 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 09:07 - [黄晓明晒和周杰伦的合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 09:03 - 大货车掉落螺丝扎进骑手护目镜<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md
+- 2026-06-30 09:12 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md
+- 2026-06-30 09:23 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md
+- 2026-06-30 08:56 - 孙兴慜道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md
+- 2026-06-30 09:11 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md
+- 2026-06-30 09:07 - 我把队友的7连跪剪成了艺术<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md
+- 2026-06-30 09:13 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md
+- 2026-06-30 09:03 - 国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md
+- 2026-06-30 09:20 - 张雪的一句“是我们”引发岛内热议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md
+- 2026-06-30 09:22 - 我觉得你是在无中生友<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md
+- 2026-06-30 09:03 - 女子发现孩子非现任亲生状告前任索赔<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md
+- 2026-06-30 08:54 - 齐思钧回复张月<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md
+- 2026-06-30 09:12 - 宜宾地震食客避难后折返 无人逃单<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md
+- 2026-06-30 08:55 - 日耳曼拖拉机<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md
+- 2026-06-30 09:22 - iPhone18e曝光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:10 - [日本进球](http://www.share.minike.top/Article/details/183618.shtml)
-- 2026-06-30 09:07 - [黄晓明夸昆凌引杨颖对比](https://www.blog.minike.top/Article/details/379985872.shtml)
-- 2026-06-30 09:04 - [韩国世界杯出局是主帅一个人的锅吗](https://www.blog.minike.top/Article/details/3002254993.shtml)
-- 2026-06-30 09:01 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/33647742569.shtml)
-- 2026-06-30 08:54 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/068864161032.shtml)
-- 2026-06-30 08:54 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/46394052.shtml)
-- 2026-06-30 08:55 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/273952488.shtml)
-- 2026-06-30 09:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/8716406812.shtml)
-- 2026-06-30 09:14 - [斛珠夫人](https://www.blog.minike.top/Article/details/665137066.shtml)
-- 2026-06-30 08:48 - [球评巴西绝杀逆转日本](http://www.blog.kurohicncr.top/Article/details/1163785.shtml)
-- 2026-06-30 08:56 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/1292970.shtml)
-- 2026-06-30 09:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/875613.shtml)
-- 2026-06-30 09:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/13536423381.shtml)
-- 2026-06-30 09:11 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/835359494.shtml)
-- 2026-06-30 08:56 - [郑钦文温网三连败西尼亚科娃](http://www.share.kurohicncr.top/Article/details/4720229.shtml)
+- 2026-06-30 08:59 - 日本反击率先破门<br><br> | ??:https://www.blog.minike.top/Article/details/637616958.shtml
+- 2026-06-30 09:09 - 湖北云南的这些涉汛信息都是假的<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8891852778.shtml
+- 2026-06-30 09:18 - 高考结束，该不该外出打工体验？<br><br> | ??:https://www.share.minike.top/Article/details/188237.shtml
+- 2026-06-30 09:05 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:http://www.share.minike.top/Article/details/4513516276.shtml
+- 2026-06-30 09:00 - 扫黑风暴<br><br> | ??:https://www.blog.minike.top/Article/details/4693822696.shtml
+- 2026-06-30 09:00 - 4000美元是黄金新一轮下跌的开始吗<br><br> | ??:http://www.share.kurohicncr.top/Article/details/150142389684.shtml
+- 2026-06-30 09:08 - 日本球迷被强行披上巴西国旗<br><br> | ??:https://www.blog.minike.top/Article/details/1024899.shtml
+- 2026-06-30 09:06 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8233223.shtml
+- 2026-06-30 09:21 - 世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/137798236.shtml
+- 2026-06-30 09:19 - 点球大战和诺伊尔都救不回德国队<br><br> | ??:http://www.share.kurohicncr.top/Article/details/53961769.shtml
+- 2026-06-30 09:13 - 不开心就去看三年前的购物订单<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/917973244932.shtml
+- 2026-06-30 09:11 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/9882875990.shtml
+- 2026-06-30 09:11 - 扬名立万<br><br> | ??:http://www.share.kurohicncr.top/Article/details/28847095.shtml
+- 2026-06-30 09:23 - 为什么小组赛出局会让韩国人破防<br><br> | ??:http://www.blog.minike.top/Article/details/27461615.shtml
+- 2026-06-30 09:13 - 王源近几年没有路演了<br><br> | ??:http://www.share.kurohicncr.top/Article/details/952054758.shtml

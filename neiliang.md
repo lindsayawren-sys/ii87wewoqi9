@@ -1,61 +1,61 @@
-# CD Projekt Q1净利润1.06亿兹罗提 《巫师3》销量突破6500万
+# 中国人形机器人打破人类半马纪录
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-波兰游戏开发商CD Projekt集团公布了2026年第一季度财务业绩。在《赛博朋克2077》和《巫师3》强劲销售的推动下，公司营收实现同比增长，净利润超出市场预期。 财报显示，集团第一季度营收达1.911亿兹罗提，约合596万美元，同比增长6%。销售成本后毛利润为1.77亿兹罗提，销售及行政费用为8100万兹罗提。营业利润为9710万兹罗提，同比增长3.2%。净利润为1.06
+中新社北京4月19日电 (记者 陈杭 徐婧)2026北京亦庄半程马拉松暨人形机器人半程马拉松19日举行，齐天大圣队“闪电”机器人夺冠并打破人类半程马拉松记录。 本届赛事吸引超百支人形机器人赛队与1.2万人共同参赛。“闪电”以50分26秒净用时成绩跑完21.0975公里，打破目前57分20秒的人类半马世界纪录。 该赛事以科创十七街为起点、南海子公园南门为终点，参赛数量、参与范围、
 
 ## 正文
 
-波兰游戏开发商CD Projekt集团公布了2026年第一季度财务业绩。
+中新社北京4月19日电 (记者 陈杭 徐婧)2026北京亦庄半程马拉松暨人形机器人半程马拉松19日举行，齐天大圣队“闪电”机器人夺冠并打破人类半程马拉松记录。
 
-在《赛博朋克2077》和《巫师3》强劲销售的推动下，公司营收实现同比增长，净利润超出市场预期。
+本届赛事吸引超百支人形机器人赛队与1.2万人共同参赛。
 
-财报显示，集团第一季度营收达1.911亿兹罗提，约合596万美元，同比增长6%。
+“闪电”以50分26秒净用时成绩跑完21.0975公里，打破目前57分20秒的人类半马世界纪录。
 
-销售成本后毛利润为1.77亿兹罗提，销售及行政费用为8100万兹罗提。
+该赛事以科创十七街为起点、南海子公园南门为终点，参赛数量、参与范围、技术类型均创历史新高。
 
-营业利润为9710万兹罗提，同比增长3.2%。
+北京经济技术开发区机器人和智能制造产业局局长蔡继征表示，今年赛道更加复杂多样，融合平地、坡道、弯道、狭窄路段等10余种地形，包含接近90度的弯道。
 
-净利润为1.062亿兹罗提，约合净亏损0.02美元每股，超出市场预期的9490万兹罗提，净利润率达56%。
+今年机器人进步速度令人惊叹，大量参赛队伍的成绩超过去年冠军水平。
 
-不过与去年同期相比，净利润下降约4.5%。
+来自齐天大圣队的荣耀公司测试开发工程师杜晓迪说，参考人类优秀运动员身材，“闪电”设计之初便拥有一双“大长腿”，具备强大的液冷系统，助力行进途中散热。
 
-公司首席财务官Piotr Nielubowicz表示，第一季度实现稳健营收主要得益于《赛博朋克2077》和《巫师3》的强劲销售，以及两款游戏加入Xbox Game Pass Premium和Ultimate订阅服务目录。
+本届赛事分为自主导航组与遥控操作组，混合计时、统一排名。
 
 ## 相关推荐
 
-- 2026-06-30 09:03 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 08:57 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 08:55 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 09:16 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 08:52 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 08:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 09:13 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 09:05 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 08:58 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 08:48 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 08:59 - [日本主帅赛后回应淘汰出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 08:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 09:01 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 09:06 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 09:09 - [马宁怒怼巴拉圭教练组](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 09:10 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md
+- 2026-06-30 09:11 - 王濛回复黄灿灿<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md
+- 2026-06-30 09:07 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md
+- 2026-06-30 08:59 - 庆祝中国共产党成立105周年大会将举行<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md
+- 2026-06-30 09:08 - 男生180+，有腹肌是什么体验？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md
+- 2026-06-30 09:07 - 安切洛蒂 换人<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md
+- 2026-06-30 09:09 - 沙丘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md
+- 2026-06-30 09:04 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md
+- 2026-06-30 08:57 - 【大鸣王潮1566】真拿你没办法<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md
+- 2026-06-30 09:21 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md
+- 2026-06-30 09:11 - 【硬核拆解】汽车人到底离我们有多远？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md
+- 2026-06-30 08:57 - 领克900大型SUV值得购买吗?<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md
+- 2026-06-30 09:14 - 天道<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md
+- 2026-06-30 09:01 - 【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md
+- 2026-06-30 09:09 - 欧洲民众抢购空调降温<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - [电影抓特务上映11天破亿](http://www.share.minike.top/Article/details/960445548.shtml)
-- 2026-06-30 09:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/94303009122.shtml)
-- 2026-06-30 08:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/8090429966.shtml)
-- 2026-06-30 09:06 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/316617.shtml)
-- 2026-06-30 09:14 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/3931487.shtml)
-- 2026-06-30 09:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/8184360154.shtml)
-- 2026-06-30 08:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/8851033.shtml)
-- 2026-06-30 09:14 - [电影抓特务上映11天破亿](http://www.share.minike.top/Article/details/04782833791.shtml)
-- 2026-06-30 09:09 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/549868.shtml)
-- 2026-06-30 09:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/888511810958.shtml)
-- 2026-06-30 09:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/04107939355.shtml)
-- 2026-06-30 08:54 - [世界杯名画巴拉圭钢铁防线](https://www.blog.minike.top/Article/details/567616517508.shtml)
-- 2026-06-30 09:11 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/9651856979.shtml)
-- 2026-06-30 08:55 - [索马里女大使：想和中国一起搞事业](https://www.blog.minike.top/Article/details/9850768.shtml)
-- 2026-06-30 09:03 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/4917968.shtml)
+- 2026-06-30 08:59 - 有哪些值得一提的生活窍门？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/1115403.shtml
+- 2026-06-30 09:10 - 吴易昺不敌德约科维奇 止步温网首轮<br><br> | ??:https://www.share.minike.top/Article/details/416988.shtml
+- 2026-06-30 08:56 - 电子游戏中有哪些关于武器的“刻板印象”？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/72663726.shtml
+- 2026-06-30 09:06 - 郑钦文温网首轮出局<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/34496654.shtml
+- 2026-06-30 09:14 - 《赛博朋克：边缘行者 2》｜官方预告片<br><br> | ??:https://www.share.minike.top/Article/details/083293.shtml
+- 2026-06-30 09:11 - 名记：灰熊将莫兰特交易至开拓者<br><br> | ??:http://www.share.kurohicncr.top/Article/details/1448052.shtml
+- 2026-06-30 09:15 - 终于把好哥们处成了情侣!<br><br> | ??:https://www.blog.minike.top/Article/details/85721799.shtml
+- 2026-06-30 08:55 - 爱很美味<br><br> | ??:https://www.share.kurohicncr.top/Article/details/888509229460.shtml
+- 2026-06-30 08:55 - 明星大侦探第四季<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/027174120.shtml
+- 2026-06-30 09:00 - 已经看完《三国第一部：争洛阳》的人，如何评价这部电影？<br><br> | ??:http://www.share.minike.top/Article/details/3458336710.shtml
+- 2026-06-30 09:04 - 警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/371279290193.shtml
+- 2026-06-30 08:54 - 啊啊啊<br><br> | ??:https://www.share.minike.top/Article/details/5919924.shtml
+- 2026-06-30 09:06 - 董卿父亲在报纸上发文悼念亡妻<br><br> | ??:http://www.blog.minike.top/Article/details/419031.shtml
+- 2026-06-30 08:56 - 女子遭家暴逃跑致丈夫身亡二审细节<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/50378716.shtml
+- 2026-06-30 09:12 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/86197762320.shtml

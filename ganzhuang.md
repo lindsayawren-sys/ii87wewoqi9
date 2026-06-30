@@ -1,58 +1,56 @@
-# 国家统计局：5月PMI为50.0%，比上月下降0.3个百分点
+# 学者指台经济陷“被动式掏空” 吁突破人为限制深化两岸合作
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-国家统计局服务业调查中心 中国物流与采购联合会 一、中国制造业采购经理指数运行情况 5月份，制造业采购经理指数（PMI）为50.0%，比上月下降0.3个百分点，位于临界点。 从企业规模看，大型企业PMI为51.1%，比上月上升0.9个百分点，高于临界点；中、小型企业PMI分别为48.6%和48.5%，比上月下降1.9个和1.6个百分点，均低于临界点。 从分类指数看，构成制造业P
+中新社北京4月18日电 (朱贺 黄欣欣 李百加)在17日至18日于北京举行的第七届台胞社团论坛上，大陆学者盛九元指出，台湾经济正面临“被动式投资”和“挖角式人才流失”的困境，被外界形容为“被动式掏空”。他呼吁突破人为限制，深化两岸合作。台积电日前宣布在美国、日本扩建3纳米新厂，相关动向受到参加论坛的海内外台胞关注。上海交通大学国际与公共事务学院长聘教授、台湾研究中心主任盛九元发
 
 ## 正文
 
-国家统计局服务业调查中心 中国物流与采购联合会 一、中国制造业采购经理指数运行情况 5月份，制造业采购经理指数（PMI）为50.0%，比上月下降0.3个百分点，位于临界点。
+中新社北京4月18日电 (朱贺 黄欣欣 李百加)在17日至18日于北京举行的第七届台胞社团论坛上，大陆学者盛九元指出，台湾经济正面临“被动式投资”和“挖角式人才流失”的困境，被外界形容为“被动式掏空”。
 
-从企业规模看，大型企业PMI为51.1%，比上月上升0.9个百分点，高于临界点；中、小型企业PMI分别为48.6%和48.5%，比上月下降1.9个和1.6个百分点，均低于临界点。
+他呼吁突破人为限制，深化两岸合作。
 
-从分类指数看，构成制造业PMI的5个分类指数中，生产指数高于临界点，新订单指数、原材料库存指数、从业人员指数和供应商配送时间指数均低于临界点。
+台积电日前宣布在美国、日本扩建3纳米新厂，相关动向受到参加论坛的海内外台胞关注。
 
-生产指数为51.2%，比上月下降0.3个百分点，仍高于临界点，表明制造业生产活动保持扩张。
+上海交通大学国际与公共事务学院长聘教授、台湾研究中心主任盛九元发言表示，美国通过技术限制、定向采购等非市场手段，推动台湾高端产业资源外移，导致两岸在半导体等关键领域的合作空间受到严重挤压。
 
-新订单指数为49.9%，比上月下降0.7个百分点，表明制造业市场需求景气水平有所回落。
+这种转移并非基于经济规律的正常流动，实质上是台湾优质产业资源被掏空的过程。
 
-原材料库存指数为48.6%，比上月下降0.7个百分点，表明制造业主要原材料库存量下降。
+盛九元进一步指，人工智能和半导体芯片本是两岸互补最显著的领域，却受外部干预最为明显。
 
-从业人员指数为48.6%，比上月下降0.2个百分点，表明制造业企业用工景气水平有所回落。
+当前两岸经贸面临的最大障碍，是人为设置的政治藩篱限制了人才、技术的正常交流。
 
-供应商配送时间指数为49.2%，比上月下降0.3个百分点，表明制造业原材料供应商交货时间较上月继续延长。
+台湾必须作出选择，是共同壮大中华民族经济、获得广阔空间，还是沦为欧美“棋子”、丧失自主发展，答案不言自明。
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 09:16 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 08:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 09:06 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 09:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 08:48 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 09:14 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 09:16 - [妻子撞死家暴丈夫案二审案情反转](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 09:09 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 09:04 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-30 09:02 - [内马尔未登场 安切洛蒂赛后回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 09:07 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 08:55 - 全球芯片巨头史诗级扩产<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md
+- 2026-06-30 08:58 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md
+- 2026-06-30 08:57 - 如何改变自己太负责任的性格?<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md
+- 2026-06-30 09:02 - 男子造谣东鹏老板不喝自家饮料被拘<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md
+- 2026-06-30 09:12 - “荒唐”背后的韩国足球<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md
+- 2026-06-30 08:58 - 这一刀 会很帅<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md
+- 2026-06-30 09:05 - 莫兰特被交易到开拓者<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md
+- 2026-06-30 09:18 - 酒店推行“24小时退房”引热议<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md
+- 2026-06-30 09:20 - 追梦拒绝2770万美元球员选项<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md
+- 2026-06-30 09:23 - 马杜罗账号在纽约发文致谢各国援助<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:09 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.minike.top/Article/details/79309806.shtml)
-- 2026-06-30 08:59 - [郑钦文温网一轮游](https://www.blog.minike.top/Article/details/82292.shtml)
-- 2026-06-30 09:07 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/18415063.shtml)
-- 2026-06-30 08:51 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/3116749.shtml)
-- 2026-06-30 09:09 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/5080617333.shtml)
-- 2026-06-30 09:10 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/7198743014.shtml)
-- 2026-06-30 08:59 - [日本主帅：未能夺冠深感抱歉](https://www.share.kurohicncr.top/Article/details/366764598161.shtml)
-- 2026-06-30 08:53 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/154428.shtml)
-- 2026-06-30 09:02 - [扬名立万](https://www.share.minike.top/Article/details/4800678.shtml)
-- 2026-06-30 09:06 - [日本球员说被绝杀非常不甘心](https://www.blog.minike.top/Article/details/38012.shtml)
-- 2026-06-30 09:12 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/482130207148.shtml)
-- 2026-06-30 08:50 - [千与千寻](http://www.blog.minike.top/Article/details/057461382.shtml)
-- 2026-06-30 09:12 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/84104.shtml)
-- 2026-06-30 08:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/348423.shtml)
-- 2026-06-30 08:50 - [巴西vs日本](http://www.share.minike.top/Article/details/95550116346.shtml)
+- 2026-06-30 09:05 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:http://www.share.minike.top/Article/details/995506659.shtml
+- 2026-06-30 09:08 - 《名肘探科比》：科比大战裂口女<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/08832747.shtml
+- 2026-06-30 09:08 - “荒唐”背后的韩国足球<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6648242312.shtml
+- 2026-06-30 09:00 - 杨紫大银幕成绩单如何<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/0933719.shtml
+- 2026-06-30 09:08 - 有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？<br><br> | ??:http://www.blog.minike.top/Article/details/6568039.shtml
+- 2026-06-30 09:15 - 当我知道豆包有后台审核人员<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/57477.shtml
+- 2026-06-30 09:00 - 又一家县级医院关停门诊输液大厅<br><br> | ??:https://www.blog.minike.top/Article/details/82530.shtml
+- 2026-06-30 08:57 - 急先锋<br><br> | ??:http://www.share.kurohicncr.top/Article/details/196307316680.shtml
+- 2026-06-30 09:01 - 起风了<br><br> | ??:https://www.share.minike.top/Article/details/5298376.shtml
+- 2026-06-30 09:00 - 科学备孕男女都要上心<br><br> | ??:https://www.share.minike.top/Article/details/994324441451.shtml
+- 2026-06-30 09:21 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:http://www.blog.minike.top/Article/details/20163462.shtml
+- 2026-06-30 09:20 - F1奥地利站赛后复盘<br><br> | ??:http://www.share.kurohicncr.top/Article/details/000234.shtml
+- 2026-06-30 09:23 - 爆冷出局！德国点球大战不敌巴拉圭<br><br> | ??:https://www.share.kurohicncr.top/Article/details/17164.shtml
+- 2026-06-30 09:04 - 千香<br><br> | ??:https://www.blog.minike.top/Article/details/06034291732.shtml
+- 2026-06-30 09:18 - 卡塞米罗头球破门<br><br> | ??:https://www.share.minike.top/Article/details/500982.shtml

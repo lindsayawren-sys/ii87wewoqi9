@@ -1,60 +1,56 @@
-# 2026年西藏自治区“六一”少儿文艺晚会在拉萨市举行
+# 新大众文艺的“在场”力量特别节目·海南篇完成录制
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网拉萨5月31日电(拉巴卓玛)5月30日晚，“童心筑梦十五五·雪域欢歌庆六一”2026年西藏自治区“六一”少儿文艺晚会在拉萨市群众文化体育中心举行。来自西藏自治区的少年儿童代表、少先队辅导员代表和优秀青年代表等1000余人现场观看演出。 此次晚会以铸牢中华民族共同体意识为主线，分“童心筑梦新征程”“籽籽连心民族情”“薪火相传守家园”“心向未来谱新篇”四个篇章，集中展现爱国主
+中新网海口4月17日电 由中国文联、海南省委宣传部指导，海南省文联主办的“你好，45432——新大众文艺的‘在场’力量特别节目·海南篇”日前在海口完成录制。 节目以“我们在场”为核心主题，紧扣海南“十五五”规划中“45432”的发展框架，采用“短视频+文艺家讲述+文艺节目”的呈现形式，深度聚焦旅游业、现代服务业、高新技术产业、热带特色高效农业四大主导产业，紧扣“向种、向海、向天
 
 ## 正文
 
-中新网拉萨5月31日电(拉巴卓玛)5月30日晚，“童心筑梦十五五·雪域欢歌庆六一”2026年西藏自治区“六一”少儿文艺晚会在拉萨市群众文化体育中心举行。
+中新网海口4月17日电 由中国文联、海南省委宣传部指导，海南省文联主办的“你好，45432——新大众文艺的‘在场’力量特别节目·海南篇”日前在海口完成录制。
 
-来自西藏自治区的少年儿童代表、少先队辅导员代表和优秀青年代表等1000余人现场观看演出。
+节目以“我们在场”为核心主题，紧扣海南“十五五”规划中“45432”的发展框架，采用“短视频+文艺家讲述+文艺节目”的呈现形式，深度聚焦旅游业、现代服务业、高新技术产业、热带特色高效农业四大主导产业，紧扣“向种、向海、向天、向绿、向数”五向图强发展路径，以及四大未来产业、三篇消费文章、人才荟萃之岛和技术创新之岛等核心领域，精选18个典型人物与场景故事，将互联网上群众自发创作、全网热传的鲜活短视频，与专业文艺表达有机融合，以小场景折射大时代变迁，用小故事传递大时代情怀，让自贸港建设的生动实践通过文艺载体可感可触。
 
-此次晚会以铸牢中华民族共同体意识为主线，分“童心筑梦新征程”“籽籽连心民族情”“薪火相传守家园”“心向未来谱新篇”四个篇章，集中展现爱国主义、民族团结、国防教育、非遗传承和灾后重建暖心故事等内容。
+丁柳元、刘劲、汤子星、王天歌、高晓晓等旅琼文艺家、文艺工作者依次登台，结合《从海南打出租直奔哈尔滨，有师傅敢接单吗？
 
-开场舞《雪域童心庆开局》融合潮流、体育和科技元素，展现新时代西藏少年儿童自信开朗的精神面貌。
+》《海底10909米，中国“奋斗者”号来了》等全网热传的短视频佳作，展开讲述、传递时代温度。
 
-曾受地震影响的日喀则市定日县盆吉乡小学的学生带来千年非遗甲谐舞，山南市贡嘎县杰德秀镇小学表演丰收舞，讲述了震后重建家园、幸福安居的故事。
+讲述中，一个个平凡而伟大的自贸港建设者形象鲜活呈现：从跨越4000公里传递温暖的出租车司机罗师傅，到扎根深海、为“奋斗者”号万米探海保驾护航的高级技师周皓；从我国首个商业航天发射场的开拓者杨天梁，到攻克脑机接口芯片难题的海南大学殷明团队；从扎根博鳌乐城、助力耳蜗宝宝重获新声的张劲医生，到在一片荒地上建起中外合作办学机构的奥运冠军李娜，文艺家们以真挚的情感、生动的表达，定格百姓生活的烟火气，致敬每一位奋斗者的平凡与伟大。
 
-京藏少年通过云端结对互动、共话成长。
-
-拉萨市实验小学一年级学生扎西顿珠表示，定日县小伙伴带来的非遗舞蹈、戍边叔叔的故事和京藏少年的友谊，让他感受到民族团结的温暖，更懂得幸福生活来之不易。
-
-指导老师卓玛说，这场晚会是最好的“六一”礼物，也是最生动的思政课。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 08:51 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 08:55 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 08:59 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 09:08 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 09:01 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 09:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 09:08 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 09:06 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 09:16 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 09:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 09:06 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 09:11 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 08:54 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 08:56 - 亚洲球队全部出局<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md
+- 2026-06-30 09:04 - 深扒韩国队淘汰背后原因<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md
+- 2026-06-30 09:03 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md
+- 2026-06-30 08:59 - 德国爆冷点球大战不敌巴拉圭<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md
+- 2026-06-30 09:20 - 如何评价《龙之家族》第三季第二集？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md
+- 2026-06-30 09:15 - 人民锐评：网红不能困在无底线逐利里<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md
+- 2026-06-30 09:02 - 哈弗茨头球破门<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md
+- 2026-06-30 09:00 - 致敬！中国首批缉毒警已全体退休<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md
+- 2026-06-30 09:21 - 马宁怒怼巴拉圭教练组<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md
+- 2026-06-30 09:04 - 美团、淘宝闪购、京东外卖达成共识<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md
+- 2026-06-30 09:21 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md
+- 2026-06-30 09:15 - 亚洲球队全部告别世界杯<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md
+- 2026-06-30 09:06 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md
+- 2026-06-30 09:09 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/2665278.shtml)
-- 2026-06-30 09:15 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/3835836237.shtml)
-- 2026-06-30 09:17 - [一见倾心](https://www.share.kurohicncr.top/Article/details/644202388.shtml)
-- 2026-06-30 08:57 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/409864003149.shtml)
-- 2026-06-30 08:49 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/571603.shtml)
-- 2026-06-30 08:58 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/2604354237.shtml)
-- 2026-06-30 09:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/43565670.shtml)
-- 2026-06-30 09:07 - [马宁怒怼巴拉圭教练组](https://www.blog.kurohicncr.top/Article/details/5436407.shtml)
-- 2026-06-30 09:16 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/21826096950.shtml)
-- 2026-06-30 09:10 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/54809916723.shtml)
-- 2026-06-30 08:58 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/148332.shtml)
-- 2026-06-30 09:01 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/313298409.shtml)
-- 2026-06-30 08:56 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/7306374231.shtml)
-- 2026-06-30 09:02 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/59242.shtml)
-- 2026-06-30 09:15 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/0510435042.shtml)
+- 2026-06-30 09:09 - 孙兴慜道歉<br><br> | ??:http://www.share.kurohicncr.top/Article/details/66702827933.shtml
+- 2026-06-30 09:04 - 急先锋<br><br> | ??:https://www.blog.minike.top/Article/details/13552208.shtml
+- 2026-06-30 09:00 - 【Reaction】女生最少的5款游戏<br><br> | ??:https://www.share.kurohicncr.top/Article/details/2071732946.shtml
+- 2026-06-30 09:07 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://www.share.minike.top/Article/details/70766.shtml
+- 2026-06-30 09:05 - 蜘蛛侠:英雄归来<br><br> | ??:http://www.blog.minike.top/Article/details/85646.shtml
+- 2026-06-30 08:56 - 欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？<br><br> | ??:https://www.share.minike.top/Article/details/73134.shtml
+- 2026-06-30 09:11 - 终于把好哥们处成了情侣!<br><br> | ??:http://www.share.minike.top/Article/details/440569503.shtml
+- 2026-06-30 09:07 - 欧盟分楼层开空调惹争议<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/19913.shtml
+- 2026-06-30 09:12 - 法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？<br><br> | ??:https://www.blog.minike.top/Article/details/87338365.shtml
+- 2026-06-30 08:57 - 巴西2比1日本<br><br> | ??:http://www.share.minike.top/Article/details/1573582144.shtml
+- 2026-06-30 09:14 - 点球大战<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/273101953.shtml
+- 2026-06-30 08:54 - 如何评价杨紫白玉兰获奖<br><br> | ??:https://www.share.kurohicncr.top/Article/details/56687372.shtml
+- 2026-06-30 09:00 - 本届世界杯已有5名球员被控强奸<br><br> | ??:https://www.share.minike.top/Article/details/40758.shtml
+- 2026-06-30 09:09 - 沉睡花园<br><br> | ??:https://www.share.minike.top/Article/details/27499334140.shtml
+- 2026-06-30 09:13 - 外国游客开始涌入中国农村<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/35014.shtml

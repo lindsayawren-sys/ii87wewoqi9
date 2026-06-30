@@ -1,55 +1,60 @@
-# 河北立法促商贸物流发展 助力京津冀协同
+# 阿尔斯通发布盈利预警 股价大跌26%
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新社石家庄5月29日电 (记者 陈林)河北省人民政府新闻办公室29日召开新闻发布会通报，该省第十四届人大常委会第二十一次会议日前表决通过《河北省现代商贸物流发展促进条例》(以下简称条例)，将于7月1日起施行。《京津冀协同发展规划纲要》中，明确河北省“三区一基地”的功能定位，其中“一基地”就是全国现代商贸物流重要基地。条例的出台将为推动商贸物流业高质量发展、加快河北建设全国现代
+专题：聚焦美股2026年第一季度财报 首席执行官马丁・西翁表示公司将立即采取行动稳定业绩 法国列车制造商阿尔斯通于周五发布盈利预警并撤销中期业绩预测，公司股价随即暴跌。 欧洲早盘交易中，阿尔斯通股价大跌26%，报每股 16.98 欧元，或将创下 2023 年 10 月以来最大单日跌幅。 该公司于周四晚间宣布，撤销此前设定的三年累计自由现金流 15 亿欧元（合 17.7 亿美元）
 
 ## 正文
 
-中新社石家庄5月29日电 (记者 陈林)河北省人民政府新闻办公室29日召开新闻发布会通报，该省第十四届人大常委会第二十一次会议日前表决通过《河北省现代商贸物流发展促进条例》(以下简称条例)，将于7月1日起施行。
+专题：聚焦美股2026年第一季度财报 首席执行官马丁・西翁表示公司将立即采取行动稳定业绩 法国列车制造商阿尔斯通于周五发布盈利预警并撤销中期业绩预测，公司股价随即暴跌。
 
-《京津冀协同发展规划纲要》中，明确河北省“三区一基地”的功能定位，其中“一基地”就是全国现代商贸物流重要基地。
+欧洲早盘交易中，阿尔斯通股价大跌26%，报每股 16.98 欧元，或将创下 2023 年 10 月以来最大单日跌幅。
 
-条例的出台将为推动商贸物流业高质量发展、加快河北建设全国现代商贸物流重要基地、助力京津冀协同发展战略深入实施，提供重要的法治保障。
+该公司于周四晚间宣布，撤销此前设定的三年累计自由现金流 15 亿欧元（合 17.7 亿美元）的指引，同时取消截至 2027 财年调整后息税前利润率 8% 至 10% 的目标。
 
-条例规定，河北要加强与京津以及其他省份现代商贸物流衔接协作，推动重大基础设施共建共用，协同构建服务网络。
+在此之前，公司曾发布本财年初步展望，目前预计有机销售额增长约 5%，调整后息税前利润率约 6.5%，且实现自由现金流为正。
 
-一是在陆运、海运、空运通道方面，强化与京津及其他周边省份高速公路对接，支持共建环渤海世界级港口群，推动建设京津冀世界级机场群；二是应急物流方面，协调完善京津冀跨区域储备调运制度和应急物流统一调度信息平台；三是深化京津冀商贸物流领域标准化合作，拓展区域协同地方标准范围；四是在通行通关方面，推动建立京津冀三地互认的鲜活农产品运输绿色通道查验规则，加强京津冀国际贸易“单一窗口”互联互通，建设京津冀协同服务专区。
+首席执行官马丁・西翁表示，在截至 3 月 31 日的财年中，公司盈利能力未达预期。
 
-条例规定，在对外贸易方面，河北将推动建设内外贸一体化综合服务平台、海外综合服务站，为“冀商出海、冀货出海”提供服务。
+他补充称，部分大型轨道交通车辆项目进度慢于预期，将对短期利润率和现金流构成压力。
 
-(完)
+2026 财年，集团调整后息税前利润率为 6%，低于上一财年的 6.4%；自由现金流从 5.02 亿欧元降至 3.3 亿欧元。
+
+本财年新增订单有机增长 42%，达 276 亿欧元；销售额有机增长 7%，达 192 亿欧元。
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 09:09 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 09:05 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 08:53 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 09:04 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 09:05 - [刘宇宁高情商化解谁站C位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 08:59 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 08:55 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 09:04 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 09:01 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 08:51 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 09:01 - 网友写差评被店家“挂”门口避雷<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md
+- 2026-06-30 09:00 - 杨某诋毁袁隆平院士科研成果被刑拘<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md
+- 2026-06-30 09:03 - 德国进球被吹<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md
+- 2026-06-30 09:07 - 毕业以后，你最怀念的大学记忆是什么？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md
+- 2026-06-30 09:03 - 天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md
+- 2026-06-30 09:15 - 青春环游记第三季<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md
+- 2026-06-30 09:11 - 网瘾賊大的阿嬷<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md
+- 2026-06-30 09:12 - 《我落泪情绪零碎》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md
+- 2026-06-30 08:59 - 教育部披露：高考生篡改7名同学志愿<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md
+- 2026-06-30 09:13 - 韩国球迷凌晨4点接机怒骂主教练<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md
+- 2026-06-30 09:07 - 《虎吹最难绷の一集》<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md
+- 2026-06-30 09:16 - 失明的我带老妈去了趟“火星”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md
+- 2026-06-30 09:19 - 日本主帅：未能夺冠深感抱歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md
+- 2026-06-30 09:07 - 热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:03 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/519282607863.shtml)
-- 2026-06-30 09:03 - [天道](https://www.share.minike.top/Article/details/800425.shtml)
-- 2026-06-30 09:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/154971639050.shtml)
-- 2026-06-30 08:49 - [亚洲球队全部出局](http://www.share.minike.top/Article/details/717875.shtml)
-- 2026-06-30 09:17 - [4000美元是黄金新一轮下跌的开始吗](http://www.blog.kurohicncr.top/Article/details/90463561.shtml)
-- 2026-06-30 09:17 - [内马尔未登场 安切洛蒂赛后回应](http://www.share.minike.top/Article/details/91984100766.shtml)
-- 2026-06-30 09:05 - [女心理师](https://www.share.kurohicncr.top/Article/details/242778467.shtml)
-- 2026-06-30 09:01 - [德国身价是巴拉圭6倍](https://www.share.minike.top/Article/details/588653.shtml)
-- 2026-06-30 08:48 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/9295100.shtml)
-- 2026-06-30 08:53 - [日本主帅赛后回应淘汰出局](http://www.share.kurohicncr.top/Article/details/13864487.shtml)
-- 2026-06-30 09:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/6745120.shtml)
-- 2026-06-30 09:04 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/44155.shtml)
-- 2026-06-30 08:52 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/59917820.shtml)
-- 2026-06-30 08:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/157507358116.shtml)
-- 2026-06-30 08:51 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/31934778211.shtml)
+- 2026-06-30 09:09 - 郑钦文温网首轮出局<br><br> | ??:https://www.share.minike.top/Article/details/920918809.shtml
+- 2026-06-30 08:59 - 披荆斩棘的哥哥<br><br> | ??:http://www.blog.minike.top/Article/details/1746165.shtml
+- 2026-06-30 09:14 - 我吃遍了西安最強的街頭小吃，第九家強得離譜！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/43177712481.shtml
+- 2026-06-30 09:14 - 亚洲球队全部告别世界杯<br><br> | ??:http://www.share.minike.top/Article/details/971459429536.shtml
+- 2026-06-30 09:13 - 女子健身不当 居然“脑子漏水”了<br><br> | ??:https://www.blog.minike.top/Article/details/99350049165.shtml
+- 2026-06-30 08:58 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:http://www.share.minike.top/Article/details/364434.shtml
+- 2026-06-30 08:57 - 斗破苍穹<br><br> | ??:http://www.share.minike.top/Article/details/8675395.shtml
+- 2026-06-30 09:12 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://www.blog.minike.top/Article/details/88967.shtml
+- 2026-06-30 09:08 - 乔家的儿女<br><br> | ??:https://www.share.minike.top/Article/details/98764968.shtml
+- 2026-06-30 09:00 - 未来的飞机可能会用电吗？<br><br> | ??:https://www.blog.minike.top/Article/details/5602571.shtml
+- 2026-06-30 09:02 - 我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎<br><br> | ??:http://www.blog.minike.top/Article/details/0805995.shtml
+- 2026-06-30 09:02 - 可以细成这样？1600万预算，颠覆我认知的改造！<br><br> | ??:https://www.share.kurohicncr.top/Article/details/88632762603.shtml
+- 2026-06-30 09:04 - 把毒品藏在哪里，60秒内不会被发现？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/428988.shtml
+- 2026-06-30 09:17 - 欧洲装一台空调有多难<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/469397840298.shtml
+- 2026-06-30 09:18 - 逃狱兄弟<br><br> | ??:https://www.blog.minike.top/Article/details/30025296069.shtml

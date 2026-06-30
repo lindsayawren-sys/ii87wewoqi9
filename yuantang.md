@@ -1,51 +1,45 @@
-# “神州北极”漠河站“换骨手术”让旅客出行更舒适
+# 古兜控股公布授出购股权
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月29日电 (张宝玉)5月29日12时55分，在中国最北铁路客运站——漠河站的站场内，随着最后一处道岔调试、道床清筛作业全部完成，我国最北铁路客运站关键硬件“换新升级”圆满收官。 “夏至”节临近，素有“神州北极”之称的漠河将迎来避暑旅游热，旅客列车由日均3对增至6对，游客日均达1500人次，由于原有道岔承载力较弱，列车通行过程中容易出现颠簸、晃动情况，为解决这一问
+古兜控股（08308）发布公告，于2026年4月17日，其已根据于2016年11月18日采纳的购股权计划向7名合资格人士授出购股权，以认购公司股本中合共6218.2万股每股面值0.01港元的普通股，惟须待承授人接纳后方为有效。责任编辑：卢昱君
 
 ## 正文
 
-中新网哈尔滨5月29日电 (张宝玉)5月29日12时55分，在中国最北铁路客运站——漠河站的站场内，随着最后一处道岔调试、道床清筛作业全部完成，我国最北铁路客运站关键硬件“换新升级”圆满收官。
+古兜控股（08308）发布公告，于2026年4月17日，其已根据于2016年11月18日采纳的购股权计划向7名合资格人士授出购股权，以认购公司股本中合共6218.2万股每股面值0.01港元的普通股，惟须待承授人接纳后方为有效。
 
-“夏至”节临近，素有“神州北极”之称的漠河将迎来避暑旅游热，旅客列车由日均3对增至6对，游客日均达1500人次，由于原有道岔承载力较弱，列车通行过程中容易出现颠簸、晃动情况，为解决这一问题，中国铁路哈尔滨局集团公司更换自重更大、结构更稳固、轨道横截面更宽的新型道岔，有效提升轨道承载力和运行稳定性，减轻职工劳动强度。
-
-经过12天的漠河站场升级改造，同步更换300余米老旧钢轨，并对道岔范围内道床进行破底清筛，全面消除冬季受高寒气温影响引发的道床板结、路基冻害等“顽疾”，从根源上升级站场设备硬件。
-
-加格达奇工务段漠河线路车间主任唐春波介绍：“此次设备升级改造，克服施工场地小、交叉作业多等难题，其目的是方便旅客出行、平稳、舒适。
-
-”(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 09:00 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 09:10 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 09:15 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 08:52 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 09:12 - [内马尔未登场 安切洛蒂赛后回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 08:48 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 09:06 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 09:10 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 08:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 09:01 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 09:05 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 09:04 - 全新问界M9现身美国街头<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md
+- 2026-06-30 09:17 - 流金岁月<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md
+- 2026-06-30 09:14 - 巴西替补奇兵读秒绝杀<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md
+- 2026-06-30 09:05 - 网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md
+- 2026-06-30 09:11 - 女子用家人生日买彩票中1032万<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md
+- 2026-06-30 09:02 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md
+- 2026-06-30 09:18 - 金刚川<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md
+- 2026-06-30 09:06 - 拆解FIFA和世界杯的暗面<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md
+- 2026-06-30 09:06 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md
+- 2026-06-30 09:21 - 法媒点赞中国小区楼顶“人工降雨”<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md
+- 2026-06-30 09:06 - 花少8要去世界杯举办国<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/457774699.shtml)
-- 2026-06-30 09:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/338239168180.shtml)
-- 2026-06-30 08:59 - [马宁怒怼巴拉圭教练组](https://www.share.kurohicncr.top/Article/details/04844840.shtml)
-- 2026-06-30 08:53 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/94597251508.shtml)
-- 2026-06-30 08:49 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/32800.shtml)
-- 2026-06-30 09:17 - [点球大战和诺伊尔都救不回德国队](http://www.blog.kurohicncr.top/Article/details/85516060.shtml)
-- 2026-06-30 09:08 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/81092636.shtml)
-- 2026-06-30 09:11 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/483868118.shtml)
-- 2026-06-30 09:01 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/966294413.shtml)
-- 2026-06-30 09:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/5294096652.shtml)
-- 2026-06-30 08:56 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/22959737965.shtml)
-- 2026-06-30 09:10 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.blog.minike.top/Article/details/640806908852.shtml)
-- 2026-06-30 09:02 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.blog.minike.top/Article/details/561672945234.shtml)
-- 2026-06-30 09:00 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/19031718072.shtml)
-- 2026-06-30 08:59 - [内马尔未登场 安切洛蒂赛后回应](http://www.blog.minike.top/Article/details/13200.shtml)
+- 2026-06-30 09:17 - 国务院：稳步推进研究生考试招生改革<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/52541749429.shtml
+- 2026-06-30 08:56 - 阿娇瘦了10斤<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/305823.shtml
+- 2026-06-30 09:23 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:http://www.blog.minike.top/Article/details/3720090.shtml
+- 2026-06-30 09:08 - 恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？<br><br> | ??:http://www.blog.minike.top/Article/details/232298.shtml
+- 2026-06-30 09:10 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:https://www.share.minike.top/Article/details/84229.shtml
+- 2026-06-30 09:00 - 未来五年，教育强国这样建设<br><br> | ??:http://www.blog.minike.top/Article/details/553079.shtml
+- 2026-06-30 09:14 - 为什么会有「念旧」的心理？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1391256.shtml
+- 2026-06-30 09:14 - 宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/523120831.shtml
+- 2026-06-30 09:00 - 未来五年，教育强国这样建设<br><br> | ??:http://www.share.minike.top/Article/details/2112059117.shtml
+- 2026-06-30 09:06 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://www.share.kurohicncr.top/Article/details/84528.shtml
+- 2026-06-30 09:05 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:https://www.share.kurohicncr.top/Article/details/069468.shtml
+- 2026-06-30 09:20 - 啊啊啊<br><br> | ??:https://www.share.minike.top/Article/details/279717767.shtml
+- 2026-06-30 08:58 - 曝老詹对自由市场态度与以往截然不同<br><br> | ??:https://www.share.minike.top/Article/details/288017678275.shtml
+- 2026-06-30 08:57 - 巴拉圭点球大战淘汰德国进16强<br><br> | ??:https://www.share.minike.top/Article/details/17441302581.shtml
+- 2026-06-30 09:15 - 周生如故<br><br> | ??:https://www.share.kurohicncr.top/Article/details/8659325.shtml

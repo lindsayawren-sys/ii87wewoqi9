@@ -1,59 +1,52 @@
-# 2026年广西全民数字素养与技能提升月启动
+# 人民币兑美元中间价报6.8648，下调26点
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月29日电(陈秋霞)2026年广西全民数字素养与技能提升月启动仪式29日在南宁举行。活动以“数智赋能 全民共享”为主题。 启动仪式发布了2026年广西全民数字素养与技能提升月系列活动清单，各主办单位将围绕主题开展23项系列活动，涵盖人工智能教育、数字技能培训、网络安全科普、公益助学助农、数字乡村建设、退役军人服务、跨境电商直播等多个领域，着力推动数字技能普及和数字文
+4月20日，人民币兑美元中间价报6.8648，下调26点。 美联储4月维持利率不变的概率为99.5% 据CME“美联储观察”：美联储4月加息25个基点的概率为0.5%，维持利率不变的概率为99.5%。美联储到6月累计降息25个基点的概率为4.5%，维持利率不变的概率为95%，累计加息25个基点的概率为0.5%。责任编辑：郭建
 
 ## 正文
 
-中新网南宁5月29日电(陈秋霞)2026年广西全民数字素养与技能提升月启动仪式29日在南宁举行。
+4月20日，人民币兑美元中间价报6.8648，下调26点。
 
-活动以“数智赋能 全民共享”为主题。
+美联储4月维持利率不变的概率为99.5% 据CME“美联储观察”：美联储4月加息25个基点的概率为0.5%，维持利率不变的概率为99.5%。
 
-启动仪式发布了2026年广西全民数字素养与技能提升月系列活动清单，各主办单位将围绕主题开展23项系列活动，涵盖人工智能教育、数字技能培训、网络安全科普、公益助学助农、数字乡村建设、退役军人服务、跨境电商直播等多个领域，着力推动数字技能普及和数字文明培育尤其是人工智能素养培养向基层延伸、向全民覆盖。
+美联储到6月累计降息25个基点的概率为4.5%，维持利率不变的概率为95%，累计加息25个基点的概率为0.5%。
 
-现场还播放了2026年中国网络文明大会全民数字素养与技能提升分论坛回顾视频，展现论坛期间的丰硕成果。
-
-启动仪式现场精彩纷呈。
-
-由广西网络安全和信息化联合会联合中国—东盟童声研究所带来AI辅助创作的“音创赋新能@芽护成长”公益项目主题歌《爱芽歌》展演；广西网络安全和信息化联合会与广西幼儿师范高等专科学校联合共建的“@芽”未成年人网络保护和数字人才教育基地揭牌。
-
-广西幼儿师范高等专科学校中国—东盟童声研究所教授周频文、成都明途科技有限公司董事长肖雪松作专题分享。
-
-据悉，本次提升月是广西深入贯彻落实国家关于加强全民数字素养与技能提升部署要求的具体行动。
+责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-30 09:04 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 09:16 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 09:11 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 09:11 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-30 08:56 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 08:56 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 08:52 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 08:57 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 08:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 09:00 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 09:05 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 08:51 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 08:50 - [德国队世界杯点球大战首败](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 08:58 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md
+- 2026-06-30 09:02 - 恋与深空道歉声明<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md
+- 2026-06-30 09:03 - 世界杯名画巴拉圭钢铁防线<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md
+- 2026-06-30 08:55 - Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md
+- 2026-06-30 09:15 - 世界杯：荷兰vs摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md
+- 2026-06-30 09:02 - 房价什么时候能涨<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md
+- 2026-06-30 09:02 - 如何评价杨紫白玉兰获奖<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md
+- 2026-06-30 09:23 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md
+- 2026-06-30 09:12 - 马航MH370传来最新消息<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md
+- 2026-06-30 09:03 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md
+- 2026-06-30 09:08 - 一直以为方便面汤是要倒掉的<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md
+- 2026-06-30 09:11 - 詹姆斯 勇士<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md
+- 2026-06-30 09:05 - 德国淘汰<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md
+- 2026-06-30 09:00 - iPhone18e曝光<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:08 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/8968703.shtml)
-- 2026-06-30 09:03 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/19782138633.shtml)
-- 2026-06-30 09:12 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/379419.shtml)
-- 2026-06-30 09:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/40246391.shtml)
-- 2026-06-30 08:52 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/650594261569.shtml)
-- 2026-06-30 09:13 - [人民锐评网红诋毁袁隆平造谣企业家](https://www.share.minike.top/Article/details/86244890.shtml)
-- 2026-06-30 09:05 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.blog.minike.top/Article/details/575429850.shtml)
-- 2026-06-30 09:05 - [巴西绝杀日本：漫画般结局换了主角](https://www.share.kurohicncr.top/Article/details/90119500234.shtml)
-- 2026-06-30 08:49 - [小娘惹](http://www.share.minike.top/Article/details/172082240464.shtml)
-- 2026-06-30 09:07 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/4309748918.shtml)
-- 2026-06-30 08:58 - [一生一世](http://www.share.kurohicncr.top/Article/details/63814.shtml)
-- 2026-06-30 09:04 - [荷兰VS摩洛哥](https://www.blog.kurohicncr.top/Article/details/4556462.shtml)
-- 2026-06-30 09:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/78129975.shtml)
-- 2026-06-30 08:52 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/59428.shtml)
-- 2026-06-30 08:53 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/856580381310.shtml)
+- 2026-06-30 09:05 - 卡塞米罗头球破门<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/81989.shtml
+- 2026-06-30 09:15 - 韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/76908122535.shtml
+- 2026-06-30 09:12 - 孙颖莎王楚钦晋级8强<br><br> | ??:https://www.share.kurohicncr.top/Article/details/27501.shtml
+- 2026-06-30 09:05 - 男子在京东买到“同仁堂”假药<br><br> | ??:https://www.share.minike.top/Article/details/58606170636.shtml
+- 2026-06-30 09:23 - 巴西在进攻三区完成210脚传球<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/26659775.shtml
+- 2026-06-30 09:02 - 沙丘<br><br> | ??:https://www.share.kurohicncr.top/Article/details/50783641914.shtml
+- 2026-06-30 09:05 - 【涤墨作战7人870】望：我从地狱杀回来了！<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/9965448.shtml
+- 2026-06-30 09:07 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:http://www.share.kurohicncr.top/Article/details/189041233990.shtml
+- 2026-06-30 09:08 - 《共患难》<br><br> | ??:https://www.blog.minike.top/Article/details/32587320.shtml
+- 2026-06-30 09:08 - 巴西2-1绝杀日本<br><br> | ??:https://www.share.minike.top/Article/details/346666.shtml
+- 2026-06-30 09:15 - 恋与深空已删除锅里洗澡文案<br><br> | ??:http://www.share.minike.top/Article/details/6305954.shtml
+- 2026-06-30 09:10 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://www.blog.minike.top/Article/details/146419142.shtml
+- 2026-06-30 08:58 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://www.blog.minike.top/Article/details/71739521082.shtml
+- 2026-06-30 08:55 - 小娘惹<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/3905264.shtml
+- 2026-06-30 09:17 - 网友写差评被店家“挂”门口避雷<br><br> | ??:http://www.share.minike.top/Article/details/59135736922.shtml

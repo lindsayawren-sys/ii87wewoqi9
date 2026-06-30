@@ -1,59 +1,48 @@
-# 以行走厚植爱国情怀 港青愿做陕港交流连心桥
+# TCL电子盈喜后涨超4% 预计一季度经调整归母净利同比增长约125%至150%
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-中新网西安5月29日电 (记者 戴小橦)香港理工大学(简称“港理大”)爱国主义教育研习营29日在西安收官，近50名师生完成为期7天的研习行程，沉浸式探寻中华文脉、厚植家国情怀。 此次活动是港理大与西安交通大学(简称“西安交大”)共建爱国主义教育基地以来的首场正式研学实践。研习营融合传统文化寻根、红色精神感悟、家国情怀培育、前沿科技体验等多项内容，旨在帮助香港青年全方位认知国家发
+TCL电子（01070）发盈喜后涨超4%，截至发稿，股价上涨4.04%，现报14.41港元，成交额2457.35万港元。 4月19日，TCL电子发布公告，预期集团2026年第一季度将录得收入约278亿港元至304亿港元，较去年同期增长约10%至20%；及经调整归母净利润约3.6亿港元至4.0亿港元，较去年同期增长约125%至150%。 整体而言，集团预期2026年全年业务将继续
 
 ## 正文
 
-中新网西安5月29日电 (记者 戴小橦)香港理工大学(简称“港理大”)爱国主义教育研习营29日在西安收官，近50名师生完成为期7天的研习行程，沉浸式探寻中华文脉、厚植家国情怀。
+TCL电子（01070）发盈喜后涨超4%，截至发稿，股价上涨4.04%，现报14.41港元，成交额2457.35万港元。
 
-此次活动是港理大与西安交通大学(简称“西安交大”)共建爱国主义教育基地以来的首场正式研学实践。
+4月19日，TCL电子发布公告，预期集团2026年第一季度将录得收入约278亿港元至304亿港元，较去年同期增长约10%至20%；及经调整归母净利润约3.6亿港元至4.0亿港元，较去年同期增长约125%至150%。
 
-研习营融合传统文化寻根、红色精神感悟、家国情怀培育、前沿科技体验等多项内容，旨在帮助香港青年全方位认知国家发展历程与新时代建设成就。
+整体而言，集团预期2026年全年业务将继续保持稳健发展，并将继续致力于为股东创造可持续及高质量的长期回报。
 
-在28日举行的研习营结营分享会上，学生们通过情景讲述、创意表演、人工智能科技展示等形式，复盘研学期间的见闻与所思所悟。
-
-不少学生表示，此次陕西之行让大家走出书本、近距离触摸历史与文脉，内心的民族自豪感与爱国情怀愈发浓厚。
-
-同学们表示，会将此行的感动与感悟带回香港，主动担当港陕交流的连心人，用实际行动传递爱国心声，加深两地情谊。
-
-“爱国是中国人的责任、态度、义务与使命，更要付诸行动、勇于奉献。
-
-”港理大校董会主席林大辉在结营仪式上表示，青年命运始终与国家命运紧密相连，新时代青年不能只做国家发展的“受益者”，更要主动成为强国建设、民族复兴的“参与者”和“贡献者”。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 09:09 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 09:05 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 09:00 - [为什么小组赛出局会让韩国人破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 08:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 08:51 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 08:56 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 08:58 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 08:53 - [警方介入洪明甫死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 09:03 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 08:53 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 09:16 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 09:09 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 09:17 - 泰山景区建135公里刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md
+- 2026-06-30 09:19 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md
+- 2026-06-30 09:22 - 阿娇瘦了10斤<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md
+- 2026-06-30 08:59 - 日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md
+- 2026-06-30 09:07 - 有哪些被认为是现代才有的东西其实古代就有了？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md
+- 2026-06-30 09:06 - 王楚钦说配合稍微有些陌生感<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md
+- 2026-06-30 08:56 - 王楚钦孙颖莎vs皮斯特耶库库洛娃<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md
+- 2026-06-30 09:19 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md
+- 2026-06-30 09:16 - 古代时期普通老百姓能喝上酒吗？<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md
+- 2026-06-30 09:05 - 英语考了145的人竟然教数学<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/77496291533.shtml)
-- 2026-06-30 09:06 - [泰山景区建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/80764672.shtml)
-- 2026-06-30 08:52 - [日本将帅赛后采访纷纷哽咽落泪](https://www.blog.kurohicncr.top/Article/details/752568705762.shtml)
-- 2026-06-30 09:01 - [内马尔安慰日本球员](http://www.share.kurohicncr.top/Article/details/959373.shtml)
-- 2026-06-30 08:59 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/207571397412.shtml)
-- 2026-06-30 08:49 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/131515597.shtml)
-- 2026-06-30 09:15 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/43974959.shtml)
-- 2026-06-30 09:05 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/185220656166.shtml)
-- 2026-06-30 09:08 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/587891856.shtml)
-- 2026-06-30 09:02 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.kurohicncr.top/Article/details/94737.shtml)
-- 2026-06-30 09:10 - [日本球员说被绝杀非常不甘心](http://www.blog.minike.top/Article/details/834218400.shtml)
-- 2026-06-30 09:00 - [马航370搜寻最新消息](https://www.share.minike.top/Article/details/466316006.shtml)
-- 2026-06-30 09:06 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/570970.shtml)
-- 2026-06-30 08:56 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/44708065.shtml)
-- 2026-06-30 09:10 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/7617897.shtml)
+- 2026-06-30 08:56 - 女心理师<br><br> | ??:https://www.blog.minike.top/Article/details/79330170807.shtml
+- 2026-06-30 09:20 - 卢卡申科发布解放军仪仗队视频<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/535894631.shtml
+- 2026-06-30 09:22 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/99140.shtml
+- 2026-06-30 09:15 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://www.share.kurohicncr.top/Article/details/4035201.shtml
+- 2026-06-30 09:08 - 警方介入洪明甫死亡威胁<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/6136847.shtml
+- 2026-06-30 09:00 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/154276127731.shtml
+- 2026-06-30 09:22 - 补时绝杀 巴西2-1淘汰日本<br><br> | ??:http://www.blog.minike.top/Article/details/99006477542.shtml
+- 2026-06-30 09:03 - 梅德韦杰夫列举俄罗斯面临的七大挑战<br><br> | ??:http://www.blog.minike.top/Article/details/8553201239.shtml
+- 2026-06-30 09:01 - 美股<br><br> | ??:https://www.blog.minike.top/Article/details/803585277209.shtml
+- 2026-06-30 09:02 - 为什么纣王似乎对周文王的扩张完全无动于衷？<br><br> | ??:http://www.share.minike.top/Article/details/54951.shtml
+- 2026-06-30 08:57 - 道友？你来真的啊？【凡人官方二创大会】<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/995830694828.shtml
+- 2026-06-30 08:59 - 上市央企地产商 两年换了三任董事长<br><br> | ??:https://www.share.kurohicncr.top/Article/details/5956273.shtml
+- 2026-06-30 09:06 - “错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/93422361249.shtml
+- 2026-06-30 09:01 - 高考结束，该不该外出打工体验？<br><br> | ??:http://www.blog.minike.top/Article/details/37252.shtml
+- 2026-06-30 09:05 - 承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？<br><br> | ??:https://www.share.minike.top/Article/details/70940772.shtml

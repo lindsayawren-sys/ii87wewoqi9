@@ -1,61 +1,47 @@
-# AI是取代了人力，还是对人力的补充？诺贝尔经济学奖得主托马斯·萨金特：让AI成为你的人力资本
+# 中国经济圆桌会丨消博会呈现三方面亮点
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日-29日，深交所2026全球投资者大会在深圳举办。大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，2011年诺贝尔经济学奖得主、纽约大学经济学教授Thomas Sargent出席并发表演讲。 以下是发言全文： 我今天想讲一讲AI供应链与中国，而我认为中国的AI供应链
+发布时间：2026年04月18日 17:15 来源：新华网 海南国际经济发展局总经济师、新闻发言人曾蓉在“中国经济圆桌会”节目中表示，本届消博会呈现三方面亮点。首先是紧扣“国际”，其次是聚焦“精品”，三是突出“首发”。 新华社音视频部制作 责任编辑：【王祎】
 
 ## 正文
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日-29日，深交所2026全球投资者大会在深圳举办。
+发布时间：2026年04月18日 17:15 来源：新华网 海南国际经济发展局总经济师、新闻发言人曾蓉在“中国经济圆桌会”节目中表示，本届消博会呈现三方面亮点。
 
-大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，2011年诺贝尔经济学奖得主、纽约大学经济学教授Thomas Sargent出席并发表演讲。
+首先是紧扣“国际”，其次是聚焦“精品”，三是突出“首发”。
 
-以下是发言全文： 我今天想讲一讲AI供应链与中国，而我认为中国的AI供应链非常特别。
-
-首先我会讲一下人工智能的起源，我会谈谈一些道德和经济的问题，AI到底是取代了人力资本，还是对人力资本的补充？
-
-这个对在座很多年轻人都很有意义，我会讲一讲AI供应链，特别是其中它的人力组成部分、物理组成部分和道德方面。
-
-我会特别讲一讲在中国的AI供应链，大家也可以跟其他国家的供应链做一下对比。
-
-我在谈到AI之前，先普遍谈一谈人工智能。
-
-那么人工智能到底是什么？
+新华社音视频部制作 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 09:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 08:56 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 09:15 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 09:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 09:07 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 09:08 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 09:12 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 09:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 08:51 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 09:00 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-30 08:49 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-30 09:01 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 09:13 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 08:53 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 08:52 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 09:06 - 黄晓明晒和周杰伦的合照<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md
+- 2026-06-30 09:01 - 青春环游记第三季<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md
+- 2026-06-30 09:20 - 如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md
+- 2026-06-30 09:14 - 德国巴拉圭进入点球大战<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md
+- 2026-06-30 09:02 - 极端热浪席卷欧洲多国，热一热百姓让领导先凉快？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md
+- 2026-06-30 09:08 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md
+- 2026-06-30 08:56 - 欧洲装一台空调有多难<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md
+- 2026-06-30 09:12 - 输球后日本球迷被强行披上巴西国旗<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md
+- 2026-06-30 09:10 - 美股收盘 热门中概股普涨<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md
+- 2026-06-30 09:03 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md
+- 2026-06-30 09:22 - 警方介入洪明甫死亡威胁<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md
 
 ## 延伸阅读
 
-- 2026-06-30 08:51 - [扬名立万](http://www.share.kurohicncr.top/Article/details/835752899828.shtml)
-- 2026-06-30 08:59 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.share.minike.top/Article/details/1358239969.shtml)
-- 2026-06-30 09:15 - [iPhoneUltra黑色机模](http://www.blog.kurohicncr.top/Article/details/1455465966.shtml)
-- 2026-06-30 09:01 - [诺伊尔尽力了](http://www.blog.kurohicncr.top/Article/details/47369577468.shtml)
-- 2026-06-30 08:51 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/67584.shtml)
-- 2026-06-30 09:13 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/481718.shtml)
-- 2026-06-30 09:09 - [曝iPhone18Pro机密文件现身暗网](http://www.blog.minike.top/Article/details/63865430.shtml)
-- 2026-06-30 09:05 - [欧洲民众抢购空调降温](http://www.blog.kurohicncr.top/Article/details/5240147.shtml)
-- 2026-06-30 08:59 - [杨紫肖战余生请多指教拍立得](http://www.share.kurohicncr.top/Article/details/1209178653.shtml)
-- 2026-06-30 09:02 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/142515.shtml)
-- 2026-06-30 09:03 - [收到补税提醒尽快办理 明起有滞纳金](https://www.share.minike.top/Article/details/326592438375.shtml)
-- 2026-06-30 09:10 - [千香](https://www.share.kurohicncr.top/Article/details/337087262777.shtml)
-- 2026-06-30 09:01 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/946632.shtml)
-- 2026-06-30 08:50 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.minike.top/Article/details/287822986474.shtml)
-- 2026-06-30 09:15 - [德国进球被吹](https://www.share.minike.top/Article/details/220992.shtml)
+- 2026-06-30 08:57 - 我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/29912906407.shtml
+- 2026-06-30 08:56 - 点球淘汰德国 巴拉圭首都陷入疯狂<br><br> | ??:https://www.share.kurohicncr.top/Article/details/980054558374.shtml
+- 2026-06-30 09:20 - 挪威国家队紧急从本土订购大批海鲜<br><br> | ??:http://www.blog.minike.top/Article/details/529407.shtml
+- 2026-06-30 09:07 - 这几秒成世界杯最值钱广告位<br><br> | ??:https://www.blog.minike.top/Article/details/796101408.shtml
+- 2026-06-30 09:15 - 追梦拒绝2770万美元球员选项<br><br> | ??:http://www.blog.minike.top/Article/details/92427169.shtml
+- 2026-06-30 08:55 - 开电动汽车真的很省钱吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1158470.shtml
+- 2026-06-30 09:05 - 送你一朵小红花<br><br> | ??:https://www.share.minike.top/Article/details/516650461858.shtml
+- 2026-06-30 09:21 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/77301301.shtml
+- 2026-06-30 09:02 - 速度与激情9<br><br> | ??:http://www.share.minike.top/Article/details/38176.shtml
+- 2026-06-30 08:57 - 诺伊尔尽力了<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/736056926.shtml
+- 2026-06-30 09:13 - 德国vs巴拉圭<br><br> | ??:http://www.share.kurohicncr.top/Article/details/0965050709.shtml
+- 2026-06-30 09:01 - 马航MH370传来最新消息<br><br> | ??:https://www.share.minike.top/Article/details/02146648.shtml
+- 2026-06-30 09:17 - 《共患难》<br><br> | ??:https://www.blog.minike.top/Article/details/695217098706.shtml
+- 2026-06-30 09:08 - 世界杯<br><br> | ??:http://www.share.kurohicncr.top/Article/details/82113.shtml
+- 2026-06-30 08:55 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:http://www.share.minike.top/Article/details/72725.shtml

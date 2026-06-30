@@ -1,61 +1,46 @@
-# 光伏业务拉低毛利率、推高负债率，海天股份跨界转型遇挫
+# 此行间·谈国家安全，总书记用过这些精彩比喻
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 为寻求第二增长极，海天股份（603759.SH）跨界切入光伏赛道，布局新能源新材料业务。然而最新披露的2025年年报与2026年一季报显示，这场转型并未带来预期效益，公司反而陷入“增收不增利”的困境。 财务数据显示，2025年全年，公司实现营业收入32.19亿元，同比激增111.94%。但归
+发布时间：2026年04月17日 15:11 来源：人民日报客户端 责任编辑：【杨彦宇】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-来源：证券之星 为寻求第二增长极，海天股份（603759.SH）跨界切入光伏赛道，布局新能源新材料业务。
-
-然而最新披露的2025年年报与2026年一季报显示，这场转型并未带来预期效益，公司反而陷入“增收不增利”的困境。
-
-财务数据显示，2025年全年，公司实现营业收入32.19亿元，同比激增111.94%。
-
-但归属净利润为1.77亿元，同比下滑42.00%。
-
-进入2026年，这一趋势仍在延续。
-
-一季度营业收入达到15.14亿元，同比增长366.88%，而归属净利润仅386.84万元，同比暴跌92.25%。
-
-证券之星注意到，营收规模成倍扩张，盈利不升反降。
+发布时间：2026年04月17日 15:11 来源：人民日报客户端 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-30 09:11 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 09:03 - [世界杯巴拉圭点球淘汰德国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 09:15 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 09:15 - [教育部披露：高考生篡改7名同学志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 09:15 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 09:16 - [日本球迷输球后集体捡垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 09:02 - [日本主帅：未能夺冠深感抱歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 09:14 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 09:08 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 09:03 - [教育部披露：高考生篡改7名同学志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 09:14 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 08:52 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 08:50 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 09:04 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 08:54 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 09:16 - iPhone18e曝光<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md
+- 2026-06-30 09:16 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md
+- 2026-06-30 09:17 - 曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md
+- 2026-06-30 09:11 - 【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md
+- 2026-06-30 09:19 - 日本五次世界杯淘汰赛全败<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md
+- 2026-06-30 09:16 - 高考结束，该不该外出打工体验？<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md
+- 2026-06-30 09:23 - 四川宜宾地震瞬间鱼群乱跳<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md
+- 2026-06-30 09:17 - 韩国人为什么这么在乎输赢<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md
+- 2026-06-30 08:55 - 这种关系可能正在悄悄“催老”你<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md
+- 2026-06-30 09:22 - 第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md
+- 2026-06-30 09:19 - 武磊：日本队有能力跟任何强队抗衡<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md
+- 2026-06-30 09:10 - 杨紫大银幕成绩单<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md
+- 2026-06-30 09:02 - 勇士续约波尔津吉斯<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md
+- 2026-06-30 09:03 - 古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:13 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/3021829137.shtml)
-- 2026-06-30 08:58 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/2437742.shtml)
-- 2026-06-30 09:01 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/684341.shtml)
-- 2026-06-30 09:15 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/8042501.shtml)
-- 2026-06-30 09:03 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/90709325334.shtml)
-- 2026-06-30 09:18 - [美人鱼](http://www.blog.minike.top/Article/details/8328785304.shtml)
-- 2026-06-30 08:59 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/417442791448.shtml)
-- 2026-06-30 09:17 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/8048467283.shtml)
-- 2026-06-30 09:16 - [日本五次世界杯淘汰赛全败](https://www.blog.kurohicncr.top/Article/details/55994425520.shtml)
-- 2026-06-30 09:14 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.share.kurohicncr.top/Article/details/16998152487.shtml)
-- 2026-06-30 09:10 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/4274865553.shtml)
-- 2026-06-30 09:03 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/65611255.shtml)
-- 2026-06-30 09:12 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/3889445207.shtml)
-- 2026-06-30 09:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/61397268.shtml)
-- 2026-06-30 08:57 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/64640228621.shtml)
+- 2026-06-30 09:11 - 我设置了全宇宙最安全的密码<br><br> | ??:https://www.blog.minike.top/Article/details/1519659.shtml
+- 2026-06-30 09:09 - 锐评：网红不能困在无底线逐利里<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/567223.shtml
+- 2026-06-30 09:14 - 孙兴慜发长文致歉<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/799125717.shtml
+- 2026-06-30 09:09 - 为什么会有「念旧」的心理？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/53310146705.shtml
+- 2026-06-30 09:06 - 周冬雨多次说演不了话剧文城<br><br> | ??:https://www.blog.minike.top/Article/details/22312595904.shtml
+- 2026-06-30 08:55 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://www.share.minike.top/Article/details/626172636.shtml
+- 2026-06-30 08:56 - 世界杯：荷兰vs摩洛哥<br><br> | ??:http://www.share.minike.top/Article/details/63437533389.shtml
+- 2026-06-30 09:20 - 哪部作品、哪本书、哪首歌，值得被一直传下去？<br><br> | ??:https://www.blog.minike.top/Article/details/364345.shtml
+- 2026-06-30 09:08 - 速度与激情9<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/499757484431.shtml
+- 2026-06-30 09:23 - FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/480349762035.shtml
+- 2026-06-30 09:16 - “荒唐”背后的韩国足球<br><br> | ??:http://www.blog.minike.top/Article/details/801997.shtml
+- 2026-06-30 09:06 - 如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？<br><br> | ??:https://www.share.kurohicncr.top/Article/details/10989424119.shtml
+- 2026-06-30 09:03 - 金鹰奖视后提名预测<br><br> | ??:https://www.blog.minike.top/Article/details/1735994607.shtml
+- 2026-06-30 09:19 - 委内瑞拉地震死亡人数升至1719人<br><br> | ??:https://www.blog.minike.top/Article/details/465991133.shtml
+- 2026-06-30 09:18 - 沉睡花园<br><br> | ??:https://www.share.kurohicncr.top/Article/details/289242.shtml

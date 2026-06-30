@@ -1,61 +1,58 @@
-# 估值9650亿美元！Anthropic完成650亿美元融资，超越OpenAI登顶AI估值榜首
+# 霍尔木兹海峡重新开放，油价暴跌推动股市上涨
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-人工智能领域的权力格局正在改写。由前OpenAI高管创立仅五年的Anthropic，近日正式完成650亿美元的H轮融资，投后估值达到9650亿美元，一举超越OpenAI的8520亿美元估值，成为全球最具价值的私营AI公司。 本轮融资由Altimeter Capital、Dragoneer、Greenoaks和红杉资本领投，Capital Group、Coatue、D1 Capi
+随着伊朗宣布重新开放霍尔木兹海峡，原油价格大幅下跌，全球股市周五延续涨势，投资者对中东局势升级导致能源供应中断的担忧得到缓解。 股市全面走高 标普500指数连续第二天创下历史新高，欧洲斯托克600指数也在本周强劲上涨。MSCI全球所有国家指数有望录得自2023年11月以来的最佳单周表现。美国股市期货上涨，道琼斯工业平均指数期货上涨约500点，此前标普500指数和纳斯达克指数均在
 
 ## 正文
 
-人工智能领域的权力格局正在改写。
+随着伊朗宣布重新开放霍尔木兹海峡，原油价格大幅下跌，全球股市周五延续涨势，投资者对中东局势升级导致能源供应中断的担忧得到缓解。
 
-由前OpenAI高管创立仅五年的Anthropic，近日正式完成650亿美元的H轮融资，投后估值达到9650亿美元，一举超越OpenAI的8520亿美元估值，成为全球最具价值的私营AI公司。
+股市全面走高 标普500指数连续第二天创下历史新高，欧洲斯托克600指数也在本周强劲上涨。
 
-本轮融资由Altimeter Capital、Dragoneer、Greenoaks和红杉资本领投，Capital Group、Coatue、D1 Capital Partners、GIC、ICONIQ及XN共同领投，阵容堪称豪华。
+MSCI全球所有国家指数有望录得自2023年11月以来的最佳单周表现。
 
-引人注目的是，亚马逊在此轮中承诺投资50亿美元，而美光科技、三星和SK海力士也以战略基础设施合作伙伴的身份加入。
+美国股市期货上涨，道琼斯工业平均指数期货上涨约500点，此前标普500指数和纳斯达克指数均在周四创下收盘新高。
 
-支撑这一惊人估值的，是Anthropic火箭般的收入增长。
+伊朗外交部长周五在社交媒体上宣布，为配合黎巴嫩停火，霍尔木兹海峡在停火剩余期间将向所有商船完全开放通行。
 
-公司首席财务官Krishna Rao表示，受益于全球企业客户对Claude的广泛采用，公司年化运营收入已突破470亿美元。
+美国总统特朗普周四宣布以色列和黎巴嫩领导人同意停火十天，并表示伊朗战争“应该很快就会结束”。
 
-这一数字较2月份G轮融资时的300亿美元大幅跃升，短短三个月实现逾50%的增长。
+油价暴跌，能源股承压 原油价格创下自2022年以来的最大跌幅，西德克萨斯中质原油和布伦特原油均大幅下挫。
 
-本轮融资的重头戏在于算力基础设施的全面扩张。
+这一消息对能源股构成压力，标普500能源板块在早盘交易中下跌约3%，有望创下自2024年9月以来的最大单日跌幅。
 
 ## 相关推荐
 
-- 2026-06-30 08:52 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 08:56 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 08:50 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 09:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 08:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 08:54 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 08:58 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 09:03 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 08:49 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 08:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 09:15 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 09:03 - [教育部披露：高考生篡改7名同学志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 08:58 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 09:03 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 08:57 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 08:55 - 蔚来回应高压水枪洗车掉漆<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md
+- 2026-06-30 09:20 - 毒液2<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md
+- 2026-06-30 08:58 - 2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md
+- 2026-06-30 08:54 - 五哈和他们的朋友<br><br> | ??:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md
+- 2026-06-30 08:54 - 首届《哈基米歌王争霸赛》总决赛<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md
+- 2026-06-30 09:12 - 81岁老人被男子买光菜回家车祸去世<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md
+- 2026-06-30 09:08 - 泰山景区回应修建刀片刺绳隔离网<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md
+- 2026-06-30 08:57 - 歌剧老师锐评歌手第6期<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md
+- 2026-06-30 08:54 - 马航370搜寻最新消息<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md
+- 2026-06-30 09:21 - 巴拉圭率先破门<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md
+- 2026-06-30 09:02 - 荷兰vs摩洛哥<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md
+- 2026-06-30 09:00 - 千与千寻<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:12 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](http://www.blog.kurohicncr.top/Article/details/14023401.shtml)
-- 2026-06-30 08:57 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/8586689.shtml)
-- 2026-06-30 09:11 - [IGN评测电影版后室](https://www.blog.kurohicncr.top/Article/details/088119621.shtml)
-- 2026-06-30 09:13 - [勇士续约波尔津吉斯](https://www.blog.kurohicncr.top/Article/details/713435271160.shtml)
-- 2026-06-30 08:52 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/0619666109.shtml)
-- 2026-06-30 09:01 - [天道](https://www.share.minike.top/Article/details/6200737.shtml)
-- 2026-06-30 09:11 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/310457028.shtml)
-- 2026-06-30 09:14 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/30379589.shtml)
-- 2026-06-30 09:16 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/89551846966.shtml)
-- 2026-06-30 09:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/70129903799.shtml)
-- 2026-06-30 09:12 - [黄晓明夸昆凌引杨颖对比](http://www.share.kurohicncr.top/Article/details/21703026421.shtml)
-- 2026-06-30 09:00 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/86769.shtml)
-- 2026-06-30 08:49 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/5689191069.shtml)
-- 2026-06-30 08:59 - [极限挑战第一季](https://www.blog.minike.top/Article/details/4323912585.shtml)
-- 2026-06-30 09:02 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/5759763.shtml)
+- 2026-06-30 09:21 - 恐怖世界 第三集 埃温霍姆村<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/631399.shtml
+- 2026-06-30 09:03 - 花少8要去世界杯举办国<br><br> | ??:http://www.share.minike.top/Article/details/90714486.shtml
+- 2026-06-30 09:04 - 德国队回应爆冷淘汰<br><br> | ??:https://www.blog.minike.top/Article/details/92957709.shtml
+- 2026-06-30 09:13 - 德国队连续三届世界杯无缘16强<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/2318809160.shtml
+- 2026-06-30 08:58 - 为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？<br><br> | ??:http://www.blog.kurohicncr.top/Article/details/53613532.shtml
+- 2026-06-30 09:06 - 郑钦文 四年一轮游<br><br> | ??:https://www.blog.minike.top/Article/details/0065376.shtml
+- 2026-06-30 09:00 - 要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活<br><br> | ??:http://www.share.kurohicncr.top/Article/details/969992.shtml
+- 2026-06-30 09:19 - 《虎吹最难绷の一集》<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/96859231.shtml
+- 2026-06-30 09:20 - 日本遭读秒绝杀 森保一：我水平不够<br><br> | ??:https://www.blog.minike.top/Article/details/33627.shtml
+- 2026-06-30 09:12 - 曝灰熊将莫兰特交易至开拓者<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/5869874959.shtml
+- 2026-06-30 09:17 - 城市规划有可能成为「屎山代码」吗？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/6821196.shtml
+- 2026-06-30 09:21 - 荷兰VS摩洛哥<br><br> | ??:http://www.share.kurohicncr.top/Article/details/8022107342.shtml
+- 2026-06-30 09:11 - 锐评T1战胜KC<br><br> | ??:http://www.blog.minike.top/Article/details/95764925.shtml
+- 2026-06-30 09:07 - 一生一世<br><br> | ??:https://www.share.kurohicncr.top/Article/details/19121.shtml
+- 2026-06-30 09:05 - 为什么很多企业推行“扁平化管理”后，效率反而下降了？<br><br> | ??:https://www.blog.minike.top/Article/details/77850839712.shtml

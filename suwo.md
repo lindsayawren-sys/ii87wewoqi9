@@ -1,58 +1,58 @@
-# 报道：首款搭载英伟达芯片的Windows电脑将于下周发布
+# 凝聚各方力量 抓好落地实施
 
-> 更新时间：2026-06-30 09:18:02 UTC+8
+> 更新时间：2026-06-30 09:24:02 UTC+8
 
 ## 摘要
 
-美国科技媒体周六援引消息人士报道，人工智能芯片厂商英伟达与微软预计将于下周推出全球首款以英伟达芯片为主处理器的Windows电脑。 搭载英伟达芯片的电脑，预计将同时来自微软自有品牌Surface以及戴尔等其他电脑厂商。 微软此前为提升设备续航，转向采用低功耗芯片，但此举尚未带动销量显著增长。其主要竞争对手苹果自研芯片，于今年3月推出搭载最新M5系列芯片的新款MacBook。 报
+“十五五”首季成绩单彰显经济强大韧性和底气 凝聚各方力量 抓好落地实施(权威发布·开局起步“十五五”) 4月17日，国务院新闻办举行开局起步“十五五”系列主题首场新闻发布会，国家发展改革委副主任王昌林等介绍了“十五五”时期推动经济社会高质量发展有关情况。 提前储备一批综合性政策措施，根据需要及时出台“十五五”首季中国经济成绩单日前发布，彰显中国经济强大韧性和底气，好于国内外许多
 
 ## 正文
 
-美国科技媒体周六援引消息人士报道，人工智能芯片厂商英伟达与微软预计将于下周推出全球首款以英伟达芯片为主处理器的Windows电脑。
+“十五五”首季成绩单彰显经济强大韧性和底气 凝聚各方力量 抓好落地实施(权威发布·开局起步“十五五”) 4月17日，国务院新闻办举行开局起步“十五五”系列主题首场新闻发布会，国家发展改革委副主任王昌林等介绍了“十五五”时期推动经济社会高质量发展有关情况。
 
-搭载英伟达芯片的电脑，预计将同时来自微软自有品牌Surface以及戴尔等其他电脑厂商。
+提前储备一批综合性政策措施，根据需要及时出台“十五五”首季中国经济成绩单日前发布，彰显中国经济强大韧性和底气，好于国内外许多机构和专家学者预期。
 
-微软此前为提升设备续航，转向采用低功耗芯片，但此举尚未带动销量显著增长。
+“取得这样的成绩实属不易，这是在外部冲击挑战加大、国内两难多难问题交织叠加的复杂形势下实现的。
 
-其主要竞争对手苹果自研芯片，于今年3月推出搭载最新M5系列芯片的新款MacBook。
+”王昌林分析了成绩背后的原因—— 近年来，我国着力加强能源资源生产、储备体系建设，大力推进经济社会发展全面绿色转型，不断提升产供链安全韧性，为抵御全球能源供给冲击打下坚实基础。
 
-报道称，微软与英伟达将在旧金山微软Build开发者大会上，正式发布新款电脑。
+今年以来，因时因势主动应对外部环境变化，全力做好油气保供，通过稳产、多元化进口、价格临时调控等确保油气供应平稳有序，有效保障经济平稳运行和民生需求。
 
-英伟达暂未回应置评请求，微软亦拒绝发表评论。
+宏观政策能早尽早、靠前发力。
 
-报道还提到，微软预计同步推出相关软件，支持人工智能代理在Windows设备本地独立执行任务。
+针对去年下半年以来经济下行压力，提前下达“两重”建设项目清单和中央预算内投资计划，投放新型政策性金融工具资金，加快国债、地方政府债券发行使用，靠前推进实施一批重大工程项目，深入实施提振消费专项行动，优化消费品以旧换新政策，着力整治重点行业“内卷式”竞争，扎实推进制造业高端化、智能化、绿色化转型。
 
-责任编辑：何云
+“我国产业体系非常完备，市场规模巨大，经济本身有很强的韧性和抗冲击能力，为推动经济回稳向好提供了坚实基础。
 
 ## 相关推荐
 
-- 2026-06-30 09:14 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 09:17 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 09:10 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 08:48 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-30 09:01 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 09:09 - [王楚钦说配合稍微有些陌生感](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 09:14 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 09:14 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 09:09 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 09:09 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 08:51 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 09:15 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 09:15 - 中国对日本再出重拳<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md
+- 2026-06-30 09:18 - 全网说丑的格力玫瑰空调卖了5万台<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md
+- 2026-06-30 09:05 - 董路：谁赢谁是“正路子”<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md
+- 2026-06-30 09:08 - 李在明90度鞠躬感谢韩国两大财阀<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md
+- 2026-06-30 09:14 - 世界杯<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md
+- 2026-06-30 09:17 - 日本队主帅道歉<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md
+- 2026-06-30 09:22 - 领克07GT搭载超跑同源MRC悬架<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md
+- 2026-06-30 08:54 - 浪姐成团夜爆笑吐槽<br><br> | ??:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md
+- 2026-06-30 09:19 - 大蒜晒外面被路过女子连盆端走<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md
+- 2026-06-30 09:05 - 男子在京东买到“同仁堂”假药<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md
+- 2026-06-30 09:01 - 一切民族英雄都是中华民族的脊梁<br><br> | ??:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md
+- 2026-06-30 09:01 - DeepSeek启动成立来最大规模招聘<br><br> | ??:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md
 
 ## 延伸阅读
 
-- 2026-06-30 09:04 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/6170160.shtml)
-- 2026-06-30 09:13 - [田中碧失误](http://www.share.minike.top/Article/details/53806868901.shtml)
-- 2026-06-30 08:49 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/601440587974.shtml)
-- 2026-06-30 08:55 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/69301020319.shtml)
-- 2026-06-30 09:13 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/31049608.shtml)
-- 2026-06-30 09:04 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/01894.shtml)
-- 2026-06-30 09:03 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/335647213438.shtml)
-- 2026-06-30 08:51 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/247969488.shtml)
-- 2026-06-30 09:00 - [勇士续约波尔津吉斯](http://www.blog.kurohicncr.top/Article/details/70096947.shtml)
-- 2026-06-30 09:16 - [斛珠夫人](https://www.blog.minike.top/Article/details/82354746.shtml)
-- 2026-06-30 08:50 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/49725657065.shtml)
-- 2026-06-30 09:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/287925.shtml)
-- 2026-06-30 09:17 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/87221867.shtml)
-- 2026-06-30 09:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/5747410.shtml)
-- 2026-06-30 09:00 - [金刚川](http://www.share.kurohicncr.top/Article/details/91567.shtml)
+- 2026-06-30 09:09 - 郑钦文温网一轮游<br><br> | ??:http://www.share.kurohicncr.top/Article/details/48156.shtml
+- 2026-06-30 09:02 - 自然光｜papi酱&窦文涛：驴与跑步机<br><br> | ??:http://www.share.minike.top/Article/details/7306021726.shtml
+- 2026-06-30 09:04 - 李准基参加文彩元婚礼<br><br> | ??:http://www.blog.minike.top/Article/details/738451147.shtml
+- 2026-06-30 09:03 - 法媒点赞中国小区楼顶“人工降雨”<br><br> | ??:https://www.blog.minike.top/Article/details/90081028929.shtml
+- 2026-06-30 09:21 - 世界杯：荷兰vs摩洛哥<br><br> | ??:http://www.blog.minike.top/Article/details/33228646716.shtml
+- 2026-06-30 09:06 - 这一刀 会很帅<br><br> | ??:http://www.share.minike.top/Article/details/78184528679.shtml
+- 2026-06-30 08:55 - 我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？<br><br> | ??:http://www.share.minike.top/Article/details/182611096987.shtml
+- 2026-06-30 09:01 - 陈幸同晋级WTT美国大满贯女单32强<br><br> | ??:http://www.share.minike.top/Article/details/57592.shtml
+- 2026-06-30 09:21 - 想问一下学日语的大佬，自学日语要怎么学？<br><br> | ??:http://www.share.kurohicncr.top/Article/details/58129795265.shtml
+- 2026-06-30 09:19 - 日本博主：日本足球真的垃圾<br><br> | ??:https://www.share.kurohicncr.top/Article/details/6224043952.shtml
+- 2026-06-30 09:01 - 不开心就去看三年前的购物订单<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1823972.shtml
+- 2026-06-30 09:11 - 欧洲装一台空调有多难<br><br> | ??:https://www.blog.minike.top/Article/details/313949451197.shtml
+- 2026-06-30 08:57 - 巴西绝杀日本：漫画般结局换了主角<br><br> | ??:https://www.share.minike.top/Article/details/409175.shtml
+- 2026-06-30 09:21 - 中国代表在联合国点名日本所犯罪行<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/441769875242.shtml
+- 2026-06-30 09:20 - 欧洲民众抢购空调降温<br><br> | ??:https://www.blog.kurohicncr.top/Article/details/1919588910.shtml
