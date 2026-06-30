@@ -1,48 +1,46 @@
-<h1>大金重工“大金二号”下水，扩大海上风电物流船队</h1><br>
+<h1>新疆沙雅县：治沙接上产业链 肉苁蓉从沙漠走进工厂</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中国海上风电基础制造商大金重工在其盘锦造船基地举行了4万吨级甲板运输船“大金二号”的下水仪式。 该船于4月19日下水，是盘锦基地建造的第二艘大型甲板运输船。此前“大金一号”已完成首航。 “大金二号”全长239.8米，宽51米，深13米，甲板面积达1.2万平方米。 该船配备双发动机和双螺旋桨，航速13节，续航里程1.6万海里。 其设计用于运输海上风电部件，包括单桩、导管架、漂浮式</p><br>
+<p>中新网新疆沙雅4月14日电 (张家伟)在新疆沙雅县盖孜库木乡的茫茫沙地上，梭梭、柽柳、四翅滨藜等沙生植物共生共长。 这片万余亩的沙生植物园，不仅锁住流沙，还在根部“藏”着一种经济作物——肉苁蓉。如今，沙雅县正将这条治沙产业链从种植延伸到深加工，让沙漠生态修复有了持续造血能力。 沙雅县位于塔克拉玛干沙漠北缘，近年来，当地规模化种植梭梭、柽柳等沙生植物，并在其根部接种肉苁蓉。目前，</p><br>
 <h2>正文</h2><br>
-<p>中国海上风电基础制造商大金重工在其盘锦造船基地举行了4万吨级甲板运输船“大金二号”的下水仪式。</p><br>
-<p>该船于4月19日下水，是盘锦基地建造的第二艘大型甲板运输船。</p><br>
-<p>此前“大金一号”已完成首航。</p><br>
-<p>“大金二号”全长239.8米，宽51米，深13米，甲板面积达1.2万平方米。</p><br>
-<p>该船配备双发动机和双螺旋桨，航速13节，续航里程1.6万海里。</p><br>
-<p>其设计用于运输海上风电部件，包括单桩、导管架、漂浮式基础及大型海上工程模块，可支持15兆瓦至25兆瓦级风机。</p><br>
-<p>盘锦基地位于渤海湾沿岸，专注于制造甲板运输船、半潜船和重吊船等高附加值海上船舶。</p><br>
-<p>大金重工表示，“大金”系列第三艘船计划于2026年5月下水，两艘新船均预计年内投入运营。</p><br>
+<p>中新网新疆沙雅4月14日电 (张家伟)在新疆沙雅县盖孜库木乡的茫茫沙地上，梭梭、柽柳、四翅滨藜等沙生植物共生共长。</p><br>
+<p>这片万余亩的沙生植物园，不仅锁住流沙，还在根部“藏”着一种经济作物——肉苁蓉。</p><br>
+<p>如今，沙雅县正将这条治沙产业链从种植延伸到深加工，让沙漠生态修复有了持续造血能力。</p><br>
+<p>沙雅县位于塔克拉玛干沙漠北缘，近年来，当地规模化种植梭梭、柽柳等沙生植物，并在其根部接种肉苁蓉。</p><br>
+<p>目前，仅盖孜库木乡南部的新疆仙草蓉科技有限公司的防沙治沙示范区就已种植沙生植物超5万亩，其中大部分已搭配种植肉苁蓉。</p><br>
+<p>“不能只固沙，还要让这片地实现价值。</p><br>
+<p>”上述企业技术负责人苟林说。</p><br>
+<p>该企业采用“两行一带”栽植模式，在流沙上建成10800亩沙生植物产业园，种植梭梭、四翅滨藜、白刺、碱蓬等10余个品种，并实现机械化植苗、机械化接种肉苁蓉。</p><br>
 <h2>相关推荐</h2><br>
-<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md</p><br>
-<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md</p><br>
-<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md</p><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
-<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md</p><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md</p><br>
-<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md</p><br>
-<h3>周冬雨多次说演不了话剧文城</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md</p><br>
-<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md</p><br>
-<h3>峡谷事故团队组队时有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md</p><br>
-<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md</p><br>
-<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md</p><br>
+<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md</p><br>
+<h3>上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md</p><br>
+<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md</p><br>
+<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md</p><br>
+<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md</p><br>
+<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md</p><br>
+<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md</p><br>
+<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md</p><br>
+<h3>超神人辉夜姬 第二集</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md</p><br>
+<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/92898947.shtml</p><br>
-<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/315476334346.shtml</p><br>
-<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.minike.top/Article/details/445369432.shtml</p><br>
-<h3>日本16强魔咒</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.minike.top/Article/details/533518945.shtml</p><br>
-<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/59043.shtml</p><br>
-<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/09412515.shtml</p><br>
-<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/7776946.shtml</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.minike.top/Article/details/07584.shtml</p><br>
-<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.minike.top/Article/details/21758388.shtml</p><br>
-<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/68193133950.shtml</p><br>
-<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/9460600.shtml</p><br>
-<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.minike.top/Article/details/13407.shtml</p><br>
-<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/28245534.shtml</p><br>
-<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.minike.top/Article/details/226881.shtml</p><br>
-<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/0290753.shtml</p><br>
+<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
+<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>

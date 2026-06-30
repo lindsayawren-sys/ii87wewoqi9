@@ -1,46 +1,42 @@
-<h1>商米科技-W于4月21日至24日招股 拟全球发售4262.68万股H股</h1><br>
+<h1>IMF：中东冲突叠加高利率环境 全球金融稳定风险上升</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>商米科技-W（06810）于2026年4月21日-4月24日招股，公司拟全球发售4262.68万股H股，香港公开发售占10%，国际发售占90%。发售价将为每股发售股份24.86港元，每手买卖单位为100股H股，预期H股将于2026年4月29日（星期三）上午九时正开始在联交所买卖。 此外，公司已与China Orient Enhanced Income Fund及XINWUTAN</p><br>
+<p>当地时间4月14日，国际货币基金组织（IMF）在最新一期发布的《全球金融稳定报告》中指出，当前全球金融体系在中东冲突、能源价格上行及利率维持高位的背景下，面临上升的稳定性风险。 IMF指出，中东冲突已成为当前影响全球金融市场的重要外部冲击。冲突发生后，全球股市出现回调，主权债券收益率上升，市场波动性增加。报告认为，这一变化主要通过能源价格上涨和通胀预期上行传导，并已对全球金融条</p><br>
 <h2>正文</h2><br>
-<p>商米科技-W（06810）于2026年4月21日-4月24日招股，公司拟全球发售4262.68万股H股，香港公开发售占10%，国际发售占90%。</p><br>
-<p>发售价将为每股发售股份24.86港元，每手买卖单位为100股H股，预期H股将于2026年4月29日（星期三）上午九时正开始在联交所买卖。</p><br>
-<p>此外，公司已与China Orient Enhanced Income Fund及XINWUTANG CO．， LIMITED订立基石投资协议，基石投资者已同意按发售价认购3657万美元的发售股份。</p><br>
-<p>China Orient Enhanced Income Fund由中国东方国际资产管理有限公司管理。</p><br>
-<p>XINWUTANG CO．， LIMITED由嘉善新武塘股权投资合伙企业（有限合伙）全资拥有。</p><br>
-<p>按每股股份发售价24.86港元，全球发售预计净筹约9.087亿港元。</p><br>
-<p>约40.0%用于为 BIoT软硬件解决方案的研发提供资金；约30.0%用于拨付加强供应链及生产运营；约20.0%用于拨付实施全球市场扩张计划；及约10.0%将用于营运资金及其他一般公司用途。</p><br>
-<p>责任编辑：卢昱君</p><br>
+<p>当地时间4月14日，国际货币基金组织（IMF）在最新一期发布的《全球金融稳定报告》中指出，当前全球金融体系在中东冲突、能源价格上行及利率维持高位的背景下，面临上升的稳定性风险。</p><br>
+<p>IMF指出，中东冲突已成为当前影响全球金融市场的重要外部冲击。</p><br>
+<p>冲突发生后，全球股市出现回调，主权债券收益率上升，市场波动性增加。</p><br>
+<p>报告认为，这一变化主要通过能源价格上涨和通胀预期上行传导，并已对全球金融条件形成收紧压力。</p><br>
+<p>IMF强调，在全球不确定性持续上升的背景下，各国政策重点应从预测冲击转向应对脆弱性，通过加强风险监测、完善宏观审慎政策和确保流动性支持机制有效运作，防止市场波动通过放大机制演变为系统性风险。</p><br>
+<p>（央视记者 许弢） 责任编辑：刘万里 SF014</p><br>
 <h2>相关推荐</h2><br>
-<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
-<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md</p><br>
-<h3>曝老詹对自由市场态度与以往截然不同</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md</p><br>
-<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md</p><br>
-<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
-<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md</p><br>
-<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md</p><br>
-<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md</p><br>
-<h3>DeepSeek启动成立来最大规模招聘</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md</p><br>
-<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md</p><br>
-<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md</p><br>
-<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md</p><br>
+<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md</p><br>
+<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md</p><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md</p><br>
+<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.blog.minike.top/Article/details/59949648914.shtml</p><br>
-<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.minike.top/Article/details/3832254.shtml</p><br>
-<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.minike.top/Article/details/23808.shtml</p><br>
-<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/476154.shtml</p><br>
-<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/29307966.shtml</p><br>
-<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/637529.shtml</p><br>
-<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/66128.shtml</p><br>
-<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.minike.top/Article/details/11386.shtml</p><br>
-<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/66724.shtml</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/878370725.shtml</p><br>
-<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/09976.shtml</p><br>
-<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.minike.top/Article/details/931238569483.shtml</p><br>
-<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.minike.top/Article/details/1458114.shtml</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/22287.shtml</p><br>
-<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/6675556639.shtml</p><br>
+<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
+<h3>追梦拒绝2770万美元球员选项</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
+<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
+<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>

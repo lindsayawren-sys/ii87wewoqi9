@@ -1,48 +1,46 @@
-<h1>1428亿！科创板今年最大IPO来了</h1><br>
+<h1>海垦集团与广东省商务厅座谈</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上市之家 4月21日，盛合晶微半导体有限公司（简称“盛合晶微”，股票代码：688820）正式在上交所科创板挂牌上市，成为科创板“晶圆级先进封测第一股”。公司本次公开发行股票数量为25，546.62万股，发行价格为19.68元/股，募资总额约50亿元，系2026年以来A股市场募资金额最大的IPO项目。</p><br>
+<p>4月12日，广东省商务厅组织广东多家企业代表到访海垦集团，并举行座谈会。双方围绕海南自贸港政策机遇、粤琼产业协同等议题展开深入探讨，旨在搭建长效合作机制，推动精准对接。座谈会现场。海垦集团党委委员、副总经理蒙小亮代表海垦集团党委对广东省商务厅一行的到来表示欢迎，并简要介绍了集团的战略布局和产业发展规划。他指出，海垦集团正按照海南省委、省政府的部署要求，牢记农垦姓“农”，积极践行</p><br>
 <h2>正文</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！</p><br>
-<p>来源：上市之家 4月21日，盛合晶微半导体有限公司（简称“盛合晶微”，股票代码：688820）正式在上交所科创板挂牌上市，成为科创板“晶圆级先进封测第一股”。</p><br>
-<p>公司本次公开发行股票数量为25，546.62万股，发行价格为19.68元/股，募资总额约50亿元，系2026年以来A股市场募资金额最大的IPO项目。</p><br>
-<p>上市首日，盛合晶微开盘价为99.72元/股，较发行价上涨406.71%，盘中市值一度突破1800亿元，收盘价为76.65元/股，较发行价上涨289%，以收盘价计算，公司市值约为1428亿元。</p><br>
-<p>从财务表现来看，盛合晶微近年来业绩增长势头显著。</p><br>
-<p>招股书显示，2022年至2024年，公司营业收入从16.33亿元增长至47.05亿元，三年复合增长率达69.77%；2025年，公司营业收入进一步增长至65.21亿元，同比增长38.59%，归母净利润达9.23亿元，同比增长约332%。</p><br>
-<p>2023年，公司已实现扭亏为盈。</p><br>
-<p>盛合晶微成立于2014年，起步于12英寸中段硅片加工，是全球领先的集成电路晶圆级先进封测企业。</p><br>
+<p>4月12日，广东省商务厅组织广东多家企业代表到访海垦集团，并举行座谈会。</p><br>
+<p>双方围绕海南自贸港政策机遇、粤琼产业协同等议题展开深入探讨，旨在搭建长效合作机制，推动精准对接。</p><br>
+<p>座谈会现场。</p><br>
+<p>海垦集团党委委员、副总经理蒙小亮代表海垦集团党委对广东省商务厅一行的到来表示欢迎，并简要介绍了集团的战略布局和产业发展规划。</p><br>
+<p>他指出，海垦集团正按照海南省委、省政府的部署要求，牢记农垦姓“农”，积极践行国企担当，加快提升服务保障国家天然橡胶、南繁育种战略安全的能力和水平，努力打造成为现代化农业企业集团和海南农业产业的一面旗帜。</p><br>
+<p>欢迎粤港澳大湾区企业借势布局，发挥农垦资源优势，在科技创新、品牌建设、市场开拓等方面开展更加务实的合作，共同推进科技成果转化和产业链延伸。</p><br>
+<p>广东省商务厅副厅长何军介绍，此次来访企业涵盖航空科技、建筑设计、基金投资、大健康、冷链物流、新零售等多个领域，与海垦产业互补性强。</p><br>
+<p>粤港澳大湾区与海南自贸港同为国家级开放平台，两地合作空间广阔，尤其在优质农产品市场对接、商贸流通等方面具备天然协同优势。</p><br>
 <h2>相关推荐</h2><br>
-<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md</p><br>
-<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
-<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md</p><br>
-<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md</p><br>
-<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md</p><br>
-<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md</p><br>
-<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md</p><br>
-<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md</p><br>
-<h3>天道</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md</p><br>
-<h3>国务院：探索延长义务教育年限</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md</p><br>
-<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md</p><br>
-<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md</p><br>
-<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md</p><br>
-<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md</p><br>
+<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md</p><br>
+<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md</p><br>
+<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md</p><br>
+<h3>4种红薯的满分吃法！有手就会…但能让你大为震撼！</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>如何看待 NBA2026 年休赛期美媒称 勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md</p><br>
+<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md</p><br>
+<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md</p><br>
+<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md</p><br>
+<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/84127878.shtml</p><br>
-<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/767367834895.shtml</p><br>
-<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/486498641683.shtml</p><br>
-<h3>安切洛蒂 换人</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/53334658918.shtml</p><br>
-<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.minike.top/Article/details/34711986.shtml</p><br>
-<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/75958585063.shtml</p><br>
-<h3>高质量发展看新疆</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/14219090070.shtml</p><br>
-<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/2878003637.shtml</p><br>
-<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.minike.top/Article/details/5522411060.shtml</p><br>
-<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.minike.top/Article/details/6272338.shtml</p><br>
-<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/7240830.shtml</p><br>
-<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.minike.top/Article/details/69593302400.shtml</p><br>
-<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/895395242394.shtml</p><br>
-<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/05124.shtml</p><br>
-<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/059374.shtml</p><br>
+<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
+<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
+<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>这些7月新规影响你我</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>起风了</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
+<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>

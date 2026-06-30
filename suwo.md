@@ -1,39 +1,48 @@
-<h1>沈阳全城披红 迎第十三批志愿军烈士遗骸归国</h1><br>
+<h1>3月末中国M2余额同比增长8.5%</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>发布时间：2026年04月21日 15:03 来源：中国新闻网 近日，沈阳青年大街主干道两侧挂满红旗，公交站、楼宇、电子屏换上“英雄回家”等主题。70余载等待，这座城市用最朴素也最滚烫的方式，迎接最可爱的人。山河如愿，英魂归乡。(王艺霖) 责任编辑：【于晓】</p><br>
+<p>中新社北京4月13日电 (记者 刘文文)中国人民银行13日发布的数据显示，3月末，广义货币(M2)余额353.86万亿元(人民币，下同)，同比增长8.5%。狭义货币(M1)余额119.32万亿元，同比增长5.1%。 贷款方面，3月末人民币贷款余额280.51万亿元，同比增长5.7%。一季度人民币贷款增加8.6万亿元，分部门看，住户贷款增加2967亿元；企(事)业单位贷款增加8.</p><br>
 <h2>正文</h2><br>
-<p>发布时间：2026年04月21日 15:03 来源：中国新闻网 近日，沈阳青年大街主干道两侧挂满红旗，公交站、楼宇、电子屏换上“英雄回家”等主题。</p><br>
-<p>70余载等待，这座城市用最朴素也最滚烫的方式，迎接最可爱的人。</p><br>
-<p>山河如愿，英魂归乡。</p><br>
-<p>(王艺霖) 责任编辑：【于晓】</p><br>
+<p>中新社北京4月13日电 (记者 刘文文)中国人民银行13日发布的数据显示，3月末，广义货币(M2)余额353.86万亿元(人民币，下同)，同比增长8.5%。</p><br>
+<p>狭义货币(M1)余额119.32万亿元，同比增长5.1%。</p><br>
+<p>贷款方面，3月末人民币贷款余额280.51万亿元，同比增长5.7%。</p><br>
+<p>一季度人民币贷款增加8.6万亿元，分部门看，住户贷款增加2967亿元；企(事)业单位贷款增加8.6万亿元；非银行业金融机构贷款减少3680亿元。</p><br>
+<p>M1比M2的流动性更强、在支付交易中使用更为便捷，能够更好反映社会经济活动的活跃程度。</p><br>
+<p>业内专家分析，2025年下半年以来，M1增速中枢明显回升，带动M2-M1剪刀差连续10个月保持在5个百分点以内。</p><br>
+<p>当前M2-M1剪刀差保持在相对低位，表明资金活化程度、循环效率不断提高。</p><br>
+<p>值得注意的是，一季度信贷增长呈现出更加平稳均衡的特征。</p><br>
 <h2>相关推荐</h2><br>
-<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md</p><br>
-<h3>【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md</p><br>
-<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md</p><br>
-<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md</p><br>
-<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md</p><br>
-<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md</p><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md</p><br>
-<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md</p><br>
+<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md</p><br>
+<h3>《赛博朋克：边缘行者 2》｜官方预告片</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md</p><br>
+<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md</p><br>
+<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md</p><br>
+<h3>女子遭下药退赔偿拟追刑责</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md</p><br>
+<h3>扫黑风暴</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md</p><br>
+<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md</p><br>
+<h3>委内瑞拉地震死亡人数升至1719人</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md</p><br>
+<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md</p><br>
+<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md</p><br>
+<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/6741400644.shtml</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.share.minike.top/Article/details/26055618.shtml</p><br>
-<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/266626734941.shtml</p><br>
-<h3>本届世界杯已有5名球员被控强奸</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.minike.top/Article/details/9782560068.shtml</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/6588278564.shtml</p><br>
-<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/207762115111.shtml</p><br>
-<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/4638004290.shtml</p><br>
-<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.share.minike.top/Article/details/139770224956.shtml</p><br>
-<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.minike.top/Article/details/9928087228.shtml</p><br>
-<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/77596678.shtml</p><br>
-<h3>“草莓月亮”浪漫现身</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/5747646950.shtml</p><br>
-<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.minike.top/Article/details/215777435280.shtml</p><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.share.minike.top/Article/details/43657355737.shtml</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.share.minike.top/Article/details/48160512.shtml</p><br>
-<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/0292494391.shtml</p><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
+<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
+<h3>一见倾心</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md</p><br>
+<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
+<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>

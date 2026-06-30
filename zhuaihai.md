@@ -1,39 +1,39 @@
-<h1>圣贝拉集团：受托人根据股份奖励计划购买20万股</h1><br>
+<h1>张立飞获批出任恒邦保险财务负责人</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>圣贝拉集团（02508）发布公告，于2026年4月17日，受托人根据圣贝拉2025年股份奖励计划在市场上购买合共20万股股份，平均交易价约为每股股份4.46港元，交易总额约为89.2万港元。于本公告日期，受托人已在市场上购买合共297.6万股股份，交易总额约为1260万港元。责任编辑：卢昱君</p><br>
+<p>4月14日金融一线消息，江西金融监管局发布关于张立飞恒邦财产保险股份有限公司财务负责人任职资格的批复，核准张立飞恒邦财产保险股份有限公司财务负责人的任职资格。 责任编辑：王馨茹</p><br>
 <h2>正文</h2><br>
-<p>圣贝拉集团（02508）发布公告，于2026年4月17日，受托人根据圣贝拉2025年股份奖励计划在市场上购买合共20万股股份，平均交易价约为每股股份4.46港元，交易总额约为89.2万港元。</p><br>
-<p>于本公告日期，受托人已在市场上购买合共297.6万股股份，交易总额约为1260万港元。</p><br>
-<p>责任编辑：卢昱君</p><br>
+<p>4月14日金融一线消息，江西金融监管局发布关于张立飞恒邦财产保险股份有限公司财务负责人任职资格的批复，核准张立飞恒邦财产保险股份有限公司财务负责人的任职资格。</p><br>
+<p>责任编辑：王馨茹</p><br>
 <h2>相关推荐</h2><br>
-<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
-<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md</p><br>
-<h3>AI手机进入Agent时代</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md</p><br>
-<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md</p><br>
-<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md</p><br>
-<h3>四川凉山落石砸毁车辆 3人遇难</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md</p><br>
-<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md</p><br>
-<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md</p><br>
-<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md</p><br>
-<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md</p><br>
+<h3>委内瑞拉地震死亡人数升至1719人</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md</p><br>
+<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md</p><br>
+<h3>上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md</p><br>
+<h3>高质量发展看新疆</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md</p><br>
+<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md</p><br>
+<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md</p><br>
+<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md</p><br>
+<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md</p><br>
+<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md</p><br>
+<h3>美股</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/7366417204.shtml</p><br>
-<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/682554021.shtml</p><br>
-<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/488675432670.shtml</p><br>
-<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/86126382.shtml</p><br>
-<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/181509634.shtml</p><br>
-<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.minike.top/Article/details/310631409.shtml</p><br>
-<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.blog.minike.top/Article/details/4466620.shtml</p><br>
-<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/638128.shtml</p><br>
-<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/78359704.shtml</p><br>
-<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/8994229.shtml</p><br>
-<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/701662635170.shtml</p><br>
-<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/85295332.shtml</p><br>
-<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/2770084.shtml</p><br>
-<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.minike.top/Article/details/69450901.shtml</p><br>
-<h3>梅德韦杰夫列举俄罗斯面临的七大挑战</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/451086622.shtml</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
+<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
+<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
+<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md</p><br>
+<h3>莫兰特被交易到开拓者</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
+<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>

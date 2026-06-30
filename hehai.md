@@ -1,43 +1,48 @@
-<h1>时隔20年 连战之子连胜文、连胜武回福建漳州祭祖</h1><br>
+<h1>半导体产业链景气上行，科创芯片设计ETF易方达涨2.58%</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>发布时间：2026年04月21日 18:05 来源：中国新闻网 4月21日，连战之子连胜文、连胜武回到福建省漳州市龙海区长洲村祭祖。中国国民党前主席连战之子、台湾青年发展基金会董事长连胜文在接受采访时表示两岸其实都是中华民族的一分子，两岸之间血脉文化相连的。未来希望能够积极努力，推动两岸和平发展，互惠双赢，共同创造一个美好的一个未来。(记者 张金川 制作 金彤阳) 责任编辑：【</p><br>
+<p>截至4月14日10点9分，上证指数涨0.40%，深证成指涨0.99%，创业板指涨1.27%。能源金属、元件、通信服务等板块涨幅居前。ETF方面，科创芯片设计ETF易方达（589030）涨2.58%，成分股佰维存储（688525.SH）涨超10%，普冉股份（688766.SH）涨超5%，联芸科技（688449.SH）、澜起科技（688008.SH）、灿芯股份（688691.SH）</p><br>
 <h2>正文</h2><br>
-<p>发布时间：2026年04月21日 18:05 来源：中国新闻网 4月21日，连战之子连胜文、连胜武回到福建省漳州市龙海区长洲村祭祖。</p><br>
-<p>中国国民党前主席连战之子、台湾青年发展基金会董事长连胜文在接受采访时表示两岸其实都是中华民族的一分子，两岸之间血脉文化相连的。</p><br>
-<p>未来希望能够积极努力，推动两岸和平发展，互惠双赢，共同创造一个美好的一个未来。</p><br>
-<p>(记者 张金川 制作 金彤阳) 责任编辑：【于晓】</p><br>
+<p>截至4月14日10点9分，上证指数涨0.40%，深证成指涨0.99%，创业板指涨1.27%。</p><br>
+<p>能源金属、元件、通信服务等板块涨幅居前。</p><br>
+<p>ETF方面，科创芯片设计ETF易方达（589030）涨2.58%，成分股佰维存储（688525.SH）涨超10%，普冉股份（688766.SH）涨超5%，联芸科技（688449.SH）、澜起科技（688008.SH）、灿芯股份（688691.SH）、中微半导（688380.SH）、聚辰股份（688123.SH）、龙芯中科（688047.SH）、东芯股份（688110.SH）、臻镭科技（维权）（688270.SH）等上涨。</p><br>
+<p>消息面上，据经报道，今年以来半导体全产业链涨价行情持续发酵，4月以来从英飞凌、德州仪器等国际大厂到晶合集成、普冉股份等国内厂商密集发布调价通知，其中德州仪器部分产品涨幅达15%至85%，国内晶圆代工龙头晶合集成宣布自6月1日起对新产出的晶圆代工产品统一涨价10%。</p><br>
+<p>同时，人工智能算力需求激增，共同推动半导体产业链景气度上行。</p><br>
+<p>上海证券表示，4月7日，DeepSeek宣布下一代旗舰模型DeepSeekV4将完全运行于华为昇腾950PR芯片，技术架构从CUDA全面转向CANN框架。</p><br>
+<p>经深度优化后，DeepSeekV4在昇腾950PR上的推理速度较初期版本提升35倍，第三方评测显示，昇腾950PR单卡推理性能达到英伟达特供版H20芯片的2.87倍，华为CANN框架已实现超95%的CUDA代码兼容，辅以一键迁移工具，代码重构从“按月计”缩短到“按小时计”，全面铺开国产算力生态。</p><br>
+<p>我们认为DeepSeekV4全面“换芯”实现从硬件到软件的完整自主可控，标志着国产AI芯片正加速从“可用”迈向“好用”，国产AI服务器建设将加速放量，需求将随国产算力投资扩张确定性提升。</p><br>
 <h2>相关推荐</h2><br>
-<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
-<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md</p><br>
-<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md</p><br>
-<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md</p><br>
-<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md</p><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md</p><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md</p><br>
-<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md</p><br>
-<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md</p><br>
-<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md</p><br>
-<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md</p><br>
-<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md</p><br>
-<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md</p><br>
-<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md</p><br>
+<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md</p><br>
+<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md</p><br>
+<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md</p><br>
+<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md</p><br>
+<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md</p><br>
+<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md</p><br>
+<h3>田曦薇这是日常不是广告</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md</p><br>
+<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
+<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md</p><br>
+<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md</p><br>
+<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md</p><br>
+<h3>国务院：鼓励行业龙头企业举办职校</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/85449400.shtml</p><br>
-<h3>王楚钦孙颖莎混双对手产生</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.minike.top/Article/details/99008.shtml</p><br>
-<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.blog.minike.top/Article/details/04374.shtml</p><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/20979.shtml</p><br>
-<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/741183809.shtml</p><br>
-<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.minike.top/Article/details/032224452.shtml</p><br>
-<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.share.minike.top/Article/details/986716.shtml</p><br>
-<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.blog.minike.top/Article/details/111308.shtml</p><br>
-<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/845974398.shtml</p><br>
-<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/99105917100.shtml</p><br>
-<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.minike.top/Article/details/688154870234.shtml</p><br>
-<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/0271490.shtml</p><br>
-<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.minike.top/Article/details/1237334525.shtml</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/05781774.shtml</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/164384219889.shtml</p><br>
+<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
+<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
+<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
+<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
+<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>女子健身不当 居然“脑子漏水”了</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>王健林甩卖超80座万达广场</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>

@@ -1,37 +1,48 @@
-<h1>湖南永顺：山间云雾 人间烟火</h1><br>
+<h1>一季度我国社会融资规模增量近15万亿元 信贷支持实体经济质效持续提升</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>发布时间：2026年04月21日 10:41 来源：中国新闻网 4月20日，湖南永顺，清晨云雾缭绕间，藏着最温柔的人间烟火，也藏着不期而遇的诗意。(作者：曾召纯) 责任编辑：【魏聪聪】</p><br>
+<p>本报北京4月13日电 （记者吴秋余）中国人民银行13日发布的金融统计数据报告显示：一季度，我国社会融资规模增量累计为14.83万亿元，处于历史同期较高水平。截至3月末，我国广义货币（M2）余额353.86万亿元，同比增长8.5%，比上年同期高1.5个百分点；社会融资规模存量456.46万亿元，同比增长7.9%，同经济增长、价格总水平预期目标相匹配。M2和社会融资规模增速均保持在</p><br>
 <h2>正文</h2><br>
-<p>发布时间：2026年04月21日 10:41 来源：中国新闻网 4月20日，湖南永顺，清晨云雾缭绕间，藏着最温柔的人间烟火，也藏着不期而遇的诗意。</p><br>
-<p>(作者：曾召纯) 责任编辑：【魏聪聪】</p><br>
+<p>本报北京4月13日电 （记者吴秋余）中国人民银行13日发布的金融统计数据报告显示：一季度，我国社会融资规模增量累计为14.83万亿元，处于历史同期较高水平。</p><br>
+<p>截至3月末，我国广义货币（M2）余额353.86万亿元，同比增长8.5%，比上年同期高1.5个百分点；社会融资规模存量456.46万亿元，同比增长7.9%，同经济增长、价格总水平预期目标相匹配。</p><br>
+<p>M2和社会融资规模增速均保持在合理水平，为经济持续向好向优创造适宜的货币金融环境。</p><br>
+<p>数据显示，一季度我国贷款规模保持合理增长，信贷结构持续优化。</p><br>
+<p>一季度人民币贷款增加8.6万亿元，截至3月末，人民币各项贷款余额280.51万亿元，同比增长5.7%。</p><br>
+<p>从结构上看，普惠小微贷款余额为38.38万亿元，同比增长10.3%，不含房地产业的服务业中长期贷款余额为61.39万亿元，同比增长9.9%，以上贷款增速均高于同期各项贷款增速。</p><br>
+<p>与此同时，贷款利率保持在历史低位水平。</p><br>
+<p>3月份企业新发放贷款（本外币）加权平均利率约为3.1%，比上年同期低约25个基点；个人住房新发放贷款（本外币）加权平均利率约为3.1%，比上年同期低约6个基点。</p><br>
 <h2>相关推荐</h2><br>
-<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md</p><br>
-<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md</p><br>
-<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md</p><br>
-<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md</p><br>
-<h3>法媒点赞中国小区楼顶“人工降雨”</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md</p><br>
-<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md</p><br>
-<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md</p><br>
-<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md</p><br>
-<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md</p><br>
+<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md</p><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md</p><br>
+<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md</p><br>
+<h3>中方对白俄罗斯平民伤亡表示关切</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md</p><br>
+<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md</p><br>
+<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md</p><br>
+<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md</p><br>
+<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md</p><br>
+<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md</p><br>
+<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md</p><br>
+<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>AI手机进入Agent时代</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/067846603.shtml</p><br>
-<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/6086632004.shtml</p><br>
-<h3>诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/03145.shtml</p><br>
-<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/94196.shtml</p><br>
-<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/74611.shtml</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.minike.top/Article/details/11604009.shtml</p><br>
-<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/4933730.shtml</p><br>
-<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/462817.shtml</p><br>
-<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.minike.top/Article/details/26609722.shtml</p><br>
-<h3>黄晓明夸昆凌引杨颖对比</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.minike.top/Article/details/562912.shtml</p><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/91374925783.shtml</p><br>
-<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.blog.minike.top/Article/details/90434772.shtml</p><br>
-<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/74540043.shtml</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.minike.top/Article/details/3889342188.shtml</p><br>
-<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/57811381594.shtml</p><br>
+<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
+<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
+<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md</p><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
+<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
+<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>

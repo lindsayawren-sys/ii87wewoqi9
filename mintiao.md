@@ -1,48 +1,46 @@
-<h1>巴西乐团广西桂林山水间唱响中巴友谊之歌</h1><br>
+<h1>山西探索守护千年古建悬空寺新方案</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网桂林4月20日电(邓竣缤)连日来，巴西里约热内卢科帕卡巴纳要塞乐团一行先后走进广西南宁、桂林等地，参与“广西三月三”系列文化交流活动。 从南宁“世界同唱三月三”表演到桂林漓江游船，从阳朔西街到印象·刘三姐剧场，这支乐团用音乐跨越语言、阶层与文化差异，在广西的山水间奏响民心相通的友谊乐章。 在桂林市甲天下会展中心的演出中，巴西乐手不仅演奏了巴西名曲《雀鸟》，还演奏了中国民歌</p><br>
+<p>中新社山西大同4月13日电 (记者 范丽芳)悬空寺正面临人流激增、木结构老化变形、岩石结构松散等诸多严峻挑战。近日，山西省地震局在悬空寺南北楼的梁、柱及栈道等40个关键节点布设分布式光纤传感网络，对结构振动响应实施全天候监测。 “这套‘结构健康监测与振(震)动风险感知系统’针对悬空寺人流激增、工业施工等环境振动进行监测。”山西省地震局文物抗震保护创新团队负责人曾金艳接受中新社记</p><br>
 <h2>正文</h2><br>
-<p>中新网桂林4月20日电(邓竣缤)连日来，巴西里约热内卢科帕卡巴纳要塞乐团一行先后走进广西南宁、桂林等地，参与“广西三月三”系列文化交流活动。</p><br>
-<p>从南宁“世界同唱三月三”表演到桂林漓江游船，从阳朔西街到印象·刘三姐剧场，这支乐团用音乐跨越语言、阶层与文化差异，在广西的山水间奏响民心相通的友谊乐章。</p><br>
-<p>在桂林市甲天下会展中心的演出中，巴西乐手不仅演奏了巴西名曲《雀鸟》，还演奏了中国民歌《茉莉花》。</p><br>
-<p>当巴西铜管乐器的热情节奏与壮族山歌的悠扬旋律交织在一起，现场观众纷纷起立鼓掌。</p><br>
-<p>“我们通过音乐互相了解、互相熟知，找到同样的爱好。</p><br>
-<p>”乐团中提琴手玛吉特·帕林卡斯(Margit Palinkas)说。</p><br>
-<p>乐团此行还深度体验了桂林山水文化。</p><br>
-<p>19日清晨，他们从竹江码头乘船游览漓江。</p><br>
+<p>中新社山西大同4月13日电 (记者 范丽芳)悬空寺正面临人流激增、木结构老化变形、岩石结构松散等诸多严峻挑战。</p><br>
+<p>近日，山西省地震局在悬空寺南北楼的梁、柱及栈道等40个关键节点布设分布式光纤传感网络，对结构振动响应实施全天候监测。</p><br>
+<p>“这套‘结构健康监测与振(震)动风险感知系统’针对悬空寺人流激增、工业施工等环境振动进行监测。</p><br>
+<p>”山西省地震局文物抗震保护创新团队负责人曾金艳接受中新社记者采访时表示。</p><br>
+<p>监测分析结果将为核定最大安全登临量提供参考，该项工作也为探索文物古建筑预防性保护提供新方法。</p><br>
+<p>悬空寺位于山西省大同市恒山金龙峡西侧翠屏峰峭壁间，始建于北魏太和十五年(公元491年)。</p><br>
+<p>其建筑以半插飞梁为基，借助岩石暗托，让梁柱上下浑然一体，是世界上现存建在悬崖绝壁上最早的木结构建筑群。</p><br>
+<p>1982年，悬空寺被列入全国重点文物保护单位。</p><br>
 <h2>相关推荐</h2><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md</p><br>
-<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md</p><br>
-<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md</p><br>
-<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md</p><br>
-<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md</p><br>
-<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md</p><br>
-<h3>马耳他著名拱门坍塌致一中国男子身亡</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
-<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md</p><br>
-<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md</p><br>
-<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md</p><br>
-<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md</p><br>
+<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md</p><br>
+<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md</p><br>
+<h3>扫黑风暴</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md</p><br>
+<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md</p><br>
+<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md</p><br>
+<h3>如何看待 NBA2026 年休赛期美媒称 勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md</p><br>
+<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.minike.top/Article/details/396977465.shtml</p><br>
-<h3>尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.minike.top/Article/details/9594370.shtml</p><br>
-<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/925805.shtml</p><br>
-<h3>马耳他著名拱门坍塌致一中国男子身亡</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/962938054.shtml</p><br>
-<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.share.minike.top/Article/details/6821955.shtml</p><br>
-<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/021318.shtml</p><br>
-<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.blog.minike.top/Article/details/545502.shtml</p><br>
-<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.minike.top/Article/details/161011.shtml</p><br>
-<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/0300780828.shtml</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/292487828.shtml</p><br>
-<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.minike.top/Article/details/78479.shtml</p><br>
-<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/581564.shtml</p><br>
-<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.minike.top/Article/details/2313227.shtml</p><br>
-<h3>网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/597236.shtml</p><br>
-<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/025446.shtml</p><br>
+<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
+<h3>花少8要去世界杯举办国</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>曹雪芹为什么写贾母痛批私定终身，才子佳人小说不是婚姻自主、人文觉醒的反封建文学吗？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
+<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
+<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>

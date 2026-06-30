@@ -1,48 +1,40 @@
-<h1>镜观·回响｜八桂欢歌三月三 共绘团结新画卷</h1><br>
+<h1>习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>又是一年“三月三”，锦绣欢歌满八桂。 2021年4月27日，正在广西考察的习近平总书记来到广西民族博物馆，参观壮族文化展。博物馆外，三月三“歌圩节”壮族对歌等民族文化活动正在集中展示。习近平总书记同参加活动的各族群众亲切交流时强调： 总书记的重要指示，为广西做好民族团结工作、推动高质量发展指明了前进的方向。今日的八桂大地，民族团结进步之花常开长盛，边疆民族地区高质量发展步履铿锵</p><br>
+<p>发布时间：2026年04月14日 15:46 来源：央视新闻客户端 责任编辑：【杨彦宇】</p><br>
 <h2>正文</h2><br>
-<p>又是一年“三月三”，锦绣欢歌满八桂。</p><br>
-<p>2021年4月27日，正在广西考察的习近平总书记来到广西民族博物馆，参观壮族文化展。</p><br>
-<p>博物馆外，三月三“歌圩节”壮族对歌等民族文化活动正在集中展示。</p><br>
-<p>习近平总书记同参加活动的各族群众亲切交流时强调： 总书记的重要指示，为广西做好民族团结工作、推动高质量发展指明了前进的方向。</p><br>
-<p>今日的八桂大地，民族团结进步之花常开长盛，边疆民族地区高质量发展步履铿锵。</p><br>
-<p>节日的广西，处处欢歌盛景。</p><br>
-<p>如今，“壮族三月三·八桂嘉年华”活动已成为极具特色的民族盛会，更成为广西享誉全国的特色文化名片。</p><br>
-<p>从首府南宁的盛大展演，到全区各地的欢歌盛景，各族群众以歌会友、以舞传情，共绘民族团结进步的时代长卷。</p><br>
+<p>发布时间：2026年04月14日 15:46 来源：央视新闻客户端 责任编辑：【杨彦宇】</p><br>
 <h2>相关推荐</h2><br>
-<h3>当我知道豆包有后台审核人员</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md</p><br>
-<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
-<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md</p><br>
-<h3>陈小春人老了干什么也不心酸</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md</p><br>
-<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md</p><br>
-<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md</p><br>
-<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md</p><br>
-<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md</p><br>
-<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md</p><br>
-<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md</p><br>
-<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md</p><br>
-<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md</p><br>
+<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md</p><br>
+<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md</p><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md</p><br>
+<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
+<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
+<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md</p><br>
+<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md</p><br>
+<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/51109404362.shtml</p><br>
-<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/03094101191.shtml</p><br>
-<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/1875118.shtml</p><br>
-<h3>可以细成这样？1600万预算，颠覆我认知的改造！</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.minike.top/Article/details/04095.shtml</p><br>
-<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/3110051.shtml</p><br>
-<h3>马杜罗账号在纽约发文致谢各国援助</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/4541294.shtml</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/70235464.shtml</p><br>
-<h3>千香</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/24980071011.shtml</p><br>
-<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.minike.top/Article/details/925629715922.shtml</p><br>
-<h3>感动全网的699分女生想报考清华</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/94584401712.shtml</p><br>
-<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/5030339.shtml</p><br>
-<h3>卢卡申科发布解放军仪仗队视频</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/543077.shtml</p><br>
-<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.minike.top/Article/details/93030147820.shtml</p><br>
-<h3>萨内 看笑了</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/83091.shtml</p><br>
-<h3>委内瑞拉地震死亡人数升至1719人</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/583436803676.shtml</p><br>
+<h3>田曦薇这是日常不是广告</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>
+<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
+<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
+<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>荀彧和曹操反目成仇的根本原因是什么？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>

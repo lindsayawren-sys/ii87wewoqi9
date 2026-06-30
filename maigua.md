@@ -1,45 +1,44 @@
-<h1>“影话共同体”2026北京民族电影展启动</h1><br>
+<h1>国际能源署预计中东冲突导致今年全球石油消费萎缩 为自疫情以来首见</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>4月17日，2026北京民族电影展在北京老舍剧场启动。 启动仪式上，北京市文学艺术界联合会党组书记、常务副主席马新明表示，民族电影作为记录民族团结进步、融通民族文化、凝聚奋进力量的重要载体，在助力铸牢中华民族共同体意识，推进中华民族共同体建设进程中发挥着不可替代的作用。北京市文联、北京影协深耕民族题材文艺创作，深度参与服务北京民族电影展，助力影展高品质举办、高水平呈现、高质量发</p><br>
+<p>国际能源署（IEA）表示，今年全球石油需求将出现自2020年疫情以来的首次下降，原因是中东冲突引发油价飙升，抹去了原本预期的需求增长。 这家为主要经济体提供咨询的机构在其月度报告中称：“伊朗战争彻底颠覆了全球石油消费前景。”“随着供应稀缺与高价格持续，需求破坏将会扩散。” 冲突切断了波斯湾关键水道霍尔木兹海峡的石油运输，引发了国际能源署所称“史上最大规模的供应中断”。原油现货与</p><br>
 <h2>正文</h2><br>
-<p>4月17日，2026北京民族电影展在北京老舍剧场启动。</p><br>
-<p>启动仪式上，北京市文学艺术界联合会党组书记、常务副主席马新明表示，民族电影作为记录民族团结进步、融通民族文化、凝聚奋进力量的重要载体，在助力铸牢中华民族共同体意识，推进中华民族共同体建设进程中发挥着不可替代的作用。</p><br>
-<p>北京市文联、北京影协深耕民族题材文艺创作，深度参与服务北京民族电影展，助力影展高品质举办、高水平呈现、高质量发展。</p><br>
-<p>北京市民族宗教事务委员会党组成员、副主任陈婷婷在讲话中表示，北京民族电影展历经十余年深耕，一部部优秀民族题材影片生动展现各民族文化风情，讲述中华民族一家亲的动人故事，为构筑中华民族共有精神家园注入力量。</p><br>
-<p>希望以本次电影展为契机，各界有识之士携起手来，打造更多民族题材佳作。</p><br>
-<p>当天还举办了“影话共同体”民族电影会客厅主题活动，邀请专家学者和创作者们交流探讨，为促进民族题材电影高质量发展建言献策。</p><br>
-<p>本届影展围绕铸牢中华民族共同体意识主线，共有19部影片入围参展。</p><br>
-<p>影展将参与北京国际电影节“北京市场”“北京展映”等主题活动，并筹办民族电影回顾展、民族电影会客厅、民族电影“九进”活动等。</p><br>
+<p>国际能源署（IEA）表示，今年全球石油需求将出现自2020年疫情以来的首次下降，原因是中东冲突引发油价飙升，抹去了原本预期的需求增长。</p><br>
+<p>这家为主要经济体提供咨询的机构在其月度报告中称：“伊朗战争彻底颠覆了全球石油消费前景。</p><br>
+<p>”“随着供应稀缺与高价格持续，需求破坏将会扩散。</p><br>
+<p>” 冲突切断了波斯湾关键水道霍尔木兹海峡的石油运输，引发了国际能源署所称“史上最大规模的供应中断”。</p><br>
+<p>原油现货与航煤、柴油、汽油等产品价格飙升，正在挤压消费者并拖累需求。</p><br>
+<p>上个月，总部位于巴黎的该机构协调包括美国、日本、德国在内的成员国，从紧急石油储备中释放4亿桶石油，力图遏制能源价格飙升。</p><br>
+<p>这是史上最大规模的释储行动。</p><br>
+<p>国际能源署周二发布的报告显示，此前预计全球日需求将增加73万桶的增量已被抹去，如今消费量将小幅收缩——日均减少8万桶。</p><br>
 <h2>相关推荐</h2><br>
-<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md</p><br>
-<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md</p><br>
-<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md</p><br>
-<h3>法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md</p><br>
-<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
-<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md</p><br>
-<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md</p><br>
-<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md</p><br>
-<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md</p><br>
-<h3>内马尔安慰日本球员</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md</p><br>
-<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md</p><br>
+<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md</p><br>
+<h3>田曦薇这是日常不是广告</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md</p><br>
+<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md</p><br>
+<h3>上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md</p><br>
+<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md</p><br>
+<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.minike.top/Article/details/769772943.shtml</p><br>
-<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.minike.top/Article/details/955285169.shtml</p><br>
-<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.minike.top/Article/details/603770292.shtml</p><br>
-<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/884698.shtml</p><br>
-<h3>AI手机进入Agent时代</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.minike.top/Article/details/081972.shtml</p><br>
-<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.minike.top/Article/details/1611872088.shtml</p><br>
-<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.minike.top/Article/details/538554793.shtml</p><br>
-<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/805694.shtml</p><br>
-<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.blog.minike.top/Article/details/1016884.shtml</p><br>
-<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/1420963226.shtml</p><br>
-<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.minike.top/Article/details/12193533064.shtml</p><br>
-<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/601669579.shtml</p><br>
-<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/469219791.shtml</p><br>
-<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/540105541.shtml</p><br>
-<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/246452.shtml</p><br>
+<h3>如何改变自己太负责任的性格?</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>汉语是世界上最言简意赅的语言吗？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
+<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>

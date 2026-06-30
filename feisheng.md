@@ -1,41 +1,46 @@
-<h1>泰国副总理：泰国拟立法举债156亿美元 上调债务上限</h1><br>
+<h1>中俄界江黑龙江嘉荫段“文开江” 冰排缓流展春日盛景</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>泰国一位副总理周一表示，泰国政府计划出台专项法案，举借5000亿泰铢（折合156亿美元），用以应对国内经济相关问题。帕坤・尼尔普拉普兰特向媒体表示，本次举债计划具备合理依据，原因在于政府现金结余紧张，同时外部风险与环境相关风险持续上升。他补充道，实际举借金额可能低于5000亿泰铢的法定上限，但依据国家公共债务管理规定，仍需上调整体债务限额，以匹配法案拟定的全额额度。帕坤称，目前</p><br>
+<p>中新网伊春4月13日电(刘璐 赵雨萱 杨松)近日，随着气温稳步回升，中俄界江黑龙江嘉荫段正式开江。开江过程平稳舒缓，属于典型的“文开江”。 开江现场，江面冰层逐层解冻、悄然化开，一块块大小不一的冰排顺流而下，绘就了一幅宁静又壮美的春日开江画卷。“以前只在电视上看过开江，来到现场才真正理解什么叫‘冰排顺流、春回大地’，太壮阔了。”哈尔滨游客刘女士说。每逢开江时节，嘉荫都会吸引众多</p><br>
 <h2>正文</h2><br>
-<p>泰国一位副总理周一表示，泰国政府计划出台专项法案，举借5000亿泰铢（折合156亿美元），用以应对国内经济相关问题。</p><br>
-<p>帕坤・尼尔普拉普兰特向媒体表示，本次举债计划具备合理依据，原因在于政府现金结余紧张，同时外部风险与环境相关风险持续上升。</p><br>
-<p>他补充道，实际举借金额可能低于5000亿泰铢的法定上限，但依据国家公共债务管理规定，仍需上调整体债务限额，以匹配法案拟定的全额额度。</p><br>
-<p>帕坤称，目前泰国公共债务规模约占国内生产总值（GDP）的66%，已逼近现行70%的债务上限，因此亟需上调限额。</p><br>
-<p>他表示，由于财政空间已十分有限，财政部将敲定全新的公共债务上限数值。</p><br>
-<p>责任编辑：王永生</p><br>
+<p>中新网伊春4月13日电(刘璐 赵雨萱 杨松)近日，随着气温稳步回升，中俄界江黑龙江嘉荫段正式开江。</p><br>
+<p>开江过程平稳舒缓，属于典型的“文开江”。</p><br>
+<p>开江现场，江面冰层逐层解冻、悄然化开，一块块大小不一的冰排顺流而下，绘就了一幅宁静又壮美的春日开江画卷。</p><br>
+<p>“以前只在电视上看过开江，来到现场才真正理解什么叫‘冰排顺流、春回大地’，太壮阔了。</p><br>
+<p>”哈尔滨游客刘女士说。</p><br>
+<p>每逢开江时节，嘉荫都会吸引众多民众和摄影爱好者前来观景打卡。</p><br>
+<p>据黑龙江省水文水资源中心伊春分中心嘉荫勘测站站长颜庭辉介绍，受气温、天气等影响，黑龙江嘉荫段今年开江比历年提前10天左右。</p><br>
+<p>目前，江面仍有部分区域冰雪未完全消融，冰层正逐步变薄。</p><br>
 <h2>相关推荐</h2><br>
-<h3>哈弗茨头球破门</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md</p><br>
-<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md</p><br>
-<h3>健全中小学教师工资长效联动机制</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md</p><br>
-<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md</p><br>
-<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md</p><br>
-<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md</p><br>
-<h3>健全中小学教师工资长效联动机制</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md</p><br>
-<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md</p><br>
-<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md</p><br>
+<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md</p><br>
+<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md</p><br>
+<h3>峡谷事故团队组队时有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md</p><br>
+<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md</p><br>
+<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md</p><br>
+<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md</p><br>
+<h3>徐亮怒斥世界杯踢假球</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md</p><br>
+<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/34921272601.shtml</p><br>
-<h3>周冬雨多次说演不了话剧文城</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.share.minike.top/Article/details/5563134484.shtml</p><br>
-<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.minike.top/Article/details/892014.shtml</p><br>
-<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.share.minike.top/Article/details/05434542675.shtml</p><br>
-<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/816326.shtml</p><br>
-<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.minike.top/Article/details/394792.shtml</p><br>
-<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/766893.shtml</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.minike.top/Article/details/65404795.shtml</p><br>
-<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.minike.top/Article/details/28669956.shtml</p><br>
-<h3>郑钦文 四年一轮游</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/1264062.shtml</p><br>
-<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/17352.shtml</p><br>
-<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/6483086.shtml</p><br>
-<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.minike.top/Article/details/612479.shtml</p><br>
-<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.minike.top/Article/details/986858347.shtml</p><br>
-<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/95914087514.shtml</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
+<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
+<h3>深圳交警集中曝光典型违法案例</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
+<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
+<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
+<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>

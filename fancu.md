@@ -1,45 +1,48 @@
-<h1>千店“虚火”与亏损真相：Tims天好中国2025年报的转型与突围之战</h1><br>
+<h1>11项网络直播打赏规定为何出台、意义何在？专家解读</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>2026年4月14日，连锁咖啡品牌Tims天好中国发布了2025年第四季度及全年财报。这份财报甫一公布，便引发了市场两极分化的解读：一方面，全年系统销售额达15.65亿元，同比增长7.6%，门店数首次突破千店大关，加盟申请超过一万份；另一方面，全年营收13.16亿元同比下降5.4%，净亏损4.36亿元同比继续扩大，第四季度单季净亏损几乎翻倍至2.28亿元。“越开店越亏钱”的尴尬</p><br>
+<p>记者今天(13日)从中央网信办获悉，为进一步加强网络直播打赏管理，规范网络直播营利行为，推动网站平台合规健康运营，切实维护网民合法权益，中央网信办发布“关于加强网络直播打赏规范管理的通知”。 据记者了解，“通知”中提出11项具体要求，包括：明示打赏规则、规范打赏营利权限开通、完善未成年人保护机制、建立打赏营利行为负面清单、加大处置和曝光力度等。 针对打赏规则及打赏营利权限开通，</p><br>
 <h2>正文</h2><br>
-<p>2026年4月14日，连锁咖啡品牌Tims天好中国发布了2025年第四季度及全年财报。</p><br>
-<p>这份财报甫一公布，便引发了市场两极分化的解读：一方面，全年系统销售额达15.65亿元，同比增长7.6%，门店数首次突破千店大关，加盟申请超过一万份；另一方面，全年营收13.16亿元同比下降5.4%，净亏损4.36亿元同比继续扩大，第四季度单季净亏损几乎翻倍至2.28亿元。</p><br>
-<p>“越开店越亏钱”的尴尬景象，折射出中国咖啡市场竞争白热化背景下，一个外资品牌在战略转型与财务阵痛之间的艰难平衡。</p><br>
-<p>“咖啡+暖食”转型：模式重构与盈利困局的双重变奏 如果说2025年Tims天好中国的全年财报有一条最清晰的叙事主线，那便是“转型”。</p><br>
-<p>CEO卢永臣在财报中直言，2025年是公司关键的转型之年。</p><br>
-<p>这一年，Tims天好中国不惜重金——投入超过6000万元——对全系统门店进行了大刀阔斧的现点现制（MTO）改造，试图以“咖啡+暖食”的差异化定位，从瑞幸、库迪掀起的9.9元价格战泥潭中杀出一条生路。</p><br>
-<p>从战略落地的结果来看，这场转型确实取得了阶段性成效。</p><br>
-<p>截至2025年年末，Tims天好中国总门店数达1047家，其中现点现制门店770家，占比高达74%。</p><br>
+<p>记者今天(13日)从中央网信办获悉，为进一步加强网络直播打赏管理，规范网络直播营利行为，推动网站平台合规健康运营，切实维护网民合法权益，中央网信办发布“关于加强网络直播打赏规范管理的通知”。</p><br>
+<p>据记者了解，“通知”中提出11项具体要求，包括：明示打赏规则、规范打赏营利权限开通、完善未成年人保护机制、建立打赏营利行为负面清单、加大处置和曝光力度等。</p><br>
+<p>针对打赏规则及打赏营利权限开通，“通知”要求，网站平台向用户提供充值打赏服务，设置榜单排名，设计互动玩法，应制定明确规则，并以直接、简洁方式公开，不得采取多次跳转、冗长条款等方式影响用户知晓。</p><br>
+<p>网络直播账号申请开通打赏营利权限，如有违规记录，应在处置期满3个月后，再予以开通。</p><br>
+<p>网络直播账号被禁言的，应同步暂停其打赏营利权限，时长为禁言期限的2至3倍。</p><br>
+<p>针对未成年人保护，“通知”要求，网站平台不得向八周岁以下的未成年人提供打赏服务。</p><br>
+<p>向八周岁至十六周岁的未成年人提供打赏服务，应征得其监护人同意。</p><br>
+<p>向十六周岁以上的未成年人提供打赏服务，应征得其监护人同意或核验其收入证明材料。</p><br>
 <h2>相关推荐</h2><br>
-<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md</p><br>
-<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md</p><br>
-<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md</p><br>
-<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md</p><br>
-<h3>人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md</p><br>
-<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md</p><br>
-<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md</p><br>
-<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md</p><br>
-<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md</p><br>
-<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md</p><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md</p><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md</p><br>
+<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md</p><br>
+<h3>快递到家不能这样拆</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md</p><br>
+<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
+<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md</p><br>
+<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md</p><br>
+<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md</p><br>
+<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md</p><br>
+<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md</p><br>
+<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/26705221.shtml</p><br>
-<h3>黄晓明晒和周杰伦的合照</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.minike.top/Article/details/8494972.shtml</p><br>
-<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.minike.top/Article/details/103166051.shtml</p><br>
-<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.minike.top/Article/details/759457424.shtml</p><br>
-<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.minike.top/Article/details/6015739726.shtml</p><br>
-<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/70720574156.shtml</p><br>
-<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/69542.shtml</p><br>
-<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/90699487.shtml</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/711053.shtml</p><br>
-<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/56362827187.shtml</p><br>
-<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/270834742969.shtml</p><br>
-<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.minike.top/Article/details/089743.shtml</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.blog.minike.top/Article/details/0576353278.shtml</p><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/29257882943.shtml</p><br>
-<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.minike.top/Article/details/545078089.shtml</p><br>
+<h3>被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
+<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md</p><br>
+<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
+<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
+<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>电子游戏中有哪些关于武器的“刻板印象”？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>

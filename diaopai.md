@@ -1,38 +1,44 @@
-<h1>长江江豚数量实现恢复性增长，这些“智囊”功不可没！</h1><br>
+<h1>第六届消博会主宾国加拿大国家馆开馆</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>发布时间：2026年04月20日 14:24 来源：中国新闻网 2021年6月起，民革中央对口湖北开展长江生态环境保护民主监督。民革武汉市委会与中国科学院水生生物研究所合作，共同聚焦江豚保护，双方联合撰写的各项建议得到了有关部门的积极回应，建言献策成果正逐渐落地。 责任编辑：【于晓】</p><br>
+<p>中新社海口4月13日电 (陶思阅)第六届中国国际消费品博览会(下称“消博会”)13日至18日在海南海口举行，加拿大以主宾国身份亮相今年消博会。多位加方人士和企业表示，愿深化与中国的合作。 13日下午，加拿大国家馆开馆时分，展位人头攒动。加拿大国际贸易部长马宁德·西杜在致辞中表示，消费者、采购商、参展商齐聚于此，期待能进一步深化加中双边经贸合作，让更多优质产品走进中国市场。 “中</p><br>
 <h2>正文</h2><br>
-<p>发布时间：2026年04月20日 14:24 来源：中国新闻网 2021年6月起，民革中央对口湖北开展长江生态环境保护民主监督。</p><br>
-<p>民革武汉市委会与中国科学院水生生物研究所合作，共同聚焦江豚保护，双方联合撰写的各项建议得到了有关部门的积极回应，建言献策成果正逐渐落地。</p><br>
-<p>责任编辑：【于晓】</p><br>
+<p>中新社海口4月13日电 (陶思阅)第六届中国国际消费品博览会(下称“消博会”)13日至18日在海南海口举行，加拿大以主宾国身份亮相今年消博会。</p><br>
+<p>多位加方人士和企业表示，愿深化与中国的合作。</p><br>
+<p>13日下午，加拿大国家馆开馆时分，展位人头攒动。</p><br>
+<p>加拿大国际贸易部长马宁德·西杜在致辞中表示，消费者、采购商、参展商齐聚于此，期待能进一步深化加中双边经贸合作，让更多优质产品走进中国市场。</p><br>
+<p>“中国的仓储条件和运输效率具有很大优势，因此，对于追求新鲜的高价值农产品而言，中国是一个极其庞大的市场。</p><br>
+<p>”加拿大艾伯塔省农业及灌溉部部长RJ·西德格森接受中新社采访时说，艾伯塔省的长期目标是继续发展对华贸易，不仅将农产品、原材料出口到中国，也希望进口中国的产品。</p><br>
+<p>加拿大籍演员大山表达了类似的期待：“从加拿大消费者的角度来讲，特别期待中国电车重返加拿大市场。</p><br>
+<p>” 消博会已举行到第六届，参展企业也持续推进在中国市场的布局。</p><br>
 <h2>相关推荐</h2><br>
-<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md</p><br>
-<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md</p><br>
-<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
-<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md</p><br>
-<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md</p><br>
-<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md</p><br>
-<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md</p><br>
-<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md</p><br>
-<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md</p><br>
-<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md</p><br>
+<h3>巴西vs日本</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md</p><br>
+<h3>一生一世</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md</p><br>
+<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md</p><br>
+<h3>哈弗茨头球破门</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md</p><br>
+<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md</p><br>
+<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md</p><br>
+<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md</p><br>
+<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/418334381288.shtml</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/74163123481.shtml</p><br>
-<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.minike.top/Article/details/05355.shtml</p><br>
-<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.blog.minike.top/Article/details/274786.shtml</p><br>
-<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/810083439602.shtml</p><br>
-<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/424641184036.shtml</p><br>
-<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/67555.shtml</p><br>
-<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/55387.shtml</p><br>
-<h3>四川宜宾地震瞬间鱼群乱跳</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/4272014267.shtml</p><br>
-<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/8943962410.shtml</p><br>
-<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.blog.minike.top/Article/details/97617676.shtml</p><br>
-<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/4927253.shtml</p><br>
-<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/75018.shtml</p><br>
-<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.minike.top/Article/details/55352.shtml</p><br>
-<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/8889166.shtml</p><br>
+<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md</p><br>
+<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md</p><br>
+<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>“草莓月亮”浪漫现身</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
+<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
+<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
+<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>

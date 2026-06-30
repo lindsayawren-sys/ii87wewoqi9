@@ -1,45 +1,43 @@
-<h1>酒价内参4月20日价格发布：飞天茅台上涨2元</h1><br>
+<h1>戴尔、惠普股价因收购传闻大涨</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月20日整体明显回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9898元，较昨日上涨31元，升至近九日最高位。市场在昨日回落后明显修复，终端交投情绪显著改善。 今日白酒市场11大单品十涨一平，无一家下跌赢家占据绝对优势。上涨方面，</p><br>
+<p>科技网站 SemiAccurate 报道称英伟达正寻求一笔将重塑个人电脑行业格局的收购交易后，戴尔科技集团与惠普公司股价双双走高。 该网站称，英伟达已就收购一家 “大型企业” 进行了逾一年的谈判。 戴尔与惠普均位列全球顶级 PC 厂商之列。行业研究机构高德纳（Gartner）数据显示，总部位于加州帕洛阿尔托的惠普一季度占据全球 19% 的市场份额，仅次于市场份额近 27% 的联</p><br>
 <h2>正文</h2><br>
-<p>新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月20日整体明显回升。</p><br>
-<p>如果主要单品各取一瓶整体打包售卖，今日总售价为9898元，较昨日上涨31元，升至近九日最高位。</p><br>
-<p>市场在昨日回落后明显修复，终端交投情绪显著改善。</p><br>
-<p>今日白酒市场11大单品十涨一平，无一家下跌赢家占据绝对优势。</p><br>
-<p>上涨方面，习酒君品涨幅居前，上涨6元/瓶，再度创下近一个月最高；五粮液普五八代与国窖1573均上涨5元/瓶，其中五粮液普五八代创下近一个月最高纪录；青花汾20与水晶剑南春均上涨3元/瓶；飞天茅台、精品茅台、洋河梦之蓝M6+及青花郎均上涨2元/瓶，其中青花郎重回700元关口；五粮液1618小幅上涨1元/瓶。</p><br>
-<p>古井贡古20的价格环比保持不变。</p><br>
-<p>“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。</p><br>
-<p>随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。</p><br>
+<p>科技网站 SemiAccurate 报道称英伟达正寻求一笔将重塑个人电脑行业格局的收购交易后，戴尔科技集团与惠普公司股价双双走高。</p><br>
+<p>该网站称，英伟达已就收购一家 “大型企业” 进行了逾一年的谈判。</p><br>
+<p>戴尔与惠普均位列全球顶级 PC 厂商之列。</p><br>
+<p>行业研究机构高德纳（Gartner）数据显示，总部位于加州帕洛阿尔托的惠普一季度占据全球 19% 的市场份额，仅次于市场份额近 27% 的联想集团；总部位于得克萨斯州朗德罗克的戴尔市场份额约为 17%。</p><br>
+<p>英伟达是全球市值最高的企业，也是全球最大的人工智能算力芯片制造商。</p><br>
+<p>公司首席执行官黄仁勋一直是人工智能在全经济领域应用的主要倡导者，呼吁各类企业探索这项新兴技术如何助力业务发展。</p><br>
+<p>在截至今年 1 月的财年中，英伟达向合作伙伴与客户投入 700 亿美元，以进一步推动人工智能发展。</p><br>
+<p>戴尔同样生产搭载英伟达芯片的人工智能服务器，并预计在截至 2027 年 1 月的本财年内，该业务将实现约 500 亿美元收入。</p><br>
 <h2>相关推荐</h2><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md</p><br>
-<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md</p><br>
-<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md</p><br>
-<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
-<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md</p><br>
-<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md</p><br>
-<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md</p><br>
-<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md</p><br>
-<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md</p><br>
-<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md</p><br>
-<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md</p><br>
-<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md</p><br>
+<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md</p><br>
+<h3>网瘾賊大的阿嬷</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md</p><br>
+<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md</p><br>
+<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md</p><br>
+<h3>女子用家人生日买彩票中1032万</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md</p><br>
+<h3>哪部作品、哪本书、哪首歌，值得被一直传下去？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>日本淘汰</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.blog.minike.top/Article/details/8054965.shtml</p><br>
-<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/947754194305.shtml</p><br>
-<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.minike.top/Article/details/4637547.shtml</p><br>
-<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/234394829448.shtml</p><br>
-<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/826501083.shtml</p><br>
-<h3>世界杯巴拉圭点球淘汰德国</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.share.minike.top/Article/details/568477502383.shtml</p><br>
-<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/965463475442.shtml</p><br>
-<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/33164730689.shtml</p><br>
-<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.minike.top/Article/details/424665904750.shtml</p><br>
-<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/234271865344.shtml</p><br>
-<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.blog.minike.top/Article/details/094042973005.shtml</p><br>
-<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/557385225.shtml</p><br>
-<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/484760975.shtml</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/0531025.shtml</p><br>
-<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/62967991.shtml</p><br>
+<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
+<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>
+<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
+<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>有什么好的高中网课推荐吗？</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
+<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>

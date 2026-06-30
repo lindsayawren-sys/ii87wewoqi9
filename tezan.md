@@ -1,47 +1,44 @@
-<h1>尼日利亚丹格特炼油厂计划向高利润化学品领域扩张</h1><br>
+<h1>施罗德CEO：若油价保持在100美元以下，经济增长势头就能持续</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>尼日利亚丹格特集团(Dangote’s Refinery)正加速推进其位于拉各斯的炼油厂从传统燃油生产向高利润化学品领域的战略转型。作为该集团“2030年营收达1000亿美元”战略的核心部分，丹格特计划将炼油厂原油加工能力从目前的65万桶/日提升至140万桶/日，使其成为全球最大的单体炼油设施。 大幅提升化学品产能 根据与霍尼韦尔公司4月20日签署的最新协议，丹格特将采用霍尼韦</p><br>
+<p>施罗德首席执行官 理查德·奥尔德菲尔德表示，只要油价保持在每桶100美元以下，经济增长预计就能持续。 “毫无疑问，油价很可能会超过每桶80美元，但我认为只要油价保持在每桶100美元以下，我们就有可能看到油价继续上涨，”他在接受采访时表示。 奥尔德菲尔德还表示，油价长期超过每桶100美元“显然会造成损害”。 奥尔德菲尔德表示，目前的原油期货价格阶梯尚未反映出未来12个月市场前景中</p><br>
 <h2>正文</h2><br>
-<p>尼日利亚丹格特集团(Dangote’s Refinery)正加速推进其位于拉各斯的炼油厂从传统燃油生产向高利润化学品领域的战略转型。</p><br>
-<p>作为该集团“2030年营收达1000亿美元”战略的核心部分，丹格特计划将炼油厂原油加工能力从目前的65万桶/日提升至140万桶/日，使其成为全球最大的单体炼油设施。</p><br>
-<p>大幅提升化学品产能 根据与霍尼韦尔公司4月20日签署的最新协议，丹格特将采用霍尼韦尔UOP的Oleflex技术，每年额外生产75万吨丙烯，用于包装材料、消费品和工业产品的制造。</p><br>
-<p>此外，丹格特还将部署霍尼韦尔UOP的一系列石化技术和催化剂，每年生产40万吨直链烷基苯，这是家用和工业清洁产品中洗涤剂和表面活性剂的关键成分。</p><br>
-<p>投产后，位于莱基的这一直链烷基苯工厂将成为全球最大的同类设施之一。</p><br>
-<p>除了丙烯和直链烷基苯，丹格特的扩张计划还包括将聚丙烯年产量从90万吨大幅提升至240万吨，并将尼日利亚的尿素产能从300万吨/年增加至900万吨/年。</p><br>
-<p>与埃塞俄比亚300万吨/年的尿素产能相结合，丹格特集团将成为全球最大的尿素生产商。</p><br>
-<p>战略布局与基础设施保障 丹格特集团总裁阿里科·丹格特表示，与霍尼韦尔的持续合作是推进尼日利亚工业部门发展的关键一步，有助于支持国家供应链独立和经济增长。</p><br>
+<p>施罗德首席执行官 理查德·奥尔德菲尔德表示，只要油价保持在每桶100美元以下，经济增长预计就能持续。</p><br>
+<p>“毫无疑问，油价很可能会超过每桶80美元，但我认为只要油价保持在每桶100美元以下，我们就有可能看到油价继续上涨，”他在接受采访时表示。</p><br>
+<p>奥尔德菲尔德还表示，油价长期超过每桶100美元“显然会造成损害”。</p><br>
+<p>奥尔德菲尔德表示，目前的原油期货价格阶梯尚未反映出未来12个月市场前景中任何长期市场动荡的预期。</p><br>
+<p>责任编辑：于健 SF069</p><br>
 <h2>相关推荐</h2><br>
-<h3>把毒品藏在哪里，60秒内不会被发现？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md</p><br>
-<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md</p><br>
-<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md</p><br>
-<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md</p><br>
-<h3>逃狱兄弟</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md</p><br>
-<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md</p><br>
-<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md</p><br>
-<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md</p><br>
-<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md</p><br>
-<h3>尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md</p><br>
-<h3>俄乌双方伤亡近180万人</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md</p><br>
-<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md</p><br>
+<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md</p><br>
+<h3>亚洲球队全部出局</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md</p><br>
+<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md</p><br>
+<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md</p><br>
+<h3>把毒品藏在哪里，60秒内不会被发现？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md</p><br>
+<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md</p><br>
+<h3>AI手机进入Agent时代</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/532422.shtml</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.minike.top/Article/details/9112968823.shtml</p><br>
-<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/98008435.shtml</p><br>
-<h3>德国巴拉圭进入点球大战</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.share.minike.top/Article/details/990923717.shtml</p><br>
-<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/7613879847.shtml</p><br>
-<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/0840502403.shtml</p><br>
-<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/8120189152.shtml</p><br>
-<h3>王楚钦孙颖莎混双对手产生</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/3522327830.shtml</p><br>
-<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.blog.minike.top/Article/details/08858.shtml</p><br>
-<h3>“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/95926959.shtml</p><br>
-<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/591227363.shtml</p><br>
-<h3>恋与深空</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/19058625534.shtml</p><br>
-<h3>“草莓月亮”浪漫现身</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/03706.shtml</p><br>
-<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/88281356443.shtml</p><br>
-<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/47368924409.shtml</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
+<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
+<h3>日本主帅：未能夺冠深感抱歉</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
+<h3>内马尔安慰日本球员</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>高质量发展看新疆</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
+<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
+<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
+<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>

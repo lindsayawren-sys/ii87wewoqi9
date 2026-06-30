@@ -1,38 +1,44 @@
-<h1>西楚霸王“归来”！宿迁街头现巨型墙绘 3D效果拉满</h1><br>
+<h1>哈萨克斯坦今年第一季度GDP同比增长3%</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>发布时间：2026年04月20日 15:25 来源：中国新闻网 西楚霸王“归来”！宿迁街头现巨型墙绘 3D效果拉满 责任编辑：【李光伟】</p><br>
+<p>中新社阿斯塔纳4月14日电(记者 单璐)哈萨克斯坦总理别克捷诺夫14日在政府工作会议上表示，2026年第一季度该国国内生产总值(GDP)同比增长3%。下一阶段，政府将加大通胀治理力度，促进经济稳定运行。 当日，哈政府召开工作会议，审议一季度社会经济发展情况及国家预算执行情况。数据显示，一季度服务业同比增长3.7%，实体经济同比增长2.1%。分行业看，建筑业同比增长14.8%，运</p><br>
 <h2>正文</h2><br>
-<p>发布时间：2026年04月20日 15:25 来源：中国新闻网 西楚霸王“归来”！</p><br>
-<p>宿迁街头现巨型墙绘 3D效果拉满 责任编辑：【李光伟】</p><br>
+<p>中新社阿斯塔纳4月14日电(记者 单璐)哈萨克斯坦总理别克捷诺夫14日在政府工作会议上表示，2026年第一季度该国国内生产总值(GDP)同比增长3%。</p><br>
+<p>下一阶段，政府将加大通胀治理力度，促进经济稳定运行。</p><br>
+<p>当日，哈政府召开工作会议，审议一季度社会经济发展情况及国家预算执行情况。</p><br>
+<p>数据显示，一季度服务业同比增长3.7%，实体经济同比增长2.1%。</p><br>
+<p>分行业看，建筑业同比增长14.8%，运输服务业同比增长12.8%，加工制造业同比增长8.5%，建筑和运输等领域对该国经济增长形成有力支撑。</p><br>
+<p>投资方面，数据显示，一季度固定资产投资总额达3.5万亿坚戈(约合74亿美元)，同比增长6.4%，主要投向电力、通信及农业等领域。</p><br>
+<p>对外贸易方面，今年前两个月商品贸易总额为217亿美元，同比增长11.3%，实现贸易顺差24亿美元。</p><br>
+<p>值得关注的是，加工制造业在该国经济中的比重已连续两年超过采矿业。</p><br>
 <h2>相关推荐</h2><br>
-<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md</p><br>
-<h3>极限挑战第一季</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md</p><br>
-<h3>有什么好的高中网课推荐吗？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md</p><br>
-<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md</p><br>
-<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md</p><br>
-<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md</p><br>
-<h3>电影抓特务上映11天破亿</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md</p><br>
-<h3>起风了</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
-<h3>卡塞米罗头球破门</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md</p><br>
-<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md</p><br>
+<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md</p><br>
+<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md</p><br>
+<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md</p><br>
+<h3>美股</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md</p><br>
+<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md</p><br>
+<h3>周生如故</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md</p><br>
+<h3>为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/07629323417.shtml</p><br>
-<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.minike.top/Article/details/6425591948.shtml</p><br>
-<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/25761.shtml</p><br>
-<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/890162.shtml</p><br>
-<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/18087.shtml</p><br>
-<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/452643416062.shtml</p><br>
-<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/862785.shtml</p><br>
-<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/8989917.shtml</p><br>
-<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.minike.top/Article/details/806548528867.shtml</p><br>
-<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/3014253967.shtml</p><br>
-<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/97046.shtml</p><br>
-<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/4081151.shtml</p><br>
-<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/282053.shtml</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.blog.minike.top/Article/details/7753236.shtml</p><br>
-<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.minike.top/Article/details/03173458.shtml</p><br>
+<h3>金刚川</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>欧洲家电巨头为何输掉了这个夏天</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
+<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md</p><br>
+<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>失明的我带老妈去了趟“火星”</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>天道</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
+<h3>4种红薯的满分吃法！有手就会…但能让你大为震撼！</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
+<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
+<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>

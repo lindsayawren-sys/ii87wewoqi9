@@ -1,48 +1,47 @@
-<h1>贷款协议藏“猫腻”，当心网络贷款有“隐性收费”</h1><br>
+<h1>SpaceX IPO或令特斯拉股价承压</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>贷款协议藏“猫腻”，不明所以多出高额“服务费”“担保费” 当心网络贷款有“隐性收费”(百姓关注) “低利率”“秒到账”“免抵押”“无需征信”……点开网络贷款平台的页面，关于贷款的广告语对于急需用钱的消费者而言，十分诱人。当下，一些网络贷款的便利性确实给很多人解了燃眉之急。然而，风险与陷阱也随之而来，一些消费者在网络贷款中遭遇了“高额手续费”“话术诱导”“霸王条款”等问题，权益受</p><br>
+<p>SpaceX已秘密提交IPO申请，目标估值高达1.75万亿美元，有望成为史上最大规模IPO。然而，这场资本盛宴可能对同属马斯克旗下的特斯拉构成压力，原因可从以下几个方面来看。 资金分流效应：投资者面临“二选一” 特斯拉长期以来受益于“马斯克溢价”，即投资者对其愿景和领导力的押注。SpaceX上市后，马斯克的追随者将拥有一个更具吸引力的成长型投资标的。如果SpaceX估值与增长前</p><br>
 <h2>正文</h2><br>
-<p>贷款协议藏“猫腻”，不明所以多出高额“服务费”“担保费” 当心网络贷款有“隐性收费”(百姓关注) “低利率”“秒到账”“免抵押”“无需征信”……点开网络贷款平台的页面，关于贷款的广告语对于急需用钱的消费者而言，十分诱人。</p><br>
-<p>当下，一些网络贷款的便利性确实给很多人解了燃眉之急。</p><br>
-<p>然而，风险与陷阱也随之而来，一些消费者在网络贷款中遭遇了“高额手续费”“话术诱导”“霸王条款”等问题，权益受损后，维权也面临困难。</p><br>
-<p>有读者在不明所以的情况下，被收取了高额服务费和担保费。</p><br>
-<p>江苏南通的戴先生在人民网“人民投诉”反映，他去年在网上了解到一家网络金融服务公司，在其APP中提交了基本的财务状况后，输入贷款用途、金额、期限，即可查询到有哪些金融机构能够提供相应的贷款以及贷款条件。</p><br>
-<p>戴先生被其专业性与便利性吸引，在其推荐的一家网络金融平台贷款1.3万元，平台自动设置分12期还款，每月还款1207元，共计14484元。</p><br>
-<p>但在应还数目之外，该网贷平台还向戴先生收取了服务费1325元，担保费2340元，而戴先生在贷款时并未仔细看协议，对此毫不知情。</p><br>
-<p>在发现多出的费用后，戴先生重新查看当时的协议，才发现了“借款协议”中嵌套的“服务费协议”等内容。</p><br>
+<p>SpaceX已秘密提交IPO申请，目标估值高达1.75万亿美元，有望成为史上最大规模IPO。</p><br>
+<p>然而，这场资本盛宴可能对同属马斯克旗下的特斯拉构成压力，原因可从以下几个方面来看。</p><br>
+<p>资金分流效应：投资者面临“二选一” 特斯拉长期以来受益于“马斯克溢价”，即投资者对其愿景和领导力的押注。</p><br>
+<p>SpaceX上市后，马斯克的追随者将拥有一个更具吸引力的成长型投资标的。</p><br>
+<p>如果SpaceX估值与增长前景更为明朗，投资者可能会减持特斯拉，将资金转向SpaceX。</p><br>
+<p>SpaceX计划将高达30%的股份分配给散户投资者，为通常IPO水平的三倍。</p><br>
+<p>这意味着特斯拉庞大的散户投资者基础可能直接从SpaceX上市首日起就获得参与机会，进一步分流原本可能流入特斯拉的资金。</p><br>
+<p>特斯拉基本面疲软，高估值难支撑 特斯拉自身面临多重挑战。</p><br>
 <h2>相关推荐</h2><br>
-<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md</p><br>
-<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md</p><br>
-<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md</p><br>
-<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md</p><br>
-<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md</p><br>
-<h3>失明的我带老妈去了趟“火星”</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md</p><br>
-<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md</p><br>
-<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md</p><br>
-<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md</p><br>
-<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md</p><br>
-<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md</p><br>
-<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md</p><br>
-<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md</p><br>
-<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md</p><br>
+<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md</p><br>
+<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md</p><br>
+<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md</p><br>
+<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md</p><br>
+<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md</p><br>
+<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md</p><br>
+<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md</p><br>
+<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md</p><br>
+<h3>披荆斩棘的哥哥</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md</p><br>
+<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/60922318.shtml</p><br>
-<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/916613.shtml</p><br>
-<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/48362079.shtml</p><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/303123212.shtml</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/8535768.shtml</p><br>
-<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.minike.top/Article/details/497342.shtml</p><br>
-<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/048412897753.shtml</p><br>
-<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/9652162219.shtml</p><br>
-<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/779285954.shtml</p><br>
-<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/49159.shtml</p><br>
-<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/38985.shtml</p><br>
-<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/9206874.shtml</p><br>
-<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/6032808.shtml</p><br>
-<h3>马耳他著名拱门坍塌致一中国男子身亡</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/92994853695.shtml</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.minike.top/Article/details/169617281649.shtml</p><br>
+<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
+<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>你对《崩坏：星穹铁道》4.4版本「鸣笛于归寂之时」前瞻特别节目有什么期待？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>孙兴慜道歉</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
+<h3>世界杯巴拉圭点球淘汰德国</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
+<h3>超神人辉夜姬 第二集</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
+<h3>内马尔未登场 安切洛蒂赛后回应</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>

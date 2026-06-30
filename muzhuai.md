@@ -1,43 +1,44 @@
-<h1>三明治连锁品牌Jersey Mike’s秘密提交IPO申请</h1><br>
+<h1>国家医保局：进一步将口腔等3个领域纳入自查自纠范围</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>核心要点 Jersey Mike’s 于周一宣布，已秘密提交 IPO 申请。 此次公告发布的一年多前，黑石集团收购了这家三明治连锁的多数股权，据报道当时对其估值约 80 亿美元。 黑石交易完成后，Jersey Mike’s 聘请了前Wingstop首席执行官查理・莫里森执掌公司。莫里森曾执掌这家鸡翅连锁品牌十年，带领其完成 IPO 并实现历史性增长。 Jersey Mike’s</p><br>
+<p>中新网4月14日电 据“国家医保局”微信公众号消息，为深入贯彻《国务院办公厅关于加强医疗保障基金使用常态化监管的实施意见》要求，持续深化医保基金管理突出问题专项整治，进一步压实定点医药机构自我管理主体责任，规范医保基金使用，近日，国家医疗保障局在全国范围内组织开展2026年定点医药机构违法违规使用医保基金自查自纠工作。自查自纠聚焦重点领域“逐渐细化、持续深化”。在既往心血管内科</p><br>
 <h2>正文</h2><br>
-<p>核心要点 Jersey Mike’s 于周一宣布，已秘密提交 IPO 申请。</p><br>
-<p>此次公告发布的一年多前，黑石集团收购了这家三明治连锁的多数股权，据报道当时对其估值约 80 亿美元。</p><br>
-<p>黑石交易完成后，Jersey Mike’s 聘请了前Wingstop首席执行官查理・莫里森执掌公司。</p><br>
-<p>莫里森曾执掌这家鸡翅连锁品牌十年，带领其完成 IPO 并实现历史性增长。</p><br>
-<p>Jersey Mike’s 在全美拥有超过 3000 家门店，是美国第二大潜艇三明治连锁品牌，仅次于赛百味。</p><br>
-<p>根据特许经营披露文件，Jersey Mike’s 2025 年营收为3098 亿美元，同比增长 10.6%；2025 年净利润1.836 亿美元，低于上年的 2.388 亿美元。</p><br>
-<p>创始人彼得・坎克罗于 1971 年 14 岁时就在泽西海岸的一家三明治店打工；四年后，他凑钱买下了这家名为 Mike’s Subs 的小店。</p><br>
-<p>坎克罗随后更名并开启特许经营模式。</p><br>
+<p>中新网4月14日电 据“国家医保局”微信公众号消息，为深入贯彻《国务院办公厅关于加强医疗保障基金使用常态化监管的实施意见》要求，持续深化医保基金管理突出问题专项整治，进一步压实定点医药机构自我管理主体责任，规范医保基金使用，近日，国家医疗保障局在全国范围内组织开展2026年定点医药机构违法违规使用医保基金自查自纠工作。</p><br>
+<p>自查自纠聚焦重点领域“逐渐细化、持续深化”。</p><br>
+<p>在既往心血管内科、骨科、血液净化、康复、医学影像、临床检验、肿瘤、麻醉、重症医学等9个重点领域的基础上，本年度进一步将口腔、内分泌、精神医学3个领域纳入自查自纠范围。</p><br>
+<p>各地医保部门以此为基础，结合实际组织开展自查，确保全面覆盖、不留死角。</p><br>
+<p>本次自查自纠工作分三个阶段有序推进。</p><br>
+<p>一是细化制定本地清单。</p><br>
+<p>国家医保局已下发2026年定点医药机构违法违规使用医保基金典型问题清单，各地医保部门已于3月底前结合本地医保政策、诊疗项目规范，对问题清单进行细化完善。</p><br>
+<p>二是组织全面自查。</p><br>
 <h2>相关推荐</h2><br>
-<h3>巴拉圭进球</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md</p><br>
-<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md</p><br>
-<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md</p><br>
-<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md</p><br>
-<h3>考入南大计算机，复读考清北值吗？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md</p><br>
-<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md</p><br>
-<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md</p><br>
-<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md</p><br>
-<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md</p><br>
+<h3>酒店推行“24小时退房”引热议</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md</p><br>
+<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
+<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md</p><br>
+<h3>人民锐评网红诋毁袁隆平造谣企业家</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.minike.top/Article/details/2433361000.shtml</p><br>
-<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/0517395.shtml</p><br>
-<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.blog.minike.top/Article/details/2944019827.shtml</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/3956809829.shtml</p><br>
-<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/48459.shtml</p><br>
-<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.minike.top/Article/details/077263542.shtml</p><br>
-<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/6744608731.shtml</p><br>
-<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/655100.shtml</p><br>
-<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/475401.shtml</p><br>
-<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/0487685.shtml</p><br>
-<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/486244.shtml</p><br>
-<h3>致敬！中国首批缉毒警已全体退休</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/1807523885.shtml</p><br>
-<h3>日本反击率先破门</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/32881.shtml</p><br>
-<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/05821488.shtml</p><br>
-<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.minike.top/Article/details/5839110841.shtml</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
+<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
+<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
+<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
+<h3>金价跳水 水贝市场显现出“两重天”</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
+<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>美股</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
+<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
+<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>

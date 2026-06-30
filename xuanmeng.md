@@ -1,47 +1,44 @@
-<h1>刚宣布不超15亿理财，又拟定增募资13亿，骄成超声多缺钱？</h1><br>
+<h1>纪录片《中老铁路纪行》在中国与老挝同步播出</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 前脚刚宣布用闲置资金理财，一副“不差钱”的姿态；后脚就披露定增预案，向外界募资，又显得“缺钱”。这样的矛盾操作，就发生在骄成超声身上。 4月17日，骄成超声公告股东会会议资料，定增相关议案将在股东大会审议。此</p><br>
+<p>中新网昆明4月14日电 (记者 缪超)纪录片《中老铁路纪行》中老两国首播暨中老铁路体验采访活动启动仪式14日在昆明南站举行。 该纪录片分三集，由中国国家铁路集团有限公司党组宣传部和中共云南省委宣传部联合摄制，《人民铁道》报业有限公司、五洲传播中心、国家地理、云南广播电视台联合出品。主创团队集结中国、英国、澳大利亚、新加坡等多国专业力量，以英国摄影师托马斯·希顿的跨国考察之旅为叙</p><br>
 <h2>正文</h2><br>
-<p>登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！</p><br>
-<p>来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 前脚刚宣布用闲置资金理财，一副“不差钱”的姿态；后脚就披露定增预案，向外界募资，又显得“缺钱”。</p><br>
-<p>这样的矛盾操作，就发生在骄成超声身上。</p><br>
-<p>4月17日，骄成超声公告股东会会议资料，定增相关议案将在股东大会审议。</p><br>
-<p>此前的4月10日，公司披露定增预案，拟募资13.44亿元，其中1.7亿元用于补充流动资金。</p><br>
-<p>而就在3月30日，骄成超声董事会审议通过拟使用不超过7亿元的暂时闲置募集资金和不超过8亿元的闲置自有资金购买理财产品的议案。</p><br>
-<p>在前述额度及期限范围内，资金可以滚动使用。</p><br>
-<p>骄成超声之所以有闲置资金理财，与其2025年业绩表现有关：营收与净利润双双创下历史新高，货币资金规模增长。</p><br>
+<p>中新网昆明4月14日电 (记者 缪超)纪录片《中老铁路纪行》中老两国首播暨中老铁路体验采访活动启动仪式14日在昆明南站举行。</p><br>
+<p>该纪录片分三集，由中国国家铁路集团有限公司党组宣传部和中共云南省委宣传部联合摄制，《人民铁道》报业有限公司、五洲传播中心、国家地理、云南广播电视台联合出品。</p><br>
+<p>主创团队集结中国、英国、澳大利亚、新加坡等多国专业力量，以英国摄影师托马斯·希顿的跨国考察之旅为叙事主线，通过中老铁路沿线一个个充满烟火气的故事，生动展现中老铁路建设运营的丰硕成果。</p><br>
+<p>该片将于4月14日至16日每日19:30黄金时段在央视纪录频道播出，同步在老挝国家电视台播出，并将在爱奇艺、优酷、腾讯视频平台及部分省级卫视陆续播出。</p><br>
+<p>据悉，自2025年12月以来，该纪录片的英语版本已陆续在100多个国家和地区播出，在印度、德国、英国等多个国家收视率名列前茅。</p><br>
+<p>下一步，还将在泰国、马来西亚、缅甸、越南等国家本土化译制播出，让全球观众感受中老铁路的独特魅力。</p><br>
+<p>当天，“钢铁丝路好风光·中老情牵丝路长”体验采访活动同步启动，人民日报、新华社、中央广播电视总台、中新社、云南日报、云南广播电视台、老挝国家电视台、老挝国家通讯社等中老两国主要媒体组成的采访团，将深入探访中老铁路沿线，用心用情讲好中老铁路的精彩故事，彰显中老两国人民的深厚友谊。</p><br>
+<p>中老铁路自2021年12月3日开通运营以来，截至目前已累计发送旅客超7000万人次；运输货物量突破8150万吨，其中跨境货物超1860万吨。</p><br>
 <h2>相关推荐</h2><br>
-<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md</p><br>
-<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md</p><br>
-<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md</p><br>
-<h3>博世们还在犹豫 美的们已经卖断货</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md</p><br>
-<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md</p><br>
-<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md</p><br>
-<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md</p><br>
-<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md</p><br>
-<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md</p><br>
-<h3>一见倾心</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md</p><br>
-<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md</p><br>
-<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md</p><br>
-<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md</p><br>
-<h3>上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md</p><br>
+<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md</p><br>
+<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md</p><br>
+<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md</p><br>
+<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md</p><br>
+<h3>挪威国家队紧急从本土订购大批海鲜</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md</p><br>
+<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md</p><br>
+<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md</p><br>
+<h3>内马尔中场休息积极鼓励队友</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md</p><br>
+<h3>藤森庆子赢得秘鲁总统选举</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.blog.minike.top/Article/details/32338171.shtml</p><br>
-<h3>央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/588045.shtml</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/331325045.shtml</p><br>
-<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.minike.top/Article/details/7786880.shtml</p><br>
-<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/204050.shtml</p><br>
-<h3>MSI应援曲 如果季中成回忆</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.share.minike.top/Article/details/416997228246.shtml</p><br>
-<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/6546902.shtml</p><br>
-<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.minike.top/Article/details/6096194346.shtml</p><br>
-<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/56979.shtml</p><br>
-<h3>警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/4166278.shtml</p><br>
-<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/701369320867.shtml</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.minike.top/Article/details/25514195438.shtml</p><br>
-<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://www.share.minike.top/Article/details/3012628538.shtml</p><br>
-<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/792523229.shtml</p><br>
-<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/667797836.shtml</p><br>
+<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
+<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>内马尔安慰日本球员</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
+<h3>《我落泪情绪零碎》</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>女子清吧被陌生人投放伟哥</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
+<h3>中方对白俄罗斯平民伤亡表示关切</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
+<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
+<h3>马耳他著名拱门坍塌致一中国男子身亡</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md</p><br>
+<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>

@@ -1,41 +1,45 @@
-<h1>宁夏启动2026年全国知识产权宣传周活动</h1><br>
+<h1>（乡村行·看振兴）内蒙古乡村姐妹在屏幕里找到“新活法”</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网银川4月21日电 (记者 杨迪)4月21日，2026年全国知识产权宣传周宁夏分会场活动在银川市正式启动。 本次活动以“加强新兴领域知识产权保护 加快新质生产力发展”为主题，由宁夏知识产权局、银川市人民政府联合承办。启动仪式上，集中发布了“十四五”知识产权强区建设进展、2025—2027年国家知识产权强国建设示范创建对象名单以及2025年度知识产权保护、专利转化运用典型案例</p><br>
+<p>中新网赤峰4月14日电 题：内蒙古乡村姐妹在屏幕里找到“新活法” 作者 奥蓝 史子龙 在内蒙古自治区赤峰市克什克腾旗，手机屏幕正在成为当地妇女手中的“新农具”，而她们也在屏幕里找到了“新活法”。 “我是从社区群里知道了‘村播妇联’，后来又参加了好几次培训，现在一直在带货，也开始出镜拍视频了。现在主要销售当地农副产品，一个月能挣一两千元。”一年前，村民肖余梅还是一位对直播一窍不通</p><br>
 <h2>正文</h2><br>
-<p>中新网银川4月21日电 (记者 杨迪)4月21日，2026年全国知识产权宣传周宁夏分会场活动在银川市正式启动。</p><br>
-<p>本次活动以“加强新兴领域知识产权保护 加快新质生产力发展”为主题，由宁夏知识产权局、银川市人民政府联合承办。</p><br>
-<p>启动仪式上，集中发布了“十四五”知识产权强区建设进展、2025—2027年国家知识产权强国建设示范创建对象名单以及2025年度知识产权保护、专利转化运用典型案例，现场演示了宁夏高效办成知识产权保护“一件事”重点事项办事流程，介绍了国家级知识产权保护中心服务新兴领域产业发展成效，并邀请与会人员实地观摩保护中心调解室、巡回法庭等服务功能区，沉浸式体验专利预审、维权援助等工作场景。</p><br>
-<p>宣传周期间，相关部门还将组织举办知识产权法律法规“进机关”“进企业”“进校园”“进商场”等9场分项活动，通过科普“快闪”、政策宣讲、专利转化运用对接、知识产权案件公开庭审等方式，分层分级开展普法活动，全方位、多角度营造尊重和保护知识产权的良好氛围。</p><br>
-<p>宁夏将以本次宣传周活动为契机，持续推动知识产权文化传播，不断拓展宣传深度、拓宽覆盖广度，切实激发创新主体活力、培育壮大新质生产力，为加快知识产权强区建设、驱动经济社会高质量发展贡献积极力量。</p><br>
-<p>(完)</p><br>
+<p>中新网赤峰4月14日电 题：内蒙古乡村姐妹在屏幕里找到“新活法” 作者 奥蓝 史子龙 在内蒙古自治区赤峰市克什克腾旗，手机屏幕正在成为当地妇女手中的“新农具”，而她们也在屏幕里找到了“新活法”。</p><br>
+<p>“我是从社区群里知道了‘村播妇联’，后来又参加了好几次培训，现在一直在带货，也开始出镜拍视频了。</p><br>
+<p>现在主要销售当地农副产品，一个月能挣一两千元。</p><br>
+<p>”一年前，村民肖余梅还是一位对直播一窍不通的农村妇女；如今，她是拥有2万多粉丝的公益主播。</p><br>
+<p>周海燕的转变，源于她加入了克什克腾旗“村播妇联”。</p><br>
+<p>告别“单打独斗”，寻找“云端娘家” 克什克腾旗拥有壮美的文旅资源和丰富的农特产品，但长期以来，基层女主播们却面临着“有货卖不出、有景无人看”的尴尬。</p><br>
+<p>资源分散、缺乏专业设备、不懂运营技巧，让许多像周海燕一样的宝妈和“4050”人员望而却步。</p><br>
+<p>“以前直播像单打独斗，遇到难题没人商量，好几次都想放弃。</p><br>
 <h2>相关推荐</h2><br>
-<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md</p><br>
-<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md</p><br>
-<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md</p><br>
-<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md</p><br>
-<h3>《虎吹最难绷の一集》</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md</p><br>
-<h3>有什么好的高中网课推荐吗？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md</p><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md</p><br>
-<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md</p><br>
+<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md</p><br>
+<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md</p><br>
+<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md</p><br>
+<h3>如何评价《龙之家族》第三季第二集？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md</p><br>
+<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md</p><br>
+<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md</p><br>
+<h3>杨紫获白玉兰视后争议不止</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md</p><br>
+<h3>ASMR 千禧年百货大楼初代柜姐给你化大头贴妆</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/49473035689.shtml</p><br>
-<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/94894371.shtml</p><br>
-<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.share.minike.top/Article/details/08798884.shtml</p><br>
-<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/65087629.shtml</p><br>
-<h3>4种红薯的满分吃法！有手就会…但能让你大为震撼！</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.blog.minike.top/Article/details/34955.shtml</p><br>
-<h3>德国队世界杯点球大战首败</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.share.minike.top/Article/details/550783922374.shtml</p><br>
-<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/35600576.shtml</p><br>
-<h3>男子在京东买到“同仁堂”假药</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/9383735.shtml</p><br>
-<h3>现在叛逆期的孩子最怕的是什么？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/66783.shtml</p><br>
-<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/456339611.shtml</p><br>
-<h3>世界杯：荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.blog.minike.top/Article/details/11135586980.shtml</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.blog.minike.top/Article/details/848879705.shtml</p><br>
-<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.blog.minike.top/Article/details/80894117117.shtml</p><br>
-<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/94718.shtml</p><br>
-<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.minike.top/Article/details/99562.shtml</p><br>
+<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
+<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>德国北部枪击事件致5死</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>天道</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
+<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
+<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>

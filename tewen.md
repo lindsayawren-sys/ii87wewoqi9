@@ -1,45 +1,48 @@
-<h1>对话追觅俞浩：我的真实世界 如果 “狂” 意味着敢想，那就狂吧</h1><br>
+<h1>特朗普召DoorDash外卖员赴白宫，推销小费减税政策</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：晚点LatePost 追觅创始人 俞浩 从百万亿公司到为人类探索边界，俞浩想讲一套什么逻辑？ 文丨小晚 管艺雯 追觅创始人俞浩，将会是中国商业史上最具争议的创业者之一。 这不仅因为他在短时间内闯入诸多赛道，从扫地机、吸尘器到汽车、手机、大家电，还因为他对创新、管理、商业的种种理解，几乎都站在主流认知的</p><br>
+<p>特朗普总统周一让麦当劳将食品送到椭圆形办公室，以宣传他降低小费税，当被问及白宫工作人员是否善于给小费时，他递给外卖员一张看似100美元的钞票。 来自阿肯色州的莎伦·西蒙斯身穿一件红色的“DoorDashGrandma”T恤衫，在媒体的注视下，拎着两袋快餐敲门。特朗普应门，并在西蒙斯的陪同下，回答了记者们关于各种话题的提问。西蒙斯表示，1月份取消小费税后，她省下了一大笔钱。 由于</p><br>
 <h2>正文</h2><br>
-<p>炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！</p><br>
-<p>来源：晚点LatePost 追觅创始人 俞浩 从百万亿公司到为人类探索边界，俞浩想讲一套什么逻辑？</p><br>
-<p>文丨小晚 管艺雯 追觅创始人俞浩，将会是中国商业史上最具争议的创业者之一。</p><br>
-<p>这不仅因为他在短时间内闯入诸多赛道，从扫地机、吸尘器到汽车、手机、大家电，还因为他对创新、管理、商业的种种理解，几乎都站在主流认知的反面。</p><br>
-<p>1987 年出生于江苏南通的俞浩，因物理竞赛获奖被保送至清华大学航空航天系。</p><br>
-<p>他早年想做物理学家，研究生阶段试着研究湍流问题，很快放弃，转向工程与制造。</p><br>
-<p>2017 年他创办追觅，从高速数字马达做起，曾是小米生态链最边缘的代工厂，自建品牌、出海、高端化。</p><br>
-<p>俞浩说，追觅成立以来，每年都保持 100% 的收入增速。</p><br>
+<p>特朗普总统周一让麦当劳将食品送到椭圆形办公室，以宣传他降低小费税，当被问及白宫工作人员是否善于给小费时，他递给外卖员一张看似100美元的钞票。</p><br>
+<p>来自阿肯色州的莎伦·西蒙斯身穿一件红色的“DoorDashGrandma”T恤衫，在媒体的注视下，拎着两袋快餐敲门。</p><br>
+<p>特朗普应门，并在西蒙斯的陪同下，回答了记者们关于各种话题的提问。</p><br>
+<p>西蒙斯表示，1月份取消小费税后，她省下了一大笔钱。</p><br>
+<p>由于国会控制权将在11月的中期选举中争夺，特朗普的助手们希望在今年重点宣传美国的经济实力。</p><br>
+<p>美以对伊朗的战争阻碍了这些努力，尤其是油价飙升导致燃料成本上升，抵消了去年共和党支持的减税法案中对小费、社保退休金、加班费、汽车贷款利息以及州和地方税费的减税。</p><br>
+<p>事实上，上个月，DoorDash和其他商业模式依赖独立送货司机的公司都推出了措施，试图应对油价上涨。</p><br>
+<p>当记者问西蒙斯白宫是否善于给小费时，她说：“嗯，有可能。</p><br>
 <h2>相关推荐</h2><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md</p><br>
-<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md</p><br>
-<h3>周冬雨多次说演不了话剧文城</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md</p><br>
-<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md</p><br>
-<h3>【Reaction】女生最少的5款游戏</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md</p><br>
-<h3>周冬雨多次说演不了话剧文城</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md</p><br>
-<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md</p><br>
-<h3>F1奥地利站赛后复盘</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
-<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md</p><br>
-<h3>左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
+<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md</p><br>
+<h3>詹姆斯 勇士</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md</p><br>
+<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md</p><br>
+<h3>王楚钦孙颖莎晋级混双八强</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md</p><br>
+<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md</p><br>
+<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md</p><br>
+<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md</p><br>
+<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md</p><br>
+<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md</p><br>
+<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md</p><br>
+<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md</p><br>
+<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/6807401.shtml</p><br>
-<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.minike.top/Article/details/64996278.shtml</p><br>
-<h3>速度与激情9</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.minike.top/Article/details/69105987.shtml</p><br>
-<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/8404822.shtml</p><br>
-<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/89694.shtml</p><br>
-<h3>汉语是世界上最言简意赅的语言吗？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/916767352.shtml</p><br>
-<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/4042842375.shtml</p><br>
-<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/26478.shtml</p><br>
-<h3>要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.share.minike.top/Article/details/8744723.shtml</p><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/07290681547.shtml</p><br>
-<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/562877134713.shtml</p><br>
-<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.minike.top/Article/details/62915143.shtml</p><br>
-<h3>男子造谣东鹏老板不喝自家饮料被拘</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.minike.top/Article/details/9016645018.shtml</p><br>
-<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/1752737.shtml</p><br>
-<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/7042074.shtml</p><br>
+<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
+<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>德国淘汰</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
+<h3>深扒韩国队淘汰背后原因</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>开电动汽车真的很省钱吗？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>

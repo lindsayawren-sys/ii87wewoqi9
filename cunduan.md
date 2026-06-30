@@ -1,48 +1,45 @@
-<h1>中国长安朱华荣：汽车产业必须打破边界、跨界融合，从“制造”向“生态”跃迁</h1><br>
+<h1>美国两名联邦众议员因涉性丑闻正式辞任</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。中国长安汽车集团有限公司党委书记、董事长朱华荣谈到，中国长安现在这个多能源的这种企业，中国长安汽车在现阶段多能源技术路线上的优势非常明显，将有力助推中国品牌全球化发展。 他指出，当前汽车产业已经进入淘汰赛，马太效应空前加剧。“我坚信，未来三到五年，全球汽车产业的竞争格局将会重新形成。单一企业很难独自</p><br>
+<p>因涉嫌性丑闻遭调查，美国加利福尼亚州州长热门候选人、民主党籍联邦众议员埃里克·斯沃韦尔14日在国会复会后正式辞任众议员，此前他已宣布放弃竞选加州州长。同样涉嫌性丑闻的得克萨斯州共和党籍众议员托尼·冈萨雷斯当天也正式辞任。美国方面10日曝光斯沃韦尔因涉嫌性侵和性骚扰等遭检察机关调查，称至少有4名女性指控斯沃韦尔涉嫌强奸罪和其他性行为不端罪。14日有消息称，另有第五名女子指控斯沃韦</p><br>
 <h2>正文</h2><br>
-<p>4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。</p><br>
-<p>中国长安汽车集团有限公司党委书记、董事长朱华荣谈到，中国长安现在这个多能源的这种企业，中国长安汽车在现阶段多能源技术路线上的优势非常明显，将有力助推中国品牌全球化发展。</p><br>
-<p>他指出，当前汽车产业已经进入淘汰赛，马太效应空前加剧。</p><br>
-<p>“我坚信，未来三到五年，全球汽车产业的竞争格局将会重新形成。</p><br>
-<p>单一企业很难独自承担在智驾、芯片、能源等领域巨额的研发投入，汽车企业如果仅仅依靠造车、卖车这一持续了百年的传统模式，很难实现高质量发展。</p><br>
-<p>” 因此，朱华荣认为，汽车产业必须打破边界，跨界融合，携手产业内外的科技合作伙伴，共同建设开放、共赢、可持续的合作生态，实现从“制造”向“生态”的跃迁。</p><br>
-<p>新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。</p><br>
-<p>责任编辑：李昂</p><br>
+<p>因涉嫌性丑闻遭调查，美国加利福尼亚州州长热门候选人、民主党籍联邦众议员埃里克·斯沃韦尔14日在国会复会后正式辞任众议员，此前他已宣布放弃竞选加州州长。</p><br>
+<p>同样涉嫌性丑闻的得克萨斯州共和党籍众议员托尼·冈萨雷斯当天也正式辞任。</p><br>
+<p>美国方面10日曝光斯沃韦尔因涉嫌性侵和性骚扰等遭检察机关调查，称至少有4名女性指控斯沃韦尔涉嫌强奸罪和其他性行为不端罪。</p><br>
+<p>14日有消息称，另有第五名女子指控斯沃韦尔性侵。</p><br>
+<p>斯沃韦尔在社交媒体发表声明，称他为自己过去犯下的“判断错误”对家人、工作人员和选民“深表歉意”，并“承担责任”。</p><br>
+<p>但斯沃韦尔仍坚称，一些针对他的说法是“虚假的”，将予以反驳。</p><br>
+<p>斯沃韦尔的律师14日发表声明称，针对斯沃韦尔的指控是“精心策划且明目张胆的政治攻击”。</p><br>
+<p>在有众议员表示将提交动议将其驱逐后，斯沃韦尔12日宣布放弃竞选加州州长，13日宣布将辞任联邦众议员。</p><br>
 <h2>相关推荐</h2><br>
-<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md</p><br>
-<h3>IGN评测电影版后室</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md</p><br>
-<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md</p><br>
-<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md</p><br>
-<h3>法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md</p><br>
-<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md</p><br>
-<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md</p><br>
-<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>可以细成这样？1600万预算，颠覆我认知的改造！</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md</p><br>
-<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md</p><br>
-<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md</p><br>
-<h3>如何看待武亮说大学生生活费1500就够用这一言论？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md</p><br>
-<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md</p><br>
-<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md</p><br>
-<h3>本科毕业生为何涌入专科学校</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md</p><br>
+<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
+<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md</p><br>
+<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md</p><br>
+<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md</p><br>
+<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md</p><br>
+<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md</p><br>
+<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md</p><br>
+<h3>巴西绝杀日本：漫画般结局换了主角</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>大学生遇地震裹被子从5楼冲下</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.minike.top/Article/details/54573183893.shtml</p><br>
-<h3>你这一辈子有没有为进山姆拼过命？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/107096.shtml</p><br>
-<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.blog.minike.top/Article/details/06372420.shtml</p><br>
-<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/66586.shtml</p><br>
-<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/0530526388.shtml</p><br>
-<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.share.minike.top/Article/details/25141632.shtml</p><br>
-<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/9707398.shtml</p><br>
-<h3>中国对日本再出重拳</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/517511394079.shtml</p><br>
-<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.minike.top/Article/details/29394322.shtml</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/09544.shtml</p><br>
-<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/753787.shtml</p><br>
-<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.minike.top/Article/details/9061741253.shtml</p><br>
-<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.blog.minike.top/Article/details/220013237.shtml</p><br>
-<h3>疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/45978305008.shtml</p><br>
-<h3>巴西醒醒 这是淘汰赛</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/0206752485.shtml</p><br>
+<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md</p><br>
+<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
+<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
+<h3>警方介入洪明甫死亡威胁</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md</p><br>
+<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
+<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
+<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
+<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>

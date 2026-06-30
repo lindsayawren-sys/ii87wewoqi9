@@ -1,45 +1,39 @@
-<h1>暨南大学联合华为发布“成药性优化智能体”</h1><br>
+<h1>Anthropic限制发布“Mythos”模型</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新社广州4月19日电 (记者 郭军)第十一届药学领域全国重点实验室发展与交流年会暨第二届粤港澳大湾区创新药物发展论坛18日至19日在广州召开。论坛开幕式上，暨南大学和华为联合发布“成药性优化智能体”，该成果旨在以AI技术推动创新药物研发。据介绍，在创新药物研发领域，先导化合物成药性优化，是决定新药能否顺利走向临床的核心关键环节。传统新药研发高度依赖科研人员人工研读文献、积累经</p><br>
+<p>Anthropic启动了Project Glasswing，并以其双重用途风险为由，将其Mythos AI网络安全模型的访问权限限制在特定合作伙伴范围内，与此同时欧洲监管机构敦促加强监管。责任编辑：张俊 SF065</p><br>
 <h2>正文</h2><br>
-<p>中新社广州4月19日电 (记者 郭军)第十一届药学领域全国重点实验室发展与交流年会暨第二届粤港澳大湾区创新药物发展论坛18日至19日在广州召开。</p><br>
-<p>论坛开幕式上，暨南大学和华为联合发布“成药性优化智能体”，该成果旨在以AI技术推动创新药物研发。</p><br>
-<p>据介绍，在创新药物研发领域，先导化合物成药性优化，是决定新药能否顺利走向临床的核心关键环节。</p><br>
-<p>传统新药研发高度依赖科研人员人工研读文献、积累经验，严重制约新药研发进程与成功率。</p><br>
-<p>针对这一行业共性瓶颈，暨南大学生物活性分子与成药性优化全国重点实验室联合暨南大学信息科学技术学院、华为技术有限公司，合作研发并推出先导化合物成药性优化智能体。</p><br>
-<p>该智能体通过团队自研细粒度文献解析算法，自主建立了高价值成药性优化专属知识库，并以此构建一体化智能体平台，全面打通知识、模型与工具，实现全流程一站式闭环服务——既可输出优质候选分子与完整优化路径，也可智能生成兼具高靶点亲和力且全面满足药物动力学方法评价标准的优选分子。</p><br>
-<p>该智能体的发布，标志着成药性优化研究正从依赖人工经验与反复试错的传统模式，迈向AI算法驱动、知识体系支撑、全流程一体化的智能化新阶段，有望为“AI+”创新药物研发、先导化合物的高质量优化与新药转化提供新的技术支撑。</p><br>
-<p>会上还发起了关于共建共享国家关键领域(新药创制)人工智能语料数据的倡议。</p><br>
+<p>Anthropic启动了Project Glasswing，并以其双重用途风险为由，将其Mythos AI网络安全模型的访问权限限制在特定合作伙伴范围内，与此同时欧洲监管机构敦促加强监管。</p><br>
+<p>责任编辑：张俊 SF065</p><br>
 <h2>相关推荐</h2><br>
-<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md</p><br>
-<h3>齐思钧回复张月</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md</p><br>
-<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md</p><br>
-<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md</p><br>
-<h3>毒液2</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md</p><br>
-<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md</p><br>
-<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md</p><br>
-<h3>王濛回复黄灿灿</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md</p><br>
-<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md</p><br>
-<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md</p><br>
+<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md</p><br>
+<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md</p><br>
+<h3>马耳他著名拱门坍塌致一中国男子身亡</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md</p><br>
+<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md</p><br>
+<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md</p><br>
+<h3>DeepSeek启动成立来最大规模招聘</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md</p><br>
+<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md</p><br>
+<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.minike.top/Article/details/346028459851.shtml</p><br>
-<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/234536.shtml</p><br>
-<h3>韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.minike.top/Article/details/61835.shtml</p><br>
-<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/0171173055.shtml</p><br>
-<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.minike.top/Article/details/7706170380.shtml</p><br>
-<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.share.minike.top/Article/details/0001085471.shtml</p><br>
-<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.minike.top/Article/details/53014.shtml</p><br>
-<h3>不开心就去看三年前的购物订单</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/844656.shtml</p><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/062134.shtml</p><br>
-<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.share.minike.top/Article/details/1310016.shtml</p><br>
-<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/22031548647.shtml</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.minike.top/Article/details/002810900266.shtml</p><br>
-<h3>《贺子珍》</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/2968395.shtml</p><br>
-<h3>曝詹姆斯即将与勇士会面</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.minike.top/Article/details/158218.shtml</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/90438.shtml</p><br>
+<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md</p><br>
+<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>恋与深空道歉声明</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
+<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
+<h3>日本进球</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
+<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>赵今麦因“瘦而不柴”的体态出圈</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
+<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md</p><br>
+<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md</p><br>

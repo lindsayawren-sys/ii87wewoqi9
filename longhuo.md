@@ -1,43 +1,45 @@
-<h1>行业逆周期中营收率先企稳，舍得酒业一季度营收14.81亿元，净利润超去年全年</h1><br>
+<h1>“欺骗式外交”只会将日本再次引入歧途（权威论坛）</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 4月15日盘后晚间，舍得酒业股份有限公司（600702.SH，以下简称“舍得酒业”）披露2026年第一季度报告，一季度实现营业收入14.81亿元，归属于上市公司股东的净利润2.32亿元。 在2025年公司经营稳健并取得超行业预期的表现基础上，今年一季度，舍得酒业全面向C强化动销和优化消费者体验，着力提升普通酒和电商业务，</p><br>
+<p>在日本宫崎县有一座“八纮一宇塔”，建造于日本对外侵略扩张中的1938年至1940年。“八纮一宇”意为“征服八方、归于一统”，建造该塔是为宣扬日本征服世界、将世界置于天皇统治之下的侵略扩张野心，煽动民众支持侵略战争。为彰显对外侵略殖民的“皇威”，该塔塔基石材部分取自日本对外占领、殖民地区，是日本对外侵略罪行的铁证。然而，日本战后将该塔包装成“和平之塔”，供人们参观游览。这是日本右</p><br>
 <h2>正文</h2><br>
-<p>新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 4月15日盘后晚间，舍得酒业股份有限公司（600702.SH，以下简称“舍得酒业”）披露2026年第一季度报告，一季度实现营业收入14.81亿元，归属于上市公司股东的净利润2.32亿元。</p><br>
-<p>在2025年公司经营稳健并取得超行业预期的表现基础上，今年一季度，舍得酒业全面向C强化动销和优化消费者体验，着力提升普通酒和电商业务，促成经营持续向好改善。</p><br>
-<p>尤其是一季度净利润超去年全年，营收同比微降、且降幅显著收窄，各项营收目标基本实现，业绩回暖信号明显。</p><br>
-<p>舍得酒业在行业出清筑底周期中率先企稳，给2026年稳健向上奠定了坚实基础。</p><br>
-<p>一季度净利润超去年全年，普通酒增长超40%，经营质量持续改善 今年一季度，白酒行业在多重压力下延续深度调整态势，结构继续分化，整体量价收缩，存量博弈加剧。</p><br>
-<p>作为行业中率先主动调整的公司，舍得酒业自2024年起持续稳价盘和去库存，经过两年的换挡消化和厚积薄发，今年一季度，舍得酒业率先走出企稳回升的局面，核心数据持续改善，各项营收目标基本实现，在本轮周期的包袱基本出清。</p><br>
-<p>其中，一季度舍得酒业实现营业收入14.81亿元，环比提升106.45%，同比降幅大幅收窄；实现净利润2.32亿元，超过2025年全年2.23亿元水平，环比大幅增长，反映出公司经营质量持续向好改善态势。</p><br>
-<p>同时，一季度总资产增加至132亿元，企业长期发展能力提升；省内市场实现销售收入5.24亿元，同比增长6.08%，环比去年第四季度大幅提升，表明舍得酒业持续打造高占有基地市场的举措渐见成效。</p><br>
+<p>在日本宫崎县有一座“八纮一宇塔”，建造于日本对外侵略扩张中的1938年至1940年。</p><br>
+<p>“八纮一宇”意为“征服八方、归于一统”，建造该塔是为宣扬日本征服世界、将世界置于天皇统治之下的侵略扩张野心，煽动民众支持侵略战争。</p><br>
+<p>为彰显对外侵略殖民的“皇威”，该塔塔基石材部分取自日本对外占领、殖民地区，是日本对外侵略罪行的铁证。</p><br>
+<p>然而，日本战后将该塔包装成“和平之塔”，供人们参观游览。</p><br>
+<p>这是日本右翼势力否认侵略历史、欺骗世人、搞“欺骗式外交”的典型例证。</p><br>
+<p>日本右翼势力打着“防卫”“反击”的幌子，部署进攻性武器；长期邀请极右翼分子参与自卫队教学，培训教材中充斥歪曲美化二战侵略历史的内容；在教科书审定上，通过玩弄文字游戏模糊史实，淡化和逃避历史罪责…… 近年来，日本右翼势力不断歪曲美化侵略历史、玩弄“欺骗式外交”，试图为军国主义翻案、突破战后秩序束缚。</p><br>
+<p>面对这种危险动向，国际社会应坚定捍卫历史真相，严防日本军国主义死灰复燃，共同捍卫二战胜利成果与战后国际秩序。</p><br>
+<p>胡继平(中国国际关系学院院长) 禹守根(韩国东亚研究所所长、韩中全球协会会长) 谢尔盖·萨纳科耶夫(俄罗斯亚太地区研究中心主任) 安娜·马林博格—乌伊(菲律宾“亚洲世纪”战略研究所副所长) 林少彬(新加坡历史学者) (一) 不仅犯下反人类罪行，还对周边国家造成社会结构、文化记忆等系统性伤害 胡继平：日本发动的侵略战争严重破坏世界和平，给周边国家和地区的人民造成深重灾难。</p><br>
 <h2>相关推荐</h2><br>
-<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md</p><br>
-<h3>起风了</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md</p><br>
-<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md</p><br>
-<h3>我们看到的星星是不是有些已经不存在了？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md</p><br>
-<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md</p><br>
-<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md</p><br>
-<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md</p><br>
-<h3>豆包收费了，你还会用吗？</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md</p><br>
-<h3>2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
-<h3>时光音乐会</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md</p><br>
+<h3>韩国球迷凌晨4点接机怒骂主教练</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md</p><br>
+<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md</p><br>
+<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md</p><br>
+<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md</p><br>
+<h3>追梦拒绝2770万美元球员选项</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md</p><br>
+<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md</p><br>
+<h3>杨某诋毁袁隆平院士科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md</p><br>
+<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md</p><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md</p><br>
+<h3>重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.blog.minike.top/Article/details/064482577.shtml</p><br>
-<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.minike.top/Article/details/17048533.shtml</p><br>
-<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.minike.top/Article/details/38180749736.shtml</p><br>
-<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/49342462.shtml</p><br>
-<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/596575869364.shtml</p><br>
-<h3>ASMR 千禧年百货大楼初代柜姐给你化大头贴妆</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.minike.top/Article/details/07284425998.shtml</p><br>
-<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/12225650.shtml</p><br>
-<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/924776205.shtml</p><br>
-<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/537988697.shtml</p><br>
-<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.minike.top/Article/details/741978620673.shtml</p><br>
-<h3>终于把好哥们处成了情侣!</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.minike.top/Article/details/14384169.shtml</p><br>
-<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.minike.top/Article/details/1583450.shtml</p><br>
-<h3>德国巴拉圭进入点球大战</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.share.minike.top/Article/details/9917002567.shtml</p><br>
-<h3>国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.minike.top/Article/details/450441939834.shtml</p><br>
-<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/000833088.shtml</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>女儿从清华毕业 爸爸晒出17年对比照</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>恋与深空</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>日耳曼拖拉机</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
+<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
+<h3>斗破苍穹</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
+<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>冲学校再转专业可行吗</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>

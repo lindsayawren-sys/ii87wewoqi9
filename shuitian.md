@@ -1,48 +1,43 @@
-<h1>专家：儿童不是缩小版的成人，儿童用药需“量体裁衣”</h1><br>
+<h1>第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网北京4月20日电(记者 赵方园)儿童是流感病毒的高发易感人群。中国疾控中心报告显示：5岁以下儿童感染流感后出现重症和住院的风险远高于成人，尤其1-2岁的低龄幼儿因免疫功能尚未完善，不仅感染率高，也更容易引发肺炎、支气管炎等严重并发症。长期以来，5岁以下婴幼儿一直面临口服抗流感药物选择有限、服药依从性差等临床痛点。“流感起病急、症状较重，儿童高热常见，低龄儿童不能准确表达身</p><br>
+<p>近日，由中国青年创业就业基金会、东方财富信息股份有限公司联合主办的第十二届“东方财富杯”全国大学生金融挑战赛正式拉开帷幕。本次大赛面向全国高校学生免费开放，以模拟交易为核心，构建集知识学习、技能实训、竞技比拼于一体的专业化金融实践平台，助力提升青年学子金融素养与实操能力，为金融强国建设注入青春力量。作为国内极具影响力的大学生金融类赛事，本届“东方财富杯”始终坚守“以金融实践赋能</p><br>
 <h2>正文</h2><br>
-<p>中新网北京4月20日电(记者 赵方园)儿童是流感病毒的高发易感人群。</p><br>
-<p>中国疾控中心报告显示：5岁以下儿童感染流感后出现重症和住院的风险远高于成人，尤其1-2岁的低龄幼儿因免疫功能尚未完善，不仅感染率高，也更容易引发肺炎、支气管炎等严重并发症。</p><br>
-<p>长期以来，5岁以下婴幼儿一直面临口服抗流感药物选择有限、服药依从性差等临床痛点。</p><br>
-<p>“流感起病急、症状较重，儿童高热常见，低龄儿童不能准确表达身体不适，及时给予安全有效的抗病毒药物、并确保服药依从性是治疗关键。</p><br>
-<p>”复旦大学附属儿科医院感染传染科曾玫教授在速福达®干混悬剂(玛巴洛沙韦干混悬剂)扩展适应症上市发布会上如是说。</p><br>
-<p>中国医学科学院北京协和医学院群医学及公共卫生学院副院长冯录召教授强调：“我国5岁以下儿童流感疾病负担较重。</p><br>
-<p>低龄儿童早期开展抗病毒药物治疗，快速遏制病毒排出，既能有效降低重症率，更能阻断家庭、幼托机构、学校等人群聚集场所的流感传播链，为流感流行季的疫情防控提供关键支撑。</p><br>
-<p>” 北京大学第一医院儿童医学中心儿童呼吸内科叶乐平教授表示：“儿童不是‘缩小版的成人’，其对药物的代谢与耐受能力与成人存在显著差异。</p><br>
+<p>近日，由中国青年创业就业基金会、东方财富信息股份有限公司联合主办的第十二届“东方财富杯”全国大学生金融挑战赛正式拉开帷幕。</p><br>
+<p>本次大赛面向全国高校学生免费开放，以模拟交易为核心，构建集知识学习、技能实训、竞技比拼于一体的专业化金融实践平台，助力提升青年学子金融素养与实操能力，为金融强国建设注入青春力量。</p><br>
+<p>作为国内极具影响力的大学生金融类赛事，本届“东方财富杯”始终坚守“以金融实践赋能青年素养提升”的核心宗旨，致力于引导广大青年学生打破理论与实践的壁垒，将课堂所学金融知识转化为实际操作能力，锤炼投资研判、风险控制、团队协作等综合素养，鼓励青年学子以专业所长服务国家发展，为中国式现代化建设贡献青春智慧。</p><br>
+<p>大赛采用校赛、省赛、国赛三级递进式晋级赛制，全程依托“东方财富”APP专用平台开展模拟交易比拼，确保赛事的公平性与专业性。</p><br>
+<p>其中，校赛阶段以个人形式参赛，各高校综合收益率排名前30%的学生可晋级省赛；省赛升级为团队竞技模式，由晋级学生担任操盘手，联合同校策略师、风控师组建团队，并配备专属指导教师，各省前20%的团队及单周全国收益冠军将直接晋级国赛；国赛延续团队竞技形式，最终将依据综合收益率决出冠亚季军及各级奖项。</p><br>
+<p>为帮助选手快速适应赛事节奏，赛前特别设置热身赛环节，助力选手熟悉赛事规则与交易系统，从容备战正式比拼。</p><br>
+<p>值得关注的是，本届大赛设置了丰厚的奖励体系，覆盖学生、指导教师及领队教师三大群体，不仅有丰厚现金奖金、荣誉证书，还配套多等级软件权益与专属礼包，全方位激励师生积极参与。</p><br>
+<p>同时，大赛特别增设金牌策略师、金牌风控师单项奖，重点表彰在赛事中表现突出的专业型选手，进一步激发参赛学子的竞技热情与专业潜力。</p><br>
 <h2>相关推荐</h2><br>
-<h3>马耳他著名拱门坍塌致一中国男子身亡</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md</p><br>
-<h3>爱直接对嘴喝饮料的人天塌了</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md</p><br>
-<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md</p><br>
-<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md</p><br>
-<h3>森保一致歉：世界第一目标没能实现</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md</p><br>
-<h3>美团、淘宝闪购、京东外卖达成共识</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md</p><br>
-<h3>点球大战和诺伊尔都救不回德国队</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md</p><br>
-<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md</p><br>
-<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md</p><br>
-<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md</p><br>
-<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md</p><br>
-<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md</p><br>
-<h3>美股</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md</p><br>
-<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md</p><br>
-<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md</p><br>
+<h3>网红峡谷5人溺亡 有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
+<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md</p><br>
+<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md</p><br>
+<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md</p><br>
+<h3>【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md</p><br>
+<h3>王欣瑜连续4年晋级温网第二轮</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md</p><br>
+<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/240866521619.shtml</p><br>
-<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/09456686.shtml</p><br>
-<h3>拆解FIFA和世界杯的暗面</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/09256377.shtml</p><br>
-<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.blog.minike.top/Article/details/3227515.shtml</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.minike.top/Article/details/78545611.shtml</p><br>
-<h3>小娘惹</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.share.minike.top/Article/details/3246371456.shtml</p><br>
-<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/23463238.shtml</p><br>
-<h3>中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/003864771.shtml</p><br>
-<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.minike.top/Article/details/670793.shtml</p><br>
-<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/215756502.shtml</p><br>
-<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/381756.shtml</p><br>
-<h3>《共患难》</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/8647241.shtml</p><br>
-<h3>这些7月新规影响你我</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/98569783.shtml</p><br>
-<h3>德国进球被吹</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.minike.top/Article/details/20603932832.shtml</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/50127571004.shtml</p><br>
+<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md</p><br>
+<h3>巴西在进攻三区完成210脚传球</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
+<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
+<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md</p><br>
+<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
+<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md</p><br>
+<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
+<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>

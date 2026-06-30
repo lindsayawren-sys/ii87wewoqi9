@@ -1,43 +1,38 @@
-<h1>Odfjell Drilling发生设备事故，暂停钻井平台作业</h1><br>
+<h1>欧洲股市周一下跌 旅游股受挫</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>海上钻井承包商Odfjell Drilling报告称，其Deepsea Atlantic钻井平台发生一起设备装卸事故，导致一个防喷器坠入海床，作业已暂停。 公司表示，事故发生于4月18日，当时正在下放防喷器，该设备坠至约1100米深处。 无人员受伤，平台本身保持安全稳定，但在防喷器打捞及必要维修完成之前，作业已暂停。 Odfjell Drilling表示，正在对事故原因展开调查</p><br>
+<p>由于伊朗冲突相关担忧以及油价突破100美元引发航空燃油供应恐慌，维兹航空、易捷航空、汉莎航空和途易集团股价下跌，欧洲市场低开。责任编辑：张俊 SF065</p><br>
 <h2>正文</h2><br>
-<p>海上钻井承包商Odfjell Drilling报告称，其Deepsea Atlantic钻井平台发生一起设备装卸事故，导致一个防喷器坠入海床，作业已暂停。</p><br>
-<p>公司表示，事故发生于4月18日，当时正在下放防喷器，该设备坠至约1100米深处。</p><br>
-<p>无人员受伤，平台本身保持安全稳定，但在防喷器打捞及必要维修完成之前，作业已暂停。</p><br>
-<p>Odfjell Drilling表示，正在对事故原因展开调查。</p><br>
-<p>Deepsea Atlantic是一座第六代双井架动力定位半潜式钻井平台，可在水深达3000米的海域作业，最大钻井深度为10670米。</p><br>
-<p>该平台目前正在挪威大陆架为挪威国家石油公司作业。</p><br>
-<p>2025年1月，Odfjell Drilling已同意将与挪威国家石油公司的该平台合同延长至2027年第二季度末。</p><br>
-<p>根据此前2023年签署的合同，该平台将按现有条款运营至2026年第三季度中旬。</p><br>
+<p>由于伊朗冲突相关担忧以及油价突破100美元引发航空燃油供应恐慌，维兹航空、易捷航空、汉莎航空和途易集团股价下跌，欧洲市场低开。</p><br>
+<p>责任编辑：张俊 SF065</p><br>
 <h2>相关推荐</h2><br>
-<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md</p><br>
-<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md</p><br>
-<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md</p><br>
-<h3>杨紫被质疑未使用原名纯属误解</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md</p><br>
-<h3>女子发现孩子非现任亲生状告前任索赔</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md</p><br>
-<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md</p><br>
-<h3>马耳他著名拱门坍塌致一中国男子身亡</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md</p><br>
-<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md</p><br>
-<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md</p><br>
-<h3>五哈和他们的朋友</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md</p><br>
+<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md</p><br>
+<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md</p><br>
+<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md</p><br>
+<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md</p><br>
+<h3>如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md</p><br>
+<h3>法总统候选人：拒绝与中国激烈对抗</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md</p><br>
+<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md</p><br>
+<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>郑钦文温网一轮游</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/3339927.shtml</p><br>
-<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/45614.shtml</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/93983733.shtml</p><br>
-<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.share.minike.top/Article/details/877503968342.shtml</p><br>
-<h3>郑钦文温网首轮出局</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/70297660312.shtml</p><br>
-<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.minike.top/Article/details/0493820.shtml</p><br>
-<h3>国内最大沙漠发洪水意味着什么</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/7062731.shtml</p><br>
-<h3>宜宾地震食客避难后折返 无人逃单</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/3546385.shtml</p><br>
-<h3>上市央企地产商 两年换了三任董事长</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://www.blog.minike.top/Article/details/29853901.shtml</p><br>
-<h3>“草莓月亮”浪漫现身</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.minike.top/Article/details/893825.shtml</p><br>
-<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/8897137271.shtml</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/2046241.shtml</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/523256.shtml</p><br>
-<h3>马航370搜寻最新消息</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.minike.top/Article/details/2879303885.shtml</p><br>
-<h3>藤森庆子赢得秘鲁总统选举</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:http://www.share.minike.top/Article/details/14415938.shtml</p><br>
+<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
+<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md</p><br>
+<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
+<h3>中方对白俄罗斯平民伤亡表示关切</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
+<h3>勇士续约波尔津吉斯</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md</p><br>
+<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
+<h3>2026年WTT美国大满贯，国乒自带球桌是真实的吗？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md</p><br>
+<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
+<h3>德国巴拉圭 折磨</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md</p><br>

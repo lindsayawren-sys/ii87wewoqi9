@@ -1,44 +1,48 @@
-<h1>霍华德・马克斯：眼下便宜股票极少，“好货只在人们恐慌时才出现”</h1><br>
+<h1>英特尔股价创下有史以来最佳九日表现，未来能否进一步走高？</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>橡树资本的霍华德・马克斯：现在的市场并非打折促销 霍华德・马克斯提醒那些寻找低价股的投资者可能会失望，他表示，尽管市场出现过几轮波动，但当前仍远未到资产被恐慌性抛售的低迷水平。 这位曾精准预见互联网泡沫、橡树资本管理公司联合创始人兼联合董事长表示，当前市场环境多空力量仍在持续 “拉锯”，而自 2022 年末以来乐观情绪基本占据主导。这一格局使得资产价格居高不下，低价机会寥寥无几</p><br>
+<p>英特尔股价近期利好不断，但有分析师对其财报能否助推股价续涨存疑。 芯片制造商英特尔的股票周一收高4.52%，连续第九个交易日上涨。据道琼斯市场数据显示，这是该股有记录以来表现最好的九日连涨。数据显示，在此期间，该公司股价累计上涨了58.29%。 瑞银分析师蒂莫西·阿尔库里表示，在英特尔本月底发布财报之际，他预计该公司将公布强劲的业绩和预期。他给出的理由是，个人电脑需求“颇具韧性</p><br>
 <h2>正文</h2><br>
-<p>橡树资本的霍华德・马克斯：现在的市场并非打折促销 霍华德・马克斯提醒那些寻找低价股的投资者可能会失望，他表示，尽管市场出现过几轮波动，但当前仍远未到资产被恐慌性抛售的低迷水平。</p><br>
-<p>这位曾精准预见互联网泡沫、橡树资本管理公司联合创始人兼联合董事长表示，当前市场环境多空力量仍在持续 “拉锯”，而自 2022 年末以来乐观情绪基本占据主导。</p><br>
-<p>这一格局使得资产价格居高不下，低价机会寥寥无几。</p><br>
-<p>“整体来看，现在的市场并没有打折，” 马克斯周一在 CNBC《财经早报》节目中表示，“便宜货非常少。</p><br>
-<p>只有当人们陷入恐慌、急于离场、愿意忍痛低价割肉时，好机会才会出现。</p><br>
-<p>现在显然不是这种情况。</p><br>
-<p>” 他发表此番言论之际，市场风险偏好在地缘政治冲击下依然保持坚挺。</p><br>
-<p>上周，在以色列与黎巴嫩宣布停火、伊朗随即表示霍尔木兹海峡 “全面开放” 后，美国股市大幅上涨。</p><br>
+<p>英特尔股价近期利好不断，但有分析师对其财报能否助推股价续涨存疑。</p><br>
+<p>芯片制造商英特尔的股票周一收高4.52%，连续第九个交易日上涨。</p><br>
+<p>据道琼斯市场数据显示，这是该股有记录以来表现最好的九日连涨。</p><br>
+<p>数据显示，在此期间，该公司股价累计上涨了58.29%。</p><br>
+<p>瑞银分析师蒂莫西·阿尔库里表示，在英特尔本月底发布财报之际，他预计该公司将公布强劲的业绩和预期。</p><br>
+<p>他给出的理由是，个人电脑需求“颇具韧性”，而服务器中央处理器（CPU）的需求正“大幅走高”。</p><br>
+<p>阿尔库里指出，英特尔还成功地将其服务器CPU的价格上调了约10%。</p><br>
+<p>他预计，今年余下时间需求将继续攀升，尤其是在其企业级业务领域，他估计该领域贡献了英特尔服务器CPU总收入的约60%。</p><br>
 <h2>相关推荐</h2><br>
-<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md</p><br>
-<h3>恋与深空回应争议</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md</p><br>
-<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md</p><br>
-<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
-<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md</p><br>
-<h3>锐评T1战胜KC</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md</p><br>
-<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md</p><br>
-<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md</p><br>
-<h3>哈弗茨头球破门</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md</p><br>
-<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md</p><br>
-<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md</p><br>
+<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md</p><br>
+<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md</p><br>
+<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md</p><br>
+<h3>杨紫大银幕成绩单如何</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md</p><br>
+<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md</p><br>
+<h3>大货车掉落螺丝扎进骑手护目镜</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md</p><br>
+<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md</p><br>
+<h3>有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md</p><br>
+<h3>《恋与深空》被指触碰民族伤痛红线</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md</p><br>
+<h3>高考结束了，你会让孩子在家玩手机吗？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md</p><br>
+<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md</p><br>
+<h3>又一家县级医院关停门诊输液大厅</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md</p><br>
+<h3>孙颖莎王楚钦晋级8强</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md</p><br>
+<h3>千与千寻</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>“草莓月亮”浪漫现身</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/589561.shtml</p><br>
-<h3>董卿父亲报纸上发文悼念亡妻</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/18016.shtml</p><br>
-<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.blog.minike.top/Article/details/86647777122.shtml</p><br>
-<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/02272.shtml</p><br>
-<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.minike.top/Article/details/3209397074.shtml</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.blog.minike.top/Article/details/5957234318.shtml</p><br>
-<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/66944301.shtml</p><br>
-<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://www.share.minike.top/Article/details/539362.shtml</p><br>
-<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/19660027624.shtml</p><br>
-<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.minike.top/Article/details/04684796909.shtml</p><br>
-<h3>武磊：日本队有能力跟任何强队抗衡</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/170737826499.shtml</p><br>
-<h3>德国身价是巴拉圭6倍</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.minike.top/Article/details/94057.shtml</p><br>
-<h3>女子用家人生日买彩票中1032万</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/5782899.shtml</p><br>
-<h3>法总统候选人：拒绝与中国激烈对抗</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.minike.top/Article/details/4011920.shtml</p><br>
-<h3>“草莓月亮”浪漫现身</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.minike.top/Article/details/01598280587.shtml</p><br>
+<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md</p><br>
+<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>泰山景区建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md</p><br>
+<h3>有人见过武则天的画像吗，非常好奇？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>Melo向柳智敏张元英道歉</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
+<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
+<h3>美媒：美军第五舰队司令部已无法使用</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md</p><br>
+<h3>世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>

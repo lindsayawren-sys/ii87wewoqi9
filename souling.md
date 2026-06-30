@@ -1,48 +1,44 @@
-<h1>贷款协议藏“猫腻” 当心网络贷款有“隐性收费”</h1><br>
+<h1>警惕干冰爆炸隐患 消防试验还原危险场景</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>贷款协议藏“猫腻”，不明所以多出高额“服务费”“担保费” 当心网络贷款有“隐性收费”(百姓关注) “低利率”“秒到账”“免抵押”“无需征信”……点开网络贷款平台的页面，关于贷款的广告语对于急需用钱的消费者而言，十分诱人。当下，一些网络贷款的便利性确实给很多人解了燃眉之急。然而，风险与陷阱也随之而来，一些消费者在网络贷款中遭遇了“高额手续费”“话术诱导”“霸王条款”等问题，权益受</p><br>
+<p>固态二氧化碳‌，俗称干冰，在我们日常生活中常被用于冷链运输和食品保鲜等。但干冰不是普通的“冰”，若是储存或使用不当，则会带来不小的安全隐患。 今年3月24日凌晨，浙江金华市纪女士家中突然传出一声巨响。厨房的冰箱门炸开，有烟雾喷出。从睡梦中惊醒的纪女士家人赶到厨房后看到，冰箱的内部隔板被炸坏，冷冻柜里存放的食物散落四处，现场一片狼藉。据事后了解，事故起因是家中孩子为做试验，将网购</p><br>
 <h2>正文</h2><br>
-<p>贷款协议藏“猫腻”，不明所以多出高额“服务费”“担保费” 当心网络贷款有“隐性收费”(百姓关注) “低利率”“秒到账”“免抵押”“无需征信”……点开网络贷款平台的页面，关于贷款的广告语对于急需用钱的消费者而言，十分诱人。</p><br>
-<p>当下，一些网络贷款的便利性确实给很多人解了燃眉之急。</p><br>
-<p>然而，风险与陷阱也随之而来，一些消费者在网络贷款中遭遇了“高额手续费”“话术诱导”“霸王条款”等问题，权益受损后，维权也面临困难。</p><br>
-<p>有读者在不明所以的情况下，被收取了高额服务费和担保费。</p><br>
-<p>江苏南通的戴先生在人民网“人民投诉”反映，他去年在网上了解到一家网络金融服务公司，在其APP中提交了基本的财务状况后，输入贷款用途、金额、期限，即可查询到有哪些金融机构能够提供相应的贷款以及贷款条件。</p><br>
-<p>戴先生被其专业性与便利性吸引，在其推荐的一家网络金融平台贷款1.3万元，平台自动设置分12期还款，每月还款1207元，共计14484元。</p><br>
-<p>但在应还数目之外，该网贷平台还向戴先生收取了服务费1325元，担保费2340元，而戴先生在贷款时并未仔细看协议，对此毫不知情。</p><br>
-<p>在发现多出的费用后，戴先生重新查看当时的协议，才发现了“借款协议”中嵌套的“服务费协议”等内容。</p><br>
+<p>固态二氧化碳‌，俗称干冰，在我们日常生活中常被用于冷链运输和食品保鲜等。</p><br>
+<p>但干冰不是普通的“冰”，若是储存或使用不当，则会带来不小的安全隐患。</p><br>
+<p>今年3月24日凌晨，浙江金华市纪女士家中突然传出一声巨响。</p><br>
+<p>厨房的冰箱门炸开，有烟雾喷出。</p><br>
+<p>从睡梦中惊醒的纪女士家人赶到厨房后看到，冰箱的内部隔板被炸坏，冷冻柜里存放的食物散落四处，现场一片狼藉。</p><br>
+<p>据事后了解，事故起因是家中孩子为做试验，将网购食品时赠送的干冰连同密封袋一起，放进了冰箱的冷冻室里，导致了事故发生。</p><br>
+<p>纪女士家的遭遇并非个例。</p><br>
+<p>记者搜索发现，此前在广东和贵州等地，因干冰储存、使用不当，而引发的安全事故时有发生。</p><br>
 <h2>相关推荐</h2><br>
-<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
-<h3>未来五年，教育强国这样建设</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md</p><br>
-<h3>曝灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md</p><br>
-<h3>我吃遍了西安最強的街頭小吃，第九家強得離譜！</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md</p><br>
-<h3>网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md</p><br>
-<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md</p><br>
-<h3>全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md</p><br>
-<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md</p><br>
-<h3>安切洛蒂 换人</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md</p><br>
-<h3>国务院：稳步推进研究生考试招生改革</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md</p><br>
-<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md</p><br>
-<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md</p><br>
-<h3>为什么香港的冲厕水是咸的？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md</p><br>
-<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md</p><br>
-<h3>我和我的家乡</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md</p><br>
+<h3>张雪的一句“是我们”引发岛内热议</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md</p><br>
+<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md</p><br>
+<h3>中国代表在联合国点名日本所犯罪行</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md</p><br>
+<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md</p><br>
+<h3>啥比桑吉尔夫排位练蓝防（最不抽象的一集）</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md</p><br>
+<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md</p><br>
+<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md</p><br>
+<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md</p><br>
+<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md</p><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.minike.top/Article/details/31510182.shtml</p><br>
-<h3>F1奥地利站赛后复盘</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.minike.top/Article/details/8973099614.shtml</p><br>
-<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/345509.shtml</p><br>
-<h3>明星大侦探第一季</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.blog.minike.top/Article/details/573901491.shtml</p><br>
-<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:http://www.share.minike.top/Article/details/274159.shtml</p><br>
-<h3>男子中医院拔火罐致浅2度烧伤</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.minike.top/Article/details/243309334.shtml</p><br>
-<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:http://www.blog.minike.top/Article/details/11443450.shtml</p><br>
-<h3>日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://www.share.minike.top/Article/details/703740.shtml</p><br>
-<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/770537.shtml</p><br>
-<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:http://www.blog.minike.top/Article/details/15868470881.shtml</p><br>
-<h3>怕iPhone涨价的用户已紧急换新</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/367851.shtml</p><br>
-<h3>世界杯巴拉圭点球淘汰德国</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:http://www.blog.minike.top/Article/details/9608943752.shtml</p><br>
-<h3>马耳他著名拱门坍塌致一中国男子身亡</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/20243739.shtml</p><br>
-<h3>男生180+，有腹肌是什么体验？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/1262722359.shtml</p><br>
-<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.blog.minike.top/Article/details/6434965341.shtml</p><br>
+<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
+<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
+<h3>这些7月新规影响你我</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:42<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md</p><br>
+<h3>为什么会有「念旧」的心理？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>巴拉圭率先破门</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md</p><br>
+<h3>FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>板面：为什么那么多人爱吃？？！</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
+<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
+<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>

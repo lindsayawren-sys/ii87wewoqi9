@@ -1,39 +1,43 @@
-<h1>携程集团获The Capital Group Companies, Inc.增持约89.78万股 每股作价约424.54港元</h1><br>
+<h1>Revolution Medicines胰腺癌药物在晚期试验中获得成功</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>香港联交所最新资料显示，4月16日，The Capital Group Companies， Inc．增持携程集团（09961）89.7761万股，每股作价424.5354港元，总金额约为3.81亿港元。增持后最新持股数目约为4910.68万股，最新持股比例为7.12%。责任编辑：卢昱君</p><br>
+<p>核心要点 Revolution Medicines 公司周一表示，其研发的胰腺癌药物在备受期待的三期临床试验中取得成功。数据显示，与化疗相比，该药物将患者的中位生存期延长近一倍，并将死亡风险降低了 60%。 RevMed 称，其每日口服药物 daraxonrasib 在一项针对其他治疗方案无效的进展期癌症患者的试验中，达到了所有主要和次要终点。该公司在新闻稿中表示，服用 dar</p><br>
 <h2>正文</h2><br>
-<p>香港联交所最新资料显示，4月16日，The Capital Group Companies， Inc．增持携程集团（09961）89.7761万股，每股作价424.5354港元，总金额约为3.81亿港元。</p><br>
-<p>增持后最新持股数目约为4910.68万股，最新持股比例为7.12%。</p><br>
-<p>责任编辑：卢昱君</p><br>
+<p>核心要点 Revolution Medicines 公司周一表示，其研发的胰腺癌药物在备受期待的三期临床试验中取得成功。</p><br>
+<p>数据显示，与化疗相比，该药物将患者的中位生存期延长近一倍，并将死亡风险降低了 60%。</p><br>
+<p>RevMed 称，其每日口服药物 daraxonrasib 在一项针对其他治疗方案无效的进展期癌症患者的试验中，达到了所有主要和次要终点。</p><br>
+<p>该公司在新闻稿中表示，服用 daraxonrasib 的患者中位生存期通常达到 13.2 个月，而服用化疗的患者为 6.7 个月，延长了 6.5 个月。</p><br>
+<p>“这是极具戏剧性、足以改变临床实践的结果。</p><br>
+<p>我们现在的重点是迅速将这一潜在新疗法带给那些迫切需要治疗选择的患者，”RevMed 首席执行官马克・戈德史密斯在接受采访时表示。</p><br>
+<p>戈德史密斯称这一结果 “前所未有”，指出在胰腺癌的三期临床试验中，尚无任何药物能显示出超过一年的总生存期获益。</p><br>
+<p>该公司计划很快利用局长国家优先凭证向美国食品药品监督管理局（FDA）申请批准，这将使药物审核在数月内完成。</p><br>
 <h2>相关推荐</h2><br>
-<h3>谢依霖说杨幂是聚会第一把张罗手</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md</p><br>
-<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md</p><br>
-<h3>AI手机进入Agent时代</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md</p><br>
-<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md</p><br>
-<h3>小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md</p><br>
-<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md</p><br>
-<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md</p><br>
-<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md</p><br>
-<h3>起风了</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md</p><br>
-<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md</p><br>
+<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md</p><br>
+<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md</p><br>
+<h3>这几秒成世界杯最值钱广告位</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md</p><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md</p><br>
+<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md</p><br>
+<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md</p><br>
+<h3>泰山景区回应修建刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md</p><br>
+<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>欧洲民众抢购空调降温</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/790186026896.shtml</p><br>
-<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/75225.shtml</p><br>
-<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.blog.minike.top/Article/details/882281818860.shtml</p><br>
-<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/3319101653.shtml</p><br>
-<h3>四川宜宾地震为何震感明显</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/8239029417.shtml</p><br>
-<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.minike.top/Article/details/575057836.shtml</p><br>
-<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/056542006.shtml</p><br>
-<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://www.blog.minike.top/Article/details/13068045896.shtml</p><br>
-<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/948013477.shtml</p><br>
-<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/685634.shtml</p><br>
-<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/78983828.shtml</p><br>
-<h3>有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/374540903.shtml</p><br>
-<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://www.blog.minike.top/Article/details/21576306.shtml</p><br>
-<h3>日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:http://www.blog.minike.top/Article/details/754495.shtml</p><br>
-<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:http://www.share.minike.top/Article/details/454619992064.shtml</p><br>
+<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
+<h3>媒体评泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>
+<h3>高考填志愿父亲和女儿产生分歧</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md</p><br>
+<h3>巴西把自己踢晕了</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
+<h3>如何评价DeepSeek 提出的 DSpark 推理加速方案？</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
+<h3>檀健次王楚然吻戏看热了</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
+<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>张碧晨一开口梦回逐玉</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
+<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
+<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
+<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
+<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md</p><br>

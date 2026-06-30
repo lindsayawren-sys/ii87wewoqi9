@@ -1,43 +1,47 @@
-<h1>经济热点快评｜创新这场“马拉松”，没有终点</h1><br>
+<h1>如何消除对未知的恐惧？米哈游刘伟分享马斯克式方法：倒推、量化目标</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>4月19日，2026北京亦庄人形机器人半程马拉松开跑。最终，荣耀齐天大圣队参赛选手机器人“闪电”以50分26秒(净用时)的成绩获得赛事冠军。这一成绩，相比去年的冠军提升了超过3倍，甚至超越了人类半马世界纪录。 本届赛事共收到国内13个省市区76家参赛主体的超百支队伍报名，涉及26个主流品牌的300余台机器人，赛事规模较去年实现了大幅增长。赛道全长21.0975公里，涵盖多种复杂</p><br>
+<p>4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。 谈及如何对抗AI时代的焦虑，刘伟建议大学生们，首先，先找到一件自己喜欢做的事，不管是做科研，还是去创业都可以。但不要过分去追求一个显而易见的功利结果，因为这件事完全不可知。“如果你有一件自己想做的事，你就不会焦虑，你就能穿越周期。” 其次，他指出，有了目标之后，最重要的事情，就是马上去做。“大部分人的焦虑，都来自于</p><br>
 <h2>正文</h2><br>
-<p>4月19日，2026北京亦庄人形机器人半程马拉松开跑。</p><br>
-<p>最终，荣耀齐天大圣队参赛选手机器人“闪电”以50分26秒(净用时)的成绩获得赛事冠军。</p><br>
-<p>这一成绩，相比去年的冠军提升了超过3倍，甚至超越了人类半马世界纪录。</p><br>
-<p>本届赛事共收到国内13个省市区76家参赛主体的超百支队伍报名，涉及26个主流品牌的300余台机器人，赛事规模较去年实现了大幅增长。</p><br>
-<p>赛道全长21.0975公里，涵盖多种复杂路况，对机器人的运动稳定性、续航能力及散热性能提出了极高要求，是对人形机器人技术实力的一次全面检验。</p><br>
-<p>从这场“实战测试场”可以看到，人形机器人的整体能力在过去一年明显进化，技术的突破是成绩提升的根本原因。</p><br>
-<p>在“耳聪目明”方面，与去年需要领航员遥控跑不同，今年很多人形机器人选手均以全自主导航的形式参赛，“扔掉遥控器”的队伍占比达四成，这体现出它们已能够完成定位、避障和路径规划，自主奔跑能力大幅提升。</p><br>
-<p>在运动能力方面，选手们同样进步神速。</p><br>
+<p>4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。</p><br>
+<p>谈及如何对抗AI时代的焦虑，刘伟建议大学生们，首先，先找到一件自己喜欢做的事，不管是做科研，还是去创业都可以。</p><br>
+<p>但不要过分去追求一个显而易见的功利结果，因为这件事完全不可知。</p><br>
+<p>“如果你有一件自己想做的事，你就不会焦虑，你就能穿越周期。</p><br>
+<p>” 其次，他指出，有了目标之后，最重要的事情，就是马上去做。</p><br>
+<p>“大部分人的焦虑，都来自于想的太多，而行动太少。</p><br>
+<p>” 如何才能提升行动力？</p><br>
+<p>刘伟强调，做一件事最重要的不是先学会，而是先去做。</p><br>
 <h2>相关推荐</h2><br>
-<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md</p><br>
-<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md</p><br>
-<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md</p><br>
-<h3>如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md</p><br>
-<h3>库尼亚赛后伸五指嘲讽日本</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md</p><br>
-<h3>佐野海舟远射破门</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md</p><br>
-<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md</p><br>
-<h3>低智商犯罪三江口团建来了</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md</p><br>
-<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md</p><br>
-<h3>沉睡花园</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md</p><br>
+<h3>人民锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md</p><br>
+<h3>承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md</p><br>
+<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md</p><br>
+<h3>有哪些被认为是现代才有的东西其实古代就有了？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md</p><br>
+<h3>收到补税提醒尽快办理 明起有滞纳金</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md</p><br>
+<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md</p><br>
+<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md</p><br>
+<h3>泰山建135公里刀片刺绳隔离网</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md</p><br>
+<h3>武磊：巴西队赢的并不轻松</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md</p><br>
+<h3>这些7月新规影响你我</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md</p><br>
+<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
+<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md</p><br>
+<h3>DeepSeek启动成立来最大规模招聘</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/48558859049.shtml</p><br>
-<h3>媒体：手机测评该挤挤水分了</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/2898828.shtml</p><br>
-<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/62826209839.shtml</p><br>
-<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/74611500.shtml</p><br>
-<h3>巴西替补奇兵读秒绝杀</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.share.minike.top/Article/details/12154024.shtml</p><br>
-<h3>披荆斩棘的哥哥</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:http://www.blog.minike.top/Article/details/363056069.shtml</p><br>
-<h3>千香</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.minike.top/Article/details/48349343.shtml</p><br>
-<h3>巴拉圭门将</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/64274.shtml</p><br>
-<h3>老人卖菜获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.minike.top/Article/details/5895326588.shtml</p><br>
-<h3>男子诋毁袁隆平科研成果被刑拘</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/5069999.shtml</p><br>
-<h3>安切洛蒂 换人</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.minike.top/Article/details/582947468891.shtml</p><br>
-<h3>德国罚丢3粒点球</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.blog.minike.top/Article/details/40562629726.shtml</p><br>
-<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:http://www.blog.minike.top/Article/details/751649305.shtml</p><br>
-<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/7198394406.shtml</p><br>
-<h3>峡谷事故团队组队时有人提醒会下雨</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/1548469.shtml</p><br>
+<h3>手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
+<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
+<h3>《鸣潮》玄方主题曲 MV | 定玄</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
+<h3>“法德大战”泡汤了</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md</p><br>
+<h3>曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>德国巴拉圭加时</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md</p><br>
+<h3>日本队主帅道歉</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>日本队5进世界杯淘汰赛0胜</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
+<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
+<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>

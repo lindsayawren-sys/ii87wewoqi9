@@ -1,44 +1,45 @@
-<h1>国家发改委主任：持续提升国家经济安全保障能力</h1><br>
+<h1>服务“焕新” 培育发展“沃土”——辽宁全力打造优良营商环境</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>“近期霍尔木兹海峡航运受阻，进一步凸显了全球产业链供应链及运输通道的脆弱性。” 4月20日，国家发展改革委党组书记、主任郑栅洁在《人民日报》发表署名文章《持续提升国家经济安全保障能力 以新安全格局保障新发展格局》。 文章既总结了过去五年我国经济安全保障能力建设取得的显著成效，也分析了“十五五”时期我国经济安全面临的内外部环境，还明确了全面推进经济安全保障能力建设的重点任务。 文</p><br>
+<p>光明日报 本报记者 李建斌 本报通讯员 邸悦 【为推进中国式现代化凝聚磅礴力量·“十五五”新图景新征程】 “取完号，一杯咖啡还没喝完，就拿到了新的营业执照！”在辽宁省沈阳市浑南区政务服务中心的综合受理专区，刚办好手续的创业者王薇对这样的效率感到欣喜。王薇感受到的高效，得益于辽宁全力打造营商环境“升级版”——通过深化“只提交一次材料”改革，将需跑多个部门办理的关联事项打包集成，大</p><br>
 <h2>正文</h2><br>
-<p>“近期霍尔木兹海峡航运受阻，进一步凸显了全球产业链供应链及运输通道的脆弱性。</p><br>
-<p>” 4月20日，国家发展改革委党组书记、主任郑栅洁在《人民日报》发表署名文章《持续提升国家经济安全保障能力 以新安全格局保障新发展格局》。</p><br>
-<p>文章既总结了过去五年我国经济安全保障能力建设取得的显著成效，也分析了“十五五”时期我国经济安全面临的内外部环境，还明确了全面推进经济安全保障能力建设的重点任务。</p><br>
-<p>文章信息量很大，传递出重要信号。</p><br>
-<p>总结四方面成绩 在介绍成效的时候，文章总结了四方面成绩： 一是坚持“藏粮于地、藏粮于技”，粮食安全基础更加稳固。</p><br>
-<p>二是推进探产供储销统筹和衔接，能源资源安全保障不断加强。</p><br>
-<p>三是着力稳链强链、补链延链，产业链供应链韧性和安全水平稳步提升。</p><br>
-<p>四是落实保安全、护稳定各项措施，重点领域风险得到有力有效防控。</p><br>
+<p>光明日报 本报记者 李建斌 本报通讯员 邸悦 【为推进中国式现代化凝聚磅礴力量·“十五五”新图景新征程】 “取完号，一杯咖啡还没喝完，就拿到了新的营业执照！</p><br>
+<p>”在辽宁省沈阳市浑南区政务服务中心的综合受理专区，刚办好手续的创业者王薇对这样的效率感到欣喜。</p><br>
+<p>王薇感受到的高效，得益于辽宁全力打造营商环境“升级版”——通过深化“只提交一次材料”改革，将需跑多个部门办理的关联事项打包集成，大幅压缩了办事时间和环节。</p><br>
+<p>营商环境是区域发展的核心竞争力之一，更是观察一个地区治理能力现代化的重要窗口。</p><br>
+<p>去年以来，辽宁省发出“人人都是营商环境、事事关系营商环境”的动员令，将优化营商环境作为全面振兴的头号工程，以刀刃向内的勇气和久久为功的韧劲，推动从理念到实践、从制度到文化的系统性重塑。</p><br>
+<p>“十五五”规划纲要提出，持续推进营商环境改进提升，打造市场化、法治化、国际化一流营商环境。</p><br>
+<p>如今，这场清除阻碍发展沉疴积弊的变革，正以扎扎实实的成效，扭转外界对辽宁乃至东北地区的固有印象，为辽宁全面振兴开辟源头活水，持续激发发展动能。</p><br>
+<p>破局 刀刃向内重塑营商“气候” “气瓶使用人和车主不一致，加不了气。</p><br>
 <h2>相关推荐</h2><br>
-<h3>曝iPhone18Pro机密文件现身暗网</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md</p><br>
-<h3>被巴西绝杀后 日球员田中碧跪地痛哭</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md</p><br>
-<h3>2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
-<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md</p><br>
-<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md</p><br>
-<h3>女心理师</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md</p><br>
-<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md</p><br>
-<h3>曝娱乐圈大部分明星失业</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md</p><br>
-<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md</p><br>
-<h3>巴拉圭点球大战淘汰德国进16强</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md</p><br>
+<h3>王楚钦孙颖莎vs皮斯特耶库库洛娃</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md</p><br>
+<h3>深圳交警集中曝光典型违法案例</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md</p><br>
+<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md</p><br>
+<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md</p><br>
+<h3>流金岁月</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md</p><br>
+<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md</p><br>
+<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md</p><br>
+<h3>外国游客开始涌入中国农村</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md</p><br>
+<h3>世界杯</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md</p><br>
+<h3>科学备孕男女都要上心</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/158177.shtml</p><br>
-<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/12734158.shtml</p><br>
-<h3>对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/97952.shtml</p><br>
-<h3>古代人对纳妾的态度是什么样的？</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/26708403418.shtml</p><br>
-<h3>“荒唐”背后的韩国足球</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/78200458385.shtml</p><br>
-<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/237545.shtml</p><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/948736002794.shtml</p><br>
-<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/674834.shtml</p><br>
-<h3>恋与深空</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/7991242041.shtml</p><br>
-<h3>普京为何将俄乌谈判时间表与伊朗挂钩</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://www.share.minike.top/Article/details/868945.shtml</p><br>
-<h3>热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/7506147066.shtml</p><br>
-<h3>杨紫学位证上就是杨紫</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.blog.minike.top/Article/details/14552588.shtml</p><br>
-<h3>任素汐舞台上唱《王招君》</h3><br><p>更新时间：2026-06-30 09:11<br><br> | 来源:https://www.blog.minike.top/Article/details/6872492.shtml</p><br>
-<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/923253081854.shtml</p><br>
-<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:http://www.blog.minike.top/Article/details/83891520.shtml</p><br>
+<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
+<h3>金牌调解</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md</p><br>
+<h3>巴拉圭先进球了</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
+<h3>董路：谁赢谁是“正路子”</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md</p><br>
+<h3>恋与深空已删除锅里洗澡文案</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
+<h3>如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md</p><br>
+<h3>全新问界M9现身美国街头</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md</p><br>
+<h3>城市规划有可能成为「屎山代码」吗？</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
+<h3>日本五次世界杯淘汰赛全败</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
+<h3>杨紫获白玉兰视后为何争议难平</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md</p><br>
+<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>日本博主：日本足球真的垃圾</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md</p><br>

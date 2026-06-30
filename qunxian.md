@@ -1,48 +1,45 @@
-<h1>平台要当好“守门员”，守住食品安全“生命线”</h1><br>
+<h1>云南中行畅通中泰金融绿色通道 双边跨境人民币结算破10亿</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>市场监管总局对7家电商平台“幽灵外卖”系列案实施“一店一处罚”，不仅是对违法违规行为的有力震慑，更是对平台企业责任缺失的严厉警示。它清晰地传递出一个信号：平台不再仅仅是流量的分发者，更应成为秩序的维护者，作为连接商家与消费者的关键枢纽，必须切实履行好“守门员”的主体责任。平台作为“守门员”，要严把“入场关”，杜绝“带病上岗”。在利益驱动下，部分平台“重流量、轻监管”“重规模、轻</p><br>
+<p>中新网昆明4月13日电 (时文枝)中国银行云南省分行(以下简称云南中行)13日消息，由云南中行及中国银行(泰国)股份有限公司(以下简称中国银行泰国子行)共同搭建的中泰金融绿色通道自2025年1月开通以来，双边跨境人民币结算量已突破10亿元，惠及40余家外贸民营企业，有效激活滇泰农产品、跨境贸易及产业链上下游协同发展。地处中国西南的云南，是中国面向南亚东南亚开放的前沿。随着中老铁</p><br>
 <h2>正文</h2><br>
-<p>市场监管总局对7家电商平台“幽灵外卖”系列案实施“一店一处罚”，不仅是对违法违规行为的有力震慑，更是对平台企业责任缺失的严厉警示。</p><br>
-<p>它清晰地传递出一个信号：平台不再仅仅是流量的分发者，更应成为秩序的维护者，作为连接商家与消费者的关键枢纽，必须切实履行好“守门员”的主体责任。</p><br>
-<p>平台作为“守门员”，要严把“入场关”，杜绝“带病上岗”。</p><br>
-<p>在利益驱动下，部分平台“重流量、轻监管”“重规模、轻合规”，导致“借证经营”“伪证经营”甚至“无证经营”现象频发，造成劣币驱逐良币。</p><br>
-<p>平台必须认识到，资质审核不是走过场的“纸面文章”，而是关乎食品安全的“生死防线”。</p><br>
-<p>平台必须强化主体责任，不仅要看“证”更要核“实”，建立线上线下一体化核验机制，确保每一单外卖背后都是一家看得见、摸得着、信得过的实体店，将“幽灵外卖”拒之门外。</p><br>
-<p>平台作为“守门员”，要严控“过程关”，斩断餐饮“转单黑链”。</p><br>
-<p>平台应建立健全动态监测机制，利用大数据分析订单流向、出餐时间、配送轨迹等数据，对餐饮转单智能预警。</p><br>
+<p>中新网昆明4月13日电 (时文枝)中国银行云南省分行(以下简称云南中行)13日消息，由云南中行及中国银行(泰国)股份有限公司(以下简称中国银行泰国子行)共同搭建的中泰金融绿色通道自2025年1月开通以来，双边跨境人民币结算量已突破10亿元，惠及40余家外贸民营企业，有效激活滇泰农产品、跨境贸易及产业链上下游协同发展。</p><br>
+<p>地处中国西南的云南，是中国面向南亚东南亚开放的前沿。</p><br>
+<p>随着中老铁路“黄金通道”效应持续释放，云南正成为中泰双边贸易往来与产业协同发展的重要枢纽。</p><br>
+<p>近年来，蔬菜、水果等特色农产品贸易持续升温，跨境物流加速畅通的同时，企业对高效、便捷、低成本的跨境金融服务需求日益迫切。</p><br>
+<p>为精准服务滇泰经贸往来，云南中行联动中国银行泰国子行共同搭建中泰金融绿色通道。</p><br>
+<p>通过优化跨境人民币全流程服务、支持泰国当地人民币直接交易市场发展、定期召开线上业务碰头会等举措，大幅提升结算效率，推动人民币在双边贸易中更广泛使用，实现跨境金融服务“零距离、快响应、全周期”。</p><br>
+<p>云南中行相关负责人表示，下一步，该行将以拓展跨境人民币、贸易融资、汇率避险等综合服务场景，完善中泰金融绿色通道服务内涵，助力滇泰经贸合作提质升级。</p><br>
+<p>(完)</p><br>
 <h2>相关推荐</h2><br>
-<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md</p><br>
-<h3>覃予萱晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md</p><br>
-<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md</p><br>
-<h3>18岁体育生离世由爷爷奶奶抚养长大</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md</p><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md</p><br>
-<h3>中国猪圈装空调让欧洲网友破防</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md</p><br>
-<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md</p><br>
-<h3>大蒜晒外面被路过女子连盆端走</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md</p><br>
-<h3>巴西2比1日本</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md</p><br>
-<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md</p><br>
-<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md</p><br>
-<h3>请回答王牌2019</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md</p><br>
-<h3>王灿兮被烫伤两年后维权成功</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md</p><br>
-<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md</p><br>
-<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md</p><br>
+<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md</p><br>
+<h3>爱很美味</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md</p><br>
+<h3>如何看待 NBA2026 年休赛期美媒称 勇士正试图同时获得詹姆斯和浓眉？这可能实现吗？</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md</p><br>
+<h3>一切民族英雄都是中华民族的脊梁</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md</p><br>
+<h3>有哪些值得一提的生活窍门？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md</p><br>
+<h3>世界杯巴拉圭点球淘汰德国</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md</p><br>
+<h3>【大鸣王潮1566】真拿你没办法</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md</p><br>
+<h3>王源近几年没有路演了</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md</p><br>
+<h3>斛珠夫人</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md</p><br>
+<h3>李在明向韩国两大财阀90度鞠躬</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md</p><br>
+<h3>“中国养猪场都用上空调了”！这是真的吗？【主播说三农】</h3><br><p>更新时间：2026-06-30 09:41<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.share.minike.top/Article/details/4154533.shtml</p><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/0217381241.shtml</p><br>
-<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/940214815545.shtml</p><br>
-<h3>HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/95768418.shtml</p><br>
-<h3>扬名立万</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/39847905.shtml</p><br>
-<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/9310408.shtml</p><br>
-<h3>汉语是世界上最言简意赅的语言吗？</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/36158123.shtml</p><br>
-<h3>世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 09:24<br><br> | 来源:http://www.blog.minike.top/Article/details/94026052.shtml</p><br>
-<h3>马航MH370传来最新消息</h3><br><p>更新时间：2026-06-30 09:28<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/791826.shtml</p><br>
-<h3>【硬核拆解】汽车人到底离我们有多远？</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://www.blog.minike.top/Article/details/389202.shtml</p><br>
-<h3>巴西绝杀</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/9834209782.shtml</p><br>
-<h3>荷兰vs摩洛哥</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/716705.shtml</p><br>
-<h3>DeepSeek启动成立来最大规模招聘</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/93546353507.shtml</p><br>
-<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/61881.shtml</p><br>
-<h3>健全中小学教师工资长效联动机制</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/3120251.shtml</p><br>
+<h3>2021湖南卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md</p><br>
+<h3>吴启华卖肖像权拍AI电影</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>欧洲空调卖疯了 下一个爆款是储能吗</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
+<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
+<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md</p><br>
+<h3>日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md</p><br>
+<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
+<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md</p><br>
+<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 09:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 09:39<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>日本队被绝杀后鞠躬致谢观众</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md</p><br>
+<h3>如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？</h3><br><p>更新时间：2026-06-30 09:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>起风了</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>

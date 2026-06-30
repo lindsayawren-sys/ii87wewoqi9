@@ -1,47 +1,44 @@
-<h1>裕信银行力促德国商业银行重组</h1><br>
+<h1>报告称：中国走向消费强国有四方面有利条件</h1><br>
 
-<p><strong>更新时间：2026-06-30 09:36:03 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 09:42:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>裕信银行称，德商银行战略以高风险非核心业务掩盖深层结构性短板 意大利裕信银行（德国商业银行第一大股东）即将公布一项重组德国商业银行的方案，以期从这家德国同行身上挖掘价值 —— 这是该行首席执行官安德里亚・奥塞尔推动达成交易的最新动作。 这家意大利银行于周一发布演示文稿，详细阐述其 “价值创造方案”。文件指出，德国商业银行长期经营表现不佳，估值偏离基本面，且对未来挑战准备不足。</p><br>
+<p>中新网海口4月13日电 (记者 王子谦)13日在海口举办的“2026消费发展学术交流发布活动”发布报告建议，未来5年至10年，中国要加快从消费大国走向消费强国，以对冲全球不确定性，推进经济发展方式转变，有效满足城乡居民发展需求。这份《从消费大国走向消费强国——2026年中国消费研究报告》(简称《报告》) 分析，中国走向消费强国拥有多方面有利条件，一是中国拥有14亿多人口和全球规</p><br>
 <h2>正文</h2><br>
-<p>裕信银行称，德商银行战略以高风险非核心业务掩盖深层结构性短板 意大利裕信银行（德国商业银行第一大股东）即将公布一项重组德国商业银行的方案，以期从这家德国同行身上挖掘价值 —— 这是该行首席执行官安德里亚・奥塞尔推动达成交易的最新动作。</p><br>
-<p>这家意大利银行于周一发布演示文稿，详细阐述其 “价值创造方案”。</p><br>
-<p>文件指出，德国商业银行长期经营表现不佳，估值偏离基本面，且对未来挑战准备不足。</p><br>
-<p>自 2024 年秋季起，裕信银行便持续紧盯这家总部位于法兰克福的银行，开始增持其股份，并推动双方深化合作。</p><br>
-<p>奥塞尔的提议遭到德商银行拒绝，同时引发工会以及德国政府（德商银行第二大股东）的反对。</p><br>
-<p>今年 3 月，这家意大利集团加大施压，发起收购要约，试图打破双方僵局，迫使管理层坐到谈判桌前商讨潜在合并事宜。</p><br>
-<p>裕信银行表示，其并非寻求完全控股。</p><br>
-<p>德国商业银行始终强硬维护自身独立战略，并在近期沟通后表示，目前不具备达成交易的条件。</p><br>
+<p>中新网海口4月13日电 (记者 王子谦)13日在海口举办的“2026消费发展学术交流发布活动”发布报告建议，未来5年至10年，中国要加快从消费大国走向消费强国，以对冲全球不确定性，推进经济发展方式转变，有效满足城乡居民发展需求。</p><br>
+<p>这份《从消费大国走向消费强国——2026年中国消费研究报告》(简称《报告》) 分析，中国走向消费强国拥有多方面有利条件，一是中国拥有14亿多人口和全球规模最大的中等收入群体；二是中国人均GDP已超过1.3万美元，正处在消费结构升级的关键阶段；三是中国拥有完整的产业体系支撑消费强国建设；四是政策调整持续推进扩大国内需求、提振消费、建设国内大市场。</p><br>
+<p>《报告》认为，中国已成为全球消费大国，2024年中国最终消费占全球比重由2012年的8%持续攀升至12.98%，2020年至2024年最终消费累计贡献全球13.81%。</p><br>
+<p>但与此同时，中国离消费强国仍有较大差距。</p><br>
+<p>在消费规模上，2024年中国最终消费10.6万亿美元，相当于美国最终消费规模的44.48%；在最终消费率上，中国最终消费率长期偏低；在消费结构上，服务消费占比有巨大提升空间。</p><br>
+<p>《报告》估算，如果中国最终消费占全球的比重达到中国制造业增加值占全球的比重，将新增不少于10万亿美元的消费市场。</p><br>
+<p>报告发布机构中国(海南)改革发展研究院院长迟福林建议，“十五五”时期要提速“民生大国”建设，加大基本公共服务投资，深入推进以人为本的新型城镇化。</p><br>
+<p>同时，深化以拉动消费为重点的结构性改革，包括深化收入分配制度改革，推动服务业制度型开放等。</p><br>
 <h2>相关推荐</h2><br>
-<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md</p><br>
-<h3>英语考了145的人竟然教数学</h3><br><p>更新时间：2026-06-30 09:06<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md</p><br>
-<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 09:08<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md</p><br>
-<h3>首届《哈基米歌王争霸赛》总决赛</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md</p><br>
-<h3>德国巴拉圭进入点球大战</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md</p><br>
-<h3>德国vs巴拉圭</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md</p><br>
-<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
-<h3>男子在非洲务工死亡 公司不认可工亡</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md</p><br>
-<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md</p><br>
-<h3>道友？你来真的啊？【凡人官方二创大会】</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md</p><br>
-<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md</p><br>
-<h3>德国爆冷点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 09:10<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 09:13<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md</p><br>
+<h3>恐怖世界 第三集 埃温霍姆村</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md</p><br>
+<h3>免费试吃发差评被店家挂店门避雷</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md</p><br>
+<h3>papi酱已退出papitube关联公司</h3><br><p>更新时间：2026-06-30 09:37<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md</p><br>
+<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md</p><br>
+<h3>宜宾地震食客避难后折返 无人逃单</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md</p><br>
+<h3>恋与深空回应敖尹来源</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md</p><br>
+<h3>未来的飞机可能会用电吗？</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？</h3><br><p>更新时间：2026-06-30 09:30<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md</p><br>
+<h3>我设置了全宇宙最安全的密码</h3><br><p>更新时间：2026-06-30 09:17<br><br> | 来源:https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md</p><br>
+<h3>iPhoneUltra黑色机模</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md</p><br>
+<h3>庆祝中国共产党成立105周年大会将举行</h3><br><p>更新时间：2026-06-30 09:40<br><br> | 来源:https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/28855929.shtml</p><br>
-<h3>自然光｜papi酱&窦文涛：驴与跑步机</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.share.minike.top/Article/details/55051957.shtml</p><br>
-<h3>毕业以后，你最怀念的大学记忆是什么？</h3><br><p>更新时间：2026-06-30 09:25<br><br> | 来源:https://www.share.kurohicncr.top/Article/details/01722917.shtml</p><br>
-<h3>宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？</h3><br><p>更新时间：2026-06-30 09:27<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/446245.shtml</p><br>
-<h3>急先锋</h3><br><p>更新时间：2026-06-30 09:34<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/4869373782.shtml</p><br>
-<h3>青春环游记第三季</h3><br><p>更新时间：2026-06-30 09:26<br><br> | 来源:http://www.share.minike.top/Article/details/02808.shtml</p><br>
-<h3>有什么好的高中网课推荐吗？</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/357514895402.shtml</p><br>
-<h3>金鹰奖视后提名预测</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/55272205.shtml</p><br>
-<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:http://www.share.kurohicncr.top/Article/details/689827003.shtml</p><br>
-<h3>李准基参加文彩元婚礼</h3><br><p>更新时间：2026-06-30 09:33<br><br> | 来源:https://www.blog.kurohicncr.top/Article/details/975407420221.shtml</p><br>
-<h3>亚洲球队全部告别世界杯</h3><br><p>更新时间：2026-06-30 09:09<br><br> | 来源:https://www.share.minike.top/Article/details/962154.shtml</p><br>
-<h3>输球后日本球迷被强行披上巴西国旗</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:http://www.blog.minike.top/Article/details/452650412623.shtml</p><br>
-<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 09:07<br><br> | 来源:http://www.blog.kurohicncr.top/Article/details/68755.shtml</p><br>
-<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:http://www.blog.minike.top/Article/details/01936.shtml</p><br>
-<h3>内马尔替补</h3><br><p>更新时间：2026-06-30 09:29<br><br> | 来源:https://www.share.minike.top/Article/details/581628698.shtml</p><br>
+<h3>巴西绝杀日本</h3><br><p>更新时间：2026-06-30 09:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md</p><br>
+<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 09:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>房价什么时候能涨</h3><br><p>更新时间：2026-06-30 09:38<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
+<h3>点球大战 残酷</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
+<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 09:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>巴西足球能否再现昔日荣光</h3><br><p>更新时间：2026-06-30 09:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
+<h3>第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！</h3><br><p>更新时间：2026-06-30 09:36<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
+<h3>蜘蛛侠:英雄归来</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>
+<h3>这些7月新规影响你我</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md</p><br>
+<h3>韩国道歉完日本道歉</h3><br><p>更新时间：2026-06-30 09:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
+<h3>德国队连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 09:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>点球大战</h3><br><p>更新时间：2026-06-30 09:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md</p><br>
+<h3>美人鱼</h3><br><p>更新时间：2026-06-30 09:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 09:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
+<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 09:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
