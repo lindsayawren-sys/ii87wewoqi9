@@ -1,61 +1,57 @@
-# Coherus Oncology将于5月11日发布一季度财报
+# 从“依赖单一客户”到“被砍掉半条命” 燕文物流递表港交所背后 薄利暗礁与地缘风险并存
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-Coherus Oncology公司周一宣布，将于2026年5月11日（周一）美股收盘后发布2026年第一季度财务业绩。公司管理层将于美国东部时间当日下午5：00召开电话会议及网络直播，讨论财报并介绍业务最新进展。 根据市场一致预期，分析师预计Coherus第一季度每股亏损约为0.26美元，营收预计约1434万美元。此前，公司在2025年第四季度录得营收1275万美元，低于分析
+2026年5月25日，燕文物流股份有限公司正式向港交所主板递交上市申请，独家保荐人为申万宏源香港。这是这家成立28年的老牌跨境物流企业，继2023年1月在深交所主板首发上会前夕主动撤回申报材料后，第二次向资本市场发起冲击。彼时，公司原定募资9.3亿元，保荐机构为中信证券。时隔三年，燕文物流交出了一份营收66.87亿元、净利润1.06亿元的成绩单——净利率1.6%，不及同期快递行
 
 ## 正文
 
-Coherus Oncology公司周一宣布，将于2026年5月11日（周一）美股收盘后发布2026年第一季度财务业绩。
+2026年5月25日，燕文物流股份有限公司正式向港交所主板递交上市申请，独家保荐人为申万宏源香港。
 
-公司管理层将于美国东部时间当日下午5：00召开电话会议及网络直播，讨论财报并介绍业务最新进展。
+这是这家成立28年的老牌跨境物流企业，继2023年1月在深交所主板首发上会前夕主动撤回申报材料后，第二次向资本市场发起冲击。
 
-根据市场一致预期，分析师预计Coherus第一季度每股亏损约为0.26美元，营收预计约1434万美元。
+彼时，公司原定募资9.3亿元，保荐机构为中信证券。
 
-此前，公司在2025年第四季度录得营收1275万美元，低于分析师预期的1394万美元。
+时隔三年，燕文物流交出了一份营收66.87亿元、净利润1.06亿元的成绩单——净利率1.6%，不及同期快递行业龙头净利率水平的一半。
 
-Coherus Oncology是一家专注于肿瘤支持治疗和免疫肿瘤学生物制剂研发与商业化的生物制药公司，总部位于加州红木城。
+头顶“行业第二”光环的背后，收入规模波动剧烈，盈利能力长期羸弱，客户集中风险刚有缓解，监管地雷却悄然引爆。
 
-公司核心上市产品包括Udenyca和Fulphila，均为安进Neulasta的生物类似药，用于降低接受骨髓抑制化疗患者的感染发生率。
+业绩“过山车”：2024年收入暴跌38.6% 招股书数据显示，2023年至2025年，燕文物流分别实现收入94.83亿元、58.27亿元、66.87亿元，三年间先降后升。
 
-截至周一早盘，CHRS股价报约1.77美元，市值约2.08亿美元。
+2024年收入同比暴跌38.6%，2025年反弹14.8%，但规模仍远未恢复至2023年高位；同期净利润分别为5812万元、4967万元、1.06亿元，2025年净利润大增114.1%，但这是建立在2024年仅4967万元净利润的低基数之上的。
 
-分析师给予该股“适度买入”评级，平均目标价约7美元。
+毛利率虽从2023年的3.6%稳步提升至6.9%，净利率从0.6%升至1.6%，但绝对值仍处于行业低位。
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 08:55 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 09:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-30 08:47 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 09:01 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 09:11 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 08:43 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 08:51 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 09:05 - [《名肘探科比》：科比大战裂口女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 08:57 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 08:49 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 08:44 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 08:59 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 08:58 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 09:10 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 08:48 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 09:15 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 08:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 09:15 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 09:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-30 09:12 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 08:59 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 09:09 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 08:48 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 08:55 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 08:50 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:06 - [巴拉圭率先破门](https://www.blog.kurohicncr.top/Article/details/4570973271.shtml)
-- 2026-06-30 08:48 - [德国队连续三届世界杯无缘16强](https://www.share.kurohicncr.top/Article/details/72654653996.shtml)
-- 2026-06-30 08:59 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/70501910354.shtml)
-- 2026-06-30 09:08 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/185274155.shtml)
-- 2026-06-30 09:09 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/97348667882.shtml)
-- 2026-06-30 08:45 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](http://www.blog.kurohicncr.top/Article/details/76484.shtml)
-- 2026-06-30 08:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/79839348273.shtml)
-- 2026-06-30 09:01 - [孙颖莎王楚钦晋级8强](http://www.share.kurohicncr.top/Article/details/935274573.shtml)
-- 2026-06-30 09:06 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/879429683291.shtml)
-- 2026-06-30 09:08 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/696315741.shtml)
-- 2026-06-30 08:43 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/889458.shtml)
-- 2026-06-30 09:03 - [森保一致歉：世界第一目标没能实现](https://www.blog.kurohicncr.top/Article/details/0847861.shtml)
-- 2026-06-30 08:47 - [锐评T1战胜KC](https://www.blog.minike.top/Article/details/4235145025.shtml)
-- 2026-06-30 09:11 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/47982631146.shtml)
-- 2026-06-30 09:03 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/21283440689.shtml)
+- 2026-06-30 09:07 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/97826884974.shtml)
+- 2026-06-30 09:15 - [人民锐评网红诋毁袁隆平造谣企业家](http://www.share.kurohicncr.top/Article/details/85016.shtml)
+- 2026-06-30 09:00 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.minike.top/Article/details/54158551562.shtml)
+- 2026-06-30 09:01 - [马航370搜寻最新消息](https://www.share.minike.top/Article/details/8883058.shtml)
+- 2026-06-30 09:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/6264932.shtml)
+- 2026-06-30 09:04 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/028410010.shtml)
+- 2026-06-30 09:14 - [日本五次世界杯淘汰赛全败](https://www.blog.minike.top/Article/details/078946.shtml)
+- 2026-06-30 09:08 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/59027.shtml)
+- 2026-06-30 09:04 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/729075720.shtml)
+- 2026-06-30 08:57 - [起风了](https://www.blog.kurohicncr.top/Article/details/19415675141.shtml)
+- 2026-06-30 08:58 - [武磊：巴西队赢的并不轻松](http://www.blog.minike.top/Article/details/1872141043.shtml)
+- 2026-06-30 08:48 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/5957627156.shtml)
+- 2026-06-30 09:10 - [低智商犯罪三江口团建来了](https://www.share.minike.top/Article/details/2847456773.shtml)
+- 2026-06-30 09:09 - [速度与激情9](http://www.share.minike.top/Article/details/34469.shtml)
+- 2026-06-30 08:53 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/08441918613.shtml)

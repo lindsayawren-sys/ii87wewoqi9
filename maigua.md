@@ -1,55 +1,59 @@
-# 香港4月楼宇买卖登记量同比增长20.2% 创4个月以来新高
+# 我国牵头修订的金融业通用报文方案国际标准正式发布
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新社香港5月5日电 (记者 魏华都)香港特区政府土地注册处5日公布，今年4月送交土地注册处注册的所有种类楼宇买卖合约共计8692份，创下4个月以来新高。 数据显示，香港4月楼宇买卖登记量较3月增长12.3%，比去年同期增长20.2%。在这些买卖合约中，住宅楼宇买卖合约占7368份，较3月增长16.7%，比去年同期增长29.4%。 中原地产研究部高级联席董事杨明仪表示，香港楼市
+记者今天（5月29日）了解到，我国牵头修订的国际标准《金融服务 金融业通用报文方案 第5部分：概念互操作性和反向工程》（ISO 20022-5：2026）和《金融服务 金融业通用报文方案 第7部分：注册》（ISO 20022-7：2026）经国际标准化组织（ISO）批准发布。 《金融服务 金融业通用报文方案》（ISO 20022）是全球金融领域应用最广泛、影响最深远的基础性国际
 
 ## 正文
 
-中新社香港5月5日电 (记者 魏华都)香港特区政府土地注册处5日公布，今年4月送交土地注册处注册的所有种类楼宇买卖合约共计8692份，创下4个月以来新高。
+记者今天（5月29日）了解到，我国牵头修订的国际标准《金融服务 金融业通用报文方案 第5部分：概念互操作性和反向工程》（ISO 20022-5：2026）和《金融服务 金融业通用报文方案 第7部分：注册》（ISO 20022-7：2026）经国际标准化组织（ISO）批准发布。
 
-数据显示，香港4月楼宇买卖登记量较3月增长12.3%，比去年同期增长20.2%。
+《金融服务 金融业通用报文方案》（ISO 20022）是全球金融领域应用最广泛、影响最深远的基础性国际标准之一，被誉为金融信息交换的“世界语言”。
 
-在这些买卖合约中，住宅楼宇买卖合约占7368份，较3月增长16.7%，比去年同期增长29.4%。
+基于该标准构建的ISO 20022报文库已覆盖支付清算、证券等主要金融业务领域，正逐步成为全球金融机构与金融基础设施互联互通的核心通信载体。
 
-中原地产研究部高级联席董事杨明仪表示，香港楼市在春节后进入传统旺市，投资者购买力强劲，加上银行相继推出按揭优惠计划，新楼盘热卖、二手楼宇交投活跃，带动整体买卖登记量创下4个月以来高位。
+近年来，在金融稳定理事会（FSB）、国际清算银行（BIS）等国际组织的倡议推动下，全球金融体系加速应用ISO 20022报文。
 
-利嘉阁地产研究部主管陈海潮分析，香港楼市近期表现理想，价量齐升势头持续。
+针对此过程中不同报文标准的业务模型和数据要素差异大、难以顺畅转换，以及金融机构普遍面临的“获取材料难、版本追溯难、技术响应慢”等痛点，我国与美国、英国、日本等国家通力合作，分别针对标准的元模型、建模、语法进行修订，更新了应用程序接口（API）、数据类型、语法生成规则等内容，共同完善了ISO 20022标准体系。
 
-4月新楼盘成交火热，二手屋苑及工商铺市场在4月下旬的成交量仍有增长，预计5月香港楼市将持续畅旺。
+其中，ISO 20022-5通过建立转换接口，在不同报文标准之间搭建起高效互联互通的“桥梁”，有效改善了跨境支付等金融服务效率。
 
-(完)
+ISO 20022-7强化版本追溯机制，明确注册服务责任主体，优化技术支持渠道，避免因版本不一致导致的数据断层，助力更多银行、支付机构能够快速、顺畅地接入ISO 20022标准体系。
+
+该两项标准的发布，凝聚了17个国家及6个国际金融机构共50余名金融领域专家的智慧与共识，将进一步提升金融服务效率与全球跨境交易的便利化水平，为构建开放融通的国际金融体系提供技术支撑。
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-30 09:04 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 09:02 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 08:48 - [德国身价是巴拉圭6倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 08:51 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 09:04 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 09:08 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 09:04 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 08:43 - [iPhoneUltra黑色机模](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 09:08 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 08:59 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 09:01 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 08:56 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 09:14 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 09:06 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 08:53 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 08:48 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 08:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 09:10 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 09:06 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 09:16 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 08:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 09:07 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 09:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:10 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](http://www.share.kurohicncr.top/Article/details/15020136.shtml)
-- 2026-06-30 09:08 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/760849298.shtml)
-- 2026-06-30 08:53 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/50715993598.shtml)
-- 2026-06-30 09:02 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/4129849.shtml)
-- 2026-06-30 09:01 - [欧洲民众抢购空调降温](http://www.share.kurohicncr.top/Article/details/40307456631.shtml)
-- 2026-06-30 09:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/484757864978.shtml)
-- 2026-06-30 08:46 - [全球芯片巨头史诗级扩产](http://www.blog.minike.top/Article/details/16973564587.shtml)
-- 2026-06-30 09:11 - [流金岁月](http://www.share.kurohicncr.top/Article/details/9035331.shtml)
-- 2026-06-30 09:06 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.kurohicncr.top/Article/details/9609263179.shtml)
-- 2026-06-30 09:06 - [第3集丨“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/49827.shtml)
-- 2026-06-30 08:45 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/85133.shtml)
-- 2026-06-30 08:55 - [日本博主：日本足球真的垃圾](https://www.blog.minike.top/Article/details/604384393813.shtml)
-- 2026-06-30 09:03 - [田中碧失误](https://www.blog.minike.top/Article/details/88835.shtml)
-- 2026-06-30 08:45 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/2573177.shtml)
-- 2026-06-30 08:46 - [女心理师](http://www.share.minike.top/Article/details/442883354738.shtml)
+- 2026-06-30 09:07 - [欧洲装一台空调有多难](https://www.share.minike.top/Article/details/90889293.shtml)
+- 2026-06-30 08:49 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/1504251.shtml)
+- 2026-06-30 09:01 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/8704465.shtml)
+- 2026-06-30 09:14 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/282563975.shtml)
+- 2026-06-30 08:59 - [第一次对自信的力量有了实感](https://www.blog.kurohicncr.top/Article/details/45549956.shtml)
+- 2026-06-30 08:49 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/953438566.shtml)
+- 2026-06-30 09:02 - [全球芯片巨头史诗级扩产](http://www.share.kurohicncr.top/Article/details/87923239.shtml)
+- 2026-06-30 09:16 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/628633164365.shtml)
+- 2026-06-30 09:16 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/7722756.shtml)
+- 2026-06-30 08:56 - [女子遭下药退赔偿拟追刑责](https://www.blog.kurohicncr.top/Article/details/848527067821.shtml)
+- 2026-06-30 08:53 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/13435385.shtml)
+- 2026-06-30 09:02 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/19439680559.shtml)
+- 2026-06-30 09:02 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/283697.shtml)
+- 2026-06-30 08:58 - [Melo向柳智敏张元英道歉](https://www.blog.kurohicncr.top/Article/details/18051.shtml)
+- 2026-06-30 08:56 - [毒液2](https://www.blog.minike.top/Article/details/1495379055.shtml)

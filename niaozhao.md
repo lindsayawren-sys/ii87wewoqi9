@@ -1,58 +1,61 @@
-# 五粮液的“五宗罪”
+# 一场越野赛事撬动全域消费 山西代县文体旅商融合跑出“加速度”
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：五粮液“大洗澡”：“腰斩式”修改历史数据，全年净利暴跌72% 来源：西南老鹰 五粮液的“五宗罪”，监管不查就是对其“财务造假”的纵容 资本市场正在上演荒诞大戏，主角是五粮液。 五粮液公告将财报推迟到昨天发布，市场就有不好的预期，财报一发布，网上瞬间爆炸，居然还能这么干！ “一宗罪”：突破底线财务“大洗澡” 根据五粮液202
+中新网忻州5月31日电 (刘小红)31日，2026雁门关山地越野跑在山西代县雁门关景区鸣枪开赛。此次赛事汇聚全国千余名越野跑爱好者，依托代县边塞文旅资源，推进文体旅商多业态融合，助力代县县域高质量发展。 此次赛事由中国登山协会、山西省体育局指导，代县人民政府、忻州市体育局联合主办，是代县依托“名关、名城、名将、名酒、名镇”五大特色资源打造的重点体育IP。主办方升级赛道规划、赛事
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：五粮液“大洗澡”：“腰斩式”修改历史数据，全年净利暴跌72% 来源：西南老鹰 五粮液的“五宗罪”，监管不查就是对其“财务造假”的纵容 资本市场正在上演荒诞大戏，主角是五粮液。
+中新网忻州5月31日电 (刘小红)31日，2026雁门关山地越野跑在山西代县雁门关景区鸣枪开赛。
 
-五粮液公告将财报推迟到昨天发布，市场就有不好的预期，财报一发布，网上瞬间爆炸，居然还能这么干！
+此次赛事汇聚全国千余名越野跑爱好者，依托代县边塞文旅资源，推进文体旅商多业态融合，助力代县县域高质量发展。
 
-“一宗罪”：突破底线财务“大洗澡” 根据五粮液2025年财报，营业收入405.29亿元，同比下降54.55%；归属于上市公司股东的净利润为89.54亿元，同比下降71.89%。
+此次赛事由中国登山协会、山西省体育局指导，代县人民政府、忻州市体育局联合主办，是代县依托“名关、名城、名将、名酒、名镇”五大特色资源打造的重点体育IP。
 
-公司拟以38.82亿为基数，向全体股东每10股派发现金红利25.78元（含税），不送红股，不以公积金转增股本。
+主办方升级赛道规划、赛事服务、配套活动、安全保障四大板块，夯实赛事运营基础。
 
-而对比该公司披露的一季报，让人瞠目结舌。
+代县依托国家级历史文化名城资源，沉淀边塞文化、忠勇文化等，储备特色农产资源。
 
-2026年一季度营收228.38亿元，同比增长33.67%；净利润80.63亿元，同比增长82.57%。
+2026年，当地以文体旅融合发展为抓手，通过精品体育赛事撬动文旅融合、消费升级、乡村振兴。
 
-公司表示，业绩变动主要系同期基数较低，同比有所增长。
+此次越野跑赛事，既是展示代县自然风光与人文底蕴的重要窗口，也是落地文旅体发展规划、推动多产业深度融合的具体实践，有效激活全域发展动能，让千年雁门关焕发活力。
 
-到底发生了什么？
+赛事面向全国招募选手，吸引全国28个省(自治区、直辖市)1300余名爱好者报名参赛，参赛群体涵盖专业运动员、体育爱好者、青年学生等。
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 08:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 09:11 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 08:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 09:08 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 08:56 - [泰山景区回应修建刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 09:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 08:42 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 09:05 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 08:50 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 09:03 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 08:59 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 09:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 08:55 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 09:04 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 08:57 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 08:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 09:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 08:56 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 08:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 08:53 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 08:48 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 09:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 08:59 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 09:08 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 08:54 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-30 08:51 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:08 - [点球大战和诺伊尔都救不回德国队](http://www.blog.kurohicncr.top/Article/details/36326955.shtml)
-- 2026-06-30 09:01 - [德国进球被吹](http://www.blog.kurohicncr.top/Article/details/59412979.shtml)
-- 2026-06-30 08:58 - [点球大战和诺伊尔都救不回德国队](http://www.blog.minike.top/Article/details/149245.shtml)
-- 2026-06-30 08:50 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/554636201825.shtml)
-- 2026-06-30 09:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/070994067.shtml)
-- 2026-06-30 08:55 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/350163399.shtml)
-- 2026-06-30 08:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/637517136585.shtml)
-- 2026-06-30 09:04 - [世界杯巴拉圭点球淘汰德国](http://www.blog.kurohicncr.top/Article/details/35871.shtml)
-- 2026-06-30 08:51 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/539964.shtml)
-- 2026-06-30 08:56 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/3185545102.shtml)
-- 2026-06-30 08:47 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/441483.shtml)
-- 2026-06-30 08:44 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/6503712029.shtml)
-- 2026-06-30 08:50 - [Melo向柳智敏张元英道歉](http://www.blog.kurohicncr.top/Article/details/2156068.shtml)
-- 2026-06-30 08:47 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/649962150.shtml)
-- 2026-06-30 08:50 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.minike.top/Article/details/35012266.shtml)
+- 2026-06-30 09:11 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.minike.top/Article/details/839656.shtml)
+- 2026-06-30 09:05 - [德国爆冷点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/20172.shtml)
+- 2026-06-30 08:59 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/796001040.shtml)
+- 2026-06-30 09:17 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/097460077485.shtml)
+- 2026-06-30 09:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/2678474745.shtml)
+- 2026-06-30 09:12 - [一见倾心](http://www.share.minike.top/Article/details/71346.shtml)
+- 2026-06-30 09:17 - [日本球迷输球后集体捡垃圾](http://www.blog.kurohicncr.top/Article/details/893921516091.shtml)
+- 2026-06-30 09:11 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/46010.shtml)
+- 2026-06-30 08:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/0311287.shtml)
+- 2026-06-30 09:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/3451632.shtml)
+- 2026-06-30 08:58 - [巴西在进攻三区完成210脚传球](http://www.blog.minike.top/Article/details/371884897837.shtml)
+- 2026-06-30 09:00 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/4852371.shtml)
+- 2026-06-30 09:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/327590.shtml)
+- 2026-06-30 08:53 - [世界杯名画巴拉圭钢铁防线](http://www.share.minike.top/Article/details/38241.shtml)
+- 2026-06-30 08:50 - [感动全网的699分女生想报考清华](https://www.blog.minike.top/Article/details/577927917.shtml)

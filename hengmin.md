@@ -1,57 +1,61 @@
-# 河南郑州：铁路迎来“五一”假期返程客流高峰
+# 华政副教授窦鹏娟：金融法治建设进入“顶层设计+系统推进”的新阶段
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-百年中山装何以穿出“国潮”新生？全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天为青年们喝彩！一只流浪狗，为何让这座安徽小城收获泼天流量？短评：欧洲议会的“选择性失明”东京审判为何关乎今天？爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神
+登录新浪财经APP 搜索【信披】查看更多考评等级 原标题：专访华政副教授窦鹏娟：金融法治建设进入“顶层设计+系统推进”的新阶段 全国人大常委会法工委副主任黄薇5月27日在国新办新闻发布会上表示，今年全国人大常委会的年度立法工作计划已制定并公布。在加快金融领域立法方面，将制定金融法、金融稳定法，修改银行业监督管理法、中国人民银行法，同时注重对金融领域其他立法的研究论证工作。 这一
 
 ## 正文
 
-百年中山装何以穿出“国潮”新生？
+登录新浪财经APP 搜索【信披】查看更多考评等级 原标题：专访华政副教授窦鹏娟：金融法治建设进入“顶层设计+系统推进”的新阶段 全国人大常委会法工委副主任黄薇5月27日在国新办新闻发布会上表示，今年全国人大常委会的年度立法工作计划已制定并公布。
 
-全球出行新选择 世界爱上了“中国造”沙漠里的“追光者”：旅拍定制师为游客定制专属记忆五四 | 今天为青年们喝彩！
+在加快金融领域立法方面，将制定金融法、金融稳定法，修改银行业监督管理法、中国人民银行法，同时注重对金融领域其他立法的研究论证工作。
 
-一只流浪狗，为何让这座安徽小城收获泼天流量？
+这一消息释放出哪些信号？
 
-短评：欧洲议会的“选择性失明”东京审判为何关乎今天？
+金融法出台将带来怎样的影响？
 
-爱奇艺，到底在急什么？
+当前金融法立法面临哪些问题与争议？
 
-榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？
+未来金融法治有哪些值得关注的趋势？
 
-从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？
+围绕上述问题，本报记者专访了华东政法大学经济法学院副教授窦鹏娟，请她为我们一一解读。
 
-“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
+金融法治建设驶入“快车道” 窦鹏娟认为，5月27日国新办新闻发布会上公布的2026年度立法工作计划中金融领域的立法计划，是“十五五”开局之年我国在金融法治建设方面的重大部署。
 
 ## 相关推荐
 
-- 2026-06-30 09:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 09:06 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 09:00 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 09:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 08:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 08:58 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 09:08 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 08:50 - [日本主帅：未能夺冠深感抱歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 09:03 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 09:07 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 09:07 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 08:51 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 08:49 - [杨紫肖战余生请多指教拍立得](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 08:56 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 08:58 - [快递到家不能这样拆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 08:54 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 08:58 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 08:52 - [德国北部枪击事件致5死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 08:52 - [日本博主：日本足球真的垃圾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 09:16 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 08:58 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 09:01 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 08:49 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 09:11 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 09:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 09:01 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/49866.shtml)
-- 2026-06-30 08:48 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/4102431.shtml)
-- 2026-06-30 08:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/834989305865.shtml)
-- 2026-06-30 08:46 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/614047202.shtml)
-- 2026-06-30 08:55 - [杨紫大银幕成绩单如何](http://www.blog.kurohicncr.top/Article/details/8838775968.shtml)
-- 2026-06-30 09:10 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/09676.shtml)
-- 2026-06-30 09:06 - [男子在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/407516011.shtml)
-- 2026-06-30 09:07 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/91110.shtml)
-- 2026-06-30 08:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/688401.shtml)
-- 2026-06-30 08:45 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.blog.minike.top/Article/details/58876.shtml)
-- 2026-06-30 08:51 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/6329955020.shtml)
-- 2026-06-30 09:09 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/89069.shtml)
-- 2026-06-30 08:47 - [莫兰特被交易到开拓者](https://www.share.minike.top/Article/details/395894.shtml)
-- 2026-06-30 08:43 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/23601821194.shtml)
-- 2026-06-30 08:55 - [杨紫大银幕成绩单](https://www.blog.minike.top/Article/details/180811543136.shtml)
+- 2026-06-30 09:13 - [网友写差评被店家“挂”门口避雷](http://www.blog.kurohicncr.top/Article/details/86133478186.shtml)
+- 2026-06-30 09:15 - [日本主帅：未能夺冠深感抱歉](https://www.blog.kurohicncr.top/Article/details/3395374096.shtml)
+- 2026-06-30 08:49 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/369201261576.shtml)
+- 2026-06-30 08:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/810894.shtml)
+- 2026-06-30 09:03 - [日本球员说被绝杀非常不甘心](http://www.blog.minike.top/Article/details/374435550557.shtml)
+- 2026-06-30 09:05 - [德国队世界杯点球大战首败](http://www.share.kurohicncr.top/Article/details/176242712043.shtml)
+- 2026-06-30 09:06 - [毒液2](https://www.share.minike.top/Article/details/83633.shtml)
+- 2026-06-30 08:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/973433868988.shtml)
+- 2026-06-30 09:05 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/906776171.shtml)
+- 2026-06-30 09:13 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/48457683466.shtml)
+- 2026-06-30 08:58 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/7286732.shtml)
+- 2026-06-30 08:55 - [武磊：巴西队赢的并不轻松](https://www.blog.minike.top/Article/details/5614728704.shtml)
+- 2026-06-30 09:05 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/454125267016.shtml)
+- 2026-06-30 09:15 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/0355676733.shtml)
+- 2026-06-30 09:06 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/744905258.shtml)

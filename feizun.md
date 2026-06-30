@@ -1,60 +1,55 @@
-# 南非9岁华人女孩被绑后获救 四名嫌疑人被捕
+# 中俄驻韩国使馆共同举办纪念“两个周年”招待会
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新网约翰内斯堡5月3日电 被绑架长达58天的南非9岁华人女孩5月1日在豪登省约翰内斯堡的索韦托地区被成功解救。目前，四名涉案嫌疑人已被警方拘留，预计于5月4日出庭受审。 据介绍，这起绑架案发生于今年3月3日，年仅9岁的华人女孩在约翰内斯堡华人商城区附近被绑架，绑匪向女孩家属索要巨额赎金。案件发生后，女孩父母向南非侨社南部非洲中华福建同乡总会求助。该会会长石钦平立刻联系豪登省警
+中新网首尔5月30日电 (记者 金旭)当地时间5月29日，中国和俄罗斯驻韩国使馆共同举办纪念中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年招待会。中国驻韩国大使戴兵和俄罗斯驻韩国大使季诺维也夫及两馆主要外交官，南非、巴西等多国驻韩使节和韩国各界人士出席。 戴兵致辞回顾“两个周年”以来中俄关系发展，介绍中俄元首北京会晤重要成果，强调中方愿同俄方推动中俄新时
 
 ## 正文
 
-中新网约翰内斯堡5月3日电 被绑架长达58天的南非9岁华人女孩5月1日在豪登省约翰内斯堡的索韦托地区被成功解救。
+中新网首尔5月30日电 (记者 金旭)当地时间5月29日，中国和俄罗斯驻韩国使馆共同举办纪念中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年招待会。
 
-目前，四名涉案嫌疑人已被警方拘留，预计于5月4日出庭受审。
+中国驻韩国大使戴兵和俄罗斯驻韩国大使季诺维也夫及两馆主要外交官，南非、巴西等多国驻韩使节和韩国各界人士出席。
 
-据介绍，这起绑架案发生于今年3月3日，年仅9岁的华人女孩在约翰内斯堡华人商城区附近被绑架，绑匪向女孩家属索要巨额赎金。
+戴兵致辞回顾“两个周年”以来中俄关系发展，介绍中俄元首北京会晤重要成果，强调中方愿同俄方推动中俄新时代全面战略协作伙伴关系高质量发展，更好造福两国、地区和世界，助力构建人类命运共同体。
 
-案件发生后，女孩父母向南非侨社南部非洲中华福建同乡总会求助。
+季诺维也夫致辞积极评价“两个周年”重要意义，强调俄中关系不搞零和、完全平等，新形势下将为维护世界和平稳定作出更重要贡献。
 
-该会会长石钦平立刻联系豪登省警察厅和绑架专案组。
+活动现场气氛热烈友好，来宾期待两国继续为全球稳定与繁荣发挥大国作用。
 
-案发后，中国驻南非使领馆高度重视，一直保持同警方、侨领沟通，询问案件的破获进展。
-
-中国驻约堡总领馆副总领事周育江、领事关萧雨，驻南非使馆警务联络官次仁参赞、潘一民警官和石钦平一同看望慰问女孩家属。
-
-为尽快解救女孩，石钦平与警方专案组沟通案情、探讨解救方案，多次到亚历山大等黑人区与警方一同排查线索。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - [德国 传控](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 08:55 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 08:55 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 09:00 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 08:54 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 08:47 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 09:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-30 09:08 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 09:01 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 09:06 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 08:53 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 08:46 - [“荒唐”背后的韩国足球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 08:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 08:56 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 09:13 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 09:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 08:56 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 08:48 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 09:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 09:11 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 09:14 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 08:55 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 09:03 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 09:00 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 09:05 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-30 09:05 - [勇士续约波尔津吉斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 08:52 - [收到补税提醒尽快办理 明起有滞纳金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:54 - [恋与深空](https://www.share.minike.top/Article/details/5758006140.shtml)
-- 2026-06-30 08:57 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/5067836.shtml)
-- 2026-06-30 09:10 - [莫兰特转投开拓者效力](https://www.blog.kurohicncr.top/Article/details/31438549555.shtml)
-- 2026-06-30 08:45 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/645339891.shtml)
-- 2026-06-30 09:01 - [日本进球](http://www.share.minike.top/Article/details/540846602634.shtml)
-- 2026-06-30 09:02 - [美股深夜大反弹 特斯拉飙涨8%](https://www.share.minike.top/Article/details/8829918300.shtml)
-- 2026-06-30 08:59 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/124883.shtml)
-- 2026-06-30 08:42 - [iPhone18e曝光](https://www.blog.kurohicncr.top/Article/details/83677.shtml)
-- 2026-06-30 09:05 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/68391950065.shtml)
-- 2026-06-30 09:04 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/82861429.shtml)
-- 2026-06-30 09:00 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/18258810939.shtml)
-- 2026-06-30 08:53 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/540643317.shtml)
-- 2026-06-30 08:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/1888786434.shtml)
-- 2026-06-30 08:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/203156233.shtml)
-- 2026-06-30 08:47 - [德国罚丢3粒点球](https://www.share.minike.top/Article/details/1767498.shtml)
+- 2026-06-30 08:54 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/757118995128.shtml)
+- 2026-06-30 08:54 - [德国北部枪击事件致5死](http://www.share.minike.top/Article/details/6182481343.shtml)
+- 2026-06-30 09:00 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/36284186.shtml)
+- 2026-06-30 09:09 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/44258078722.shtml)
+- 2026-06-30 09:05 - [iPhoneUltra黑色机模](https://www.share.kurohicncr.top/Article/details/11529659.shtml)
+- 2026-06-30 09:14 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/25688665.shtml)
+- 2026-06-30 09:05 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.kurohicncr.top/Article/details/084974.shtml)
+- 2026-06-30 09:07 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/45316911.shtml)
+- 2026-06-30 09:00 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/060137752.shtml)
+- 2026-06-30 09:02 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/5619571.shtml)
+- 2026-06-30 09:02 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/23835354.shtml)
+- 2026-06-30 09:06 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/402616.shtml)
+- 2026-06-30 09:08 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.blog.kurohicncr.top/Article/details/494807.shtml)
+- 2026-06-30 08:51 - [世界杯](http://www.blog.minike.top/Article/details/0980310.shtml)
+- 2026-06-30 09:04 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/45284118.shtml)

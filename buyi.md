@@ -1,60 +1,48 @@
-# 习近平总书记关切事｜青春追梦 奋斗圆梦
+# 多位知名学者广州开讲：一纸侨批里藏着怎样的“家与国”故事？
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-青春何谓？青春何为？ “广大青年既是追梦者，也是圆梦人。追梦需要激情和理想，圆梦需要奋斗和奉献。广大青年应该在奋斗中释放青春激情、追逐青春理想，以青春之我、奋斗之我，为民族复兴铺路架桥，为祖国建设添砖加瓦。”习近平总书记心系青年成长、关怀青年发展，多次对青年工作作出重要指示，对广大青年提出殷切期望。 当代青年以行动定义、以奋斗作答，将梦想化为航向、扬起奋斗的风帆，在民族复兴之路
+发布时间：2026年05月29日 21:37 来源：中国新闻网 “侨批里的家与国”故事分享会日前在广州举行，活动邀请广东多位知名侨批研究专家，探讨潮汕方言电影《给阿嬷的情书》的深刻内涵和意义，分享侨批里的真实感人故事，共同弘扬侨批所蕴含的深厚家国情怀和华侨精神。 据了解，广东是著名侨乡，近代以来无数南粤儿女远渡重洋、艰苦创业，孕育了独具特色的侨批文化。广东全省现存侨批数量超20
 
 ## 正文
 
-青春何谓？
+发布时间：2026年05月29日 21:37 来源：中国新闻网 “侨批里的家与国”故事分享会日前在广州举行，活动邀请广东多位知名侨批研究专家，探讨潮汕方言电影《给阿嬷的情书》的深刻内涵和意义，分享侨批里的真实感人故事，共同弘扬侨批所蕴含的深厚家国情怀和华侨精神。
 
-青春何为？
+据了解，广东是著名侨乡，近代以来无数南粤儿女远渡重洋、艰苦创业，孕育了独具特色的侨批文化。
 
-“广大青年既是追梦者，也是圆梦人。
+广东全省现存侨批数量超20万件，2013年以广东侨批为主体的“侨批档案”成功入选《世界记忆名录》，成为全人类共同的文化瑰宝。
 
-追梦需要激情和理想，圆梦需要奋斗和奉献。
-
-广大青年应该在奋斗中释放青春激情、追逐青春理想，以青春之我、奋斗之我，为民族复兴铺路架桥，为祖国建设添砖加瓦。
-
-”习近平总书记心系青年成长、关怀青年发展，多次对青年工作作出重要指示，对广大青年提出殷切期望。
-
-当代青年以行动定义、以奋斗作答，将梦想化为航向、扬起奋斗的风帆，在民族复兴之路上接力奔跑，汇聚成不可阻挡的青春力量。
-
-淬爱国之心 书香盈园，青春当勉。
+韦杰夫 李曙 广东报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 09:06 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 08:59 - [德国队回应爆冷淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 08:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 09:10 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 08:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 09:00 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 09:03 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 08:45 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 09:09 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 08:54 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 09:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-30 09:07 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 08:45 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 09:05 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 09:06 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 09:06 - [警方介入洪明甫死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 09:14 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 08:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 09:15 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 08:53 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 08:56 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 08:53 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 09:13 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:53 - [王濛回复黄灿灿](http://www.blog.kurohicncr.top/Article/details/4814687559.shtml)
-- 2026-06-30 08:51 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.minike.top/Article/details/1957528625.shtml)
-- 2026-06-30 08:55 - [巴西绝杀](https://www.blog.minike.top/Article/details/457402.shtml)
-- 2026-06-30 08:54 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/8232444387.shtml)
-- 2026-06-30 08:50 - [城市规划有可能成为「屎山代码」吗？](http://www.blog.minike.top/Article/details/2348641265.shtml)
-- 2026-06-30 08:52 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/73059121.shtml)
-- 2026-06-30 09:12 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/46173487.shtml)
-- 2026-06-30 08:54 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/568962355003.shtml)
-- 2026-06-30 09:11 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/4287472.shtml)
-- 2026-06-30 08:51 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/897191457377.shtml)
-- 2026-06-30 09:07 - [《共患难》](http://www.share.kurohicncr.top/Article/details/14746.shtml)
-- 2026-06-30 09:00 - [杨紫大银幕成绩单如何](https://www.share.minike.top/Article/details/837345160.shtml)
-- 2026-06-30 09:08 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.blog.minike.top/Article/details/095449736395.shtml)
-- 2026-06-30 08:50 - [德国淘汰](http://www.blog.minike.top/Article/details/99250.shtml)
-- 2026-06-30 08:56 - [黄晓明夸昆凌引杨颖对比](https://www.share.minike.top/Article/details/439582072.shtml)
+- 2026-06-30 09:11 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/4448470.shtml)
+- 2026-06-30 08:48 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/9934085.shtml)
+- 2026-06-30 09:10 - [恋与深空](https://www.blog.minike.top/Article/details/673532483003.shtml)
+- 2026-06-30 08:56 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/89988.shtml)
+- 2026-06-30 08:54 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/81561013.shtml)
+- 2026-06-30 08:59 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/900529.shtml)
+- 2026-06-30 08:55 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/0380343935.shtml)
+- 2026-06-30 09:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/8964115.shtml)
+- 2026-06-30 08:52 - [四川凉山落石砸毁车辆 3人遇难](https://www.share.kurohicncr.top/Article/details/85790865.shtml)
+- 2026-06-30 09:06 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/14596192869.shtml)
+- 2026-06-30 08:59 - [黄晓明晒和周杰伦的合照](http://www.blog.kurohicncr.top/Article/details/23781.shtml)
+- 2026-06-30 08:48 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/20636.shtml)
+- 2026-06-30 09:06 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/5793398.shtml)
+- 2026-06-30 09:07 - [荷兰vs摩洛哥](http://www.share.kurohicncr.top/Article/details/500146211.shtml)
+- 2026-06-30 09:08 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](http://www.blog.minike.top/Article/details/540920.shtml)

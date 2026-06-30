@@ -1,56 +1,57 @@
-# “中国化橘红之乡”广东化州橘香迎客 赋能乡村振兴
+# 特斯拉与SpaceX合并传闻升温，马斯克被曝内部讨论
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新社广东茂名5月2日电 (记者 梁盛)广货行天下，橘香飘四海。5月1日至31日，“中国化橘红之乡”广东茂名市化州市举办“2026化橘红夏摘果暨六城联动·万人游化州”系列活动，依托化橘红中国国家地理标志产品，联动珠海、佛山等六城文旅资源，融合农业、文化、旅游、体育业态，赋能乡村振兴。 化州全市化橘红种植面积超14万亩，带动35万民众就业增收，产品体系拓展至200余种，全产业链产
+近日，一则重磅消息引发资本市场高度关注：据多家媒体报道，埃隆·马斯克已与同事探讨将旗下两大核心企业——特斯拉与SpaceX合并的可能性。随着SpaceX即将进行可能是史上最大规模的IPO，这一传闻迅速升温。 马斯克对此保持沉默，但两家公司深度融合的迹象十分明显。特斯拉员工透露，合并话题已在内部公开讨论。财务层面，SpaceX招股书披露，其在2024年和2025年斥资6.97亿美
 
 ## 正文
 
-中新社广东茂名5月2日电 (记者 梁盛)广货行天下，橘香飘四海。
+近日，一则重磅消息引发资本市场高度关注：据多家媒体报道，埃隆·马斯克已与同事探讨将旗下两大核心企业——特斯拉与SpaceX合并的可能性。
 
-5月1日至31日，“中国化橘红之乡”广东茂名市化州市举办“2026化橘红夏摘果暨六城联动·万人游化州”系列活动，依托化橘红中国国家地理标志产品，联动珠海、佛山等六城文旅资源，融合农业、文化、旅游、体育业态，赋能乡村振兴。
+随着SpaceX即将进行可能是史上最大规模的IPO，这一传闻迅速升温。
 
-化州全市化橘红种植面积超14万亩，带动35万民众就业增收，产品体系拓展至200余种，全产业链产值突破126亿元人民币。
+马斯克对此保持沉默，但两家公司深度融合的迹象十分明显。
 
-化橘红作为千年贡品，目前正从传统种植业，向一二三产业融合发展，成为强县、富民、兴村的“摇钱树”“幸福果”。
+特斯拉员工透露，合并话题已在内部公开讨论。
 
-活动期间，化橘红封坛仪式、非遗展演、文旅推介等环节陆续举行。
+财务层面，SpaceX招股书披露，其在2024年和2025年斥资6.97亿美元购买特斯拉Megapack电池系统，并花费1.31亿美元购买Cybertruck。
 
-化州市化橘红产业协会还与珠海、佛山等六城共10家旅行社现场签约，构建“六城联动、万人游化州”文旅协作新格局。
+特斯拉则曾向xAI投资20亿美元，在xAI与SpaceX合并后转为持有SpaceX股份。
 
-在中华化橘红第一村——化州市平定镇大岭村的化橘红种植基地，连片化橘红林绿意盎然，硕大饱满的鲜果挂满枝头，清香扑鼻。
+业务协同性日益增强。
 
-来自珠海、佛山等大湾区六城的游客穿梭林间，亲手采摘、拍照打卡，在枝头田间感受丰收的喜悦。
+双方共同面临的电力和算力挑战促使频繁合作，并已宣布共建巨型芯片工厂Terafab。
 
 ## 相关推荐
 
-- 2026-06-30 09:01 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 08:54 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 09:01 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 09:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 08:44 - [收到补税提醒尽快办理 明起有滞纳金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 09:02 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 08:49 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-30 08:56 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 09:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 08:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 08:55 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 09:05 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 08:52 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 08:48 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 09:01 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 08:55 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 08:56 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 09:08 - [王楚钦孙颖莎晋级混双八强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 09:15 - [网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 08:54 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 09:09 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/313418804.shtml)
-- 2026-06-30 08:44 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/43298607.shtml)
-- 2026-06-30 09:09 - [欧洲民众抢购空调降温](http://www.blog.minike.top/Article/details/174919403690.shtml)
-- 2026-06-30 09:00 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/217228116.shtml)
-- 2026-06-30 08:48 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/516251804.shtml)
-- 2026-06-30 08:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/16196901.shtml)
-- 2026-06-30 08:42 - [媒体：手机测评该挤挤水分了](http://www.share.minike.top/Article/details/38566991731.shtml)
-- 2026-06-30 09:04 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://www.blog.kurohicncr.top/Article/details/4833246.shtml)
-- 2026-06-30 08:44 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/256072560250.shtml)
-- 2026-06-30 08:54 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.blog.minike.top/Article/details/303330.shtml)
-- 2026-06-30 09:06 - [点球大战](https://www.share.kurohicncr.top/Article/details/16037089.shtml)
-- 2026-06-30 09:09 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/96216028668.shtml)
-- 2026-06-30 09:07 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/8152463899.shtml)
-- 2026-06-30 09:08 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/0050729.shtml)
-- 2026-06-30 08:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/747203.shtml)
+- 2026-06-30 09:00 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.kurohicncr.top/Article/details/33234908768.shtml)
+- 2026-06-30 09:10 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/384973485837.shtml)
+- 2026-06-30 09:03 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/57091787.shtml)
+- 2026-06-30 08:52 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.blog.minike.top/Article/details/39824663922.shtml)
+- 2026-06-30 08:55 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/57920.shtml)
+- 2026-06-30 09:08 - [金鹰奖视后提名预测](https://www.blog.minike.top/Article/details/560216962.shtml)
+- 2026-06-30 08:49 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/61174640446.shtml)
+- 2026-06-30 08:56 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/935215153.shtml)
+- 2026-06-30 09:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/40952.shtml)
+- 2026-06-30 09:06 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/498385698.shtml)
+- 2026-06-30 08:53 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.minike.top/Article/details/286084.shtml)
+- 2026-06-30 08:48 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/374303046.shtml)
+- 2026-06-30 09:01 - [美人鱼](https://www.blog.minike.top/Article/details/0152159451.shtml)
+- 2026-06-30 09:02 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/491193001.shtml)
+- 2026-06-30 09:06 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](http://www.blog.kurohicncr.top/Article/details/7761948964.shtml)

@@ -1,59 +1,60 @@
-# 礼来减肥药Foundayo致患者肝衰竭，FDA介入调查
+# 美丽中国行|“山林蓝宝石”铜蓝鹟首次现身北京密云
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-美国食品药品监督管理局近日报告一例患者服用礼来公司新获批口服减肥药Foundayo后出现肝衰竭的病例，引发市场对该药物安全性的广泛关注。 据FDA不良事件报告系统显示，该病例涉及一名56岁男性，报告于4月30日提交。在此之前，FDA已于4月1日致函礼来，要求其在临床试验中评估Foundayo的肝损伤风险，并要求开展上市后试验以评估心血管事件和胃排空延迟等相关风险。 分析人士指出
+中国青年报客户端讯(戴琪果 中青报·中青网记者 尹希宁)北京市密云区近日新记录了一种珍稀鸟类铜蓝鹟，这种鸟类系首次现身密云山林地带。 记者从北京市密云区了解到，铜蓝鹟属于雀形目鹟科小型鸟类，素有“鸟界蓝色妖姬”“山林蓝宝石”美誉。铜蓝鹟体长13至16厘米，小巧轻盈、身姿曼妙，成年雄鸟通体覆盖独特的铜蓝色羽毛，自带细腻金属光泽，阳光洒落时熠熠生辉，宛如打磨后的蓝宝石，眼部标志性的
 
 ## 正文
 
-美国食品药品监督管理局近日报告一例患者服用礼来公司新获批口服减肥药Foundayo后出现肝衰竭的病例，引发市场对该药物安全性的广泛关注。
+中国青年报客户端讯(戴琪果 中青报·中青网记者 尹希宁)北京市密云区近日新记录了一种珍稀鸟类铜蓝鹟，这种鸟类系首次现身密云山林地带。
 
-据FDA不良事件报告系统显示，该病例涉及一名56岁男性，报告于4月30日提交。
+记者从北京市密云区了解到，铜蓝鹟属于雀形目鹟科小型鸟类，素有“鸟界蓝色妖姬”“山林蓝宝石”美誉。
 
-在此之前，FDA已于4月1日致函礼来，要求其在临床试验中评估Foundayo的肝损伤风险，并要求开展上市后试验以评估心血管事件和胃排空延迟等相关风险。
+铜蓝鹟体长13至16厘米，小巧轻盈、身姿曼妙，成年雄鸟通体覆盖独特的铜蓝色羽毛，自带细腻金属光泽，阳光洒落时熠熠生辉，宛如打磨后的蓝宝石，眼部标志性的黑色“眼罩”，显得俏皮灵动，雌鸟羽色稍显淡雅，蓝绿相间的羽翼清雅秀美，辨识度颇高。
 
-分析人士指出，其他GLP-1类药物也曾出现类似病例。
+铜蓝鹟主要栖息于我国南方及西南地区的山地森林，偏爱开阔林缘、溪流附近的灌丛环境。
 
-数据显示，Mounjaro报告30例肝衰竭，Zepbound报告2例，Ozempic报告33例，Wegovy报告15例。
+此次铜蓝鹟在密云现身，进一步丰富了区域生物多样性图谱，同时也印证了密云作为东亚至澳大利西亚候鸟迁徙路线关键节点的生态优势。
 
-Evercore ISI分析师表示：“不能孤立地看待这一单一肝脏病例……由于各种混杂因素，此类病例在其他GLP药物中确实会发生。
+作为北京市鸟类多样性最丰富的区域之一，密云区生态禀赋优越，为各类野生鸟类提供了绝佳栖息繁衍环境。
 
-” 礼来公司回应称，Foundayo的安全性已在涉及1.1万名患者的3期临床试验中得到充分验证，公司已对该病例进行彻底评估，并确定该报告与Foundayo无合理关联。
+截至目前，全区共记录野生鸟类430种，其中国家一级保护鸟类22种、国家二级保护鸟类75种、北京市级保护鸟类100种。
 
-高盛重申对礼来的买入评级，认为股价下跌是市场过度反应。
+北京市生态环境局资料显示，“十四五”期间，北京对全市十余个类群开展系统调查，并在此基础上，初步构建了指示生物类群观测体系，即在全市开展鸟类观测，在生态涵养区开展哺乳动物观测，在中心城区开展蝴蝶和蜻蜓观测，形成兼顾水陆、覆盖全市的观测网络。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 08:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 08:49 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 08:51 - [网红不能困在无底线逐利里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 08:51 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 09:03 - [黄晓明晒和周杰伦的合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 08:58 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 09:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 08:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-30 08:46 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 08:47 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 09:08 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 08:48 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 09:12 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 08:48 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 09:07 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 09:04 - [网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 08:58 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 09:00 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 09:16 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 09:16 - [德国队世界杯点球大战首败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 09:12 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 09:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 08:53 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 09:03 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 09:02 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 09:07 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/91603.shtml)
-- 2026-06-30 08:51 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/148864.shtml)
-- 2026-06-30 08:50 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/33779.shtml)
-- 2026-06-30 08:54 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/42862.shtml)
-- 2026-06-30 08:59 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/90864852.shtml)
-- 2026-06-30 09:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/770088.shtml)
-- 2026-06-30 08:46 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.blog.minike.top/Article/details/5047948.shtml)
-- 2026-06-30 08:59 - [张雪的一句“是我们”引发岛内热议](http://www.share.minike.top/Article/details/2729193541.shtml)
-- 2026-06-30 08:51 - [城市规划有可能成为「屎山代码」吗？](https://www.blog.kurohicncr.top/Article/details/0337056.shtml)
-- 2026-06-30 09:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/0533852533.shtml)
-- 2026-06-30 09:09 - [日本进球](http://www.blog.kurohicncr.top/Article/details/2940132.shtml)
-- 2026-06-30 08:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/474612232063.shtml)
-- 2026-06-30 09:03 - [大蒜晒外面被路过女子连盆端走](http://www.share.kurohicncr.top/Article/details/0568517.shtml)
-- 2026-06-30 08:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/8551373597.shtml)
-- 2026-06-30 09:07 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/090028130803.shtml)
+- 2026-06-30 08:48 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/5790179.shtml)
+- 2026-06-30 09:17 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/849269872.shtml)
+- 2026-06-30 08:56 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/79869792537.shtml)
+- 2026-06-30 09:03 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/686541.shtml)
+- 2026-06-30 08:52 - [巴拉圭门将](https://www.share.minike.top/Article/details/58091852.shtml)
+- 2026-06-30 08:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/9812910.shtml)
+- 2026-06-30 08:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/07793443348.shtml)
+- 2026-06-30 09:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/6461910264.shtml)
+- 2026-06-30 09:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/98104758962.shtml)
+- 2026-06-30 09:09 - [iPhoneUltra黑色机模](http://www.share.minike.top/Article/details/6722545306.shtml)
+- 2026-06-30 09:13 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/966100879480.shtml)
+- 2026-06-30 09:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/8570686.shtml)
+- 2026-06-30 09:03 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/64340.shtml)
+- 2026-06-30 09:01 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/86445071950.shtml)
+- 2026-06-30 09:15 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/4735019.shtml)

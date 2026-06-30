@@ -1,61 +1,49 @@
-# 【兴证策略】本土机构投资者调查最新结果出炉：节后行情怎么看？
+# 中国银行信用审批部原副总经理辛强接受纪律审查和监察调查
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尧望后势 兴证策略 | 本土机构投资者调查 ‘本土机构投资者调查’是兴证策略团队重磅推出的更适配中国资产投资逻辑、契合本土机构投资者需求的定期调查，致力打造最专业、最具参考价值的中国资产情绪观察。 每月对本土核心投资机构的基金经理、投研领导、总量研究员，就市场情绪、资产配置与行业轮动、宏观经济、近期市
+中央纪委国家监委网站讯 据中央纪委国家监委驻中国银行纪检监察组、河北省纪委监委消息：中国银行信用审批部原副总经理辛强涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中国银行纪检监察组纪律审查和河北省监察委员会监察调查。 （中央纪委国家监委驻中国银行纪检监察组、河北省纪委监委）责任编辑：秦艺
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中央纪委国家监委网站讯 据中央纪委国家监委驻中国银行纪检监察组、河北省纪委监委消息：中国银行信用审批部原副总经理辛强涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中国银行纪检监察组纪律审查和河北省监察委员会监察调查。
 
-来源：尧望后势 兴证策略 | 本土机构投资者调查 ‘本土机构投资者调查’是兴证策略团队重磅推出的更适配中国资产投资逻辑、契合本土机构投资者需求的定期调查，致力打造最专业、最具参考价值的中国资产情绪观察。
-
-每月对本土核心投资机构的基金经理、投研领导、总量研究员，就市场情绪、资产配置与行业轮动、宏观经济、近期市场热点四大维度进行调查，了解国内机构投资者的共识与分歧，为投资决策提供前瞻指引。
-
-本期‘本土机构投资者调查’核心总结 整体看，随着地缘冲突烈度下降、油价中枢预期回落，前期制约机构加仓意愿的核心扰动因素缓解，市场做多情绪明显升温，各类机构资金仓位出现回补，全年收益率预期和盈利预期也开始上修。
-
-对于本轮反弹修复，上证指数至少回到前期高点4200点附近是大多数投资者认为的基准情形。
-
-结构上，未来一个月更看好成长占优，市场主要矛盾从交易地缘回归交易产业趋势，做多算力和新能源是当下市场最强共识，但算力链内部有切换，从最看好北美算力向看好国产算力扩散。
-
-景气角度，国产算力、新能源和化工未来一个月上修预期边际提升，北美算力、上游资源品景气上修预期有所下降。
-
-当前如何看地产和消费？
+（中央纪委国家监委驻中国银行纪检监察组、河北省纪委监委）责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 08:48 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 09:03 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 09:10 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 08:46 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 08:50 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 08:52 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 09:09 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 08:43 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 09:03 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 09:00 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 08:55 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 08:42 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 08:47 - [德国罚丢3粒点球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 08:55 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 08:50 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 09:10 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-30 09:08 - [教育部披露：高考生篡改7名同学志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 08:48 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 09:04 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 08:53 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 08:51 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 09:15 - [巴拉圭进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 08:51 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 09:09 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 08:50 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 09:11 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 09:13 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 09:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 09:09 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 08:52 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [哈弗茨头球破门](https://www.blog.kurohicncr.top/Article/details/6611423005.shtml)
-- 2026-06-30 08:42 - [欧洲民众抢购空调降温](http://www.blog.minike.top/Article/details/9356329.shtml)
-- 2026-06-30 08:51 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/74431.shtml)
-- 2026-06-30 09:10 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/580865.shtml)
-- 2026-06-30 09:01 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/465979.shtml)
-- 2026-06-30 08:50 - [世界杯名画巴拉圭钢铁防线](http://www.blog.minike.top/Article/details/59188.shtml)
-- 2026-06-30 09:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/41405967999.shtml)
-- 2026-06-30 08:44 - [人类...完蛋了...](http://www.share.minike.top/Article/details/2491168.shtml)
-- 2026-06-30 08:58 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/3106901064.shtml)
-- 2026-06-30 08:50 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/94330726.shtml)
-- 2026-06-30 08:48 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/34038.shtml)
-- 2026-06-30 09:08 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/7140745.shtml)
-- 2026-06-30 09:04 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/126815599.shtml)
-- 2026-06-30 08:51 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/38152503038.shtml)
-- 2026-06-30 08:55 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/2488415216.shtml)
+- 2026-06-30 08:49 - [点球大战](http://www.blog.kurohicncr.top/Article/details/920377371.shtml)
+- 2026-06-30 09:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/0478092.shtml)
+- 2026-06-30 09:04 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/29931.shtml)
+- 2026-06-30 09:11 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/3633473.shtml)
+- 2026-06-30 09:14 - [感动全网的699分女生想报考清华](https://www.share.minike.top/Article/details/9426260.shtml)
+- 2026-06-30 08:58 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/00449.shtml)
+- 2026-06-30 09:14 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/89398751.shtml)
+- 2026-06-30 09:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/2150519184.shtml)
+- 2026-06-30 09:12 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://www.share.kurohicncr.top/Article/details/2689245122.shtml)
+- 2026-06-30 09:01 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/74769813.shtml)
+- 2026-06-30 09:14 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/859496.shtml)
+- 2026-06-30 09:07 - [日本博主：日本足球真的垃圾](http://www.blog.minike.top/Article/details/34732.shtml)
+- 2026-06-30 09:15 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/279162.shtml)
+- 2026-06-30 09:00 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/770498.shtml)
+- 2026-06-30 09:16 - [内马尔未登场 安切洛蒂赛后回应](https://www.share.minike.top/Article/details/81397163.shtml)

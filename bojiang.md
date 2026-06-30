@@ -1,55 +1,51 @@
-# 可孚医疗：发售价厘定为每股H股39.33港元
+# 工信部装备工业发展中心主任瞿国春：我国高端装备产业国际竞争力显著提升
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-可孚医疗（01187）发布公告，发售价已于2026年5月3日厘定为每股H股39.33港元（不包括1%经纪佣金、 0.0027%证监会交易征费、0.00565%联交所交易费及0.00015%会财局交易征费）。 假设全球发售于2026年5月6日（星期三）上午八时正（香港时间）或之前成为无条件，预期H股将于2026年5月6日（星期三）上午九时正（香港时间）在联交所主板开始买卖。H股将
+人民财讯5月30日电，5月30日，工业和信息化部装备工业发展中心主任瞿国春在2026装备强国论坛上表示，经过十年发展，我国高端装备产业的“跟跑在提速、并跑逐步增多、领跑加速涌现”，处于世界领先和世界先进水平的重点领域数量占比达到60.8%，产业规模占装备制造业总体规模超过六成，高端装备产业国际竞争力显著提升。其中，智能网联新能源汽车、轨道交通装备、电力装备、信息通信设备、新能源
 
 ## 正文
 
-可孚医疗（01187）发布公告，发售价已于2026年5月3日厘定为每股H股39.33港元（不包括1%经纪佣金、 0.0027%证监会交易征费、0.00565%联交所交易费及0.00015%会财局交易征费）。
+人民财讯5月30日电，5月30日，工业和信息化部装备工业发展中心主任瞿国春在2026装备强国论坛上表示，经过十年发展，我国高端装备产业的“跟跑在提速、并跑逐步增多、领跑加速涌现”，处于世界领先和世界先进水平的重点领域数量占比达到60.8%，产业规模占装备制造业总体规模超过六成，高端装备产业国际竞争力显著提升。
 
-假设全球发售于2026年5月6日（星期三）上午八时正（香港时间）或之前成为无条件，预期H股将于2026年5月6日（星期三）上午九时正（香港时间）在联交所主板开始买卖。
+其中，智能网联新能源汽车、轨道交通装备、电力装备、信息通信设备、新能源装备、航天装备、高技术船舶与海外工程装备已处于世界领先地位，工程机械、建材装备、计算机装备等领域处于世界先进地位，工业母机、农机装备、航空装备、机器人、仪器仪表、半导体设备、生物医药装备等领域仍存差距。
 
-H股将以每手100股H股进行交易。
-
-H股的股份代号为1187。
-
-责任编辑：卢昱君
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 09:05 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 09:01 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 08:54 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 08:46 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 08:46 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 08:47 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 09:08 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 08:54 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 09:03 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 09:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 08:50 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 08:45 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 08:51 - [郑钦文温网首轮出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 09:06 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 09:13 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 09:15 - [荷兰vs摩洛哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 08:52 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 09:10 - [穆祉丞回应获年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 08:55 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 08:49 - [世界杯名画巴拉圭钢铁防线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 08:54 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 09:04 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 09:05 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 09:14 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 09:14 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 09:07 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 08:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 08:48 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 09:14 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:08 - [IGN评测电影版后室](https://www.share.kurohicncr.top/Article/details/7335965405.shtml)
-- 2026-06-30 08:53 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/02810427811.shtml)
-- 2026-06-30 09:04 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.blog.kurohicncr.top/Article/details/16214279865.shtml)
-- 2026-06-30 08:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/84962.shtml)
-- 2026-06-30 09:05 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.minike.top/Article/details/290932.shtml)
-- 2026-06-30 09:04 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/4623061.shtml)
-- 2026-06-30 09:08 - [齐思钧回复张月](https://www.blog.kurohicncr.top/Article/details/7497163795.shtml)
-- 2026-06-30 09:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/5690307233.shtml)
-- 2026-06-30 08:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/2197636321.shtml)
-- 2026-06-30 08:48 - [三星投资计划](https://www.share.minike.top/Article/details/586711988.shtml)
-- 2026-06-30 09:04 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/8405426.shtml)
-- 2026-06-30 08:53 - [金牌调解](https://www.share.kurohicncr.top/Article/details/78573201.shtml)
-- 2026-06-30 09:08 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/542466.shtml)
-- 2026-06-30 09:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/101165.shtml)
-- 2026-06-30 08:54 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/690751972.shtml)
+- 2026-06-30 09:16 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/6023001.shtml)
+- 2026-06-30 09:14 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/016043.shtml)
+- 2026-06-30 08:58 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/32873.shtml)
+- 2026-06-30 09:17 - [田中碧失误](https://www.blog.kurohicncr.top/Article/details/6241479.shtml)
+- 2026-06-30 08:50 - [黄晓明晒和周杰伦的合照](https://www.share.kurohicncr.top/Article/details/459123162480.shtml)
+- 2026-06-30 09:10 - [全球芯片巨头史诗级扩产](http://www.blog.kurohicncr.top/Article/details/953110076.shtml)
+- 2026-06-30 08:48 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/638122786.shtml)
+- 2026-06-30 09:16 - [杨紫大银幕成绩单如何](http://www.blog.kurohicncr.top/Article/details/56316280916.shtml)
+- 2026-06-30 09:11 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/690590675025.shtml)
+- 2026-06-30 08:53 - [马宁怒怼巴拉圭教练组](https://www.blog.minike.top/Article/details/7105434094.shtml)
+- 2026-06-30 08:53 - [巴拉圭先进球了](https://www.share.kurohicncr.top/Article/details/6451318956.shtml)
+- 2026-06-30 09:17 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/47797738.shtml)
+- 2026-06-30 09:15 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.kurohicncr.top/Article/details/45890136942.shtml)
+- 2026-06-30 09:06 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/159018.shtml)
+- 2026-06-30 08:52 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/0635076058.shtml)

@@ -1,57 +1,60 @@
-# “自杀式无人机直接命中以军集结点”
+# 零一汽车，成立不满4年，递表港交所
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-参考消息 以军空袭黎南部致死9人 真主党用无人机和火炮回击 据黎巴嫩国家通讯社报道，2日下午，以色列对黎南部多地发动空袭，造成至少9人死亡、两人受伤。黎巴嫩真主党用无人机和火炮回击以军。 报道称，以色列战机空袭奈拜提耶地区，造成8人死亡，其中包括两名叙利亚人；在提尔地区不同地点，以色列无人机先后袭击两辆摩托车，造成1人死亡、1人受伤，另有1人伤势严重。 黎巴嫩真主党当天下午发表
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财通社 5月28日，江苏零一汽车科技股份有限公司（下称“零一汽车”）向港交所主板递交上市申请。 招股书链接：https：//www1.hkexnews.hk/app/sehk/2026/108588/documents/sehk26052802579_c.pdf 零一汽车成立于2022年6月，总部位于
 
 ## 正文
 
-参考消息 以军空袭黎南部致死9人 真主党用无人机和火炮回击 据黎巴嫩国家通讯社报道，2日下午，以色列对黎南部多地发动空袭，造成至少9人死亡、两人受伤。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-黎巴嫩真主党用无人机和火炮回击以军。
+来源：财通社 5月28日，江苏零一汽车科技股份有限公司（下称“零一汽车”）向港交所主板递交上市申请。
 
-报道称，以色列战机空袭奈拜提耶地区，造成8人死亡，其中包括两名叙利亚人；在提尔地区不同地点，以色列无人机先后袭击两辆摩托车，造成1人死亡、1人受伤，另有1人伤势严重。
+招股书链接：https：//www1.hkexnews.hk/app/sehk/2026/108588/documents/sehk26052802579_c.pdf 零一汽车成立于2022年6月，总部位于江苏太仓，是全球领先的新能源智能重卡科技公司，在自动驾驶重卡技术方面处于领先地位。
 
-黎巴嫩真主党当天下午发表声明说，出动两架自杀式无人机，分别袭击拜亚代镇的以军士兵集结点和反坦克导弹阵地，并称“直接命中目标”。
+根据弗若斯特沙利文的资料，零一汽车是全球首家同时具备正向设计整车开发能力及重卡自动驾驶端到端多模态大语言模型的公司。
 
-真主党还表示，使用火炮打击了坎塔拉镇一处以军车辆和士兵集结点。
+公司主营新能源智能重卡整车销售、无人重卡解决方案两大业务，自主开发新能源应用的关键整车系统零部件，包括矩石四合一电驱桥、多源热管理系统及智能整车控制系统，并将其集成至统一整车平台。
 
-当地时间4月17日零时，黎以为期10天的临时停火生效。
+2024年，零一汽车正式推出并开始交付惊蛰和小满两款新能源智能重卡车型。
 
-美国总统特朗普当月23日宣布停火延长三周。
+根据弗若斯特沙利文的资料，其创下了行业内以正向定义方式实现新能源智能重卡批量交付的最快记录。
 
-但以色列继续以黎真主党违反停火协议为由发动袭击，并在其占领的黎南部地区拆除和炸毁所谓真主党“军事基础设施”。
+近三年，公司的收入主要来源于新能源智能重卡的销售。
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 09:05 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 08:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 09:02 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 08:59 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 09:06 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 08:58 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 08:46 - [世界杯：荷兰vs摩洛哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 09:10 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 09:12 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 09:11 - [黄晓明夸昆凌引杨颖对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 09:14 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 09:17 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-30 09:11 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 09:01 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 09:14 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 09:05 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 09:13 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-30 09:14 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 09:08 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 09:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 09:03 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 09:00 - [德国进球被吹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 09:12 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 09:17 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:57 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/82713.shtml)
-- 2026-06-30 09:01 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/42013.shtml)
-- 2026-06-30 08:53 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/12834.shtml)
-- 2026-06-30 08:54 - [巴西扳平比分](https://www.share.minike.top/Article/details/20183.shtml)
-- 2026-06-30 08:56 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/995117.shtml)
-- 2026-06-30 09:10 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/1199800165.shtml)
-- 2026-06-30 09:10 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/8973842.shtml)
-- 2026-06-30 08:49 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/22680.shtml)
-- 2026-06-30 08:42 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/8655290.shtml)
-- 2026-06-30 08:54 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/1722740.shtml)
-- 2026-06-30 09:00 - [输球后日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/26783718.shtml)
-- 2026-06-30 08:48 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/9408322326.shtml)
-- 2026-06-30 08:46 - [马耳他著名拱门坍塌致一中国男子身亡](https://www.blog.minike.top/Article/details/09600.shtml)
-- 2026-06-30 08:59 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/48401184.shtml)
-- 2026-06-30 08:53 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](http://www.share.kurohicncr.top/Article/details/650971397247.shtml)
+- 2026-06-30 08:56 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://www.blog.minike.top/Article/details/29789.shtml)
+- 2026-06-30 09:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/87497840263.shtml)
+- 2026-06-30 09:02 - [iPhone18e曝光](http://www.share.minike.top/Article/details/845267941676.shtml)
+- 2026-06-30 09:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/417866.shtml)
+- 2026-06-30 09:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/335377976.shtml)
+- 2026-06-30 09:05 - [德国北部枪击事件致5死](https://www.share.minike.top/Article/details/509940908.shtml)
+- 2026-06-30 09:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/845894.shtml)
+- 2026-06-30 08:53 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/1889380589.shtml)
+- 2026-06-30 09:09 - [覃予萱晋级WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/199859.shtml)
+- 2026-06-30 09:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/705267193.shtml)
+- 2026-06-30 09:12 - [第3集丨“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/45202551.shtml)
+- 2026-06-30 08:52 - [日耳曼拖拉机](https://www.blog.minike.top/Article/details/6878317893.shtml)
+- 2026-06-30 09:10 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/067811554231.shtml)
+- 2026-06-30 08:54 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/53889968491.shtml)
+- 2026-06-30 08:56 - [德国队连续三届世界杯无缘16强](http://www.share.minike.top/Article/details/7443620.shtml)

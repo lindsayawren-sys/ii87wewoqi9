@@ -1,59 +1,61 @@
-# Krystal Biotech一季度业绩超预期 基因疗法VYJUVEK全球营收1.16亿美元
+# 重庆办夜间科普盛宴 多元形式让科学走进大众生活
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-基因疗法公司Krystal Biotech于周一盘前发布了2026年第一季度财报，核心产品VYJUVEK全球销售持续增长，推动公司营收和利润双双超预期，同时公司重申全年运营费用指引。 财报显示，公司第一季度全球净营收达1.164亿美元，同比增长32%，环比增长9%，主要得益于VYJUVEK在美国、欧洲及日本市场的强劲需求。其中，美国市场净营收8750万美元，受医保切换及患者维持
+中新网重庆5月31日电 (记者 钟旖)近距离观赏珍稀自然标本、在轻松玩乐中解锁理化科技知识、动手完成一个科学小实验……30日晚，重庆自然博物馆举办“星夜自博 点亮科学之光”——2026年“科学之夜”专场活动，为山城亲子家庭带来一场沉浸式的夜间科普盛宴。 夜幕低垂，重庆自然博物馆内外人潮涌动。据介绍，本次活动打破博物馆日间运营的传统模式，融合科普互动、科学市集、科普舞台剧、音乐演
 
 ## 正文
 
-基因疗法公司Krystal Biotech于周一盘前发布了2026年第一季度财报，核心产品VYJUVEK全球销售持续增长，推动公司营收和利润双双超预期，同时公司重申全年运营费用指引。
+中新网重庆5月31日电 (记者 钟旖)近距离观赏珍稀自然标本、在轻松玩乐中解锁理化科技知识、动手完成一个科学小实验……30日晚，重庆自然博物馆举办“星夜自博 点亮科学之光”——2026年“科学之夜”专场活动，为山城亲子家庭带来一场沉浸式的夜间科普盛宴。
 
-财报显示，公司第一季度全球净营收达1.164亿美元，同比增长32%，环比增长9%，主要得益于VYJUVEK在美国、欧洲及日本市场的强劲需求。
+夜幕低垂，重庆自然博物馆内外人潮涌动。
 
-其中，美国市场净营收8750万美元，受医保切换及患者维持治疗节奏影响呈现季度波动；国际市场贡献2890万美元，已有超过140名DEB患者获得处方。
+据介绍，本次活动打破博物馆日间运营的传统模式，融合科普互动、科学市集、科普舞台剧、音乐演出等多元形式，让科学走出课本、融入生活。
 
-公司毛利率为95%，略高于去年同期的94%。
+面向全年龄段市民开放的“星夜科普集市”热闹开市，趣味科学实验、珍稀自然展品陈列、沉浸式科普互动、科普文创好物四大特色板块同步亮相。
 
-盈利方面，净利润为5590万美元，合摊薄每股收益1.83美元，高于去年同期的3570万美元和每股1.20美元。
+西南大学、长安汽车、重庆理工大学、重庆园博园等十余家本土优质科普单位齐聚一堂，摒弃枯燥的理论说教，邀请市民动动手、亲身参与，探秘科学奥秘。
 
-公司现金及投资总额超过10亿美元，财务状况保持稳健。
+“我们将恐龙IP与AI、机器人等前沿科技深度融合，打造沉浸式科创互动新场景。
 
-此外，公司重申2026年全年非GAAP研发及销售管理费用指引为1.75亿至1.95亿美元。
+”在萝卜村机器人教育体验中心展区，负责人梅垠介绍，为满足青少年对前沿科技的探索欲，该中心特别设置操控仿生恐龙机器人感受仿生科技、图形化编程控制无人车与机械臂、AIGC工具创意设计恐龙乐园等环节，让孩子在玩中学、做中悟，切实激发其探索科学的兴趣。
 
-临床进展方面，公司预计年内有两项注册性研究数据读出。
+同时还推出“未来侏罗纪总工程师认证”，进一步提升孩子们的参与感和获得感。
 
 ## 相关推荐
 
-- 2026-06-30 08:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 09:04 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 08:55 - [日本主帅：未能夺冠深感抱歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 08:56 - [日本球迷输球后集体捡垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 09:01 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 08:54 - [德国身价是巴拉圭6倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 08:50 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 09:06 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 09:05 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 08:45 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 09:10 - [世界杯：荷兰vs摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 08:52 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 09:02 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 09:14 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 09:07 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 09:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 09:05 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 08:49 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 08:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 09:10 - [警方介入洪明甫死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 08:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 09:17 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 09:16 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 08:55 - [锐评：网红不能困在无底线逐利里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 08:48 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 08:57 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 09:16 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 08:48 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:01 - [世界杯名画巴拉圭钢铁防线](https://www.blog.kurohicncr.top/Article/details/1248298.shtml)
-- 2026-06-30 08:58 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/403209.shtml)
-- 2026-06-30 09:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/7105369951.shtml)
-- 2026-06-30 08:49 - [欧洲民众抢购空调降温](http://www.share.kurohicncr.top/Article/details/327261025055.shtml)
-- 2026-06-30 09:09 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/6161924.shtml)
-- 2026-06-30 08:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/09779777.shtml)
-- 2026-06-30 09:09 - [明星大侦探第一季](https://www.share.minike.top/Article/details/64574506.shtml)
-- 2026-06-30 08:46 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/132962389180.shtml)
-- 2026-06-30 08:50 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/56084.shtml)
-- 2026-06-30 09:10 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/067055.shtml)
-- 2026-06-30 08:46 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/2781303.shtml)
-- 2026-06-30 09:03 - [金刚川](https://www.blog.kurohicncr.top/Article/details/1506099299.shtml)
-- 2026-06-30 08:45 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/61068838652.shtml)
-- 2026-06-30 09:05 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/818908275044.shtml)
-- 2026-06-30 08:57 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/61173326803.shtml)
+- 2026-06-30 09:15 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/23594279.shtml)
+- 2026-06-30 09:12 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/38642459475.shtml)
+- 2026-06-30 08:50 - [美股收盘 热门中概股普涨](https://www.blog.kurohicncr.top/Article/details/084687061341.shtml)
+- 2026-06-30 08:59 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/79047123282.shtml)
+- 2026-06-30 09:01 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/499878.shtml)
+- 2026-06-30 08:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/75222.shtml)
+- 2026-06-30 08:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/589244619851.shtml)
+- 2026-06-30 09:10 - [自然光｜papi酱&窦文涛：驴与跑步机](http://www.share.minike.top/Article/details/257994.shtml)
+- 2026-06-30 08:48 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/59652513.shtml)
+- 2026-06-30 08:58 - [天道](http://www.blog.minike.top/Article/details/52243029651.shtml)
+- 2026-06-30 09:04 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.kurohicncr.top/Article/details/48841855.shtml)
+- 2026-06-30 08:48 - [男子在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/15452243311.shtml)
+- 2026-06-30 09:07 - [世界杯巴拉圭点球淘汰德国](https://www.share.kurohicncr.top/Article/details/16303448034.shtml)
+- 2026-06-30 08:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/49247822.shtml)
+- 2026-06-30 09:16 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/8046088.shtml)

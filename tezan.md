@@ -1,47 +1,48 @@
-# 此行间·总书记深情寄语大学生
+# 人民币兑美元中间价报6.8176，上调64点
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-视频：此行间·总书记深情寄语大学生来源：人民日报客户端 党的十八大以来，习近平总书记一次次来到大学生中间，论志向、谈成长、话担当。五四青年节之际，重温总书记对大学生的深情寄语，句句暖心。
+5月29日，人民币兑美元中间价报6.8176，上调64点。 美联储6月维持利率不变的概率为99.4% 据CME“美联储观察”：美联储到6月维持利率不变的概率为99.4%，累计加息25个基点的概率为0.6%。美联储到7月维持利率不变的概率为93%，累计加息25个基点的概率6.9%。责任编辑：郭建
 
 ## 正文
 
-视频：此行间·总书记深情寄语大学生来源：人民日报客户端 党的十八大以来，习近平总书记一次次来到大学生中间，论志向、谈成长、话担当。
+5月29日，人民币兑美元中间价报6.8176，上调64点。
 
-五四青年节之际，重温总书记对大学生的深情寄语，句句暖心。
+美联储6月维持利率不变的概率为99.4% 据CME“美联储观察”：美联储到6月维持利率不变的概率为99.4%，累计加息25个基点的概率为0.6%。
+
+美联储到7月维持利率不变的概率为93%，累计加息25个基点的概率6.9%。
+
+责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-30 08:48 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 09:11 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 09:08 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 08:50 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 08:46 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 09:09 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 09:05 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 08:50 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 09:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 09:03 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 08:50 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 08:43 - [亚洲球队全部出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 09:03 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 09:05 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 08:53 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 08:48 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 09:13 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 09:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 08:51 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 09:16 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 09:15 - [妻子撞死家暴丈夫案二审案情反转](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 08:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 08:51 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:51 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/73090748701.shtml)
-- 2026-06-30 08:46 - [女心理师](http://www.share.minike.top/Article/details/95248678318.shtml)
-- 2026-06-30 08:48 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/7215500900.shtml)
-- 2026-06-30 09:10 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/3180331485.shtml)
-- 2026-06-30 08:46 - [起风了](http://www.blog.kurohicncr.top/Article/details/1361504922.shtml)
-- 2026-06-30 09:04 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](https://www.blog.minike.top/Article/details/80506947917.shtml)
-- 2026-06-30 08:58 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/6463962653.shtml)
-- 2026-06-30 08:51 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/64467074.shtml)
-- 2026-06-30 09:05 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/291099189.shtml)
-- 2026-06-30 08:57 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/681124524078.shtml)
-- 2026-06-30 09:11 - [金刚川](http://www.share.kurohicncr.top/Article/details/144772296502.shtml)
-- 2026-06-30 08:44 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/67880951390.shtml)
-- 2026-06-30 09:05 - [IGN评测电影版后室](https://www.blog.kurohicncr.top/Article/details/560912.shtml)
-- 2026-06-30 09:05 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/435852.shtml)
-- 2026-06-30 08:46 - [全新问界M9现身美国街头](https://www.blog.minike.top/Article/details/064163484490.shtml)
+- 2026-06-30 09:13 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/8080569059.shtml)
+- 2026-06-30 08:48 - [巴拉圭门将](https://www.blog.kurohicncr.top/Article/details/7154025.shtml)
+- 2026-06-30 08:53 - [勇士续约波尔津吉斯](http://www.share.minike.top/Article/details/717714758.shtml)
+- 2026-06-30 09:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/718283704564.shtml)
+- 2026-06-30 09:02 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/1713177416.shtml)
+- 2026-06-30 08:59 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/3990513.shtml)
+- 2026-06-30 09:14 - [明星大侦探第一季](http://www.share.minike.top/Article/details/324508473.shtml)
+- 2026-06-30 09:16 - [日本遭读秒绝杀 森保一：我水平不够](https://www.blog.kurohicncr.top/Article/details/042535.shtml)
+- 2026-06-30 08:48 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/68510.shtml)
+- 2026-06-30 09:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/1490517.shtml)
+- 2026-06-30 08:58 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/481927617.shtml)
+- 2026-06-30 08:50 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/08313.shtml)
+- 2026-06-30 09:16 - [曝老詹对自由市场态度与以往截然不同](http://www.share.minike.top/Article/details/6251031742.shtml)
+- 2026-06-30 09:14 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/106384506743.shtml)
+- 2026-06-30 09:09 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/655179283.shtml)

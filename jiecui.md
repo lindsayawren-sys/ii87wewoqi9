@@ -1,48 +1,57 @@
-# 大美边疆看我家丨青春去哪里？去祖国需要的地方 去边疆、赴山海！
+# “平安居家”化身唐国强的健康军师，助力管理家庭健康生活
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月04日 21:41 来源：中国新闻网 青春去哪里？他们携笔从戎，奔赴边疆、远赴山海，去往祖国需要的地方！ 责任编辑：【翟璐】
+5月29日，中国平安旗下平安人寿、平安好医生联合发布平安居家服务品牌，以2026“服务年”为契机，依托集团“综合金融+医疗养老”战略布局，围绕中国家庭“健康长寿”的需求，推出覆盖睡眠、营养、运动等一系列居家场景的“7好”王牌服务，推动保险服务从“事后赔付”向“主动健康管理”升级，践行“专业，您心中的平安”的服务主张。 平安人寿副董事长兼副总经理蔡霆在发布会上表示，“平安居家”的
 
 ## 正文
 
-发布时间：2026年05月04日 21:41 来源：中国新闻网 青春去哪里？
+5月29日，中国平安旗下平安人寿、平安好医生联合发布平安居家服务品牌，以2026“服务年”为契机，依托集团“综合金融+医疗养老”战略布局，围绕中国家庭“健康长寿”的需求，推出覆盖睡眠、营养、运动等一系列居家场景的“7好”王牌服务，推动保险服务从“事后赔付”向“主动健康管理”升级，践行“专业，您心中的平安”的服务主张。
 
-他们携笔从戎，奔赴边疆、远赴山海，去往祖国需要的地方！
+平安人寿副董事长兼副总经理蔡霆在发布会上表示，“平安居家”的使命是要让专业、便捷的主动健康管理服务，成为每一个中国家庭触手可及的日常。
 
-责任编辑：【翟璐】
+公司不仅要对风险发生作出经济补偿，更要为客户的健康生活、健康寿命提供全程规划与守护。
+
+平安好医生首席执行官何明科表示，作为“平安居家”服务的提供主体，平安好医生将以科技暖心的温度、服务沉淀的厚度、循证医学支撑的专业深度，全天候、多场景、全周期守护客户健康。
+
+本次发布会官宣，著名表演艺术家唐国强将担任中国平安服务体验官①。
+
+健康长寿，从中年抓起 长寿时代到来，生命质量成为全社会的关切。
+
+国家卫健委和世卫组织发布的数据表明，中国人的平均寿命已接近79岁，但健康寿命只有约68岁②，这意味着很多人会有超过十年的时间与疾病、失能相伴。
+
+世卫组织研究表明，健康寿命不到两成取决于先天遗传，超八成都取决于生活方式等因素③。
 
 ## 相关推荐
 
-- 2026-06-30 09:00 - [点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-30 09:00 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 08:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 08:47 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 09:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 08:47 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 09:09 - [世界杯名画巴拉圭钢铁防线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 08:54 - [马航370搜寻最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 09:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 08:51 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 09:02 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 08:59 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 08:50 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 08:48 - [德国北部枪击事件致5死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 09:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 09:07 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 09:02 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 08:59 - [黄晓明夸昆凌引杨颖对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 08:49 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 09:02 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 08:50 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 08:48 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 08:52 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/923429476633.shtml)
-- 2026-06-30 09:11 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/6498728.shtml)
-- 2026-06-30 09:07 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/88796.shtml)
-- 2026-06-30 09:04 - [第一次对自信的力量有了实感](https://www.blog.kurohicncr.top/Article/details/1851977306.shtml)
-- 2026-06-30 09:12 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/79114345236.shtml)
-- 2026-06-30 08:42 - [女心理师](https://www.share.kurohicncr.top/Article/details/905928.shtml)
-- 2026-06-30 08:59 - [4000美元是黄金新一轮下跌的开始吗](http://www.share.kurohicncr.top/Article/details/7640253745.shtml)
-- 2026-06-30 08:43 - [送你一朵小红花](https://www.share.minike.top/Article/details/403963885900.shtml)
-- 2026-06-30 08:52 - [杨紫大银幕成绩单](https://www.blog.minike.top/Article/details/24633632.shtml)
-- 2026-06-30 09:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/58754.shtml)
-- 2026-06-30 08:50 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/685926923152.shtml)
-- 2026-06-30 08:42 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/691332785383.shtml)
-- 2026-06-30 09:04 - [日本球员说被绝杀非常不甘心](https://www.share.minike.top/Article/details/40391152407.shtml)
-- 2026-06-30 08:50 - [球评巴西绝杀逆转日本](http://www.blog.kurohicncr.top/Article/details/903064834247.shtml)
-- 2026-06-30 08:46 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://www.blog.kurohicncr.top/Article/details/14252510989.shtml)
+- 2026-06-30 09:08 - [日本进球](https://www.blog.minike.top/Article/details/9471022597.shtml)
+- 2026-06-30 09:07 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/272468588.shtml)
+- 2026-06-30 08:58 - [日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/50479978174.shtml)
+- 2026-06-30 08:49 - [德国巴拉圭加时](http://www.share.minike.top/Article/details/6388280561.shtml)
+- 2026-06-30 08:51 - [《共患难》](http://www.share.minike.top/Article/details/89702610620.shtml)
+- 2026-06-30 09:01 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/651005.shtml)
+- 2026-06-30 08:50 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/46374.shtml)
+- 2026-06-30 08:56 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/48385.shtml)
+- 2026-06-30 09:08 - [“荒唐”背后的韩国足球](http://www.share.minike.top/Article/details/306324408.shtml)
+- 2026-06-30 09:13 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/068103419878.shtml)
+- 2026-06-30 08:51 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/85212006.shtml)
+- 2026-06-30 09:16 - [追梦拒绝2770万美元球员选项](http://www.blog.minike.top/Article/details/00449241.shtml)
+- 2026-06-30 08:54 - [王濛回复黄灿灿](https://www.share.minike.top/Article/details/756044431321.shtml)
+- 2026-06-30 09:00 - [起风了](https://www.share.minike.top/Article/details/52903690.shtml)
+- 2026-06-30 08:53 - [穆祉丞回应获年度人气艺人](https://www.blog.kurohicncr.top/Article/details/917952634.shtml)

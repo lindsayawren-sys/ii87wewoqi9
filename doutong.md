@@ -1,60 +1,56 @@
-# 千亿消费大白马，格力和海尔双双失速了
+# 直击民生痛点、盘活存量资源 专家解读城市更新“十五五”规划
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：格隆汇 作为国内家电行业的佼佼者，近日格力和海尔的财报或许都令人有些五味杂陈。 财报显示，2025年格力电器实现营业收入1704.47亿元，同比下滑9.89%，创下2021年以来的新低。 公司归母净利润也同比下滑9.89%至290.03亿元，降幅进一步扩大。 然而资本市场对这份业绩的反应，却与实际数字
+近日《城市更新“十五五”规划》全文公布，《规划》明确了未来五年城市更新工作的目标、重点任务与重大工程。 未来五年 城市将迎来全方位提升 这些部署，将会给我们的生活带来哪些具体改变？来看专家的解读。 《城市更新“十五五”规划》设定了阶段性发展目标：到2030年，城市更新行动取得重要进展，人居环境明显改善、安全发展基础更加牢固、治理水平大幅提高； 到2035年，基本建成创新、宜居、
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+近日《城市更新“十五五”规划》全文公布，《规划》明确了未来五年城市更新工作的目标、重点任务与重大工程。
 
-来源：格隆汇 作为国内家电行业的佼佼者，近日格力和海尔的财报或许都令人有些五味杂陈。
+未来五年 城市将迎来全方位提升 这些部署，将会给我们的生活带来哪些具体改变？
 
-财报显示，2025年格力电器实现营业收入1704.47亿元，同比下滑9.89%，创下2021年以来的新低。
+来看专家的解读。
 
-公司归母净利润也同比下滑9.89%至290.03亿元，降幅进一步扩大。
+《城市更新“十五五”规划》设定了阶段性发展目标：到2030年，城市更新行动取得重要进展，人居环境明显改善、安全发展基础更加牢固、治理水平大幅提高； 到2035年，基本建成创新、宜居、美丽、韧性、文明、智慧的现代化人民城市。
 
-然而资本市场对这份业绩的反应，却与实际数字截然不同。
+专家表示，规划立足城市内涵式发展，推动城市发展方式加速转型，统筹产业升级、生态保护、文化传承和民生提质，发展导向清晰、实践指导性强。
 
-年报发布同日，格力同步披露了每10股派发现金红利20元的慷慨分红预案，股息率超过5%。
+中国城市规划学会副理事长 张文忠：《城市更新“十五五”规划》的出台，为未来一段时期中国的城市化指明了一个方向，指明了时间表、路线图，回应了群众和老百姓急难愁盼的一些想法，比如说居住的问题、通勤的问题。
 
-或受此提振，年报发布次日，格力电器股价单日涨幅达5.85%，逆势走强。
+专家表示，《城市更新“十五五”规划》首次从国家层面对居住、产业、公共三大空间更新改造明确量化目标，推出一系列可落地、可考核的硬性指标，这也意味着未来城市更新将迈向精细化、系统化、规范化新阶段。
 
-与格力形成鲜明对比的，是同期披露业绩的另一大白电巨头，海尔智家。
+广东省住房政策研究中心首席研究员 李宇嘉：明确了“十五五”期间要完成的量的指标，危旧房改造完成50万套间，老旧街区和老旧厂房改造1500个，城中村改造4000个，地下管网更新改造36.5万公里。
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 08:49 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 09:09 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 08:46 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 08:57 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 09:06 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 08:47 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 08:52 - [莫兰特被交易到开拓者](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 09:11 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 08:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 08:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 08:42 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 08:52 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-30 08:52 - [网友写差评被店家“挂”门口避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 09:13 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 09:16 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 08:58 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 09:00 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-30 09:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 09:09 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-30 09:15 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 09:15 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 09:01 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 09:08 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:50 - [现在叛逆期的孩子最怕的是什么？](http://www.share.minike.top/Article/details/392633887154.shtml)
-- 2026-06-30 09:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/887858.shtml)
-- 2026-06-30 08:54 - [金刚川](http://www.share.kurohicncr.top/Article/details/51497322240.shtml)
-- 2026-06-30 08:54 - [荷兰VS摩洛哥](http://www.blog.minike.top/Article/details/509827211.shtml)
-- 2026-06-30 09:01 - [美股](http://www.share.kurohicncr.top/Article/details/4575401.shtml)
-- 2026-06-30 09:01 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.minike.top/Article/details/2414370640.shtml)
-- 2026-06-30 08:50 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/582761221.shtml)
-- 2026-06-30 09:00 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/0187048296.shtml)
-- 2026-06-30 08:48 - [泰山景区建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/65799266776.shtml)
-- 2026-06-30 09:00 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/80961.shtml)
-- 2026-06-30 08:49 - [小娘惹](https://www.share.minike.top/Article/details/681362.shtml)
-- 2026-06-30 08:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/6342496932.shtml)
-- 2026-06-30 08:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/31064684650.shtml)
-- 2026-06-30 08:55 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](https://www.share.minike.top/Article/details/2215319801.shtml)
-- 2026-06-30 09:11 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/93424889.shtml)
+- 2026-06-30 09:10 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/5006305.shtml)
+- 2026-06-30 09:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/757287170.shtml)
+- 2026-06-30 09:04 - [低智商犯罪三江口团建来了](http://www.share.kurohicncr.top/Article/details/425513.shtml)
+- 2026-06-30 09:04 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/9562775.shtml)
+- 2026-06-30 09:06 - [勇士续约波尔津吉斯](https://www.blog.kurohicncr.top/Article/details/88505.shtml)
+- 2026-06-30 09:06 - [中国新一轮出口管制直指日本命脉](https://www.share.minike.top/Article/details/1859515559.shtml)
+- 2026-06-30 09:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/7996883.shtml)
+- 2026-06-30 09:13 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/40098490.shtml)
+- 2026-06-30 09:00 - [iPhone18e曝光](https://www.share.kurohicncr.top/Article/details/2347003312.shtml)
+- 2026-06-30 09:01 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/298581905.shtml)
+- 2026-06-30 09:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/666262.shtml)
+- 2026-06-30 09:09 - [球评巴西绝杀逆转日本](http://www.share.kurohicncr.top/Article/details/888446466.shtml)
+- 2026-06-30 08:50 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/4912552.shtml)
+- 2026-06-30 09:01 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/83375951.shtml)
+- 2026-06-30 09:16 - [《名肘探科比》：科比大战裂口女](https://www.share.minike.top/Article/details/7412923.shtml)

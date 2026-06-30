@@ -1,50 +1,45 @@
-# 花旗：建设银行给予“买入”评级 目标价9.88港元
+# 北京控股将于8月7日派发末期股息每股0.77港元
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，建设银行（00939）今年首季拨备前利润（PPOP）同比增长13%，增速较去年第四季的5%加快，受惠于净息差回升、交易收益强劲、费用收入良好及成本收入比率（CIR）改善。花旗认为，建行首季拨备前利润表现优于该行预期，盈利增长符合预期，在大型银行中分别排名第二及第三。该行对建行净息差显著回升感到鼓舞，认为其估值具吸引力。给予建行H股“买入”评级，目标价9.88港元
+北京控股（00392）发布公告，将于2026年8月7日派发截至2025年12月31日止年度的末期股息每股0.77港元。责任编辑：卢昱君
 
 ## 正文
 
-花旗发布研报称，建设银行（00939）今年首季拨备前利润（PPOP）同比增长13%，增速较去年第四季的5%加快，受惠于净息差回升、交易收益强劲、费用收入良好及成本收入比率（CIR）改善。
-
-花旗认为，建行首季拨备前利润表现优于该行预期，盈利增长符合预期，在大型银行中分别排名第二及第三。
-
-该行对建行净息差显著回升感到鼓舞，认为其估值具吸引力。
-
-给予建行H股“买入”评级，目标价9.88港元。
+北京控股（00392）发布公告，将于2026年8月7日派发截至2025年12月31日止年度的末期股息每股0.77港元。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 09:09 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 08:44 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 09:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 08:42 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 09:03 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 08:47 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 09:02 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 09:00 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 08:44 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-30 09:07 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 09:14 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 09:00 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 09:03 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 08:57 - [马耳他著名拱门坍塌致一中国男子身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 08:50 - [内马尔安慰日本球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 09:17 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-30 08:49 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 08:54 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 08:54 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 08:53 - [陈小春人老了干什么也不心酸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [日本球迷被强行披上巴西国旗](http://www.blog.kurohicncr.top/Article/details/60326556.shtml)
-- 2026-06-30 08:48 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/974589733191.shtml)
-- 2026-06-30 09:07 - [如果有二次元高中是什么样子的？](https://www.blog.kurohicncr.top/Article/details/84878004089.shtml)
-- 2026-06-30 08:55 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/45517495.shtml)
-- 2026-06-30 08:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/461017.shtml)
-- 2026-06-30 08:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/344007909.shtml)
-- 2026-06-30 08:58 - [巴拉圭点球大战淘汰德国进16强](https://www.share.minike.top/Article/details/8801849144.shtml)
-- 2026-06-30 08:51 - [陈小春人老了干什么也不心酸](http://www.blog.kurohicncr.top/Article/details/8236955488.shtml)
-- 2026-06-30 09:02 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/3471914.shtml)
-- 2026-06-30 09:08 - [金刚川](https://www.share.kurohicncr.top/Article/details/3586679797.shtml)
-- 2026-06-30 08:44 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/82329.shtml)
-- 2026-06-30 09:04 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/38554084.shtml)
-- 2026-06-30 08:46 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/448002671384.shtml)
-- 2026-06-30 08:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/8456897934.shtml)
-- 2026-06-30 08:54 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/3914220745.shtml)
+- 2026-06-30 09:00 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/7594672.shtml)
+- 2026-06-30 09:16 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/33641710374.shtml)
+- 2026-06-30 08:48 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/35753824533.shtml)
+- 2026-06-30 09:01 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/539356048108.shtml)
+- 2026-06-30 08:52 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/771953126.shtml)
+- 2026-06-30 08:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/235784439062.shtml)
+- 2026-06-30 08:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/829390041207.shtml)
+- 2026-06-30 08:55 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/653023.shtml)
+- 2026-06-30 08:48 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.kurohicncr.top/Article/details/3786147.shtml)
+- 2026-06-30 08:49 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/244676.shtml)
+- 2026-06-30 09:17 - [日本球员说被绝杀非常不甘心](http://www.blog.minike.top/Article/details/25361039613.shtml)
+- 2026-06-30 09:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/816501090642.shtml)
+- 2026-06-30 09:16 - [三星投资计划](http://www.share.kurohicncr.top/Article/details/5677840.shtml)
+- 2026-06-30 09:12 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.blog.minike.top/Article/details/996577.shtml)
+- 2026-06-30 08:58 - [王楚钦孙颖莎晋级混双八强](http://www.share.minike.top/Article/details/78071727162.shtml)

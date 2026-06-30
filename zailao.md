@@ -1,51 +1,59 @@
-# 湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤
+# 《广东省促进粤港澳大湾区海上搜寻救助合作条例》8月1日起施行
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月05日 17:47 来源：中国新闻网 5月5日，湖南长沙召开新闻发布会，相关负责人通报浏阳烟花厂爆炸事故最新情况。截至目前，爆炸事故已致26人死亡，61人受伤。(记者 傅煜 唐小晴 杨华峰 徐志雄 制作 刘映含） 责任编辑：【卢岩】
+中新网广州5月30日电 (记者 程景伟)广东人大网30日发布消息称，广东省第十四届人民代表大会常务委员会第二十五次会议29日审议通过《广东省促进粤港澳大湾区海上搜寻救助合作条例》(以下简称《条例》)。《条例》将于2026年8月1日起施行。粤港澳大湾区海域辽阔、航运繁忙，是我国海上交通与经济活动最活跃的区域之一。粤港澳大湾区海域面积约2万平方公里，航线密集，水上水下活动繁多，台风
 
 ## 正文
 
-发布时间：2026年05月05日 17:47 来源：中国新闻网 5月5日，湖南长沙召开新闻发布会，相关负责人通报浏阳烟花厂爆炸事故最新情况。
+中新网广州5月30日电 (记者 程景伟)广东人大网30日发布消息称，广东省第十四届人民代表大会常务委员会第二十五次会议29日审议通过《广东省促进粤港澳大湾区海上搜寻救助合作条例》(以下简称《条例》)。
 
-截至目前，爆炸事故已致26人死亡，61人受伤。
+《条例》将于2026年8月1日起施行。
 
-(记者 傅煜 唐小晴 杨华峰 徐志雄 制作 刘映含） 责任编辑：【卢岩】
+粤港澳大湾区海域辽阔、航运繁忙，是我国海上交通与经济活动最活跃的区域之一。
+
+粤港澳大湾区海域面积约2万平方公里，航线密集，水上水下活动繁多，台风、暴雨、风暴潮等极端天气频发，对跨区域、高效率的海上搜救合作提出刚性需求。
+
+《条例》以列举的方式规定了广东省海上搜救中心可以向港澳搜救机构提出启动粤港澳大湾区海上搜救合作请求的情形，囊括大湾区海上搜救合作高频场景；并明确该中心提出合作请求时应当向港澳搜救机构提供险情的基本情况、搜救方案、搜救合作具体需求等相关资料。
+
+同时，基于粤港、粤澳海上搜救合作安排有关约定，以及实践中广东省和大湾区内地九市海上搜救中心已建立海上搜救24小时值班及通信联络制度，《条例》明确大湾区内地九市海上搜救中心请求启动粤港澳大湾区海上搜救合作的程序，以达到效率与规范的有机统一。
+
+《条例》提出，粤港澳大湾区海上搜救合作启动后，广东省海上搜救中心应当向参与海上搜救合作的各方力量提供险情种类、救助内容、险情发生时间和位置、搜救区域及其海况、已指定的现场指挥、通信联络方式及要求、实施救助过程中的工作及现场报告要求等关键信息。
+
+跨境人员移交是大湾区海上搜救合作中的难点。
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-30 08:55 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 09:04 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 08:56 - [世界杯：荷兰vs摩洛哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 08:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 09:08 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 08:59 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 08:45 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 08:54 - [恋与深空](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 08:56 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 09:01 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 08:56 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 09:05 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 08:50 - [德国巴拉圭进入点球大战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 09:05 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 08:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 09:02 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 09:01 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 09:05 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 09:17 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 09:01 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 08:56 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 08:49 - [日本球迷输球后集体捡垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 09:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 09:16 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 09:04 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 09:05 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 09:16 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [板面：为什么那么多人爱吃？？！](https://www.blog.minike.top/Article/details/24098.shtml)
-- 2026-06-30 08:42 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/9028587393.shtml)
-- 2026-06-30 08:51 - [世界杯欧洲队7战南美仅1胜](https://www.share.minike.top/Article/details/87272959.shtml)
-- 2026-06-30 09:11 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/9774808425.shtml)
-- 2026-06-30 09:04 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/67632795827.shtml)
-- 2026-06-30 08:51 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/43081688.shtml)
-- 2026-06-30 08:42 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.blog.kurohicncr.top/Article/details/760455.shtml)
-- 2026-06-30 09:08 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/52065.shtml)
-- 2026-06-30 08:55 - [名记：灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/290223.shtml)
-- 2026-06-30 08:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/352783.shtml)
-- 2026-06-30 08:46 - [齐思钧回复张月](http://www.share.minike.top/Article/details/11041716061.shtml)
-- 2026-06-30 09:09 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/1038897086.shtml)
-- 2026-06-30 09:02 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/43825458.shtml)
-- 2026-06-30 08:54 - [陈幸同晋级WTT美国大满贯女单32强](http://www.blog.minike.top/Article/details/865069540277.shtml)
-- 2026-06-30 09:05 - [金鹰奖视后提名预测](http://www.share.minike.top/Article/details/2799742.shtml)
+- 2026-06-30 09:14 - [爱很美味](https://www.share.kurohicncr.top/Article/details/393617.shtml)
+- 2026-06-30 09:07 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/154448264.shtml)
+- 2026-06-30 09:10 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/056692.shtml)
+- 2026-06-30 09:17 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/338016379199.shtml)
+- 2026-06-30 09:15 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/17091270.shtml)
+- 2026-06-30 09:02 - [萨内 看笑了](http://www.share.minike.top/Article/details/06312932.shtml)
+- 2026-06-30 09:08 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/425454.shtml)
+- 2026-06-30 08:57 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.kurohicncr.top/Article/details/38494.shtml)
+- 2026-06-30 09:03 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/1886864449.shtml)
+- 2026-06-30 08:56 - [点球大战](https://www.share.kurohicncr.top/Article/details/108881503782.shtml)
+- 2026-06-30 09:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/01785.shtml)
+- 2026-06-30 09:02 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/5006739.shtml)
+- 2026-06-30 08:50 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/76073829272.shtml)
+- 2026-06-30 09:00 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/907587642.shtml)
+- 2026-06-30 08:49 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/175229.shtml)

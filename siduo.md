@@ -1,47 +1,58 @@
-# 伊朗公布伊控制下的霍尔木兹海峡地区新地图
+# （友城故事）浙江绍兴国际友城增至59个
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-当地时间5月4日，伊朗伊斯兰革命卫队海军当天公布了一份霍尔木兹海峡地区的新地图。 伊朗伊斯兰革命卫队海军表示，由伊朗武装力量控制和管理的霍尔木兹海峡新区域范围为： 南界为，连接伊朗穆巴拉克山(Kuh-e Mobarak)与阿联酋富查伊拉(Fujairah)南部的连线； 西界为，连接伊朗格什姆岛(Qeshm Island)末端与阿联酋乌姆盖万(Umm Al Quwain)的连线。
+中新社浙江绍兴5月29日电 (项菁)“这是我第三次来到绍兴，每一次到访都感受到城市在不断发展和创新。愿我们不只是完成纸上的签约，更能促进两地民众多走动、常往来，在旅游、交流中增进了解、加深情谊。”意大利阿斯蒂市市长毛里齐奥·拉塞罗(Maurizio Rasero)29日在浙江绍兴接受中新社采访时说。 在当日举行的绍兴第六届国际友城大会上，绍兴与意大利阿斯蒂市、突尼斯凯鲁万市分别
 
 ## 正文
 
-当地时间5月4日，伊朗伊斯兰革命卫队海军当天公布了一份霍尔木兹海峡地区的新地图。
+中新社浙江绍兴5月29日电 (项菁)“这是我第三次来到绍兴，每一次到访都感受到城市在不断发展和创新。
 
-伊朗伊斯兰革命卫队海军表示，由伊朗武装力量控制和管理的霍尔木兹海峡新区域范围为： 南界为，连接伊朗穆巴拉克山(Kuh-e Mobarak)与阿联酋富查伊拉(Fujairah)南部的连线； 西界为，连接伊朗格什姆岛(Qeshm Island)末端与阿联酋乌姆盖万(Umm Al Quwain)的连线。
+愿我们不只是完成纸上的签约，更能促进两地民众多走动、常往来，在旅游、交流中增进了解、加深情谊。
 
-(央视新闻客户端 总台记者 李健南 李享)
+”意大利阿斯蒂市市长毛里齐奥·拉塞罗(Maurizio Rasero)29日在浙江绍兴接受中新社采访时说。
+
+在当日举行的绍兴第六届国际友城大会上，绍兴与意大利阿斯蒂市、突尼斯凯鲁万市分别签署友好城市协议，正式缔结为友城关系。
+
+至此，绍兴已与29个国家的59个城市建立友好城市或友好交流关系。
+
+自2016年创办以来，绍兴国际友城大会已形成两年一届的会制。
+
+前五届大会累计达成近60个项目签约，项目成效明显。
+
+本届大会以“友城聚力同心，发展赋能未来”为主题，吸引来自21个国家和地区的友城代表等参会。
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 08:48 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 08:49 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-30 09:04 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 09:02 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 08:43 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 09:03 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 09:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 09:08 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 08:51 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 09:02 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 09:11 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 09:10 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 09:13 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 09:09 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 08:55 - [“荒唐”背后的韩国足球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 09:11 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 09:10 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 09:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 09:03 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 08:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 09:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 09:11 - [德国队回应爆冷淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/666012687795.shtml)
-- 2026-06-30 08:45 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/143098230592.shtml)
-- 2026-06-30 09:03 - [韩国道歉完日本道歉](https://www.blog.minike.top/Article/details/071967.shtml)
-- 2026-06-30 08:51 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/25838805964.shtml)
-- 2026-06-30 08:49 - [曝老詹对自由市场态度与以往截然不同](https://www.blog.kurohicncr.top/Article/details/4028705.shtml)
-- 2026-06-30 08:57 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/947158736939.shtml)
-- 2026-06-30 09:06 - [网友写差评被店家“挂”门口避雷](https://www.share.minike.top/Article/details/8475066671.shtml)
-- 2026-06-30 08:49 - [恋与深空](https://www.blog.minike.top/Article/details/21104890213.shtml)
-- 2026-06-30 08:50 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/0278726.shtml)
-- 2026-06-30 08:59 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/0087142970.shtml)
-- 2026-06-30 08:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/30886189172.shtml)
-- 2026-06-30 08:49 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/88027102.shtml)
-- 2026-06-30 08:59 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.blog.minike.top/Article/details/306470585.shtml)
-- 2026-06-30 09:01 - [日本队主帅道歉](https://www.blog.minike.top/Article/details/513127.shtml)
-- 2026-06-30 09:07 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/717616993910.shtml)
+- 2026-06-30 08:59 - [德国身价是巴拉圭6倍](http://www.share.minike.top/Article/details/38496471.shtml)
+- 2026-06-30 08:49 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/146132.shtml)
+- 2026-06-30 09:06 - [世界杯](http://www.share.minike.top/Article/details/97506.shtml)
+- 2026-06-30 08:50 - [妻子撞死家暴丈夫案二审案情反转](http://www.blog.minike.top/Article/details/5670817329.shtml)
+- 2026-06-30 08:51 - [天道](http://www.share.kurohicncr.top/Article/details/60511.shtml)
+- 2026-06-30 08:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/750115094050.shtml)
+- 2026-06-30 08:52 - [巴西扳平比分](http://www.share.minike.top/Article/details/24721803.shtml)
+- 2026-06-30 09:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/8299124.shtml)
+- 2026-06-30 08:56 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/369462088142.shtml)
+- 2026-06-30 09:08 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/677166239137.shtml)
+- 2026-06-30 08:59 - [低智商犯罪三江口团建来了](https://www.share.kurohicncr.top/Article/details/95753365.shtml)
+- 2026-06-30 08:51 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/09940.shtml)
+- 2026-06-30 08:53 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/4243612433.shtml)
+- 2026-06-30 08:59 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/9831288.shtml)
+- 2026-06-30 08:48 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/2530360696.shtml)

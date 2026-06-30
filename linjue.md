@@ -1,59 +1,59 @@
-# 厦门大嶝对台小额商品交易市场五一假期人气旺
+# 近百家校企、科研机构广西共商产教融合人才培养
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！孩子吃饭少、长不高、脾气暴？专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲
+中新网柳州5月31日电(林馨)“当前，人工智能重构产业生态、数字化重塑制造模式、全球化拓宽发展空间。”上汽通用五菱汽车股份有限公司副总经理韩德鸿日前在广西柳州市表示，面对转型浪潮，只有政、校、企、行共同参与，才能推动产业链、创新链、人才链、教育链“四链融合”，抢占竞争先机。 5月29日至30日，以“岛式制造引领新范式，专业集群共育新人才”为主题的中国—东盟新能源汽车行业产教融合
 
 ## 正文
 
-日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
+中新网柳州5月31日电(林馨)“当前，人工智能重构产业生态、数字化重塑制造模式、全球化拓宽发展空间。
 
-这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
+”上汽通用五菱汽车股份有限公司副总经理韩德鸿日前在广西柳州市表示，面对转型浪潮，只有政、校、企、行共同参与，才能推动产业链、创新链、人才链、教育链“四链融合”，抢占竞争先机。
 
-上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
+5月29日至30日，以“岛式制造引领新范式，专业集群共育新人才”为主题的中国—东盟新能源汽车行业产教融合共同体(下称“共同体”)2026年会在柳州举行。
 
-孩子吃饭少、长不高、脾气暴？
+近百家国内外院校、企业、科研机构参会，共商全球视野下的汽车产业技术发展与人才需求。
 
-专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方多家景区宣布免门票，这个五一，跟着电影去旅游！
+该共同体由上汽通用五菱汽车股份有限公司与柳州城市职业学院、武汉理工大学牵头成立，以高校的科研优势、人才优势、国际合作优势，助力共同体打造面向东盟的产教融合标杆平台。
 
-中国文学何以打动世界读者？
+作为共同体理事长单位，柳州城市职业学院近年来积极融入新能源汽车产教融合共同体建设，实现人才培养与产业需求的深度契合。
 
-凤何以成为中华民族文化标识？
+柳州城市职业学院党委书记韦海晋表示，学校坚持“教随产出、产教同行”，先后打造老挝鲁班工坊和中国—印度尼西亚新能源汽车现代工匠学院两个特色“职教出海”品牌项目。
 
-“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？
+此次活动，还启动面向I²MS(智能岛制造体系)高技能人才集群培养计划。
 
 ## 相关推荐
 
-- 2026-06-30 09:06 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 08:52 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 09:04 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 09:10 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 09:01 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-30 08:43 - [巴拉圭门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 08:55 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 09:06 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-30 09:07 - [郑钦文温网首轮出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 08:57 - [日本主帅赛后回应淘汰出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 08:51 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 08:57 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 08:56 - [马航370搜寻最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 08:48 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 09:04 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 09:17 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 09:03 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 09:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 08:49 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 09:07 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 08:56 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 09:01 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 08:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 09:01 - [德国队回应爆冷淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 09:00 - [藤森庆子赢得秘鲁总统选举](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 08:52 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:42 - [日本反击率先破门](https://www.share.minike.top/Article/details/65741338772.shtml)
-- 2026-06-30 08:53 - [天道](https://www.share.minike.top/Article/details/479890595363.shtml)
-- 2026-06-30 08:56 - [美股](http://www.share.kurohicncr.top/Article/details/710449439904.shtml)
-- 2026-06-30 09:05 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/656136.shtml)
-- 2026-06-30 09:05 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/810269885365.shtml)
-- 2026-06-30 08:46 - [内马尔未登场 安切洛蒂赛后回应](http://www.blog.kurohicncr.top/Article/details/052942693739.shtml)
-- 2026-06-30 08:57 - [齐思钧回复张月](https://www.blog.kurohicncr.top/Article/details/93536.shtml)
-- 2026-06-30 08:45 - [郑钦文温网一轮游](https://www.share.kurohicncr.top/Article/details/639474504.shtml)
-- 2026-06-30 08:47 - [委内瑞拉地震死亡人数升至1719人](https://www.blog.minike.top/Article/details/546418771.shtml)
-- 2026-06-30 08:59 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/320156.shtml)
-- 2026-06-30 08:51 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/96295.shtml)
-- 2026-06-30 08:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/80000.shtml)
-- 2026-06-30 09:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/01209320.shtml)
-- 2026-06-30 08:45 - [荷兰VS摩洛哥](http://www.blog.minike.top/Article/details/495100.shtml)
-- 2026-06-30 08:42 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/79568293354.shtml)
+- 2026-06-30 08:59 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/0315316.shtml)
+- 2026-06-30 09:14 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/250212977384.shtml)
+- 2026-06-30 09:14 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/511118899.shtml)
+- 2026-06-30 09:12 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/565747.shtml)
+- 2026-06-30 08:55 - [巴西替补奇兵读秒绝杀](https://www.blog.minike.top/Article/details/765559.shtml)
+- 2026-06-30 09:00 - [爱很美味](https://www.blog.minike.top/Article/details/75080585295.shtml)
+- 2026-06-30 08:55 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/01767.shtml)
+- 2026-06-30 08:52 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.blog.minike.top/Article/details/700648831310.shtml)
+- 2026-06-30 09:11 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/03617899.shtml)
+- 2026-06-30 09:05 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/576275259168.shtml)
+- 2026-06-30 08:50 - [藤森庆子赢得秘鲁总统选举](https://www.blog.minike.top/Article/details/132367.shtml)
+- 2026-06-30 08:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/26290.shtml)
+- 2026-06-30 08:54 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/823970247.shtml)
+- 2026-06-30 09:09 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/05354098.shtml)
+- 2026-06-30 08:54 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/391534167464.shtml)

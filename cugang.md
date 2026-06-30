@@ -1,53 +1,57 @@
-# 高盛：信达生物给予“买入”评级 目标价升至105.94港元
+# Signet收购The Clear Cut，强化Blue Nile婚嫁与高级珠宝业务
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-高盛发布研报称，上调信达生物（01801）2026至2028年每股盈利预测，分别为1.42元、3.11元、4.19元人民币，以反映首季销售胜预期；目标价由104.61港元微升至105.94港元；评级“买入”。今年首季产品收入超过38亿元人民币，同比增逾50%，高于该行预测的约35亿元人民币。强劲增长主要受玛仕度肽等产品组合扩张，以及新纳入国家医保目录的产品所带动。 该行指出，今
+Signet Jewelers近日宣布收购纽约数字原生天然钻石珠宝品牌The Clear Cut，并将其整合至旗下Blue Nile业务板块。该交易预计将在数日内完成，具体财务条款尚未披露。 The Clear Cut是一家以定制婚戒和高级珠宝著称的小型品牌，以其高度个性化的服务模式在社交媒体上积累了大量年轻客群。数据显示，该品牌平均订单价值接近30，000美元，2025年Bl
 
 ## 正文
 
-高盛发布研报称，上调信达生物（01801）2026至2028年每股盈利预测，分别为1.42元、3.11元、4.19元人民币，以反映首季销售胜预期；目标价由104.61港元微升至105.94港元；评级“买入”。
+Signet Jewelers近日宣布收购纽约数字原生天然钻石珠宝品牌The Clear Cut，并将其整合至旗下Blue Nile业务板块。
 
-今年首季产品收入超过38亿元人民币，同比增逾50%，高于该行预测的约35亿元人民币。
+该交易预计将在数日内完成，具体财务条款尚未披露。
 
-强劲增长主要受玛仕度肽等产品组合扩张，以及新纳入国家医保目录的产品所带动。
+The Clear Cut是一家以定制婚戒和高级珠宝著称的小型品牌，以其高度个性化的服务模式在社交媒体上积累了大量年轻客群。
 
-该行指出，今年6月将有两项关键数据成为市场焦点，包括预计公司在ADA会议上，将公布口服小分子GLP-1药物IBI3032更详细的早期临床数据，管理层此前曾简报该分子在4周内实现10%的体重下降，具备同类最佳潜力；在美国临床肿瘤学会（ASCO）会议上，IBI363（PD-1/IL-2b偏向性双特异性抗体）的两项数据将是重点关注，特别是一线非小细胞肺癌的二期临床数据首度亮相。
+数据显示，该品牌平均订单价值接近30，000美元，2025年Blue Nile已有39%的婚嫁交易金额在10，000美元及以上，收购旨在进一步推动这一比例增长。
 
-责任编辑：卢昱君
+Signet首席运营兼财务官Joan Hilson表示，此次收购虽对公司68亿美元的业务体量而言“不具财务重大性”，但其核心价值在于将The Clear Cut的个性化服务能力和宝石学专业知识整合到Blue Nile中，从而提升客户转化率，使消费者在选购订婚戒指等高价值珠宝时“更轻松、更少犹豫”。
+
+The Clear Cut在年轻消费者中具有较强影响力。
+
+其业务超过75%的受众年龄在35岁以下，社交媒体粉丝中88%为女性。
+
+去年，该品牌在不投入付费媒体的情况下，在TikTok上获得了超过2100万次观看。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 09:08 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 08:42 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 08:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 09:01 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 09:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 08:50 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 08:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 08:42 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 08:45 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 08:54 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 08:46 - [世界杯：荷兰vs摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 08:57 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 08:54 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 09:04 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 08:50 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 09:10 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 09:03 - [荷兰vs摩洛哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 08:49 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 08:53 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 08:49 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 09:07 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 09:16 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 09:17 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:44 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/82029340.shtml)
-- 2026-06-30 09:08 - [iPhone18e曝光](http://www.share.minike.top/Article/details/8869065.shtml)
-- 2026-06-30 09:05 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/19511625.shtml)
-- 2026-06-30 09:00 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.minike.top/Article/details/74150977222.shtml)
-- 2026-06-30 08:55 - [森保一 保守](https://www.share.minike.top/Article/details/536149.shtml)
-- 2026-06-30 08:58 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/678223490.shtml)
-- 2026-06-30 09:07 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/55360806890.shtml)
-- 2026-06-30 08:51 - [点球大战](https://www.blog.minike.top/Article/details/72600013.shtml)
-- 2026-06-30 08:58 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.kurohicncr.top/Article/details/2130772928.shtml)
-- 2026-06-30 08:57 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/277461489.shtml)
-- 2026-06-30 08:57 - [郑钦文 四年一轮游](http://www.share.minike.top/Article/details/143317769.shtml)
-- 2026-06-30 08:48 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/89404.shtml)
-- 2026-06-30 08:47 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/6151681227.shtml)
-- 2026-06-30 09:07 - [收到补税提醒尽快办理 明起有滞纳金](http://www.blog.kurohicncr.top/Article/details/919166524054.shtml)
-- 2026-06-30 08:44 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/90573.shtml)
+- 2026-06-30 08:56 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/2321835448.shtml)
+- 2026-06-30 09:15 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.share.kurohicncr.top/Article/details/827101.shtml)
+- 2026-06-30 08:58 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/424465.shtml)
+- 2026-06-30 08:49 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/38978.shtml)
+- 2026-06-30 09:00 - [请回答王牌2019](https://www.share.minike.top/Article/details/60764622.shtml)
+- 2026-06-30 08:58 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.minike.top/Article/details/50158245.shtml)
+- 2026-06-30 09:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/7463756810.shtml)
+- 2026-06-30 08:53 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/20976953.shtml)
+- 2026-06-30 08:59 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.blog.kurohicncr.top/Article/details/290320872.shtml)
+- 2026-06-30 09:14 - [小娘惹](https://www.blog.minike.top/Article/details/62662795.shtml)
+- 2026-06-30 09:16 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/24721.shtml)
+- 2026-06-30 09:03 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/891043825290.shtml)
+- 2026-06-30 09:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/6386463448.shtml)
+- 2026-06-30 09:17 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.share.kurohicncr.top/Article/details/94825164.shtml)
+- 2026-06-30 08:55 - [人类...完蛋了...](https://www.share.minike.top/Article/details/822835264053.shtml)

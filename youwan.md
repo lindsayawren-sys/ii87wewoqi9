@@ -1,58 +1,56 @@
-# 放假去酒店徒步、野攀、打网球，啥情况？有人日花费超千元
+# 日本鼓吹新版“印太战略”引担忧
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新经纬5月2日电 (王玉玲)2026年清明节期间，广州白领Florence(化名)给自己安排了一场“运动度假”，目的地是桂林。“我日常就很喜欢运动，一周要去好几次健身房。度假应该是日常生活的延伸，而不是跟日常节奏完全割裂。”Florence说。 近年来，Sportcation(运动度假)走红，不少人在度假时，选择带着网球拍、羽毛球拍、跑鞋出行。 跨国旅行及旅游企业TUI Mu
+新华社新加坡5月31日电(记者王嘉伟 舒畅)日本防卫大臣小泉进次郎5月31日在第23届香格里拉对话会上称，日本将持续强化防务能力并扩大地区安全合作，寻求承担地区防务“新角色”。多位国际观察人士就此表示，日方相关动向将加剧地区紧张局势，增加军备竞赛和冲突风险。小泉当天在香格里拉对话会全体大会上鼓吹所谓新版“自由开放印太”构想，主张日本进一步强化防卫能力、加强与地区国家安全机制合作
 
 ## 正文
 
-中新经纬5月2日电 (王玉玲)2026年清明节期间，广州白领Florence(化名)给自己安排了一场“运动度假”，目的地是桂林。
+新华社新加坡5月31日电(记者王嘉伟 舒畅)日本防卫大臣小泉进次郎5月31日在第23届香格里拉对话会上称，日本将持续强化防务能力并扩大地区安全合作，寻求承担地区防务“新角色”。
 
-“我日常就很喜欢运动，一周要去好几次健身房。
+多位国际观察人士就此表示，日方相关动向将加剧地区紧张局势，增加军备竞赛和冲突风险。
 
-度假应该是日常生活的延伸，而不是跟日常节奏完全割裂。
+小泉当天在香格里拉对话会全体大会上鼓吹所谓新版“自由开放印太”构想，主张日本进一步强化防卫能力、加强与地区国家安全机制合作，称日本决心在地区防务装备与技术合作中承担“新角色”。
 
-”Florence说。
+对小泉上述表态，柬埔寨国务秘书恩戈泰在接受新华社记者采访时说，亚洲各国对日本军国主义历史记忆犹新，“各国有理由怀疑日本当前的新安全姿态是真正出于防御需求，还是又想搞力量投射那一套。
 
-近年来，Sportcation(运动度假)走红，不少人在度假时，选择带着网球拍、羽毛球拍、跑鞋出行。
+” 印度尼西亚智库PARA辛迪加执行主任维尔迪卡·乌塔马认为，日本近年来持续扩大防务能力——包括放宽武器出口限制以及发展所谓“反击能力”，已经引发地区国家关切。
 
-跨国旅行及旅游企业TUI Musement发布的《2026旅行趋势报告》将Sportcation列为年度关键词之一。
+“这些举动可能重新激化历史矛盾，并推动亚太地区军备竞赛进一步升级。
 
-报告指出，过去一年(2025年)Sportcation模式相关的预订量同比增长近37%。
+” 新加坡尤索夫伊萨东南亚研究院东盟研究中心顾问蔡承国表示，日本正逐步放宽在防务预算和国防工业活动方面的自我约束，这让外界担忧日本是否会逐渐偏离战后和平发展方向，重新滑向军国主义老路。
 
-在中国社交平台上，Sportcation话题阅读量超4000万。
+此前，针对日本首相高市早苗称将提出新版“自由开放的印度太平洋”构想，外交部发言人林剑在例行记者会上答问时表示，国与国交往不应针对第三方或损害第三方利益。
 
 ## 相关推荐
 
-- 2026-06-30 09:02 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 08:55 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 09:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 08:56 - [收到补税提醒尽快办理 明起有滞纳金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 08:57 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 09:03 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 08:58 - [陈小春人老了干什么也不心酸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 09:09 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-30 08:45 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 09:02 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 08:55 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 08:44 - [郑钦文温网一轮游](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 08:59 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 08:50 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 08:52 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 09:10 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 09:09 - [男子造谣东鹏老板不喝自家饮料被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 09:11 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 09:06 - [德国连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 09:04 - [杨紫肖战余生请多指教拍立得](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 08:48 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 09:04 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/691559605.shtml)
-- 2026-06-30 08:56 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/072193526965.shtml)
-- 2026-06-30 08:56 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/4473460.shtml)
-- 2026-06-30 08:58 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/820200.shtml)
-- 2026-06-30 09:09 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/064707358.shtml)
-- 2026-06-30 08:48 - [曝老詹对自由市场态度与以往截然不同](https://www.share.kurohicncr.top/Article/details/99386956.shtml)
-- 2026-06-30 08:49 - [杨紫大银幕成绩单如何](https://www.share.kurohicncr.top/Article/details/342880.shtml)
-- 2026-06-30 09:08 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/55775279.shtml)
-- 2026-06-30 08:55 - [日耳曼拖拉机](http://www.share.minike.top/Article/details/51348488278.shtml)
-- 2026-06-30 08:53 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/9292810.shtml)
-- 2026-06-30 08:57 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.share.minike.top/Article/details/300918674099.shtml)
-- 2026-06-30 08:54 - [苗族银饰](https://www.share.minike.top/Article/details/9489976.shtml)
-- 2026-06-30 08:42 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/715997.shtml)
-- 2026-06-30 09:03 - [日本队主帅道歉](http://www.blog.kurohicncr.top/Article/details/86308163131.shtml)
-- 2026-06-30 08:56 - [四川凉山落石砸毁车辆 3人遇难](http://www.blog.minike.top/Article/details/3463348.shtml)
+- 2026-06-30 08:51 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/44645.shtml)
+- 2026-06-30 09:06 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/46639957457.shtml)
+- 2026-06-30 08:54 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/745243.shtml)
+- 2026-06-30 08:52 - [刘宇宁高情商化解谁站C位](http://www.blog.kurohicncr.top/Article/details/755800296360.shtml)
+- 2026-06-30 08:51 - [世界杯：荷兰vs摩洛哥](http://www.blog.kurohicncr.top/Article/details/38753.shtml)
+- 2026-06-30 08:58 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/14860054033.shtml)
+- 2026-06-30 09:15 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/1168188344.shtml)
+- 2026-06-30 08:51 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/172354464783.shtml)
+- 2026-06-30 09:11 - [德国队回应爆冷淘汰](https://www.share.kurohicncr.top/Article/details/0165554.shtml)
+- 2026-06-30 08:48 - [全新问界M9现身美国街头](https://www.blog.minike.top/Article/details/309458966025.shtml)
+- 2026-06-30 08:52 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/7958922.shtml)
+- 2026-06-30 08:53 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/2948165.shtml)
+- 2026-06-30 09:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/171663.shtml)
+- 2026-06-30 09:16 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/311286080.shtml)
+- 2026-06-30 09:03 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/547561.shtml)

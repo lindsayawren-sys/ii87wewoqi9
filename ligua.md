@@ -1,52 +1,56 @@
-# 五一视界盘中涨超11% 公司首次授出RSU计划94万股奖励股份
+# 以总理内塔尼亚胡：已命令以军控制加沙地带70%区域
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-五一视界（06651）盘中涨超11%，截至发稿，股价上涨9.50%，现报57.05港元，成交额3170.97万港元。 五一视界日前宣布，根据其10年期受限制股份单位计划，首次向303位董事及员工授出总计940，200股奖励股份，占公司已发行股份总数的约0.23%。股份来源为公司将以自有资金于二级市场购买公司现有股份或本公司回购的库存股份，奖励股份的归属期为12个月后归属25%，
+中新网5月29日电 据美国有线电视新闻网(CNN)报道，以色列总理内塔尼亚胡当地时间28日表示，他已下令以军将控制加沙地带70%区域。 据报道，内塔尼亚胡当天在被占领的约旦河西岸出席活动，他在采访中表示，以军目前控制加沙地带约60%的区域，他已下令将控制范围扩大至约70%。“之前是50%，现在已经达到60%。我的指示是，一步一步来——70%。” 据报道，内塔尼亚胡还证实，以色列
 
 ## 正文
 
-五一视界（06651）盘中涨超11%，截至发稿，股价上涨9.50%，现报57.05港元，成交额3170.97万港元。
+中新网5月29日电 据美国有线电视新闻网(CNN)报道，以色列总理内塔尼亚胡当地时间28日表示，他已下令以军将控制加沙地带70%区域。
 
-五一视界日前宣布，根据其10年期受限制股份单位计划，首次向303位董事及员工授出总计940，200股奖励股份，占公司已发行股份总数的约0.23%。
+据报道，内塔尼亚胡当天在被占领的约旦河西岸出席活动，他在采访中表示，以军目前控制加沙地带约60%的区域，他已下令将控制范围扩大至约70%。
 
-股份来源为公司将以自有资金于二级市场购买公司现有股份或本公司回购的库存股份，奖励股份的归属期为12个月后归属25%，剩余75%，每个季度归属6.25%，分12次归属完毕。
+“之前是50%，现在已经达到60%。
 
-据悉，五一视界的10年RSU计划近日获股东会批准。
+我的指示是，一步一步来——70%。
 
-结合五一视界创始人的千亿ESOP限薪计划，该RSU计划推出后，将形成深度绑定公司、股东、创始人与员工利益的长效机制，符合各方整体利益最大化，为公司长期价值增长注入底层动能。
+” 据报道，内塔尼亚胡还证实，以色列军队正在“深化”在黎巴嫩的军事行动。
 
-责任编辑：卢昱君
+此前不久，以色列国防军发言人宣布，以军将对黎巴嫩真主党展开“强力打击”，宰赫拉尼河以南所有区域均被视为“战区”。
 
 ## 相关推荐
 
-- 2026-06-30 09:03 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 09:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 08:56 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 08:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 08:54 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 08:51 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 09:04 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 09:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 09:02 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 08:53 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 09:14 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 08:49 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 08:50 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 09:09 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 08:50 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 08:58 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 08:54 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 08:51 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 08:54 - [巴拉圭门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 09:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 09:06 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 09:07 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 09:12 - [杨紫大银幕成绩单如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 09:00 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - [巴拉圭点球大战淘汰德国进16强](https://www.share.minike.top/Article/details/7117761849.shtml)
-- 2026-06-30 08:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/36581036809.shtml)
-- 2026-06-30 09:10 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/971572030353.shtml)
-- 2026-06-30 08:51 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.kurohicncr.top/Article/details/978766157731.shtml)
-- 2026-06-30 08:48 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.minike.top/Article/details/3186823.shtml)
-- 2026-06-30 09:09 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/63062892.shtml)
-- 2026-06-30 08:50 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/406980.shtml)
-- 2026-06-30 09:06 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/501423263217.shtml)
-- 2026-06-30 09:10 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/359180244.shtml)
-- 2026-06-30 08:45 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/2302702.shtml)
-- 2026-06-30 09:11 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/5624528437.shtml)
-- 2026-06-30 08:53 - [德国巴拉圭进入点球大战](https://www.share.kurohicncr.top/Article/details/04584971.shtml)
-- 2026-06-30 08:47 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/722376.shtml)
-- 2026-06-30 09:03 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/171022367.shtml)
-- 2026-06-30 08:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/87943327826.shtml)
+- 2026-06-30 09:01 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/052659.shtml)
+- 2026-06-30 09:16 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/5998431.shtml)
+- 2026-06-30 09:05 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](https://www.blog.minike.top/Article/details/3192780752.shtml)
+- 2026-06-30 09:10 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/451723652618.shtml)
+- 2026-06-30 08:56 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/010966934.shtml)
+- 2026-06-30 09:12 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.minike.top/Article/details/24705.shtml)
+- 2026-06-30 08:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/9284789629.shtml)
+- 2026-06-30 09:07 - [日本队5进世界杯淘汰赛0胜](https://www.blog.minike.top/Article/details/58495335518.shtml)
+- 2026-06-30 09:06 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/9088480707.shtml)
+- 2026-06-30 09:16 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/563461110.shtml)
+- 2026-06-30 08:55 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/40516809967.shtml)
+- 2026-06-30 09:12 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://www.blog.kurohicncr.top/Article/details/18283.shtml)
+- 2026-06-30 08:57 - [4000美元是黄金新一轮下跌的开始吗](http://www.blog.minike.top/Article/details/705718231.shtml)
+- 2026-06-30 09:10 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/91830745476.shtml)
+- 2026-06-30 09:10 - [教育部披露：高考生篡改7名同学志愿](http://www.blog.minike.top/Article/details/4170923602.shtml)

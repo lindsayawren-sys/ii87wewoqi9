@@ -1,61 +1,58 @@
-# 美伊最新局势一文速览：美方对伊朗最新打击计划曝光
+# 成都一小学嘉年华“AI+阅读”上新：孩子们在书香中追逐科技之光
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-美伊最新局势一文速览：美方对伊朗最新打击计划曝光；伊朗递交最新谈判方案；美军“福特”号航母已离开中东 美伊“不谈不战”僵持难解，局势迷雾重重。 美国总统特朗普致函国会，称美国与伊朗的敌对行动已“结束，同时表示，这场战事可能远未结束；美官员称美军“福特”号航母已离开中东；伊朗向美国转交最新谈判方案，特朗普表示“不满意”；美媒曝美军对伊朗最新打击计划。 一文速览美伊最新局势↓ 美国
+从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？厄尔尼诺将如何影响我国后续天气形势？中国气象局回应“抹黑门”丑闻发酵 “高市泡沫”或将破裂德国汉学家培高德：德国社会如何更好理解当代中国？武契奇品尝的嘉兴原汤粽有多鲜？利润暴跌，日系车巨头集体失速倒计时10天！今年高考有哪些新
 
 ## 正文
 
-美伊最新局势一文速览：美方对伊朗最新打击计划曝光；伊朗递交最新谈判方案；美军“福特”号航母已离开中东 美伊“不谈不战”僵持难解，局势迷雾重重。
+从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？
 
-美国总统特朗普致函国会，称美国与伊朗的敌对行动已“结束，同时表示，这场战事可能远未结束；美官员称美军“福特”号航母已离开中东；伊朗向美国转交最新谈判方案，特朗普表示“不满意”；美媒曝美军对伊朗最新打击计划。
+厄尔尼诺将如何影响我国后续天气形势？
 
-一文速览美伊最新局势↓ 美国 特朗普：与伊朗敌对行动已“结束” 美国总统特朗普1日致函国会，称美国与伊朗的敌对行动已“结束”。
+中国气象局回应“抹黑门”丑闻发酵 “高市泡沫”或将破裂德国汉学家培高德：德国社会如何更好理解当代中国？
 
-这一说法旨在规避美总统未经国会授权动用部队的“60天期限”，且特朗普同时表示，这场战事可能远未结束。
+武契奇品尝的嘉兴原汤粽有多鲜？
 
-特朗普称，尽管对伊朗军事行动取得成功，但伊朗对美国及美军构成的威胁依然显著。
+利润暴跌，日系车巨头集体失速倒计时10天！
 
-因此，国防部继续调整在美军中央司令部责任区相关国家的军事部署态势，以应对伊朗及其地区“代理人”威胁。
+今年高考有哪些新变化？
 
-美国媒体说，特朗普上述说法实际上规避了5月1日这一法律最后期限。
+林志玲辞任董事的台湾“文策院”，是个什么机构？
 
-美媒指出，特朗普发出这封信，正值美伊谈判陷入僵局之际，美国继续封锁伊朗港口，霍尔木兹海峡通航持续受阻。
+国家首次专门发文，解决未落户常住人口急难愁盼英法加澳频繁介入西太平洋局势，“刷存在感”背后安全格局生变？
 
 ## 相关推荐
 
-- 2026-06-30 09:10 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 08:45 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 08:57 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 08:57 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 09:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 09:07 - [为什么小组赛出局会让韩国人破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 08:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 09:02 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 09:01 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 09:04 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 08:54 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 08:44 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 08:44 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 08:51 - [追梦拒绝2770万美元球员选项](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 08:45 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 09:01 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 08:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 08:57 - [点球大战和诺伊尔都救不回德国队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 08:49 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 08:59 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 09:08 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 09:15 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 09:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 09:01 - [吴启华卖肖像权拍AI电影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 09:00 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 08:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 09:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:46 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/493906901.shtml)
-- 2026-06-30 08:43 - [《共患难》](https://www.blog.minike.top/Article/details/29322810260.shtml)
-- 2026-06-30 08:46 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/39570246.shtml)
-- 2026-06-30 08:52 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.minike.top/Article/details/34829.shtml)
-- 2026-06-30 08:54 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://www.blog.kurohicncr.top/Article/details/38704682294.shtml)
-- 2026-06-30 08:55 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/614844.shtml)
-- 2026-06-30 09:05 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/60661724.shtml)
-- 2026-06-30 08:56 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/63319.shtml)
-- 2026-06-30 08:44 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.kurohicncr.top/Article/details/088070.shtml)
-- 2026-06-30 08:58 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/260667933.shtml)
-- 2026-06-30 08:48 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/950651.shtml)
-- 2026-06-30 08:54 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](https://www.blog.kurohicncr.top/Article/details/54382.shtml)
-- 2026-06-30 09:08 - [日本球迷被强行披上巴西国旗](http://www.share.minike.top/Article/details/84199724.shtml)
-- 2026-06-30 08:48 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/13501530191.shtml)
-- 2026-06-30 09:05 - [F1奥地利站赛后复盘](http://www.share.kurohicncr.top/Article/details/32691.shtml)
+- 2026-06-30 08:54 - [巴拉圭点球大战淘汰德国进16强](http://www.blog.kurohicncr.top/Article/details/19201.shtml)
+- 2026-06-30 09:04 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/94829615.shtml)
+- 2026-06-30 09:15 - [日本主帅：未能夺冠深感抱歉](http://www.share.minike.top/Article/details/65353266.shtml)
+- 2026-06-30 09:13 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/6249644192.shtml)
+- 2026-06-30 09:14 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/71766613692.shtml)
+- 2026-06-30 09:10 - [第3集丨“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/969389299523.shtml)
+- 2026-06-30 09:13 - [警方介入洪明甫死亡威胁](https://www.blog.minike.top/Article/details/71377.shtml)
+- 2026-06-30 08:56 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/83279.shtml)
+- 2026-06-30 08:58 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/7185812.shtml)
+- 2026-06-30 09:04 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/704693805.shtml)
+- 2026-06-30 09:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/680274328.shtml)
+- 2026-06-30 09:13 - [日本博主：日本足球真的垃圾](http://www.blog.kurohicncr.top/Article/details/549817274322.shtml)
+- 2026-06-30 08:59 - [iPhone18e曝光](https://www.share.kurohicncr.top/Article/details/25527.shtml)
+- 2026-06-30 09:17 - [【涤墨作战7人870】望：我从地狱杀回来了！](http://www.blog.kurohicncr.top/Article/details/9910746.shtml)
+- 2026-06-30 09:12 - [泰山景区建135公里刀片刺绳隔离网](http://www.share.minike.top/Article/details/44989038.shtml)

@@ -1,57 +1,57 @@
-# 陈茂波：香港加快构建成为全球高增值供应链管理中心
+# 分析：冶炼厂缓冲库存耗尽，铝紧缺局面或进一步加剧
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新社香港5月3日电 香港特区政府财政司司长陈茂波3日发表网志称，香港正加快构建成为全球高增值供应链管理中心。 陈茂波表示，从建设数据驱动、更高效智慧港口，到开创更多创新贸易融资渠道，以至提供法律、会计、ESG(环境、社会与公司治理)顾问等各项高增值专业服务，香港的目标是不断丰富国际贸易中心的内涵，吸引更多海内外企业在香港设立国际或地区总部和财资中心，推动香港经济进一步发展。
+铝的用途无处不在，从福特F-150皮卡到易拉罐等各种产品都会用到它。自中东冲突爆发以来，铝价涨幅不及原油、液化天然气或化肥。 一些行业专家警告称，铝价的上涨还远未结束。 要理解其中的原因，可以看看冶炼厂为确保平稳运营而保留的原材料。许多冶炼厂拥有缓冲库存，可以帮助它们度过长达数周的干扰。 但霍尔木兹海峡的关闭意味著这些库存可能已快耗尽。冶炼厂正通过卡车运进原材料以维持运营，但分
 
 ## 正文
 
-中新社香港5月3日电 香港特区政府财政司司长陈茂波3日发表网志称，香港正加快构建成为全球高增值供应链管理中心。
+铝的用途无处不在，从福特F-150皮卡到易拉罐等各种产品都会用到它。
 
-陈茂波表示，从建设数据驱动、更高效智慧港口，到开创更多创新贸易融资渠道，以至提供法律、会计、ESG(环境、社会与公司治理)顾问等各项高增值专业服务，香港的目标是不断丰富国际贸易中心的内涵，吸引更多海内外企业在香港设立国际或地区总部和财资中心，推动香港经济进一步发展。
+自中东冲突爆发以来，铝价涨幅不及原油、液化天然气或化肥。
 
-他强调，香港作为国际贸易枢纽，新的增长空间与发展机遇不断涌现，并且是“量”与“质”同步提升。
+一些行业专家警告称，铝价的上涨还远未结束。
 
-同时，香港全力推动“AI+”与“金融+”相互促进的发展策略，加速千行百业升级转型，加强香港经济动能与韧性，以更好应对可能出现的不利因素。
+要理解其中的原因，可以看看冶炼厂为确保平稳运营而保留的原材料。
 
-陈茂波称，在国家“十五五”规划下，正全速推动构建现代化产业体系，促进科技创新与产业创新深度融合，推动产业结构向智能化、绿色化和融合化方向提升，并与区域内的产供链实现更深度互补分工。
+许多冶炼厂拥有缓冲库存，可以帮助它们度过长达数周的干扰。
 
-香港在以自身所长服务国家所需的发展过程中，正更好地发挥自身功能。
+但霍尔木兹海峡的关闭意味著这些库存可能已快耗尽。
 
-他提到，私人消费持续改善，出口及固定投资表现继续向好，即将公布的今年一季度香港本地生产总值预估数据，将较去年第四季度经修订的4%增长进一步加快，成为近5年来最强劲的季度增长。
+冶炼厂正通过卡车运进原材料以维持运营，但分析师表示，这无法与通常通过该水道运入的氧化铝和其他产品的数量相提并论。
 
-陈茂波指出，过去一年多，香港本地消费市道复苏趋势明显。
+“我敢肯定，现在大部分库存都已经枯竭，” 伍德麦肯兹（Wood Mackenzie）分析师查尔维．特里维迪（Charvi Trivedi）表示。
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 08:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 08:45 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 08:43 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 09:07 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 08:53 - [日本主帅赛后回应淘汰出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-30 08:42 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 09:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 08:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 08:56 - [莫兰特转投开拓者效力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 08:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 09:16 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 08:56 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 09:08 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 08:49 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 09:10 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 08:53 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 09:00 - [锐评：网红不能困在无底线逐利里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 08:51 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 09:10 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 09:08 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 08:51 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/97401.shtml)
-- 2026-06-30 08:47 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/56061.shtml)
-- 2026-06-30 08:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/3163223265.shtml)
-- 2026-06-30 09:07 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/80239366323.shtml)
-- 2026-06-30 09:04 - [日本五次世界杯淘汰赛全败](https://www.blog.kurohicncr.top/Article/details/46459.shtml)
-- 2026-06-30 09:00 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/799893.shtml)
-- 2026-06-30 08:51 - [郑钦文 四年一轮游](http://www.share.minike.top/Article/details/53282734766.shtml)
-- 2026-06-30 09:08 - [莫兰特转投开拓者效力](https://www.blog.kurohicncr.top/Article/details/560159952979.shtml)
-- 2026-06-30 09:09 - [郑钦文温网首轮出局](https://www.share.kurohicncr.top/Article/details/247302917.shtml)
-- 2026-06-30 08:46 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/6249905.shtml)
-- 2026-06-30 08:43 - [武磊：巴西队赢的并不轻松](http://www.blog.kurohicncr.top/Article/details/38447678600.shtml)
-- 2026-06-30 08:54 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/7927147433.shtml)
-- 2026-06-30 09:02 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/109905.shtml)
-- 2026-06-30 08:49 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://www.blog.minike.top/Article/details/99599450.shtml)
-- 2026-06-30 09:05 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/14354.shtml)
+- 2026-06-30 08:54 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/080632057648.shtml)
+- 2026-06-30 08:57 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://www.blog.minike.top/Article/details/844325979.shtml)
+- 2026-06-30 09:07 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/889335.shtml)
+- 2026-06-30 08:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/451477439383.shtml)
+- 2026-06-30 09:08 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/1754455.shtml)
+- 2026-06-30 09:03 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/2437548.shtml)
+- 2026-06-30 09:10 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/33406.shtml)
+- 2026-06-30 09:12 - [世界杯](https://www.blog.minike.top/Article/details/0348277.shtml)
+- 2026-06-30 08:48 - [吴启华卖肖像权拍AI电影](http://www.share.kurohicncr.top/Article/details/80491295951.shtml)
+- 2026-06-30 09:12 - [IGN评测电影版后室](https://www.blog.minike.top/Article/details/572979720.shtml)
+- 2026-06-30 09:11 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/68077.shtml)
+- 2026-06-30 08:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/525733.shtml)
+- 2026-06-30 09:06 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.minike.top/Article/details/492314.shtml)
+- 2026-06-30 09:09 - [内马尔替补](https://www.share.minike.top/Article/details/92451783658.shtml)
+- 2026-06-30 09:11 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/39537055278.shtml)

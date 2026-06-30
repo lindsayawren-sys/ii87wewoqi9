@@ -1,57 +1,57 @@
-# 伯克希尔CEO阿贝尔首挑大梁，巴菲特开场盛赞：“他是满分人选”
+# 雪佛龙任命新总法律顾问，完成法务领导层交接
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-专题：巴菲特2026年股东大会重磅来袭 伯克希尔哈撒韦CEO格雷格·阿贝尔以致敬沃伦·巴菲特拉开公司年度股东大会序幕。阿贝尔借此展现自身运营能力，而这份能力正是其被选定为伯克希尔传奇掌门人继任者的核心原因。 奥马哈时间周六上午，阿贝尔在奇健康中心场馆发表讲话：“早上好，欢迎来到奥马哈。” 今年1月接替巴菲特上任的阿贝尔，首次以伯克希尔首席执行官的身份登台向股东致辞。在开场讲话中
+能源巨头雪佛龙公司近日宣布，任命Scott A． Keller为总法律顾问，接替在公司服务17年后计划于2027年中退休的R． Hewitt Pate。 根据公司公告，44岁的Keller将于7月1日正式加入雪佛龙，初期向现任首席法务官Pate汇报工作。Keller预计于2027年1月1日正式接任首席法务官一职，届时将直接向董事长兼首席执行官Mike Wirth汇报，全面负责公
 
 ## 正文
 
-专题：巴菲特2026年股东大会重磅来袭 伯克希尔哈撒韦CEO格雷格·阿贝尔以致敬沃伦·巴菲特拉开公司年度股东大会序幕。
+能源巨头雪佛龙公司近日宣布，任命Scott A． Keller为总法律顾问，接替在公司服务17年后计划于2027年中退休的R． Hewitt Pate。
 
-阿贝尔借此展现自身运营能力，而这份能力正是其被选定为伯克希尔传奇掌门人继任者的核心原因。
+根据公司公告，44岁的Keller将于7月1日正式加入雪佛龙，初期向现任首席法务官Pate汇报工作。
 
-奥马哈时间周六上午，阿贝尔在奇健康中心场馆发表讲话：“早上好，欢迎来到奥马哈。
+Keller预计于2027年1月1日正式接任首席法务官一职，届时将直接向董事长兼首席执行官Mike Wirth汇报，全面负责公司全球法律事务。
 
-” 今年1月接替巴菲特上任的阿贝尔，首次以伯克希尔首席执行官的身份登台向股东致辞。
+Keller是一位顶尖的上诉和宪法律师，也是Lehotsky Keller Cohn LLP律师事务所的联合创始人，曾担任德克萨斯州副检察长。
 
-在开场讲话中，他向现场股东承诺，巴菲特打造的企业文化将保持不变，随后详细解读了公司一季度经营业绩。
+他是唯一一位在美国最高法院和德克萨斯州最高法院各自辩论超过十起案件的执业律师。
 
-这位新任首席执行官还透露，伯克希尔旗下部分业务板块，包括伯灵顿北方圣太菲铁路运输公司，已开始应用人工智能工具。
+Keller在处理涉及宪法、行政和商业纠纷的高风险诉讼方面享有盛誉，并为客户提供具有重大商业和公共政策影响的复杂事务咨询。
 
-“我们不会为了人工智能而盲目布局，”阿贝尔表示，“现阶段，我们运用AI技术，主要是为了解决各项业务中的逻辑性问题。
+他拥有普渡大学学士学位和德克萨斯大学法学院法学博士学位。
 
-” 阿贝尔已着手推行多项变革：提拔长期与自己共事的核心副手，并加码布局日本市场投资。
+现任首席法务官Pate于2009年加入雪佛龙，此前曾任美国司法部反垄断司助理检察长。
 
 ## 相关推荐
 
-- 2026-06-30 08:50 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 08:50 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 09:05 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 09:09 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 09:09 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 08:57 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 09:01 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-30 09:07 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 09:07 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 08:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 08:50 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 08:48 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 08:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 08:52 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 08:58 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 08:59 - [人民锐评网红诋毁袁隆平造谣企业家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 09:02 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 09:11 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 08:56 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-30 09:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 08:53 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 09:06 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/1857978.shtml)
-- 2026-06-30 08:58 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/15310886.shtml)
-- 2026-06-30 08:42 - [内马尔安慰日本球员](https://www.share.kurohicncr.top/Article/details/46618.shtml)
-- 2026-06-30 09:08 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/229753.shtml)
-- 2026-06-30 08:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/3149268.shtml)
-- 2026-06-30 09:02 - [天道](https://www.share.minike.top/Article/details/6050055.shtml)
-- 2026-06-30 08:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/995293612493.shtml)
-- 2026-06-30 08:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/0120623570.shtml)
-- 2026-06-30 08:49 - [Melo向柳智敏张元英道歉](https://www.share.minike.top/Article/details/3910713.shtml)
-- 2026-06-30 09:03 - [千香](https://www.share.kurohicncr.top/Article/details/158656.shtml)
-- 2026-06-30 08:50 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](http://www.blog.kurohicncr.top/Article/details/55525.shtml)
-- 2026-06-30 08:46 - [名记：灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/4064782.shtml)
-- 2026-06-30 08:58 - [巴西扳平比分](http://www.blog.minike.top/Article/details/370405767347.shtml)
-- 2026-06-30 08:53 - [全球芯片巨头史诗级扩产](https://www.blog.kurohicncr.top/Article/details/42545126197.shtml)
-- 2026-06-30 09:11 - [斛珠夫人](https://www.blog.minike.top/Article/details/328490415194.shtml)
+- 2026-06-30 09:05 - [杨紫学位证上就是杨紫](http://www.blog.kurohicncr.top/Article/details/3945143234.shtml)
+- 2026-06-30 08:56 - [内马尔中场休息积极鼓励队友](http://www.blog.kurohicncr.top/Article/details/222357319628.shtml)
+- 2026-06-30 09:10 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/668900.shtml)
+- 2026-06-30 09:05 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.minike.top/Article/details/620203363.shtml)
+- 2026-06-30 09:17 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/45519.shtml)
+- 2026-06-30 09:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/249852.shtml)
+- 2026-06-30 09:13 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/946915016730.shtml)
+- 2026-06-30 08:57 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/336379860077.shtml)
+- 2026-06-30 08:49 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.blog.kurohicncr.top/Article/details/31249.shtml)
+- 2026-06-30 08:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/8172052.shtml)
+- 2026-06-30 09:17 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.share.kurohicncr.top/Article/details/728090345.shtml)
+- 2026-06-30 08:51 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/50314.shtml)
+- 2026-06-30 09:01 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/608727893.shtml)
+- 2026-06-30 09:06 - [美股](http://www.share.kurohicncr.top/Article/details/43971837603.shtml)
+- 2026-06-30 09:01 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/674897.shtml)

@@ -1,50 +1,56 @@
-# “苏超”吉祥物“苏嘟嘟”IP落户南京 打造文旅潮玩体验区
+# 美国PCE创3年新高！消费者储蓄见底，美联储下一步会怎么办
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月02日 20:15 来源：中国新闻网 “五一”假期，“苏超”吉祥物“苏嘟嘟”IP授权店落户南京华贸中心，全新体育潮玩打卡点位人气满满，吸引不少市民游客前往体验游玩。据了解，“苏超”吉祥物“苏嘟嘟”以长江江豚为原型设计创作，整体形象新颖活泼，同时融入江苏十三座城市特色文化元素，兼具体育活力气质与本土文化底蕴。 记者在现场看到，整套主题盲盒设计新颖巧妙，磁
+美国个人储蓄率降至2022年以来低位。 美国商务部周四公布数据显示，美联储青睐的月度通胀指标创下三年新高，主因是美伊冲突推高能源价格。数据进一步强化了美联储难以转向宽松的预期，直至本轮通胀压力消退。不过，消费者面临的支出压力可能给经济和物价带来潜在拐点，或触发降息条件。 能源影响持续释放 美国商务部表示，4月个人消费支出（PCE）物价指数环比上涨0.4%，略好于3月的0.7%。
 
 ## 正文
 
-发布时间：2026年05月02日 20:15 来源：中国新闻网 “五一”假期，“苏超”吉祥物“苏嘟嘟”IP授权店落户南京华贸中心，全新体育潮玩打卡点位人气满满，吸引不少市民游客前往体验游玩。
+美国个人储蓄率降至2022年以来低位。
 
-据了解，“苏超”吉祥物“苏嘟嘟”以长江江豚为原型设计创作，整体形象新颖活泼，同时融入江苏十三座城市特色文化元素，兼具体育活力气质与本土文化底蕴。
+美国商务部周四公布数据显示，美联储青睐的月度通胀指标创下三年新高，主因是美伊冲突推高能源价格。
 
-记者在现场看到，整套主题盲盒设计新颖巧妙，磁吸配件玩法灵活多样，观赏性、互动性兼备，是本次“苏超”赛事特色官方文创周边。
+数据进一步强化了美联储难以转向宽松的预期，直至本轮通胀压力消退。
 
-节日期间，主题打卡、人偶互动、趣味足球体验等文体活动同步开展，浓郁的运动氛围，让市民游客沉浸式感受文体融合带来的假日新体验。
+不过，消费者面临的支出压力可能给经济和物价带来潜在拐点，或触发降息条件。
 
-(记者 葛勇 江苏南京报道） 责任编辑：【罗攀】
+能源影响持续释放 美国商务部表示，4月个人消费支出（PCE）物价指数环比上涨0.4%，略好于3月的0.7%。
+
+剔除波动较大的食品和能源品类后，核心PCE物价指数环比上涨0.2%。
+
+从同比来看，PCE物价指数近一年累计上涨3.8%，创下三年新高，核心PCE同比增长3.3%，进一步脱离美联储2%的通胀目标。
+
+能源再度成为推高通胀的主力。
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 08:54 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 08:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 08:54 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-30 08:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 09:01 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 08:54 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-30 08:57 - [网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 08:53 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 08:53 - [萨内 看笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 08:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 09:11 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 09:04 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 09:15 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 08:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 08:53 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 09:07 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 09:10 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 08:57 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 09:09 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:44 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/431422975433.shtml)
-- 2026-06-30 08:46 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/419488301549.shtml)
-- 2026-06-30 08:47 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/616681.shtml)
-- 2026-06-30 09:09 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/378909.shtml)
-- 2026-06-30 09:01 - [世界杯名画巴拉圭钢铁防线](http://www.blog.kurohicncr.top/Article/details/736879081.shtml)
-- 2026-06-30 08:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/9651333.shtml)
-- 2026-06-30 08:54 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/10156.shtml)
-- 2026-06-30 08:57 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/15103919384.shtml)
-- 2026-06-30 09:02 - [感动全网的699分女生想报考清华](https://www.share.kurohicncr.top/Article/details/3102335805.shtml)
-- 2026-06-30 09:07 - [乔家的儿女](https://www.blog.minike.top/Article/details/0296468576.shtml)
-- 2026-06-30 08:42 - [德国巴拉圭 折磨](http://www.share.minike.top/Article/details/268790.shtml)
-- 2026-06-30 08:59 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/0278764453.shtml)
-- 2026-06-30 08:52 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/176243177785.shtml)
-- 2026-06-30 08:49 - [德国爆冷点球大战不敌巴拉圭](https://www.share.minike.top/Article/details/553092.shtml)
-- 2026-06-30 09:05 - [Melo向柳智敏张元英道歉](https://www.share.kurohicncr.top/Article/details/74297476.shtml)
+- 2026-06-30 08:53 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/247644.shtml)
+- 2026-06-30 09:03 - [人民锐评：网红不能困在无底线逐利里](https://www.blog.kurohicncr.top/Article/details/41591393186.shtml)
+- 2026-06-30 09:02 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/375993886712.shtml)
+- 2026-06-30 08:52 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/30446110.shtml)
+- 2026-06-30 08:49 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/06095464.shtml)
+- 2026-06-30 09:00 - [金刚川](http://www.blog.minike.top/Article/details/0691806.shtml)
+- 2026-06-30 09:03 - [日本队5进世界杯淘汰赛0胜](https://www.blog.kurohicncr.top/Article/details/024609828566.shtml)
+- 2026-06-30 09:17 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/1500539.shtml)
+- 2026-06-30 08:51 - [韩国世界杯出局是主帅一个人的锅吗](https://www.blog.kurohicncr.top/Article/details/0573901703.shtml)
+- 2026-06-30 08:48 - [哈弗茨头球破门](http://www.blog.minike.top/Article/details/32724.shtml)
+- 2026-06-30 09:05 - [全球芯片巨头史诗级扩产](http://www.share.kurohicncr.top/Article/details/365451028915.shtml)
+- 2026-06-30 08:48 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/418003.shtml)
+- 2026-06-30 09:06 - [马航370搜寻最新消息](http://www.blog.kurohicncr.top/Article/details/92374185.shtml)
+- 2026-06-30 09:14 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/6315204.shtml)
+- 2026-06-30 08:49 - [iPhone18e曝光](http://www.blog.minike.top/Article/details/4444355.shtml)

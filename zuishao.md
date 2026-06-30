@@ -1,58 +1,58 @@
-# 欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击
+# “耐心资本”持续青睐！红利低波ETF华泰柏瑞（512890）近5个交易日吸金超12亿，规模逼近320亿
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-欧盟经济事务专员Valdis Dombrovskis警告称，伊朗战争正在对欧盟经济产生滞胀效应。 他对记者表示，“能源价格上涨影响到欧洲经济中的每一个主体，无论是企业还是家庭 —— 这正把欧盟经济推向增长更弱、通胀更高的路径。欧洲正面临一场滞胀冲击。” 在布鲁塞尔同台发言的欧元集团主席Kyriakos Pierrakakis则努力对形势表现得泰然自若。 他说，“我们正处于一种滞
+5月29日，市场早盘高开低走，沪指跌0.37%，深成指、创指均跌1%，大消费板块逆势走强。在此背景下，红利低波ETF华泰柏瑞（512890）涨1.66%，报1.163元，换手率1.62%，半日成交额5.21亿元，居同类标的ETF首位。 最新报告显示，红利低波ETFF华泰柏瑞（512890）十大重仓股早盘涨多跌少。具体看，截止午盘，上海银行涨0.67%，南京银行涨1.32%，平安
 
 ## 正文
 
-欧盟经济事务专员Valdis Dombrovskis警告称，伊朗战争正在对欧盟经济产生滞胀效应。
+5月29日，市场早盘高开低走，沪指跌0.37%，深成指、创指均跌1%，大消费板块逆势走强。
 
-他对记者表示，“能源价格上涨影响到欧洲经济中的每一个主体，无论是企业还是家庭 —— 这正把欧盟经济推向增长更弱、通胀更高的路径。
+在此背景下，红利低波ETF华泰柏瑞（512890）涨1.66%，报1.163元，换手率1.62%，半日成交额5.21亿元，居同类标的ETF首位。
 
-欧洲正面临一场滞胀冲击。
+最新报告显示，红利低波ETFF华泰柏瑞（512890）十大重仓股早盘涨多跌少。
 
-” 在布鲁塞尔同台发言的欧元集团主席Kyriakos Pierrakakis则努力对形势表现得泰然自若。
+具体看，截止午盘，上海银行涨0.67%，南京银行涨1.32%，平安银行涨1.59%，沪农商涨1.44%，华润江中涨4.60%，中国海油跌0.46%，中国石油跌0.93%，民生银行涨1.44%，陕鼓动力涨1.87%，成都银行涨0.60%。
 
-他说，“我们正处于一种滞胀趋势中，也就是说，我们正在下调增长预期、上调通胀预期。
+资金流向上，红利低波ETF华泰柏瑞（512890）长期受资金青睐。
 
-但目前还没有进入完全的滞胀状态。
+近5个交易日资金净流入12.2亿元，近10个交易日资金净流入16.6亿元，近60个交易日资金净流入28.5亿元。
 
-” 上述言论是在欧洲央行行长克里斯蒂娜·拉加德上周表态之后发表的。
+截止2026年5月28日，该ETF流通规模318.36亿元。
 
-拉加德当时表示，“滞胀”这个标签属于20世纪70年代，不应用来描述当前欧元区的处境。
+中信证券研报指出，几内亚政府计划6月敲定铝土矿调节政策，铝土矿供给约束风险升温，或将推动铝土矿和氧化铝价格企稳，利于具备较高铝土矿和氧化铝自给率的高韧性铝企。
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 08:49 - [马航370搜寻最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 08:43 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 08:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 08:51 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 08:47 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 09:00 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 08:45 - [世界杯：荷兰vs摩洛哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 08:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-30 09:11 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 08:58 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 09:01 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 08:48 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 09:14 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 09:09 - [勇士续约波尔津吉斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 09:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 09:05 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 09:14 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 09:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 08:59 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 09:15 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 09:01 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 09:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 09:00 - [低智商犯罪三江口团建来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/08542455184.shtml)
-- 2026-06-30 08:49 - [莫兰特转投开拓者效力](https://www.share.kurohicncr.top/Article/details/03686296862.shtml)
-- 2026-06-30 08:58 - [莫兰特转投开拓者效力](https://www.blog.minike.top/Article/details/36002.shtml)
-- 2026-06-30 08:52 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/76258731346.shtml)
-- 2026-06-30 08:53 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/631915896547.shtml)
-- 2026-06-30 08:59 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.minike.top/Article/details/7563853577.shtml)
-- 2026-06-30 08:57 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/97763434.shtml)
-- 2026-06-30 09:08 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/843222532.shtml)
-- 2026-06-30 08:56 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/1865288743.shtml)
-- 2026-06-30 08:58 - [球评巴西绝杀逆转日本](https://www.share.kurohicncr.top/Article/details/340165.shtml)
-- 2026-06-30 08:46 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/3860955.shtml)
-- 2026-06-30 09:08 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](http://www.share.minike.top/Article/details/70108281052.shtml)
-- 2026-06-30 08:52 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/6828996721.shtml)
-- 2026-06-30 08:56 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/6421365380.shtml)
-- 2026-06-30 09:09 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/516211.shtml)
+- 2026-06-30 09:05 - [感动全网的699分女生想报考清华](http://www.blog.kurohicncr.top/Article/details/73394632.shtml)
+- 2026-06-30 09:16 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/0025456819.shtml)
+- 2026-06-30 09:09 - [日本队主帅道歉](https://www.share.minike.top/Article/details/2863270.shtml)
+- 2026-06-30 08:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/16988479.shtml)
+- 2026-06-30 09:16 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/8276848.shtml)
+- 2026-06-30 09:12 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/659310611223.shtml)
+- 2026-06-30 09:11 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/735740948.shtml)
+- 2026-06-30 09:09 - [日本队主帅道歉](http://www.blog.minike.top/Article/details/49062914.shtml)
+- 2026-06-30 09:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/623281.shtml)
+- 2026-06-30 08:54 - [泰山景区建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/942968.shtml)
+- 2026-06-30 09:00 - [黄晓明晒和周杰伦的合照](http://www.blog.kurohicncr.top/Article/details/26016.shtml)
+- 2026-06-30 08:52 - [德国队连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/953183132.shtml)
+- 2026-06-30 09:00 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/14707.shtml)
+- 2026-06-30 09:00 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/78799567827.shtml)
+- 2026-06-30 08:50 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/46524166.shtml)

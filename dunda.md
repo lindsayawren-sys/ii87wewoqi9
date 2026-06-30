@@ -1,56 +1,57 @@
-# 5月医疗保健股多空榜：Sensei及KalVista空头比例居前
+# 三星电子非芯片部门工会将就薪酬协议提起诉讼
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-随着4月结束，市值20亿美元以下的小型医疗保健股空头头寸显著增加，显示市场对这类高波动性股票的看空情绪升温。 根据最新数据，5月初医疗保健板块空头比例最高的个股包括Sensei Biotherapeutics、KalVista Pharmaceuticals和GlucoTrack。这些公司普遍面临临床结果不确定性和资产负债表强度的质疑，成为空头押注的重点目标。信息显示，医疗保健
+据一位律师透露，三星电子（旗下代表消费电子产品员工的少数工会将向韩国法院申请暂停执行一项主要惠及芯片部门员工的薪酬协议。 这家全球最大的存储芯片和电视制造商旗下的另外两个工会，包括其最大的工会，本周投票通过了一项薪酬协议，该协议将为三星存储芯片部门的员工提供巨额奖金。在人工智能蓬勃发展的背景下，该部门的利润飙升。 三星电子工会（SECU）拥有约13000名成员，主要来自公司的智
 
 ## 正文
 
-随着4月结束，市值20亿美元以下的小型医疗保健股空头头寸显著增加，显示市场对这类高波动性股票的看空情绪升温。
+据一位律师透露，三星电子（旗下代表消费电子产品员工的少数工会将向韩国法院申请暂停执行一项主要惠及芯片部门员工的薪酬协议。
 
-根据最新数据，5月初医疗保健板块空头比例最高的个股包括Sensei Biotherapeutics、KalVista Pharmaceuticals和GlucoTrack。
+这家全球最大的存储芯片和电视制造商旗下的另外两个工会，包括其最大的工会，本周投票通过了一项薪酬协议，该协议将为三星存储芯片部门的员工提供巨额奖金。
 
-这些公司普遍面临临床结果不确定性和资产负债表强度的质疑，成为空头押注的重点目标。
+在人工智能蓬勃发展的背景下，该部门的利润飙升。
 
-信息显示，医疗保健精选行业SPDR基金（XLV）年初至今已下跌6.23%，而同期标普500指数上涨5.62%，板块整体表现明显落后。
+三星电子工会（SECU）拥有约13000名成员，主要来自公司的智能手机、电视和家电部门。
 
-在空头比例较低的个股中，Beyond Air和Polaryx Therapeutics名列前茅。
+该工会最初曾申请禁令，要求暂停投票。
 
-分析人士指出，高企的空头头寸反映出投资者对小型生物科技公司研发管线和财务状况的担忧，尤其是在当前市场环境下，缺乏稳定现金流的小型医疗保健公司更容易成为做空目标。
+政府在最后一刻斡旋达成的协议避免了原定的18天罢工，但也意味着芯片部门以外的一些员工的境遇并不乐观。
 
-值得注意的是，表格中提及的Sensei Biotherapeutics（SNSE）和KalVista Pharmaceuticals（KALV）均在搜索报告的5月3日数据中列为高位空头标的。
+“既然投票已经通过，SECU工会将请求法院暂停执行该薪酬协议，”工会律师在周五的法庭听证会上表示。
 
-投资者需警惕这类高做空比例股票可能面临的逼空风险。
+SECU的法律顾问表示，他们将于下周提交修改后的禁令申请文件，并预计法院将在一个月内作出裁决。
 
 ## 相关推荐
 
-- 2026-06-30 09:10 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 09:06 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 08:52 - [杨紫肖战余生请多指教拍立得](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 08:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 08:44 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 08:45 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 08:56 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 08:48 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 08:47 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 08:59 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 08:49 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 09:13 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 08:58 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 08:54 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 08:52 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 09:16 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 09:13 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 09:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 09:12 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 08:51 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 08:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:04 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/714363.shtml)
-- 2026-06-30 08:53 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](http://www.share.minike.top/Article/details/56100112.shtml)
-- 2026-06-30 09:05 - [巴西绝杀](http://www.share.minike.top/Article/details/096189.shtml)
-- 2026-06-30 08:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/191454.shtml)
-- 2026-06-30 09:04 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/9480133144.shtml)
-- 2026-06-30 08:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/53643663.shtml)
-- 2026-06-30 09:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/14139360493.shtml)
-- 2026-06-30 09:04 - [点球大战](http://www.blog.minike.top/Article/details/38498.shtml)
-- 2026-06-30 09:02 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/42782.shtml)
-- 2026-06-30 08:48 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/3202523.shtml)
-- 2026-06-30 08:43 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/6249489.shtml)
-- 2026-06-30 08:49 - [王濛回复黄灿灿](https://www.blog.kurohicncr.top/Article/details/281742596083.shtml)
-- 2026-06-30 09:02 - [千香](https://www.blog.kurohicncr.top/Article/details/5909501.shtml)
-- 2026-06-30 08:55 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/20890549.shtml)
-- 2026-06-30 08:46 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/73138489.shtml)
+- 2026-06-30 08:49 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/304108038.shtml)
+- 2026-06-30 08:52 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/80213920.shtml)
+- 2026-06-30 09:02 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/329122.shtml)
+- 2026-06-30 09:12 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/78539.shtml)
+- 2026-06-30 09:12 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.blog.kurohicncr.top/Article/details/8784185.shtml)
+- 2026-06-30 08:58 - [委内瑞拉地震死亡人数升至1719人](https://www.share.kurohicncr.top/Article/details/14706910.shtml)
+- 2026-06-30 09:09 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/4438743881.shtml)
+- 2026-06-30 09:08 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/97350.shtml)
+- 2026-06-30 08:51 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/244735499541.shtml)
+- 2026-06-30 09:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/18987061.shtml)
+- 2026-06-30 09:02 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/732117.shtml)
+- 2026-06-30 09:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/16939857.shtml)
+- 2026-06-30 09:10 - [高考结束了，你会让孩子在家玩手机吗？](https://www.share.minike.top/Article/details/37366.shtml)
+- 2026-06-30 09:04 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/6711536695.shtml)
+- 2026-06-30 09:10 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/7302220.shtml)

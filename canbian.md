@@ -1,46 +1,56 @@
-# 此行间·总书记深情寄语大学生
+# 中方：保护主义只会损害欧洲消费者利益，削弱欧洲产业竞争力
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月05日 16:19 来源：人民日报客户端 责任编辑：【李骏】
+中新网北京5月29日电 (记者 李京泽)外交部发言人毛宁29日主持例行记者会。 有记者提问：欧盟委员会今天举行一场会议，预计会上将推出一些措施，以保护欧洲工业免受来自中国竞争的冲击。中方对此有何评论？ 毛宁：中欧经贸关系的本质是互利共赢，中方从不刻意追求对欧洲的贸易顺差。保护主义只会损害欧洲消费者的利益，削弱欧洲产业的竞争力。我们希望欧方全面、客观地看待中欧经贸关系，恪守自由贸
 
 ## 正文
 
-发布时间：2026年05月05日 16:19 来源：人民日报客户端 责任编辑：【李骏】
+中新网北京5月29日电 (记者 李京泽)外交部发言人毛宁29日主持例行记者会。
+
+有记者提问：欧盟委员会今天举行一场会议，预计会上将推出一些措施，以保护欧洲工业免受来自中国竞争的冲击。
+
+中方对此有何评论？
+
+毛宁：中欧经贸关系的本质是互利共赢，中方从不刻意追求对欧洲的贸易顺差。
+
+保护主义只会损害欧洲消费者的利益，削弱欧洲产业的竞争力。
+
+我们希望欧方全面、客观地看待中欧经贸关系，恪守自由贸易承诺。
+
+中方也在密切关注有关动向，将采取必要措施维护自身的正当权益。
+
+(完）
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-30 08:43 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 08:50 - [锐评：网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 08:55 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 09:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 08:46 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 09:09 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 08:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-30 08:58 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 08:56 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 08:49 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 09:03 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 08:43 - [女子遭下药退赔偿拟追刑责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 08:47 - [杨紫大银幕成绩单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 08:49 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 08:55 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 08:53 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 08:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 08:59 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 09:00 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 08:59 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 09:10 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 09:15 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 09:06 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - [哈弗茨头球破门](http://www.blog.kurohicncr.top/Article/details/393826345706.shtml)
-- 2026-06-30 08:44 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.blog.minike.top/Article/details/2831941.shtml)
-- 2026-06-30 09:06 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/68929.shtml)
-- 2026-06-30 08:44 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/10352955.shtml)
-- 2026-06-30 08:45 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/34560.shtml)
-- 2026-06-30 09:06 - [一见倾心](http://www.share.kurohicncr.top/Article/details/399299.shtml)
-- 2026-06-30 09:01 - [德国 传控](https://www.blog.minike.top/Article/details/13493986104.shtml)
-- 2026-06-30 08:43 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/5095178345.shtml)
-- 2026-06-30 09:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/14321886.shtml)
-- 2026-06-30 08:54 - [斗破苍穹](https://www.share.minike.top/Article/details/020815199.shtml)
-- 2026-06-30 08:59 - [金鹰奖视后提名预测](https://www.share.minike.top/Article/details/75205450.shtml)
-- 2026-06-30 08:45 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/947319593.shtml)
-- 2026-06-30 08:48 - [美股深夜大反弹 特斯拉飙涨8%](https://www.blog.kurohicncr.top/Article/details/545576.shtml)
-- 2026-06-30 09:08 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/7773529140.shtml)
-- 2026-06-30 08:49 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/51072899.shtml)
+- 2026-06-30 09:17 - [巴西绝杀日本：漫画般结局换了主角](https://www.blog.minike.top/Article/details/250535197.shtml)
+- 2026-06-30 08:57 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/145687717498.shtml)
+- 2026-06-30 09:06 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.share.kurohicncr.top/Article/details/60515225.shtml)
+- 2026-06-30 09:08 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/69081.shtml)
+- 2026-06-30 09:00 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/151666.shtml)
+- 2026-06-30 08:48 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/234256683.shtml)
+- 2026-06-30 08:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/29328196061.shtml)
+- 2026-06-30 08:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/7296416251.shtml)
+- 2026-06-30 09:10 - [杨紫肖战余生请多指教拍立得](https://www.share.kurohicncr.top/Article/details/435151.shtml)
+- 2026-06-30 09:04 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.blog.minike.top/Article/details/3463082037.shtml)
+- 2026-06-30 08:58 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/2868676.shtml)
+- 2026-06-30 09:03 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/2953899507.shtml)
+- 2026-06-30 08:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/619810.shtml)
+- 2026-06-30 09:06 - [乔家的儿女](http://www.share.minike.top/Article/details/208317.shtml)
+- 2026-06-30 08:58 - [斗破苍穹](https://www.blog.minike.top/Article/details/6189566.shtml)

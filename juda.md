@@ -1,58 +1,58 @@
-# 特朗普权衡伊朗和平提议 但并未排除发动更多打击的可能性
+# 在建设科技强国新征程上建功立业（弘扬科学家精神·全国科技工作者日特别报道）
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普表示，他将审议伊朗最新的和平提案，如果伊朗伊斯兰共和国的统治者“行为不端”，他不排除恢复军事打击的可能性。 据两位知情人士的消息，伊朗的建议包括为重新开放霍尔木兹海峡、结束美国海上封锁以及伊朗和黎巴嫩的冲突设定一个月的谈判期限。 据报道，如果达成此类协议，双方将再进行一个月的磋商，力图就伊朗核计划达成协议。伊朗半官方的法尔斯通讯社仅表示，一份包含14点内容
+习近平总书记强调：“国家科技创新力的根本源泉在于人。”近年来，我国科技事业发展取得显著成就，基础前沿研究实现新突破，战略高技术领域迎来新跨越，全民科学素养不断提升，科技创新全面赋能高质量发展。每一项成绩的背后，都凝聚着广大科技工作者的心血和汗水。在5月30日全国科技工作者日即将来临之际，记者采访4名来自不同领域的科技工作者，听他们讲述坚定理想信念、勇攀创新高峰、普及科技知识的故
 
 ## 正文
 
-美国总统唐纳德·特朗普表示，他将审议伊朗最新的和平提案，如果伊朗伊斯兰共和国的统治者“行为不端”，他不排除恢复军事打击的可能性。
+习近平总书记强调：“国家科技创新力的根本源泉在于人。
 
-据两位知情人士的消息，伊朗的建议包括为重新开放霍尔木兹海峡、结束美国海上封锁以及伊朗和黎巴嫩的冲突设定一个月的谈判期限。
+”近年来，我国科技事业发展取得显著成就，基础前沿研究实现新突破，战略高技术领域迎来新跨越，全民科学素养不断提升，科技创新全面赋能高质量发展。
 
-据报道，如果达成此类协议，双方将再进行一个月的磋商，力图就伊朗核计划达成协议。
+每一项成绩的背后，都凝聚着广大科技工作者的心血和汗水。
 
-伊朗半官方的法尔斯通讯社仅表示，一份包含14点内容的计划已通过巴基斯坦调解人送达，该计划提出了“结束这场强加战争的明确路线图”。
+在5月30日全国科技工作者日即将来临之际，记者采访4名来自不同领域的科技工作者，听他们讲述坚定理想信念、勇攀创新高峰、普及科技知识的故事。
 
-特朗普周六对记者表示，他已经听取了关于“协议概念”的简报，但随后不久又对该协议是否能让他满意表示怀疑。
+——编 者 敢于尝试，才有突破的可能 陆 凌 【镜头】 会议室里一时安静下来，有人发问：“一直没有结果，这种材料真的可能存在吗？
 
-“我很快会审阅伊朗刚刚发给我们的计划，但难以想象它会是可以接受的，因为过去47年来，伊朗对人类和世界所做的事，他们至今还没有付出足够大的代价，”他在Truth Social的一篇帖子中说。
+”陆凌站在白板前说：“就算最后证明它不存在，也同样重要。
 
-责任编辑：江学思
+找到‘为什么不可能’，本身就是科学发现。
+
+”停顿片刻，他又看向屏幕上的新数据，“而且，现在几乎没人真正深入研究这个方向，我们未必没有机会。
 
 ## 相关推荐
 
-- 2026-06-30 08:45 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 09:00 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 09:06 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 08:56 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 08:52 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 09:01 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 08:46 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 09:09 - [iPhoneUltra黑色机模](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-30 08:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 09:05 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 09:10 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 08:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 08:43 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 09:06 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 09:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 08:49 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 09:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 09:07 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-30 09:09 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 09:14 - [吴启华卖肖像权拍AI电影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 09:04 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 08:50 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 08:58 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 08:57 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 09:13 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 09:01 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:07 - [美股深夜大反弹 特斯拉飙涨8%](http://www.share.minike.top/Article/details/000103011533.shtml)
-- 2026-06-30 08:42 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/61631346.shtml)
-- 2026-06-30 09:02 - [欧洲民众抢购空调降温](https://www.share.kurohicncr.top/Article/details/1830238743.shtml)
-- 2026-06-30 08:42 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/699360993.shtml)
-- 2026-06-30 09:06 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/150648141.shtml)
-- 2026-06-30 09:03 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/8037380.shtml)
-- 2026-06-30 08:58 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/48515588.shtml)
-- 2026-06-30 09:00 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/968939264692.shtml)
-- 2026-06-30 09:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/605499.shtml)
-- 2026-06-30 09:07 - [美股收盘 热门中概股普涨](http://www.blog.minike.top/Article/details/96646599271.shtml)
-- 2026-06-30 08:42 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.minike.top/Article/details/50827461.shtml)
-- 2026-06-30 08:53 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/6490272.shtml)
-- 2026-06-30 08:50 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/02029503.shtml)
-- 2026-06-30 09:04 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/015343.shtml)
-- 2026-06-30 09:10 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/33798440.shtml)
+- 2026-06-30 09:01 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/2142650.shtml)
+- 2026-06-30 09:11 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.kurohicncr.top/Article/details/078631.shtml)
+- 2026-06-30 09:04 - [刘宇宁高情商化解谁站C位](https://www.blog.minike.top/Article/details/156021.shtml)
+- 2026-06-30 09:02 - [锐评T1战胜KC](http://www.blog.minike.top/Article/details/48340.shtml)
+- 2026-06-30 09:02 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/20640768066.shtml)
+- 2026-06-30 09:08 - [送你一朵小红花](https://www.blog.minike.top/Article/details/127143590528.shtml)
+- 2026-06-30 08:51 - [周生如故](http://www.blog.minike.top/Article/details/1769479715.shtml)
+- 2026-06-30 09:10 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/694048.shtml)
+- 2026-06-30 08:50 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/629401074886.shtml)
+- 2026-06-30 08:50 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/460016948612.shtml)
+- 2026-06-30 09:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/12588.shtml)
+- 2026-06-30 09:11 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/962821.shtml)
+- 2026-06-30 09:11 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/412067.shtml)
+- 2026-06-30 08:51 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/97775507125.shtml)
+- 2026-06-30 09:10 - [韩国世界杯出局是主帅一个人的锅吗](https://www.blog.minike.top/Article/details/38679185.shtml)

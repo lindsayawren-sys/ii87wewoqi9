@@ -1,56 +1,61 @@
-# 布雷特・泰勒旗下Sierra再融资近10亿美元，距上轮募资仅时隔数月
+# 塞尔维亚专家：期待塞中各领域合作迈向新高度
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-核心要点 美国消费者新闻与商业频道（CNBC）获悉，由 OpenAI 董事长布雷特・泰勒联合创立的人工智能初创企业完成新一轮融资，估值突破 150 亿美元，较去年秋季 100 亿美元估值大幅抬升。 Sierra 于周一宣布完成9.5 亿美元 E 轮融资，由老虎环球基金、谷歌风投（GV）领投，标杆资本、红杉资本、Greenoaks 等机构跟投。 这是火爆 AI 赛道又一笔巨额融资
+塞尔维亚总统武契奇对中国进行国事访问期间，两国达成广泛共识并签署多项合作文件。对此，贝尔格莱德大学政治经济学教授德拉加娜·米特罗维奇在接受总台记者采访时表示，塞中双方发表的联合声明为两国关系的未来指明了方向，签署的多项合作文件将有力推动双边各领域合作发展，期待两国全面战略伙伴关系迈向新高度。贝尔格莱德大学政治经济学教授 德拉加娜·米特罗维奇：我认为塞中的两份联合声明为双方在国际
 
 ## 正文
 
-核心要点 美国消费者新闻与商业频道（CNBC）获悉，由 OpenAI 董事长布雷特・泰勒联合创立的人工智能初创企业完成新一轮融资，估值突破 150 亿美元，较去年秋季 100 亿美元估值大幅抬升。
+塞尔维亚总统武契奇对中国进行国事访问期间，两国达成广泛共识并签署多项合作文件。
 
-Sierra 于周一宣布完成9.5 亿美元 E 轮融资，由老虎环球基金、谷歌风投（GV）领投，标杆资本、红杉资本、Greenoaks 等机构跟投。
+对此，贝尔格莱德大学政治经济学教授德拉加娜·米特罗维奇在接受总台记者采访时表示，塞中双方发表的联合声明为两国关系的未来指明了方向，签署的多项合作文件将有力推动双边各领域合作发展，期待两国全面战略伙伴关系迈向新高度。
 
-这是火爆 AI 赛道又一笔巨额融资，也反映出投资者争相押注、挖掘新晋行业龙头的强烈意愿。
+贝尔格莱德大学政治经济学教授 德拉加娜·米特罗维奇：我认为塞中的两份联合声明为双方在国际舞台上开展更高层次的政治合作与协调定下基调，这种新的决心和政策上的协调一致将为两国关系的未来指明方向。
 
-CNBC 获悉，在风投机构持续扎堆布局 AI 赛道、交易热潮不减的背景下，人工智能初创公司 Sierra 新一轮募资规模接近 10 亿美元。
+对于塞中双方签署的多项合作文件，米特罗维奇表示，这将有力推动双边各领域合作发展并为塞尔维亚带来多重红利。
 
-这家总部位于旧金山的企业本轮募资9.5 亿美元，投后估值达158 亿美元，由老虎环球基金与谷歌风投领投，标杆资本、红杉资本、Greenoaks 等原有投资者参与跟投。
+贝尔格莱德大学政治经济学教授 德拉加娜·米特罗维奇：我认为其中一些成果很快就会显现，而另一些则将在未来结出硕果，所有这些成果都极具意义。
 
-Sierra 由 OpenAI 董事长、前 Salesforce 联席首席执行官布雷特・泰勒，与前谷歌高管克莱・巴沃尔三年前联合创办。
+在经济合作方面，我相信与中国的合作，以及此次签署的合作文件将为塞尔维亚经济的再工业化注入新的动力，推动技术升级，引进人工智能，并通过来自中国的投资使塞尔维亚更深入地融入全球生产和供应链。
 
-泰勒曾担任 Facebook 首席技术官，埃隆・马斯克收购推特期间，他出任推特董事长。
+米特罗维奇表示，武契奇总统获颁“友谊勋章”意义非凡，这枚勋章也是中塞深厚情谊与务实合作的美好见证。
 
-两位创始人均相识于谷歌：泰勒主导参与打造谷歌地图，巴沃尔则负责谷歌虚拟现实业务与谷歌实验室项目。
+贝尔格莱德大学政治经济学教授 德拉加娜·米特罗维奇：那是一个非常美好、意义非凡的荣耀时刻，这是对他为推动塞中双边合作所付出的辛勤努力与奉献的认可。
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 08:59 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 08:42 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 08:48 - [追梦拒绝2770万美元球员选项](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 09:06 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 08:52 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 08:57 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 09:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 08:42 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-30 09:08 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 09:00 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 08:53 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 09:14 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 09:12 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 09:00 - [德国淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 09:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 09:08 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 09:06 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 09:14 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 09:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 09:13 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 09:17 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 09:07 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 09:10 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 08:49 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:06 - [明星大侦探第一季](http://www.share.minike.top/Article/details/7754499.shtml)
-- 2026-06-30 09:05 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/98729823.shtml)
-- 2026-06-30 09:07 - [Melo向柳智敏张元英道歉](http://www.share.kurohicncr.top/Article/details/382969349509.shtml)
-- 2026-06-30 08:44 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/09068117.shtml)
-- 2026-06-30 08:56 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/05352.shtml)
-- 2026-06-30 08:58 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/512203.shtml)
-- 2026-06-30 08:50 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/45224425185.shtml)
-- 2026-06-30 08:52 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](http://www.blog.minike.top/Article/details/46142.shtml)
-- 2026-06-30 08:59 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/954012.shtml)
-- 2026-06-30 09:00 - [日耳曼拖拉机](https://www.share.minike.top/Article/details/110503904.shtml)
-- 2026-06-30 08:56 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/245371342.shtml)
-- 2026-06-30 09:01 - [陈小春人老了干什么也不心酸](http://www.share.minike.top/Article/details/1086428367.shtml)
-- 2026-06-30 09:09 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/4400606.shtml)
-- 2026-06-30 08:46 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/16725651736.shtml)
-- 2026-06-30 08:54 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/405251800300.shtml)
+- 2026-06-30 09:14 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/0949847033.shtml)
+- 2026-06-30 08:53 - [锐评T1战胜KC](http://www.share.minike.top/Article/details/3688402306.shtml)
+- 2026-06-30 08:58 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/366297709.shtml)
+- 2026-06-30 08:49 - [荷兰vs摩洛哥](https://www.share.kurohicncr.top/Article/details/56081795.shtml)
+- 2026-06-30 08:49 - [张雪的一句“是我们”引发岛内热议](https://www.blog.minike.top/Article/details/425957228.shtml)
+- 2026-06-30 08:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/1709701.shtml)
+- 2026-06-30 09:13 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/149336573.shtml)
+- 2026-06-30 09:17 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://www.blog.kurohicncr.top/Article/details/02463142351.shtml)
+- 2026-06-30 09:09 - [马航370搜寻最新消息](https://www.share.minike.top/Article/details/04258.shtml)
+- 2026-06-30 08:57 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/89668703087.shtml)
+- 2026-06-30 09:18 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/798869385229.shtml)
+- 2026-06-30 09:15 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/427882647.shtml)
+- 2026-06-30 09:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/820916.shtml)
+- 2026-06-30 09:04 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/906810.shtml)
+- 2026-06-30 08:57 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.minike.top/Article/details/28935.shtml)

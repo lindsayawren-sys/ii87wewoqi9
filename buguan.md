@@ -1,58 +1,61 @@
-# 伊利张轶鹏：董事长提出要求“要以给家人做产品的初心和情感坚守品质”
+# 少年志｜国旗耀山河
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。 伊利集团副总裁张轶鹏介绍，伊利至今已走过三十余年上市历程。三十年来，伊利向广大投资人交出了一份令人满意的答卷，市值增长 400 多倍，营收增长 500 多亿元。 他谈到，食品品质是企业发展的基础与根基，伊利对品质坚守标准十分严苛。公
+晨光破晓，山河壮丽。天安门广场上，五星红旗每天迎着朝阳冉冉升起，照亮华夏大地。这让亿万人民瞩目的升旗仪式背后，是国旗护卫队日复一日的默默坚守。 酷暑严寒不改初心，风霜雨雪从未停歇。步伐整齐划一，动作精准有力；每一次迈步都彰显忠诚，每一次挥手都致敬祖国。他们用汗水守护国旗尊严，以青春捍卫国家荣光。五星红旗光耀万里河山，凝聚亿万中华儿女的赤子之心，引领新时代少年胸怀梦想、勇担使命，
 
 ## 正文
 
-专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。
+晨光破晓，山河壮丽。
 
-伊利集团副总裁张轶鹏介绍，伊利至今已走过三十余年上市历程。
+天安门广场上，五星红旗每天迎着朝阳冉冉升起，照亮华夏大地。
 
-三十年来，伊利向广大投资人交出了一份令人满意的答卷，市值增长 400 多倍，营收增长 500 多亿元。
+这让亿万人民瞩目的升旗仪式背后，是国旗护卫队日复一日的默默坚守。
 
-他谈到，食品品质是企业发展的基础与根基，伊利对品质坚守标准十分严苛。
+酷暑严寒不改初心，风霜雨雪从未停歇。
 
-公司战略从以往的质量领先战略，升级为如今的品质领先战略。
+步伐整齐划一，动作精准有力；每一次迈步都彰显忠诚，每一次挥手都致敬祖国。
 
-前不久伊利内部正式颁布《品质管理大纲》，明确要求全体员工坚守品质底线，人人都做品质建设的守护者。
+他们用汗水守护国旗尊严，以青春捍卫国家荣光。
 
-“在这里分享一句伊利董事长潘刚常在内部会议提出的要求：我们要以给家人做产品的初心和情感坚守品质。
+五星红旗光耀万里河山，凝聚亿万中华儿女的赤子之心，引领新时代少年胸怀梦想、勇担使命，在民族复兴征程上挺膺担当。
 
-因为伊利产品是我们家人、亲友日常都会食用的，我们始终怀揣这份初心恪守品质标准。
+总监制｜李辉 过彤 骆红秉 监制｜张巧云 魏驱虎 唐晓艳 总制片人｜雷智颖 兰军 制片人｜杨乔 董迎晨 统筹｜王彬 丁煜 吴秋爽 现场导演｜朴亨楠 沈静静 校对｜毛长志 出品｜全国少工委办公室 中央广播电视总台央视网 鸣谢｜中央军委政治工作部组织局 中国人民解放军仪仗司礼大队 北京市少工委 海淀区少工委 北京市海淀区翠微小学
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - [德国进球被吹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-30 08:59 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 08:44 - [警方介入洪明甫死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 08:57 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 09:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 08:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 09:10 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 09:09 - [iPhone18e曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 09:10 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 08:51 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 09:08 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 08:52 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 09:03 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 08:59 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 09:12 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 09:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 08:48 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 09:00 - [iPhone18e曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 09:15 - [日本球员说被绝杀非常不甘心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 08:58 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 09:15 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 09:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 09:08 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-30 09:17 - [第3集丨“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 08:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 09:01 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 09:02 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:07 - [巴西绝杀](https://www.share.minike.top/Article/details/054922155281.shtml)
-- 2026-06-30 09:05 - [收到补税提醒尽快办理 明起有滞纳金](http://www.blog.minike.top/Article/details/97866197206.shtml)
-- 2026-06-30 09:02 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/356720513.shtml)
-- 2026-06-30 09:07 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/70311.shtml)
-- 2026-06-30 09:03 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/3766107.shtml)
-- 2026-06-30 09:05 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/186410514752.shtml)
-- 2026-06-30 09:08 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/226677.shtml)
-- 2026-06-30 09:08 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/014503944.shtml)
-- 2026-06-30 09:04 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/408741499.shtml)
-- 2026-06-30 09:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/1563219206.shtml)
-- 2026-06-30 08:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/37807018.shtml)
-- 2026-06-30 09:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/614446265.shtml)
-- 2026-06-30 09:03 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/269248790.shtml)
-- 2026-06-30 09:02 - [曝iPhone18Pro机密文件现身暗网](http://www.share.minike.top/Article/details/81307905313.shtml)
-- 2026-06-30 09:01 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/157950415208.shtml)
+- 2026-06-30 08:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/8564030.shtml)
+- 2026-06-30 08:52 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/620846.shtml)
+- 2026-06-30 09:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/11470484675.shtml)
+- 2026-06-30 08:50 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/837508405.shtml)
+- 2026-06-30 09:11 - [齐思钧回复张月](https://www.share.minike.top/Article/details/64450.shtml)
+- 2026-06-30 08:48 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/76180601.shtml)
+- 2026-06-30 09:13 - [第一次对自信的力量有了实感](http://www.share.minike.top/Article/details/800431103110.shtml)
+- 2026-06-30 08:59 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/24103479977.shtml)
+- 2026-06-30 08:53 - [请回答王牌2019](https://www.blog.minike.top/Article/details/7173371.shtml)
+- 2026-06-30 09:13 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/2612033.shtml)
+- 2026-06-30 08:51 - [斛珠夫人](https://www.blog.minike.top/Article/details/0906994.shtml)
+- 2026-06-30 09:06 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/38404657428.shtml)
+- 2026-06-30 08:50 - [名记：灰熊将莫兰特交易至开拓者](http://www.blog.minike.top/Article/details/90653531.shtml)
+- 2026-06-30 09:01 - [吴启华卖肖像权拍AI电影](http://www.share.minike.top/Article/details/8963002.shtml)
+- 2026-06-30 09:03 - [逃狱兄弟](http://www.share.minike.top/Article/details/29107337.shtml)

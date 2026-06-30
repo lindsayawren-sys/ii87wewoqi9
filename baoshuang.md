@@ -1,60 +1,60 @@
-# 伊朗媒体披露伊方最新谈判方案：14点提议 聚焦终战
+# 习近平：前瞻布局和发展未来产业
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-新华社德黑兰5月2日电 伊朗媒体2日披露伊方日前经由斡旋方巴基斯坦向美国转交的最新谈判方案内容，总计14点提议，聚焦“结束战争”。报道说，伊朗正在等待美方正式回应。 据塔斯尼姆通讯社报道，美方先前提出一项包含9点提议的方案，作出回应，伊方在最新方案中提出14点提议。美国在其提议中要求停火两个月，但伊朗强调，各项议题应在30天内确定结果，并且重点应放在“结束战争”、而非延长停火。
+前瞻布局和发展未来产业※ 习近平 今天进行二十届中央政治局第二十四次集体学习，内容是前瞻布局和发展未来产业，主要是总结近年来我国未来产业发展情况，分析世界未来产业发展趋势，对培育发展未来产业进行思考。 当前，新一轮科技革命和产业变革加速演进，前沿技术不断涌现，引领和支撑未来产业快速崛起。培育发展未来产业，对于我们抢占科技和产业制高点、牢牢把握发展主动权，对于发展新质生产力、建设
 
 ## 正文
 
-新华社德黑兰5月2日电 伊朗媒体2日披露伊方日前经由斡旋方巴基斯坦向美国转交的最新谈判方案内容，总计14点提议，聚焦“结束战争”。
+前瞻布局和发展未来产业※ 习近平 今天进行二十届中央政治局第二十四次集体学习，内容是前瞻布局和发展未来产业，主要是总结近年来我国未来产业发展情况，分析世界未来产业发展趋势，对培育发展未来产业进行思考。
 
-报道说，伊朗正在等待美方正式回应。
+当前，新一轮科技革命和产业变革加速演进，前沿技术不断涌现，引领和支撑未来产业快速崛起。
 
-据塔斯尼姆通讯社报道，美方先前提出一项包含9点提议的方案，作出回应，伊方在最新方案中提出14点提议。
+培育发展未来产业，对于我们抢占科技和产业制高点、牢牢把握发展主动权，对于发展新质生产力、建设现代化产业体系，对于提高人民生活品质、促进人的全面发展和社会全面进步，都具有重要意义。
 
-美国在其提议中要求停火两个月，但伊朗强调，各项议题应在30天内确定结果，并且重点应放在“结束战争”、而非延长停火。
+近年来，党中央高度重视未来产业发展，加强战略谋划，强化政策支持，推动未来产业发展呈现良好势头，整体竞争力跻身全球第一梯队，越来越多领域实现“并跑”乃至“领跑”。
 
-报道说，伊方提议的主要内容包括确保不再发生军事侵略、美军从伊朗周边地区撤出、解除海上封锁、解冻伊朗被冻结资产、支付赔偿、取消制裁、在所有战线(包括黎巴嫩)实现和平、建立霍尔木兹海峡新的管理机制等。
+同时要看到，我们的短板弱项也不少。
 
-据法尔斯通讯社报道，伊朗通过这一方案划出坚定的“红线”，“就结束这场强加的战争提出明确的路线图”。
+新征程上，我们要站在推进强国建设、民族复兴伟业的战略高度，立足客观条件，发挥比较优势，坚持稳中求进、梯度培育，推动我国未来产业发展不断取得新突破。
 
-伊朗4月30日经由巴基斯坦向美国转交最新谈判方案。
+下面，我强调几点。
 
-美国总统特朗普1日在白宫对媒体说，他对伊朗提出的最新谈判方案“不满意”。
+第一，加强统筹谋划。
 
 ## 相关推荐
 
-- 2026-06-30 09:04 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 09:04 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 08:43 - [iPhone18e曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 09:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 08:59 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 09:01 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 09:02 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 08:53 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-30 08:57 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 09:09 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 08:48 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 08:46 - [日本主帅：未能夺冠深感抱歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 09:07 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 09:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 09:15 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 08:55 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-30 09:09 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 09:14 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 08:52 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 08:56 - [人民锐评网红诋毁袁隆平造谣企业家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 09:12 - [“荒唐”背后的韩国足球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 08:53 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 09:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 09:11 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 09:01 - [世界杯名画巴拉圭钢铁防线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 09:00 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 08:57 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 09:01 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:06 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.share.kurohicncr.top/Article/details/919347088989.shtml)
-- 2026-06-30 08:48 - [球评巴西绝杀逆转日本](https://www.blog.minike.top/Article/details/39480.shtml)
-- 2026-06-30 08:43 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/665921916373.shtml)
-- 2026-06-30 08:48 - [日本进球](https://www.blog.kurohicncr.top/Article/details/60606.shtml)
-- 2026-06-30 08:43 - [恋与深空](https://www.share.minike.top/Article/details/856558438.shtml)
-- 2026-06-30 08:58 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/16958268823.shtml)
-- 2026-06-30 08:58 - [天道](http://www.share.minike.top/Article/details/917045957.shtml)
-- 2026-06-30 09:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/98090125.shtml)
-- 2026-06-30 09:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/48005145.shtml)
-- 2026-06-30 08:59 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/46220403113.shtml)
-- 2026-06-30 08:42 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/789743559825.shtml)
-- 2026-06-30 08:47 - [网友写差评被店家“挂”门口避雷](https://www.share.minike.top/Article/details/11309.shtml)
-- 2026-06-30 08:45 - [齐思钧回复张月](http://www.blog.kurohicncr.top/Article/details/344116383.shtml)
-- 2026-06-30 08:49 - [追梦拒绝2770万美元球员选项](http://www.share.kurohicncr.top/Article/details/73227.shtml)
-- 2026-06-30 09:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/80553608795.shtml)
+- 2026-06-30 09:10 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/7347344.shtml)
+- 2026-06-30 08:58 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/31522.shtml)
+- 2026-06-30 08:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/2191974392.shtml)
+- 2026-06-30 09:03 - [毒液2](https://www.blog.kurohicncr.top/Article/details/9676270.shtml)
+- 2026-06-30 08:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/97407470781.shtml)
+- 2026-06-30 09:09 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://www.share.kurohicncr.top/Article/details/5456790410.shtml)
+- 2026-06-30 08:54 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/64484062.shtml)
+- 2026-06-30 09:07 - [德国身价是巴拉圭6倍](http://www.blog.kurohicncr.top/Article/details/07530640391.shtml)
+- 2026-06-30 09:11 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/874609353.shtml)
+- 2026-06-30 09:11 - [杨紫肖战余生请多指教拍立得](https://www.share.kurohicncr.top/Article/details/1414029.shtml)
+- 2026-06-30 08:58 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/520908325.shtml)
+- 2026-06-30 08:57 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/442785615.shtml)
+- 2026-06-30 08:52 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/914635433447.shtml)
+- 2026-06-30 09:14 - [点球大战 残酷](https://www.share.minike.top/Article/details/852015.shtml)
+- 2026-06-30 08:56 - [为什么小组赛出局会让韩国人破防](http://www.share.kurohicncr.top/Article/details/288335268521.shtml)

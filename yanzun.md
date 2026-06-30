@@ -1,49 +1,59 @@
-# 伯克希尔股东给与新CEO积极评价
+# 5月份中国制造业采购经理指数为50.0%
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-伯克希尔·哈撒韦股东在其首次作为CEO出席的年会上给予了格雷格·阿贝尔积极评价，凸显了他对运营的关注、公用事业领域的AI机遇以及对股票回购的谨慎立场。责任编辑：张俊 SF065
+中新网5月31日电 据国家统计局网站消息，国家统计局31日发布2026年5月中国采购经理指数运行情况。 一、中国制造业采购经理指数运行情况 5月份，制造业采购经理指数(PMI)为50.0%，比上月下降0.3个百分点，位于临界点。 从企业规模看，大型企业PMI为51.1%，比上月上升0.9个百分点，高于临界点；中、小型企业PMI分别为48.6%和48.5%，比上月下降1.9个和1
 
 ## 正文
 
-伯克希尔·哈撒韦股东在其首次作为CEO出席的年会上给予了格雷格·阿贝尔积极评价，凸显了他对运营的关注、公用事业领域的AI机遇以及对股票回购的谨慎立场。
+中新网5月31日电 据国家统计局网站消息，国家统计局31日发布2026年5月中国采购经理指数运行情况。
 
-责任编辑：张俊 SF065
+一、中国制造业采购经理指数运行情况 5月份，制造业采购经理指数(PMI)为50.0%，比上月下降0.3个百分点，位于临界点。
+
+从企业规模看，大型企业PMI为51.1%，比上月上升0.9个百分点，高于临界点；中、小型企业PMI分别为48.6%和48.5%，比上月下降1.9个和1.6个百分点，均低于临界点。
+
+从分类指数看，构成制造业PMI的5个分类指数中，生产指数高于临界点，新订单指数、原材料库存指数、从业人员指数和供应商配送时间指数均低于临界点。
+
+生产指数为51.2%，比上月下降0.3个百分点，仍高于临界点，表明制造业生产活动保持扩张。
+
+新订单指数为49.9%，比上月下降0.7个百分点，表明制造业市场需求景气水平有所回落。
+
+原材料库存指数为48.6%，比上月下降0.7个百分点，表明制造业主要原材料库存量下降。
+
+从业人员指数为48.6%，比上月下降0.2个百分点，表明制造业企业用工景气水平有所回落。
 
 ## 相关推荐
 
-- 2026-06-30 09:07 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 09:04 - [教育部披露：高考生篡改7名同学志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 09:02 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 08:49 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 08:47 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 09:02 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 09:09 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 08:50 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 09:05 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 08:59 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 08:54 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 08:44 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 08:52 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 08:47 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 08:59 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 08:51 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 08:52 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 08:52 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 09:01 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 09:13 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 08:53 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 08:54 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 09:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 09:09 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 08:51 - [巴拉圭门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 09:12 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 08:48 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 09:00 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:54 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/649224032637.shtml)
-- 2026-06-30 09:07 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/89488048415.shtml)
-- 2026-06-30 09:01 - [穆祉丞回应获年度人气艺人](https://www.blog.minike.top/Article/details/3057786936.shtml)
-- 2026-06-30 08:59 - [巴西vs日本](https://www.blog.minike.top/Article/details/72551.shtml)
-- 2026-06-30 09:00 - [点球大战和诺伊尔都救不回德国队](https://www.share.kurohicncr.top/Article/details/0490218.shtml)
-- 2026-06-30 08:46 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/71171060208.shtml)
-- 2026-06-30 08:51 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.kurohicncr.top/Article/details/310853.shtml)
-- 2026-06-30 08:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/34563.shtml)
-- 2026-06-30 08:58 - [IGN评测电影版后室](http://www.blog.kurohicncr.top/Article/details/1369240.shtml)
-- 2026-06-30 08:46 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.minike.top/Article/details/750074113.shtml)
-- 2026-06-30 09:02 - [点球大战](https://www.blog.minike.top/Article/details/575972793325.shtml)
-- 2026-06-30 08:55 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/49293859.shtml)
-- 2026-06-30 08:56 - [为什么纣王似乎对周文王的扩张完全无动于衷？](http://www.blog.kurohicncr.top/Article/details/584399345.shtml)
-- 2026-06-30 08:47 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/36636152828.shtml)
-- 2026-06-30 09:09 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/23718825562.shtml)
+- 2026-06-30 08:53 - [啊啊啊](https://www.blog.minike.top/Article/details/88469.shtml)
+- 2026-06-30 08:50 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/69903.shtml)
+- 2026-06-30 09:13 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/8224214718.shtml)
+- 2026-06-30 09:07 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/7036327458.shtml)
+- 2026-06-30 09:15 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/521360.shtml)
+- 2026-06-30 09:03 - [马耳他著名拱门坍塌致一中国男子身亡](http://www.share.kurohicncr.top/Article/details/262359895.shtml)
+- 2026-06-30 08:50 - [泰山建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/7314501717.shtml)
+- 2026-06-30 09:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/98493634.shtml)
+- 2026-06-30 09:06 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/2999225575.shtml)
+- 2026-06-30 09:16 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/74592163047.shtml)
+- 2026-06-30 09:08 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/6964831546.shtml)
+- 2026-06-30 09:11 - [莫兰特转投开拓者效力](http://www.blog.minike.top/Article/details/450402.shtml)
+- 2026-06-30 09:01 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/03573.shtml)
+- 2026-06-30 09:05 - [荷兰VS摩洛哥](http://www.share.minike.top/Article/details/184822439719.shtml)
+- 2026-06-30 08:52 - [为什么小组赛出局会让韩国人破防](https://www.share.kurohicncr.top/Article/details/15444359870.shtml)

@@ -1,61 +1,61 @@
-# 聚焦2026巴菲特股东大会，深入解读股东大会的核心信息
+# （经济观察）中国南方省份电网提前“应烤”
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-专题：巴菲特2026年股东大会重磅来袭 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：郭施亮 2025年12月31日，著名投资人巴菲特正式退休，伯克希尔哈撒韦正式进入格雷格·阿贝尔时代。 从2026年1月1日以来，在格雷格·阿贝尔全面掌管伯克希尔哈撒韦的影响下，伯克希尔哈撒韦呈现出一些微妙的变化。 例如，在格雷格·阿贝尔全面掌管伯克希尔哈撒韦之后
+中新社北京5月29日电 (王梦瑶 黄勇华)一边是夏日高温，一边是新业态用电需求大增，中国南方省份提前应对迎峰度夏“烤验”。 据南方电网消息，5月25日至28日，南方电网电力负荷连续四天创出新高，最高达2.75亿千瓦。5月28日，广东电网创年内第二次新高，达1.7亿千瓦，广州、深圳用电负荷今年首创新高。27日，广西电网电力负荷年内第五次创新高。 今年以来，南方电网全网及广东、广西
 
 ## 正文
 
-专题：巴菲特2026年股东大会重磅来袭 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京5月29日电 (王梦瑶 黄勇华)一边是夏日高温，一边是新业态用电需求大增，中国南方省份提前应对迎峰度夏“烤验”。
 
-来源：郭施亮 2025年12月31日，著名投资人巴菲特正式退休，伯克希尔哈撒韦正式进入格雷格·阿贝尔时代。
+据南方电网消息，5月25日至28日，南方电网电力负荷连续四天创出新高，最高达2.75亿千瓦。
 
-从2026年1月1日以来，在格雷格·阿贝尔全面掌管伯克希尔哈撒韦的影响下，伯克希尔哈撒韦呈现出一些微妙的变化。
+5月28日，广东电网创年内第二次新高，达1.7亿千瓦，广州、深圳用电负荷今年首创新高。
 
-例如，在格雷格·阿贝尔全面掌管伯克希尔哈撒韦之后，伯克希尔哈撒韦的现金储备不降反升。
+27日，广西电网电力负荷年内第五次创新高。
 
-截至2025年12月31日，伯克希尔哈撒韦的现金及现金等价物为3733亿美元。
+今年以来，南方电网全网及广东、广西、云南、贵州、海南五省(区)电力负荷20余次创新高，打破近年来年度峰值集中在六七月的季节性规律。
 
-在伯克希尔哈撒韦的股票投资总公允价值中，大概有65%集中在五家公司。
+中国南方电力调度控制中心运营策划处经理李智勇分析称，今年华南高温天气前置，提前激活全域制冷负荷，叠加区域工业生产稳产满产、民生消费持续旺盛，多重因素共振推动电力负荷提前突破极值。
 
-在2026年的一季度财报中，伯克希尔哈撒韦的现金储备攀升至3970亿美元。
+以深圳为例，高新技术产业用电需求进一步拉高了整体负荷。
 
-换言之，在格雷格·阿贝尔全面掌管伯克希尔哈撒韦之后，公司的现金储备不仅没有出现下降，而且还较去年四季度，攀升了237亿美元。
+今年5月1日至27日期间，深圳全市信息传输、软件和信息技术服务业用电量达3.23亿千瓦时，同比增长26.71%。
 
 ## 相关推荐
 
-- 2026-06-30 08:52 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 09:11 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 08:50 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 09:09 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 09:07 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-30 08:54 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 08:43 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 08:56 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 09:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-30 09:01 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 09:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 09:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 09:06 - [德国巴拉圭进入点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 08:47 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 09:01 - [韩国道歉完日本道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 08:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 09:08 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 09:01 - [德国巴拉圭 折磨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 08:56 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 09:12 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 08:54 - [iPhoneUltra黑色机模](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 09:04 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 08:53 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 09:14 - [美股收盘 热门中概股普涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 09:10 - [田中碧失误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 09:09 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 09:13 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 09:15 - [德国队回应爆冷淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 08:57 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 09:14 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/685369616773.shtml)
-- 2026-06-30 08:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/62940170921.shtml)
-- 2026-06-30 08:55 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/385722.shtml)
-- 2026-06-30 08:58 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/8224436.shtml)
-- 2026-06-30 08:43 - [iPhone18e曝光](http://www.blog.minike.top/Article/details/546089100325.shtml)
-- 2026-06-30 09:10 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/626725.shtml)
-- 2026-06-30 09:09 - [存储芯片龙头提示风险](http://www.share.minike.top/Article/details/4675996411.shtml)
-- 2026-06-30 09:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/64792.shtml)
-- 2026-06-30 09:07 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/1823603060.shtml)
-- 2026-06-30 09:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/7292051.shtml)
-- 2026-06-30 09:00 - [德国罚丢3粒点球](http://www.blog.kurohicncr.top/Article/details/818956760707.shtml)
-- 2026-06-30 09:03 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/7155786325.shtml)
-- 2026-06-30 08:54 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/25976196387.shtml)
-- 2026-06-30 09:08 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/52579183198.shtml)
-- 2026-06-30 08:50 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.minike.top/Article/details/853848005902.shtml)
+- 2026-06-30 09:07 - [一生一世](http://www.share.kurohicncr.top/Article/details/99543519117.shtml)
+- 2026-06-30 09:13 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/5457335.shtml)
+- 2026-06-30 09:16 - [巴拉圭门将](http://www.blog.kurohicncr.top/Article/details/6525136.shtml)
+- 2026-06-30 09:12 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/7618286206.shtml)
+- 2026-06-30 09:16 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/851765850158.shtml)
+- 2026-06-30 08:59 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/21117551346.shtml)
+- 2026-06-30 09:14 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/4942521.shtml)
+- 2026-06-30 09:14 - [德国身价是巴拉圭6倍](http://www.share.minike.top/Article/details/2010954500.shtml)
+- 2026-06-30 09:12 - [德国进球被吹](https://www.blog.minike.top/Article/details/22760760339.shtml)
+- 2026-06-30 09:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/18098771636.shtml)
+- 2026-06-30 09:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/28251.shtml)
+- 2026-06-30 09:12 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/04078612070.shtml)
+- 2026-06-30 08:48 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/796038897341.shtml)
+- 2026-06-30 09:17 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/221341.shtml)
+- 2026-06-30 09:10 - [现在叛逆期的孩子最怕的是什么？](https://www.share.kurohicncr.top/Article/details/73343041.shtml)

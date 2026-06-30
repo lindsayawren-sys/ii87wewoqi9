@@ -1,57 +1,57 @@
-# 2026第四季多彩贵州溶洞音乐周在遵义绥阳双河洞启幕
+# 用时仅23个工作日，这类再融资项目跑出加速度！
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新网贵州绥阳5月1日电 (瞿宏伦 娄云霄 王泽熙)“洞听天籁·秘境寻音”2026第四季多彩贵州溶洞音乐周在贵州省遵义市绥阳县双河洞景区启幕。 此次活动以天然溶洞为舞台、以山水人文为底色，将多元音乐艺术、诗乡文脉、民族风情、数字科技、潮流电音与红色底蕴深度融合，为八方游客呈现了一场沉浸式、高质感、独具绥阳独特魅力的视听文旅盛宴。 开幕式上以《地灵初醒·万籁朝元》在杉林洞内震撼上
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月29日，沪市主板公司中科曙光可转债再融资项目提交注册，这是沪市主板首单适用“轻资产、高研发投入”的落地项目。 同日，科创板公司特宝生物的可转债再融资项目也提交注册。据悉，两家公司向不特定对象发行可转债项目从4月24日受理至5月29日提交注册，用时仅23个工作日。 中科曙光可转债项目也是首单沪市主板再融资“轻资产、高研发投入”
 
 ## 正文
 
-中新网贵州绥阳5月1日电 (瞿宏伦 娄云霄 王泽熙)“洞听天籁·秘境寻音”2026第四季多彩贵州溶洞音乐周在贵州省遵义市绥阳县双河洞景区启幕。
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月29日，沪市主板公司中科曙光可转债再融资项目提交注册，这是沪市主板首单适用“轻资产、高研发投入”的落地项目。
 
-此次活动以天然溶洞为舞台、以山水人文为底色，将多元音乐艺术、诗乡文脉、民族风情、数字科技、潮流电音与红色底蕴深度融合，为八方游客呈现了一场沉浸式、高质感、独具绥阳独特魅力的视听文旅盛宴。
+同日，科创板公司特宝生物的可转债再融资项目也提交注册。
 
-开幕式上以《地灵初醒·万籁朝元》在杉林洞内震撼上演，整场演出以溶洞专属IP“溶灵儿”与“绥小阳”开启秘境寻音之旅为叙事主线，创新采用了“IP+互动+科技”三位一体呈现模式，融入AI视觉生成、投影映射、AR交互等前沿数字技术，为现场观众带来极具震撼力的视觉享受与沉浸式观演体验。
+据悉，两家公司向不特定对象发行可转债项目从4月24日受理至5月29日提交注册，用时仅23个工作日。
 
-《水吟成灵》《神傩赐福》《数据幽谷》《地心焰火》等节目轮番登场，涵盖情景秀、民族风情、古典雅韵、摇滚、杂技等多元风格，精彩的演出搭配溶洞的天然环绕混响，声景相融、光影交织，现场气氛热烈高涨，掌声与欢呼声在幽深岩壁间久久回荡。
+中科曙光可转债项目也是首单沪市主板再融资“轻资产、高研发投入”落地项目。
 
-“实在是太震撼了，这是我第一次在溶洞里听音乐、看演出，整个溶洞就好像天然的‘大音箱’，音效非常棒，氛围感直接拉满，这种溶洞视听体验真是前所未有。
+公开资料显示，中科曙光成立于2006年3月，2014年11月在上交所主板上市，是国内高端计算领域和算力基础设施解决方案的领军企业，主营业务为高端计算机、存储、安全、数据中心产品的研发及制造。
 
-”来自贵阳的游客李明勇看了整场演出后难掩激动与欣喜。
+根据募集说明书，公司“轻资产、高研发投入”特质突出，截至2025年末，公司实物资产占比仅11.85%，2023年至2025年平均研发投入占营业收入比例为12.56%，且最近三年累计研发投入合计53.34亿元，符合沪市主板“轻资产、高研发投入”认定标准。
 
-本季多彩贵州溶洞音乐周活动将持续至5月4日，后续将陆续推出国风专场《诗韵回响·时光共鸣》、电音专场《脉冲共振·电核觉醒》和《地心之声洞穴音乐节》三大主题演出，并同步开放《秘境平行世界》《大地回响·洞天幻境》两大沉浸式互动体验区。
+本次发行可转债拟募集资金80亿元，将用于“面向人工智能的先进算力集群系统项目”“下一代高性能AI训推一体机项目”和“国产化先进存储系统项目”等项目，是响应国家战略部署、打造智能算力技术体系护城河的重要举措，通过本次募投项目实施，可以使先进算力集群系统整体技术水平与国际主流产品对齐，提升产业链的自主可控能力，推动人工智能与实体经济加速融合。
 
-此外，活动还在洞内外打造了秘境雅集、诗乡杂货铺、洞趣食验室、苗药生花、光影奇境电影主题巡礼七大“地心市集”系列消费场景，可全方位满足游客观赏体验、美食品鉴与社交分享等多元需求。
+2025年，中科曙光营业收入同比增长13.81%，扣非归母净利润同比增长33.97%；2026年第一季度，公司业绩进一步增长，营业收入同比增长23.71%，扣非归母净利润同比增长53.30%。
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - [欧洲装一台空调有多难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 09:03 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 08:51 - [日本主帅赛后回应淘汰出局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 08:54 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 08:43 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 08:44 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 09:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 08:44 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 08:59 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 09:09 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 08:53 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 09:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 08:49 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 09:10 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 08:59 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 09:11 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 08:54 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 09:12 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 08:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 08:52 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 09:03 - [世界杯：荷兰vs摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 08:59 - [日本主帅：未能夺冠深感抱歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:51 - [第3集丨“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/61096.shtml)
-- 2026-06-30 08:50 - [莫兰特转投开拓者效力](https://www.blog.minike.top/Article/details/2865526712.shtml)
-- 2026-06-30 08:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/858592.shtml)
-- 2026-06-30 09:09 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/53487.shtml)
-- 2026-06-30 09:00 - [黄晓明夸昆凌引杨颖对比](https://www.share.kurohicncr.top/Article/details/448000885916.shtml)
-- 2026-06-30 09:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/062101.shtml)
-- 2026-06-30 08:51 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/325342.shtml)
-- 2026-06-30 08:48 - [《共患难》](http://www.blog.kurohicncr.top/Article/details/553794124.shtml)
-- 2026-06-30 09:09 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/93362017.shtml)
-- 2026-06-30 08:51 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](http://www.blog.minike.top/Article/details/677653269356.shtml)
-- 2026-06-30 09:04 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/4320960168.shtml)
-- 2026-06-30 08:56 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/33812.shtml)
-- 2026-06-30 08:46 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/729442160.shtml)
-- 2026-06-30 08:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/8847544.shtml)
-- 2026-06-30 08:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/18956397994.shtml)
+- 2026-06-30 09:12 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.minike.top/Article/details/425374267.shtml)
+- 2026-06-30 09:10 - [日本反击率先破门](http://www.share.minike.top/Article/details/960229358.shtml)
+- 2026-06-30 08:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/625513468277.shtml)
+- 2026-06-30 09:11 - [巴西绝杀](http://www.blog.minike.top/Article/details/9268590118.shtml)
+- 2026-06-30 09:10 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/365735165.shtml)
+- 2026-06-30 09:17 - [日本将帅赛后采访纷纷哽咽落泪](https://www.share.kurohicncr.top/Article/details/7043932693.shtml)
+- 2026-06-30 08:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/6071996.shtml)
+- 2026-06-30 09:05 - [输球后日本球迷被强行披上巴西国旗](https://www.share.minike.top/Article/details/010771744455.shtml)
+- 2026-06-30 09:10 - [网红峡谷5人溺亡 有人提醒会下雨](https://www.share.kurohicncr.top/Article/details/73149.shtml)
+- 2026-06-30 08:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/6986969169.shtml)
+- 2026-06-30 09:04 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/1418925670.shtml)
+- 2026-06-30 09:09 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/495499176643.shtml)
+- 2026-06-30 09:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/19094537107.shtml)
+- 2026-06-30 09:14 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.kurohicncr.top/Article/details/52470579.shtml)
+- 2026-06-30 08:49 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/113636355.shtml)

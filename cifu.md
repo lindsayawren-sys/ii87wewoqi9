@@ -1,59 +1,53 @@
-# 两岸“哪吒”昆山伴着电音说共鸣
+# 结婚22年俩儿子均非亲生 律师：三项诉求有法可依
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新社昆山5月1日电 (记者 钟升)5月1日晚，海峡两岸交流基地江苏昆山慧聚广场上灯火璀璨、鼓乐喧天，第二届“昆山妈祖杯”台湾电音三太子邀请赛在此拉开帷幕。来自两岸的20支参赛队伍舞动身姿，在阵阵电音中深化同胞间的情感共鸣。 据昆山市台湾同胞投资企业协会会长孙德聪介绍，电音三太子源于大陆的哪吒信仰，与闽南地区的傩舞文化有着深厚的渊源，在台湾经过创新后，融合了传统民俗艺阵与现代电
+发布时间：2026年05月29日 18:20 来源：中国新闻网 山东淄博姜先生结婚22年后证实两子均非亲生。2025年4月，姜先生就与前妻离婚后的财产纠纷等向法院提起诉讼，诉请撤销房产赠与，返还抚育费，赔偿精神损害抚慰金。2026年5月27日，该案在淄博市张店区人民法院一审再开庭。北京瀛和律师事务所律师黄群辉在接受采访时表示，本案属典型欺诈性抚养，三项诉求均有法律依据，无过错方
 
 ## 正文
 
-中新社昆山5月1日电 (记者 钟升)5月1日晚，海峡两岸交流基地江苏昆山慧聚广场上灯火璀璨、鼓乐喧天，第二届“昆山妈祖杯”台湾电音三太子邀请赛在此拉开帷幕。
+发布时间：2026年05月29日 18:20 来源：中国新闻网 山东淄博姜先生结婚22年后证实两子均非亲生。
 
-来自两岸的20支参赛队伍舞动身姿，在阵阵电音中深化同胞间的情感共鸣。
+2025年4月，姜先生就与前妻离婚后的财产纠纷等向法院提起诉讼，诉请撤销房产赠与，返还抚育费，赔偿精神损害抚慰金。
 
-据昆山市台湾同胞投资企业协会会长孙德聪介绍，电音三太子源于大陆的哪吒信仰，与闽南地区的傩舞文化有着深厚的渊源，在台湾经过创新后，融合了传统民俗艺阵与现代电音元素，已成为岛内最具代表性的民俗创意象征之一。
+2026年5月27日，该案在淄博市张店区人民法院一审再开庭。
 
-举办邀请赛，既能令大陆民众了解台湾的流行文化、庙会文化，也提供了一个让台湾青年到大陆走走看看的机会。
+北京瀛和律师事务所律师黄群辉在接受采访时表示，本案属典型欺诈性抚养，三项诉求均有法律依据，无过错方依法可获赔偿。
 
-昆山慧聚义工团电音三太子队领队周军已经跳了十多年的电音三太子，从一开始觉得装备太重，到如今乐在其中，锻炼身体的同时也熟悉了台湾的民俗。
+同时，律师提醒，私下亲子鉴定仅能作为个人参考，不具备法庭效力，司法认定需以法院委托的司法鉴定为准。
 
-为了这次比赛，他们特意请台北的教练来指导，在编舞、队形、动作、走位等方面不断调整，希望能在台湾“三太子”面前展示大陆“三太子”的风采。
-
-“没想到大陆同胞这么亲切、热情。
-
-”台湾台中艺筑剧团的一名参赛队员告诉中新社记者，自己昨天在便利店和老板聊得颇为投缘，老板当即摆起桌子要请喝酒，令他受宠若惊。
+(记者 王严） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 08:54 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 09:01 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 08:50 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 08:57 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 08:53 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 08:44 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 09:07 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 08:50 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 08:56 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 09:09 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 08:43 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 09:07 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 08:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 08:58 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-30 09:16 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 08:55 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 09:06 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 09:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 08:57 - [藤森庆子赢得秘鲁总统选举](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 08:59 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 09:05 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 08:53 - [大蒜晒外面被路过女子连盆端走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 09:12 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 09:07 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:53 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/2805938687.shtml)
-- 2026-06-30 08:47 - [藤森庆子赢得秘鲁总统选举](https://www.blog.minike.top/Article/details/53871.shtml)
-- 2026-06-30 08:59 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/801912030.shtml)
-- 2026-06-30 09:11 - [iPhoneUltra黑色机模](https://www.share.minike.top/Article/details/1163498.shtml)
-- 2026-06-30 08:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/816508112784.shtml)
-- 2026-06-30 08:49 - [Melo向柳智敏张元英道歉](https://www.blog.minike.top/Article/details/7636333.shtml)
-- 2026-06-30 09:03 - [巴西足球能否再现昔日荣光](http://www.share.kurohicncr.top/Article/details/05031007681.shtml)
-- 2026-06-30 09:03 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/715701272190.shtml)
-- 2026-06-30 08:52 - [巴西绝杀日本](https://www.share.minike.top/Article/details/670867.shtml)
-- 2026-06-30 08:52 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/564477215970.shtml)
-- 2026-06-30 09:09 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](http://www.blog.kurohicncr.top/Article/details/00147.shtml)
-- 2026-06-30 08:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/208419.shtml)
-- 2026-06-30 09:07 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/18736524.shtml)
-- 2026-06-30 09:03 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/0387195.shtml)
-- 2026-06-30 09:10 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/0742750.shtml)
+- 2026-06-30 08:55 - [郑钦文温网首轮出局](http://www.share.minike.top/Article/details/572342.shtml)
+- 2026-06-30 08:53 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/535268269.shtml)
+- 2026-06-30 09:08 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/48533.shtml)
+- 2026-06-30 09:01 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/54821907.shtml)
+- 2026-06-30 08:58 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/14690.shtml)
+- 2026-06-30 09:10 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/00413.shtml)
+- 2026-06-30 09:04 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/724261408.shtml)
+- 2026-06-30 08:56 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/324246.shtml)
+- 2026-06-30 08:50 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/79557026.shtml)
+- 2026-06-30 09:16 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/21299450179.shtml)
+- 2026-06-30 09:07 - [流金岁月](https://www.share.minike.top/Article/details/450616628.shtml)
+- 2026-06-30 09:14 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/196671.shtml)
+- 2026-06-30 08:51 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/95121.shtml)
+- 2026-06-30 08:49 - [巴西扳平比分](https://www.share.minike.top/Article/details/037052459.shtml)
+- 2026-06-30 08:54 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/5085489.shtml)

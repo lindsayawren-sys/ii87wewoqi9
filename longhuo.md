@@ -1,48 +1,60 @@
-# 康耐特光学于5月4日斥资2814.23万港元回购60万股
+# 美方称接近达成协议并重申军事威胁 伊方称最终文本尚未完成
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-康耐特光学（02276）发布公告，于2026年5月4日，该公司斥资2814.23万港元回购60万股股份，每股回购价46.16-47.08港元。责任编辑：卢昱君
+美国财政部长斯科特・贝森特于当地时间周四向记者表示，美伊两国即将达成一份结束战事的协议，但特朗普总统尚未批准该协议，白宫希望最终方案能满足多项核心条件。 贝森特在白宫称：“我们目前已有达成协议的基础。”他同时透露，双方一直在互换提案。“一切都取决于总统的决定，特朗普总统绝不会接受一份有损利益的协议。” 贝森特提出，伊朗必须同意处置高浓缩铀、承诺永不研发核武器，并全面重启霍尔木兹
 
 ## 正文
 
-康耐特光学（02276）发布公告，于2026年5月4日，该公司斥资2814.23万港元回购60万股股份，每股回购价46.16-47.08港元。
+美国财政部长斯科特・贝森特于当地时间周四向记者表示，美伊两国即将达成一份结束战事的协议，但特朗普总统尚未批准该协议，白宫希望最终方案能满足多项核心条件。
 
-责任编辑：卢昱君
+贝森特在白宫称：“我们目前已有达成协议的基础。
+
+”他同时透露，双方一直在互换提案。
+
+“一切都取决于总统的决定，特朗普总统绝不会接受一份有损利益的协议。
+
+” 贝森特提出，伊朗必须同意处置高浓缩铀、承诺永不研发核武器，并全面重启霍尔木兹海峡通航。
+
+美国官员此前表示，上述内容都会纳入这份意向备忘录。
+
+此前有美国官员称，两国即将达成一份为期60天的协议，协议规定双方在首个30天内逐步解除在海峡实施的封锁。
+
+若协议最终敲定，这将成为一份分阶段框架协议的首个环节。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - [如果有二次元高中是什么样子的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 08:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 09:02 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 08:44 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 08:53 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 09:08 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 09:04 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 08:44 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-30 09:11 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 09:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 08:59 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 09:01 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 08:50 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 08:56 - [点球大战 残酷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 09:14 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 09:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 08:56 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 08:52 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 09:16 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 09:01 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 09:12 - [男子在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 09:15 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 09:07 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 09:04 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 08:55 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 09:03 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 09:04 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 08:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/4598287.shtml)
-- 2026-06-30 08:42 - [小娘惹](http://www.share.kurohicncr.top/Article/details/546877.shtml)
-- 2026-06-30 09:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/8680761445.shtml)
-- 2026-06-30 08:44 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/8874404.shtml)
-- 2026-06-30 09:04 - [日本主帅：未能夺冠深感抱歉](https://www.blog.minike.top/Article/details/8584184625.shtml)
-- 2026-06-30 08:53 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.blog.kurohicncr.top/Article/details/070260349373.shtml)
-- 2026-06-30 08:55 - [覃予萱晋级WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/25708544212.shtml)
-- 2026-06-30 08:56 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/070092.shtml)
-- 2026-06-30 09:02 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/786005307.shtml)
-- 2026-06-30 08:42 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/90840.shtml)
-- 2026-06-30 09:08 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/681852123.shtml)
-- 2026-06-30 08:59 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/894177.shtml)
-- 2026-06-30 09:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/51108.shtml)
-- 2026-06-30 08:50 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/4376715.shtml)
-- 2026-06-30 09:09 - [巴拉圭门将](https://www.blog.minike.top/Article/details/2140644.shtml)
+- 2026-06-30 08:57 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/584014843.shtml)
+- 2026-06-30 09:09 - [沉睡花园](http://www.blog.minike.top/Article/details/9380134561.shtml)
+- 2026-06-30 09:00 - [《共患难》](http://www.blog.minike.top/Article/details/870045007973.shtml)
+- 2026-06-30 09:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/7050238.shtml)
+- 2026-06-30 08:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/505122.shtml)
+- 2026-06-30 08:59 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/240758.shtml)
+- 2026-06-30 09:01 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/211915.shtml)
+- 2026-06-30 09:12 - [爆冷出局！德国点球大战不敌巴拉圭](http://www.share.kurohicncr.top/Article/details/745476.shtml)
+- 2026-06-30 09:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/5822425542.shtml)
+- 2026-06-30 08:53 - [韩国道歉完日本道歉](http://www.blog.kurohicncr.top/Article/details/440538203.shtml)
+- 2026-06-30 08:51 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/242617460135.shtml)
+- 2026-06-30 08:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/0790222.shtml)
+- 2026-06-30 08:50 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/401962106.shtml)
+- 2026-06-30 08:48 - [IGN评测电影版后室](https://www.share.kurohicncr.top/Article/details/43255532.shtml)
+- 2026-06-30 08:49 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/531665717432.shtml)

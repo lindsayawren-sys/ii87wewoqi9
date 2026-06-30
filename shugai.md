@@ -1,58 +1,57 @@
-# （走进中国乡村）科技助眠出圈 安徽广德打造康养“梦乡”
+# 港交所集团行政总裁陈翊庭：截至今年4月底深股通累计成交额已达118万亿元人民币
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新社合肥5月2日电 题：科技助眠出圈 安徽广德打造康养“梦乡” 中新社记者 储玮玮 “睡个好觉”成为“90后”李薇“五一”假期的核心需求。为此，她专程从上海来到安徽省广德市卢村镇甘溪村，躺进“睡眠舱”中体验科技助眠。次日的睡眠质量报告详细记录了深度睡眠、快速眼动等数据。 地处皖苏浙交界的广德，凭“万亩竹海、千顷卢湖”的生态优势，成为长三角都市客群青睐的“梦乡”。2025年，上
+专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日-29日，深交所2026全球投资者大会在深圳举办。大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，香港交易所集团行政总裁陈翊庭出席并致辞。 陈翊庭表示，我们与深交所合作的深港通自 2016 年上线以来，交易热度始终居高不下。今年深港通也将迎来上线十周年这一重要里程碑
 
 ## 正文
 
-中新社合肥5月2日电 题：科技助眠出圈 安徽广德打造康养“梦乡” 中新社记者 储玮玮 “睡个好觉”成为“90后”李薇“五一”假期的核心需求。
+专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日-29日，深交所2026全球投资者大会在深圳举办。
 
-为此，她专程从上海来到安徽省广德市卢村镇甘溪村，躺进“睡眠舱”中体验科技助眠。
+大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，香港交易所集团行政总裁陈翊庭出席并致辞。
 
-次日的睡眠质量报告详细记录了深度睡眠、快速眼动等数据。
+陈翊庭表示，我们与深交所合作的深港通自 2016 年上线以来，交易热度始终居高不下。
 
-地处皖苏浙交界的广德，凭“万亩竹海、千顷卢湖”的生态优势，成为长三角都市客群青睐的“梦乡”。
+今年深港通也将迎来上线十周年这一重要里程碑。
 
-2025年，上海来此康养旅游人数已超150万人次。
+北向深股通日均成交额近年屡创新高，截至今年 4 月底，深股通累计成交额已达 118 万亿元人民币。
 
-走进甘溪村的澄德现代庄园，客房是充满科技感的“睡眠舱”。
+下一步，我们将联合深交所、上交所等合作伙伴，继续优化、拓展互联互通机制。
 
-舱内温度恒定在18.5摄氏度，新风系统维持着微正压环境，电子设备一律禁入，只有特定的助眠音频引导入睡。
+目前正推进沪深港通纳入 REITs、引入大宗交易机制的相关筹备工作，力争尽快落地，为国际投资者投资中国提供更多选择与便利。
 
-“这是一套完整的睡眠解决方案。
+责任编辑：尉旖涵
 
 ## 相关推荐
 
-- 2026-06-30 08:51 - [莫兰特转投开拓者效力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 08:58 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 08:56 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 09:02 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 08:56 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 08:53 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-30 08:42 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 08:59 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 08:51 - [张月收到黄灿灿辣货两眼发光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-30 08:59 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 08:47 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 08:44 - [日本队主帅道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 09:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 08:54 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 08:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 09:05 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 08:59 - [泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 09:05 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 08:57 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 09:04 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 09:02 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 09:13 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 09:08 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:06 - [收到补税提醒尽快办理 明起有滞纳金](http://www.blog.minike.top/Article/details/948214393.shtml)
-- 2026-06-30 09:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/4484656.shtml)
-- 2026-06-30 08:53 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/210789.shtml)
-- 2026-06-30 08:43 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](http://www.share.kurohicncr.top/Article/details/7130676.shtml)
-- 2026-06-30 08:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/442626.shtml)
-- 2026-06-30 09:06 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://www.share.minike.top/Article/details/58928203331.shtml)
-- 2026-06-30 09:03 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.kurohicncr.top/Article/details/6723290858.shtml)
-- 2026-06-30 08:49 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://www.share.minike.top/Article/details/9065089.shtml)
-- 2026-06-30 09:04 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://www.share.kurohicncr.top/Article/details/601589.shtml)
-- 2026-06-30 08:47 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/621712.shtml)
-- 2026-06-30 08:53 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/6905166.shtml)
-- 2026-06-30 08:49 - [黄晓明晒和周杰伦的合照](https://www.blog.kurohicncr.top/Article/details/9664035540.shtml)
-- 2026-06-30 08:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/074093.shtml)
-- 2026-06-30 09:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/86084.shtml)
-- 2026-06-30 08:58 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/86497849419.shtml)
+- 2026-06-30 08:48 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/56417526726.shtml)
+- 2026-06-30 08:53 - [曝老詹对自由市场态度与以往截然不同](https://www.share.minike.top/Article/details/563896480.shtml)
+- 2026-06-30 09:05 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/435292.shtml)
+- 2026-06-30 09:10 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/513931883297.shtml)
+- 2026-06-30 09:04 - [孙颖莎王楚钦晋级8强](https://www.blog.kurohicncr.top/Article/details/034370.shtml)
+- 2026-06-30 09:16 - [张雪的一句“是我们”引发岛内热议](http://www.blog.minike.top/Article/details/5837209.shtml)
+- 2026-06-30 08:56 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](http://www.share.kurohicncr.top/Article/details/0632267372.shtml)
+- 2026-06-30 08:54 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/5626829.shtml)
+- 2026-06-30 08:54 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/515141070513.shtml)
+- 2026-06-30 09:04 - [板面：为什么那么多人爱吃？？！](http://www.share.minike.top/Article/details/219324.shtml)
+- 2026-06-30 09:14 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/2444269.shtml)
+- 2026-06-30 08:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/34981058385.shtml)
+- 2026-06-30 09:14 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/51944.shtml)
+- 2026-06-30 09:01 - [杨紫大银幕成绩单](http://www.blog.kurohicncr.top/Article/details/571362.shtml)
+- 2026-06-30 09:11 - [德国队世界杯点球大战首败](http://www.share.minike.top/Article/details/332057.shtml)

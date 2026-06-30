@@ -1,58 +1,50 @@
-# 法国华侨华人会第25届主席团就职典礼在巴黎举行
+# 《习近平法治文选》第一卷英文版出版发行
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新网巴黎5月4日电 (记者 李洋)当地时间5月2日晚，法国华侨华人会第25届主席团就职典礼在巴黎举行，郑金标接替蔡君柱，就任法国华侨华人会新一届主席。 中国驻法国大使馆公使沈钢、参赞万磊，巴黎中心区副区长福尼耶，法国前驻华大使白林等中法各界嘉宾出席典礼。沈钢宣读了中国驻法国大使邓励的贺信。邓励在贺信中充分肯定法国华侨华人会长期以来在服务旅法侨胞、促进中法民间交流等方面作出的贡
+中新社北京5月31日电 中共中央党史和文献研究院翻译的《习近平法治文选》第一卷英文版，近日由中央编译出版社出版，面向海内外发行。 《习近平法治文选》第一卷由中共中央党史和文献研究院编辑，收入习近平同志2012年12月至2025年2月期间关于法治建设最重要、最基本的著作，为全党全国各族人民深入学习贯彻习近平新时代中国特色社会主义思想特别是习近平法治思想提供了权威教材。 这部著作英
 
 ## 正文
 
-中新网巴黎5月4日电 (记者 李洋)当地时间5月2日晚，法国华侨华人会第25届主席团就职典礼在巴黎举行，郑金标接替蔡君柱，就任法国华侨华人会新一届主席。
+中新社北京5月31日电 中共中央党史和文献研究院翻译的《习近平法治文选》第一卷英文版，近日由中央编译出版社出版，面向海内外发行。
 
-中国驻法国大使馆公使沈钢、参赞万磊，巴黎中心区副区长福尼耶，法国前驻华大使白林等中法各界嘉宾出席典礼。
+《习近平法治文选》第一卷由中共中央党史和文献研究院编辑，收入习近平同志2012年12月至2025年2月期间关于法治建设最重要、最基本的著作，为全党全国各族人民深入学习贯彻习近平新时代中国特色社会主义思想特别是习近平法治思想提供了权威教材。
 
-沈钢宣读了中国驻法国大使邓励的贺信。
+这部著作英文版的出版发行，有助于国外读者深入了解习近平法治思想的丰富内涵，了解新时代中国特色社会主义法治建设发生的历史性变革、取得的历史性成就，了解中国智慧、中国实践为世界法治文明建设作出的重要贡献，对于增强国际社会践行国际法治精神、开展国际法治合作、携手共建人类命运共同体的共同认识，推动全球治理朝着更加公正合理的方向发展，具有重要意义。
 
-邓励在贺信中充分肯定法国华侨华人会长期以来在服务旅法侨胞、促进中法民间交流等方面作出的贡献，对蔡君柱主席在任期间所做工作表示感谢，并祝贺郑金标主席及新一届主席团履新。
-
-贺信说，希望法国华侨华人会在郑金标主席和新一届主席团带领下，在旅法侨界继续发挥模范带头作用，为建设旅法和谐侨社、推动中法友好交往、助力实现中华民族伟大复兴作出新的更大贡献。
-
-蔡君柱在述职中回顾了他担任主席期间的工作。
-
-他表示，在他担任主席期间，协会在凝聚侨界力量、推动中法交流、弘扬中华文化、服务侨胞福祉等方面取得显著成绩，这些成绩离不开各方支持与协会全体成员的共同努力。
-
-新任法国华侨华人会主席郑金标在致辞中表示，新一届主席团将坚持以侨为本，着力维护侨胞权益、完善服务体系、关爱新生代成长；同时胸怀家国情怀，积极传承中华文化、支持祖(籍)国发展、树立旅法华人良好形象。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 09:04 - [球评巴西绝杀逆转日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 08:50 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 09:05 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-30 09:04 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 08:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 08:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 08:55 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-30 09:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 08:57 - [马航370搜寻最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 09:04 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 09:06 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 08:45 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 09:13 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 09:01 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-30 09:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 09:14 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 09:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 08:59 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 09:02 - [世界杯名画巴拉圭钢铁防线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 09:04 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 08:57 - [德国队连续三届世界杯无缘16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 09:05 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 09:10 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 08:55 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/1180013951.shtml)
-- 2026-06-30 08:50 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/69265649.shtml)
-- 2026-06-30 08:56 - [中国新一轮出口管制直指日本命脉](http://www.share.minike.top/Article/details/885441.shtml)
-- 2026-06-30 09:08 - [《名肘探科比》：科比大战裂口女](http://www.share.minike.top/Article/details/7824186.shtml)
-- 2026-06-30 08:56 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/578115227342.shtml)
-- 2026-06-30 09:06 - [起风了](https://www.share.kurohicncr.top/Article/details/02186587686.shtml)
-- 2026-06-30 08:54 - [锐评：网红不能困在无底线逐利里](http://www.share.minike.top/Article/details/940565420093.shtml)
-- 2026-06-30 08:51 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/8440612246.shtml)
-- 2026-06-30 09:02 - [王濛回复黄灿灿](https://www.blog.minike.top/Article/details/115296.shtml)
-- 2026-06-30 08:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/74660196328.shtml)
-- 2026-06-30 08:53 - [名记：灰熊将莫兰特交易至开拓者](https://www.share.kurohicncr.top/Article/details/86468365058.shtml)
-- 2026-06-30 09:04 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/389155222.shtml)
-- 2026-06-30 09:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/8790086.shtml)
-- 2026-06-30 08:50 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/57971.shtml)
-- 2026-06-30 09:04 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/481384.shtml)
+- 2026-06-30 09:02 - [《共患难》](http://www.share.kurohicncr.top/Article/details/820634979.shtml)
+- 2026-06-30 09:15 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/19956523899.shtml)
+- 2026-06-30 09:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/023036415847.shtml)
+- 2026-06-30 09:09 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/9217924899.shtml)
+- 2026-06-30 08:53 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/45423.shtml)
+- 2026-06-30 09:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/1552368.shtml)
+- 2026-06-30 08:56 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/2634284254.shtml)
+- 2026-06-30 09:01 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/8018812.shtml)
+- 2026-06-30 09:17 - [巴拉圭进球](https://www.share.kurohicncr.top/Article/details/825897.shtml)
+- 2026-06-30 09:01 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/623867.shtml)
+- 2026-06-30 09:13 - [大蒜晒外面被路过女子连盆端走](http://www.share.minike.top/Article/details/2179902785.shtml)
+- 2026-06-30 09:14 - [日本主帅：未能夺冠深感抱歉](http://www.share.minike.top/Article/details/0136405.shtml)
+- 2026-06-30 09:15 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/47430283019.shtml)
+- 2026-06-30 09:14 - [藤森庆子赢得秘鲁总统选举](https://www.share.kurohicncr.top/Article/details/552141052.shtml)
+- 2026-06-30 08:53 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/0956131.shtml)

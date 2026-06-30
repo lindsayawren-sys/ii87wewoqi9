@@ -1,55 +1,61 @@
-# 追光的你｜我辈正青春
+# 警告盟友不要“搭便车”、表扬日韩主动增加国防开支、期待与中国开展更多对话……美防长“香会”发言一文速览
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-视频：追光的你｜我辈正青春来源：央视网 青春何为？是心怀远方、步履不停，在追梦路上一往无前；是脚踏实地、实干笃行，在平凡岗位上默默坚守；是敢闯敢创、破局立新，在时代前沿勇立潮头；是初心如炬、胸怀家国，在复兴路上挺膺担当。 谨以此片，致敬所有把青春铺展在祖国大地上的奋斗者。新时代的中国，让每一束微光而明亮；青春的你我TA，是与时代同向的先锋力量。 总监制｜过 彤 骆红秉 监 制｜
+5月30日，在第23届香格里拉对话会首场全体会议上，美国国防部长赫格塞思发表了大会发言。 谈到中国，他表示，两周前的中美元首会晤是“历史性的”，希望加强与中国防务部门的对话沟通。 而对美国的盟友，赫格塞思喊话警告，美国为富裕国家提供防务资助的时代已结束，强调各方要“分摊责任”。 谈中国：希望开展更多对话在其发言中，赫格塞思回忆了两周前随美国总统特朗普访华的经历。 “我见证了他们
 
 ## 正文
 
-视频：追光的你｜我辈正青春来源：央视网 青春何为？
+5月30日，在第23届香格里拉对话会首场全体会议上，美国国防部长赫格塞思发表了大会发言。
 
-是心怀远方、步履不停，在追梦路上一往无前；是脚踏实地、实干笃行，在平凡岗位上默默坚守；是敢闯敢创、破局立新，在时代前沿勇立潮头；是初心如炬、胸怀家国，在复兴路上挺膺担当。
+谈到中国，他表示，两周前的中美元首会晤是“历史性的”，希望加强与中国防务部门的对话沟通。
 
-谨以此片，致敬所有把青春铺展在祖国大地上的奋斗者。
+而对美国的盟友，赫格塞思喊话警告，美国为富裕国家提供防务资助的时代已结束，强调各方要“分摊责任”。
 
-新时代的中国，让每一束微光而明亮；青春的你我TA，是与时代同向的先锋力量。
+谈中国：希望开展更多对话在其发言中，赫格塞思回忆了两周前随美国总统特朗普访华的经历。
 
-总监制｜过 彤 骆红秉 监 制｜魏驱虎 唐晓艳 总制片人｜兰 军 制片人｜杨 乔 董迎晨 剪 辑｜卓 越 配 音｜曹煊一 视 觉｜张继颖 校 对｜任 佳 李英卓 出 品｜中央广播电视总台央视网
+“我见证了他们(两国元首)数小时的坦诚对话，这的确具有历史意义。
+
+”赫格塞思提到，美中可以在利益相符的领域达成切实可行的互利合作。
+
+在随后的现场答问环节，中方参会代表就两国关系新定位下的两军关系发展提问。
+
+赫格塞思对此作出回应。
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 09:04 - [世界杯名画巴拉圭钢铁防线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 08:45 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 08:50 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-30 08:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 09:04 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 09:01 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 08:43 - [低智商犯罪三江口团建来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 09:07 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 08:55 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 08:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 08:44 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 09:06 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 08:54 - [为什么小组赛出局会让韩国人破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 08:53 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 09:05 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 08:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-30 09:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 08:53 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 08:48 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 09:04 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 08:49 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 09:03 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 09:12 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-30 09:10 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 09:14 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 09:00 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 09:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 09:02 - [“荒唐”背后的韩国足球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 08:52 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:49 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/02976.shtml)
-- 2026-06-30 09:05 - [日本五次世界杯淘汰赛全败](https://www.share.kurohicncr.top/Article/details/309798219971.shtml)
-- 2026-06-30 08:50 - [泰山景区回应修建刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/052242.shtml)
-- 2026-06-30 09:04 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/1746810.shtml)
-- 2026-06-30 09:10 - [德国队回应爆冷淘汰](https://www.share.minike.top/Article/details/432811670095.shtml)
-- 2026-06-30 08:58 - [黄晓明夸昆凌引杨颖对比](https://www.blog.kurohicncr.top/Article/details/522717.shtml)
-- 2026-06-30 09:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/540993867.shtml)
-- 2026-06-30 08:47 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/75039.shtml)
-- 2026-06-30 08:45 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/313693744485.shtml)
-- 2026-06-30 08:52 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/69891.shtml)
-- 2026-06-30 08:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/7644206.shtml)
-- 2026-06-30 09:10 - [爱很美味](https://www.share.kurohicncr.top/Article/details/335560.shtml)
-- 2026-06-30 08:57 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.minike.top/Article/details/445634.shtml)
-- 2026-06-30 08:52 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/301300912701.shtml)
-- 2026-06-30 08:59 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/767775473.shtml)
+- 2026-06-30 09:12 - [房价什么时候能涨](https://www.share.minike.top/Article/details/0064568.shtml)
+- 2026-06-30 08:55 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/54278803831.shtml)
+- 2026-06-30 09:03 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/24027.shtml)
+- 2026-06-30 09:17 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/8910962.shtml)
+- 2026-06-30 09:14 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.minike.top/Article/details/7727457.shtml)
+- 2026-06-30 09:04 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/50681.shtml)
+- 2026-06-30 08:52 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/48242741.shtml)
+- 2026-06-30 08:50 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/722100105839.shtml)
+- 2026-06-30 09:15 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/782648850588.shtml)
+- 2026-06-30 09:10 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/03525376.shtml)
+- 2026-06-30 09:07 - [日本进球](http://www.blog.kurohicncr.top/Article/details/88618682.shtml)
+- 2026-06-30 08:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/418818577.shtml)
+- 2026-06-30 08:54 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://www.blog.kurohicncr.top/Article/details/616116018988.shtml)
+- 2026-06-30 08:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/33521.shtml)
+- 2026-06-30 08:52 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/57141317.shtml)

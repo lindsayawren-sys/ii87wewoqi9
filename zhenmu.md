@@ -1,46 +1,61 @@
-# 记者探访湖南浏阳烟花厂爆炸事故伤员救治医院：伤员多为骨伤
+# “五星出东方利中国”汉代织锦护臂，是如何被发现的？
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月05日 09:31 来源：央视新闻客户端 责任编辑：【李骏】
+作者 苟继鹏 1995年，新疆和田地区民丰县尼雅遗址出土了一件汉代织锦护臂，上面织有“五星出东方利中国”八个篆体汉字，这是目前新疆出土最早的“中国”字样。“五星出东方利中国”汉代织锦护臂(又称“五星锦”)是国家一级文物，被誉为20世纪中国考古学最伟大的发现之一，现收藏于新疆博物馆，系该馆“镇馆之宝”之一。 这块织锦织造于何时又有何用途？“五星出东方利中国”是何意？蕴含怎样的文化
 
 ## 正文
 
-发布时间：2026年05月05日 09:31 来源：央视新闻客户端 责任编辑：【李骏】
+作者 苟继鹏 1995年，新疆和田地区民丰县尼雅遗址出土了一件汉代织锦护臂，上面织有“五星出东方利中国”八个篆体汉字，这是目前新疆出土最早的“中国”字样。
+
+“五星出东方利中国”汉代织锦护臂(又称“五星锦”)是国家一级文物，被誉为20世纪中国考古学最伟大的发现之一，现收藏于新疆博物馆，系该馆“镇馆之宝”之一。
+
+这块织锦织造于何时又有何用途？
+
+“五星出东方利中国”是何意？
+
+蕴含怎样的文化认同？
+
+“五星锦”考古发掘亲历者之一，时任新疆博物馆馆长于志勇就此接受中新社“东西问”专访。
+
+现将访谈实录摘要如下： 中新社记者：新疆出现最早的“中国”二字源于何处？
+
+是如何被发现的？
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 09:07 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 08:45 - [黄晓明夸昆凌引杨颖对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 08:52 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 09:09 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 08:49 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 08:53 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 09:07 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 09:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 09:10 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 08:57 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 08:58 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 09:09 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 09:00 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 09:09 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 08:50 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 09:08 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 08:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 09:03 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 08:53 - [诺伊尔尽力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 09:03 - [快递到家不能这样拆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 09:02 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 08:48 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 09:14 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 08:55 - [杨紫大银幕成绩单如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 09:03 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 09:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 09:11 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 09:11 - [“荒唐”背后的韩国足球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/4292600743.shtml)
-- 2026-06-30 08:59 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/84608.shtml)
-- 2026-06-30 09:10 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/23225019.shtml)
-- 2026-06-30 08:43 - [巴西2比1日本](https://www.blog.minike.top/Article/details/25574137.shtml)
-- 2026-06-30 09:04 - [追梦拒绝2770万美元球员选项](http://www.blog.kurohicncr.top/Article/details/76276865220.shtml)
-- 2026-06-30 09:06 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/117854322.shtml)
-- 2026-06-30 09:11 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/92915335951.shtml)
-- 2026-06-30 08:47 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/7576148.shtml)
-- 2026-06-30 08:46 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/237664430703.shtml)
-- 2026-06-30 08:48 - [日本球迷被强行披上巴西国旗](https://www.blog.kurohicncr.top/Article/details/398884.shtml)
-- 2026-06-30 08:47 - [点球大战和诺伊尔都救不回德国队](https://www.share.kurohicncr.top/Article/details/6286827215.shtml)
-- 2026-06-30 09:00 - [亚洲球队全部出局](http://www.blog.kurohicncr.top/Article/details/010393.shtml)
-- 2026-06-30 09:05 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/568243301.shtml)
-- 2026-06-30 09:03 - [急先锋](https://www.blog.kurohicncr.top/Article/details/624807635924.shtml)
-- 2026-06-30 09:05 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/00642.shtml)
+- 2026-06-30 09:10 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/078964859.shtml)
+- 2026-06-30 09:12 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/79106965883.shtml)
+- 2026-06-30 09:11 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/14859030331.shtml)
+- 2026-06-30 08:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/52776.shtml)
+- 2026-06-30 09:12 - [日耳曼拖拉机](https://www.blog.minike.top/Article/details/137717301.shtml)
+- 2026-06-30 09:06 - [存储芯片龙头提示风险](https://www.share.minike.top/Article/details/44568177.shtml)
+- 2026-06-30 08:53 - [董路：谁赢谁是“正路子”](http://www.blog.kurohicncr.top/Article/details/430852996.shtml)
+- 2026-06-30 09:01 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/978730055.shtml)
+- 2026-06-30 09:15 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/9236292.shtml)
+- 2026-06-30 09:13 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/03349806506.shtml)
+- 2026-06-30 09:08 - [德国罚丢3粒点球](https://www.share.kurohicncr.top/Article/details/2801726.shtml)
+- 2026-06-30 08:56 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/58463409598.shtml)
+- 2026-06-30 09:13 - [第一次对自信的力量有了实感](https://www.share.minike.top/Article/details/98873969.shtml)
+- 2026-06-30 09:06 - [网红不能困在无底线逐利里](https://www.blog.minike.top/Article/details/7168636.shtml)
+- 2026-06-30 09:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/01639697.shtml)

@@ -1,52 +1,56 @@
-# 世卫组织：正排查汉坦病毒死亡女乘客航班同机人员
+# 方案超预期！中信证券大股东“承包”160亿定增，最新解读来了
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新网5月5日电 据法新社报道，当地时间5日，世界卫生组织表示，目前正在追踪一架从圣赫勒拿岛飞往约翰内斯堡航班上的乘客，该航班上有一名涉疫邮轮乘客疑似感染汉坦病毒死亡。 据报道，这名荷兰籍女性的丈夫此前已在受困于佛得角海域的一艘豪华邮轮上因感染汉坦病毒死亡，她本人曾于4月24日在圣赫勒拿岛下船，当时表现出“胃肠道症状”。 世卫组织称，该女子的病情在飞往约翰内斯堡途中“恶化”，并
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日，中信证券公告了160亿元的定增计划，引发市场广泛关注。 分析师认为，从大股东全额认购、定价仅折价8%等来看，定增方案超出了预期，市场此前对头部券商再融资节奏和摊薄幅度的担忧有望缓解。分析师预计，定增短期或会小幅摊薄公司的ROE，也会令杠杆率小幅下滑，但长期则将为公司价值提供支撑。据悉，海外扩表已
 
 ## 正文
 
-中新网5月5日电 据法新社报道，当地时间5日，世界卫生组织表示，目前正在追踪一架从圣赫勒拿岛飞往约翰内斯堡航班上的乘客，该航班上有一名涉疫邮轮乘客疑似感染汉坦病毒死亡。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据报道，这名荷兰籍女性的丈夫此前已在受困于佛得角海域的一艘豪华邮轮上因感染汉坦病毒死亡，她本人曾于4月24日在圣赫勒拿岛下船，当时表现出“胃肠道症状”。
+5月28日，中信证券公告了160亿元的定增计划，引发市场广泛关注。
 
-世卫组织称，该女子的病情在飞往约翰内斯堡途中“恶化”，并于4月26日去世。
+分析师认为，从大股东全额认购、定价仅折价8%等来看，定增方案超出了预期，市场此前对头部券商再融资节奏和摊薄幅度的担忧有望缓解。
 
-目前，针对该航班乘客的接触者追踪工作已经启动。
+分析师预计，定增短期或会小幅摊薄公司的ROE，也会令杠杆率小幅下滑，但长期则将为公司价值提供支撑。
 
-据此前报道，涉疫邮轮名叫“洪迪厄斯”号，世卫组织表示，截至5月4日，船上已累计报告7例汉坦病毒相关病例，其中3人死亡。
+据悉，海外扩表已成头部券商共识。
+
+定增方案超预期 申万宏源非银分析师罗钻辉认为，从两大维度看，定增方案整体超预期。
+
+一方面，方案细节传递信心、彰显担当。
+
+公司第一大股东中信金控现金全额认购，发行定价较5月28日收盘价折扣仅8%，限售期48个月，充分展现股东长期战略发展信心与担当。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 08:45 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 09:09 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 09:06 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 09:00 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 08:43 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 08:43 - [日本球员说被绝杀非常不甘心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 09:08 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 08:48 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 08:47 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-30 09:09 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 08:54 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 09:10 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 09:01 - [三星投资计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 08:48 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 09:11 - [日本球迷输球后集体捡垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 08:48 - [“荒唐”背后的韩国足球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 09:11 - [收到补税提醒尽快办理 明起有滞纳金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 09:17 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 09:00 - [德国进球被吹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 08:48 - [第一次对自信的力量有了实感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 09:02 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/95596952898.shtml)
-- 2026-06-30 08:52 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/95120292.shtml)
-- 2026-06-30 08:49 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/606991809125.shtml)
-- 2026-06-30 08:44 - [GTA6的一些地点和功能仅对终极版开放，在国外游戏社区引发激烈争议，你怎么看？](http://www.blog.minike.top/Article/details/5616460.shtml)
-- 2026-06-30 08:46 - [张月收到黄灿灿辣货两眼发光](https://www.share.minike.top/Article/details/301684584297.shtml)
-- 2026-06-30 08:53 - [人文素养最重要的部分，是 AI 无法替代，还是 AI 根本不需要拥有？](https://www.blog.minike.top/Article/details/7962887.shtml)
-- 2026-06-30 09:03 - [德国进球被吹](http://www.blog.minike.top/Article/details/948971.shtml)
-- 2026-06-30 09:04 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/6953790519.shtml)
-- 2026-06-30 09:05 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/242617015.shtml)
-- 2026-06-30 08:48 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/17118.shtml)
-- 2026-06-30 09:08 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/66251310.shtml)
-- 2026-06-30 08:51 - [点球大战和诺伊尔都救不回德国队](https://www.blog.kurohicncr.top/Article/details/999107.shtml)
-- 2026-06-30 09:07 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.blog.kurohicncr.top/Article/details/371739469.shtml)
-- 2026-06-30 08:51 - [德国4比5巴拉圭](https://www.share.kurohicncr.top/Article/details/171863538906.shtml)
-- 2026-06-30 08:50 - [iPhone18e曝光](http://www.blog.minike.top/Article/details/8314452.shtml)
+- 2026-06-30 09:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/86336933.shtml)
+- 2026-06-30 08:53 - [哈弗茨头球破门](https://www.share.minike.top/Article/details/525903.shtml)
+- 2026-06-30 09:02 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/82493539.shtml)
+- 2026-06-30 09:12 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/561886526.shtml)
+- 2026-06-30 09:07 - [F1奥地利站赛后复盘](https://www.share.minike.top/Article/details/10967.shtml)
+- 2026-06-30 08:54 - [美股](http://www.blog.minike.top/Article/details/78420109.shtml)
+- 2026-06-30 09:07 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/9782276544.shtml)
+- 2026-06-30 08:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/135340.shtml)
+- 2026-06-30 09:05 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/5501840.shtml)
+- 2026-06-30 08:55 - [杨紫学位证上就是杨紫](http://www.share.kurohicncr.top/Article/details/6199419.shtml)
+- 2026-06-30 09:14 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/253888803512.shtml)
+- 2026-06-30 09:07 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/9001195.shtml)
+- 2026-06-30 09:04 - [德国队回应爆冷淘汰](http://www.share.kurohicncr.top/Article/details/31512.shtml)
+- 2026-06-30 09:14 - [日本五次世界杯淘汰赛全败](http://www.blog.minike.top/Article/details/175594524272.shtml)
+- 2026-06-30 08:56 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/448390400070.shtml)

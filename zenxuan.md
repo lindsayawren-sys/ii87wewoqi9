@@ -1,56 +1,52 @@
-# 宇宙射线从哪来？“悟空”号找出答案！
+# 总书记引领强国之路｜加快高水平科技自立自强
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-本报南京5月1日电(记者崔兴毅、苏雁)当你仰望星空时，无数接近光速的高能粒子——宇宙射线正日夜不停地轰击着地球。它们从哪儿来、怎样被加速到如此惊人的能量？这个问题困扰了科学家超过一个世纪。我国“悟空”号暗物质粒子探测卫星带来了一条关键线索：宇宙射线源在加速粒子时并非一视同仁，带电荷越多的粒子能被加速到的能量上限就越高。4月29日，这一发现在线发表于国际学术期刊《自然》。宇宙射线
+原标题：学习新语·总书记引领强国之路｜加快高水平科技自立自强 视频：总书记引领强国之路｜加快高水平科技自立自强来源：新华社 科技立则民族立，科技强则国家强。党的十八大以来，习近平总书记坚持把科技创新摆在国家发展全局的核心位置，引领我国科技事业取得历史性成就、发生历史性变革，朝着建成科技强国的宏伟目标奋勇前进。 “十五五”规划纲要提出16个“强国”建设目标，科技强国位列其中。规划
 
 ## 正文
 
-本报南京5月1日电(记者崔兴毅、苏雁)当你仰望星空时，无数接近光速的高能粒子——宇宙射线正日夜不停地轰击着地球。
+原标题：学习新语·总书记引领强国之路｜加快高水平科技自立自强 视频：总书记引领强国之路｜加快高水平科技自立自强来源：新华社 科技立则民族立，科技强则国家强。
 
-它们从哪儿来、怎样被加速到如此惊人的能量？
+党的十八大以来，习近平总书记坚持把科技创新摆在国家发展全局的核心位置，引领我国科技事业取得历史性成就、发生历史性变革，朝着建成科技强国的宏伟目标奋勇前进。
 
-这个问题困扰了科学家超过一个世纪。
+“十五五”规划纲要提出16个“强国”建设目标，科技强国位列其中。
 
-我国“悟空”号暗物质粒子探测卫星带来了一条关键线索：宇宙射线源在加速粒子时并非一视同仁，带电荷越多的粒子能被加速到的能量上限就越高。
+规划纲要对“加快高水平科技自立自强 引领发展新质生产力”作出专篇部署。
 
-4月29日，这一发现在线发表于国际学术期刊《自然》。
+九章、天问、嫦娥等重大原创成果加速涌现，科技与产业深度融合，新质生产力蓬勃生长⋯⋯“十五五”新程开启，我国科技创新的根基更加牢固，迈向科技强国的步伐更加铿锵有力。
 
-宇宙射线里含有质子、原子核等各种粒子，把它们按能量统计的数目多少画出一条曲线，就是宇宙射线能谱。
-
-能谱里藏着宇宙射线起源的密码。
-
-由于以往空间实验探测能力有限，高能区的能谱长什么样一直看不清楚。
+策划：石锋 吴丹 统筹：黄庆华 周年钧 编导：姜子炜 制作/视觉：屈彦 刘美子 新华社新媒体中心制作 新华社出品
 
 ## 相关推荐
 
-- 2026-06-30 08:52 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 08:43 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 09:02 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 09:02 - [郑钦文温网三连败西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 08:50 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 08:52 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 08:55 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 08:56 - [欧洲装一台空调有多难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 08:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 08:51 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 09:11 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 09:07 - [锐评：网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 09:14 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 08:59 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 09:12 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 09:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 09:09 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 09:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 08:51 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 09:13 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:48 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/463526.shtml)
-- 2026-06-30 08:54 - [郑钦文温网一轮游](https://www.blog.kurohicncr.top/Article/details/304230.shtml)
-- 2026-06-30 08:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/3714208286.shtml)
-- 2026-06-30 08:42 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/1506931.shtml)
-- 2026-06-30 08:58 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/96404.shtml)
-- 2026-06-30 08:55 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/6428613774.shtml)
-- 2026-06-30 09:04 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/6397464.shtml)
-- 2026-06-30 08:51 - [田中碧失误](http://www.share.minike.top/Article/details/4473948107.shtml)
-- 2026-06-30 08:48 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/8089428938.shtml)
-- 2026-06-30 09:01 - [张月收到黄灿灿辣货两眼发光](http://www.blog.minike.top/Article/details/146353.shtml)
-- 2026-06-30 08:49 - [天道](https://www.share.kurohicncr.top/Article/details/262270.shtml)
-- 2026-06-30 08:58 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/99390.shtml)
-- 2026-06-30 09:02 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/190531453469.shtml)
-- 2026-06-30 09:05 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/045290451708.shtml)
-- 2026-06-30 08:50 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/33294.shtml)
+- 2026-06-30 08:51 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/9083788285.shtml)
+- 2026-06-30 09:15 - [房价什么时候能涨](https://www.share.minike.top/Article/details/546445470.shtml)
+- 2026-06-30 09:06 - [送你一朵小红花](http://www.blog.minike.top/Article/details/72303474121.shtml)
+- 2026-06-30 09:05 - [锐评T1战胜KC](https://www.share.kurohicncr.top/Article/details/3647062.shtml)
+- 2026-06-30 09:01 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/06675.shtml)
+- 2026-06-30 09:08 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/009978.shtml)
+- 2026-06-30 09:06 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/0401266354.shtml)
+- 2026-06-30 08:52 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/045180924.shtml)
+- 2026-06-30 09:17 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/51778.shtml)
+- 2026-06-30 09:05 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/06391.shtml)
+- 2026-06-30 09:05 - [感动全网的699分女生想报考清华](http://www.share.minike.top/Article/details/59758928289.shtml)
+- 2026-06-30 09:06 - [点球大战](https://www.blog.minike.top/Article/details/742803.shtml)
+- 2026-06-30 08:48 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/381466921.shtml)
+- 2026-06-30 09:02 - [三星投资计划](http://www.share.minike.top/Article/details/71864663427.shtml)
+- 2026-06-30 08:58 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/02236109.shtml)

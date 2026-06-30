@@ -1,53 +1,50 @@
-# 希腊财政部长：欧洲需要更多银行业整合
+# 日本历史学者：警示本国扩军与历史教育乱象
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-希腊财政部长Kyriakos Pierrakakis表示，欧洲需要更多的银行业整合。 他在布鲁塞尔一次会议的间隙表示：“我们需要的是欧洲冠军企业，而不是国家冠军企业，而且，欧洲确实需要更多的银行业整合。我们需要更多的跨境并购。情况确实如此。“ 他说，评估形势的一个指标是，与美国的同行相比，欧洲银行的技术投资情况。责任编辑：李桐
+发布时间：2026年05月28日 22:44 来源：中国新闻网 纪念东京审判开庭80周年国际研讨会5月28日起在上海、南京举行。来华出席研讨会的日本历史学者、细菌战问题研究专家森正孝27日接受中新社记者专访时表示，他对高市早苗政府的政策非常担心，对日本当下偏离和平道路的一系列动向深感忧虑。(张素 周昕 康玉湛 刘鹏 综合报道) 责任编辑：【曲克】
 
 ## 正文
 
-希腊财政部长Kyriakos Pierrakakis表示，欧洲需要更多的银行业整合。
+发布时间：2026年05月28日 22:44 来源：中国新闻网 纪念东京审判开庭80周年国际研讨会5月28日起在上海、南京举行。
 
-他在布鲁塞尔一次会议的间隙表示：“我们需要的是欧洲冠军企业，而不是国家冠军企业，而且，欧洲确实需要更多的银行业整合。
+来华出席研讨会的日本历史学者、细菌战问题研究专家森正孝27日接受中新社记者专访时表示，他对高市早苗政府的政策非常担心，对日本当下偏离和平道路的一系列动向深感忧虑。
 
-我们需要更多的跨境并购。
-
-情况确实如此。
-
-“ 他说，评估形势的一个指标是，与美国的同行相比，欧洲银行的技术投资情况。
-
-责任编辑：李桐
+(张素 周昕 康玉湛 刘鹏 综合报道) 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-30 08:43 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 08:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 08:57 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 09:11 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 08:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 09:03 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-30 08:50 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 08:43 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 08:51 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 08:56 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 08:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 09:04 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 08:53 - [吴启华卖肖像权拍AI电影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 08:49 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 09:00 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 09:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 09:17 - [追梦拒绝2770万美元球员选项](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 09:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 08:51 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 08:49 - [收到补税提醒尽快办理 明起有滞纳金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 08:57 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 09:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 09:02 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 09:03 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 08:59 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:00 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/272163.shtml)
-- 2026-06-30 09:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/51141.shtml)
-- 2026-06-30 08:49 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/1328410317.shtml)
-- 2026-06-30 08:42 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/40172.shtml)
-- 2026-06-30 09:08 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/285485343.shtml)
-- 2026-06-30 08:55 - [马耳他著名拱门坍塌致中国男子身亡](http://www.share.minike.top/Article/details/2277093.shtml)
-- 2026-06-30 08:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/864748812.shtml)
-- 2026-06-30 09:01 - [F1奥地利站赛后复盘](https://www.blog.kurohicncr.top/Article/details/3008066776.shtml)
-- 2026-06-30 09:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/09747250737.shtml)
-- 2026-06-30 09:09 - [德国队回应爆冷淘汰](https://www.share.kurohicncr.top/Article/details/302637737.shtml)
-- 2026-06-30 08:49 - [日本球迷输球后集体捡垃圾](http://www.share.kurohicncr.top/Article/details/1675082.shtml)
-- 2026-06-30 08:54 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/2941081515.shtml)
-- 2026-06-30 08:49 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/9511399.shtml)
-- 2026-06-30 08:47 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/36700.shtml)
-- 2026-06-30 08:59 - [武磊：巴西队赢的并不轻松](https://www.share.minike.top/Article/details/5065599.shtml)
+- 2026-06-30 09:06 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](https://www.share.kurohicncr.top/Article/details/203815141186.shtml)
+- 2026-06-30 08:55 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/198236721.shtml)
+- 2026-06-30 08:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/0719985.shtml)
+- 2026-06-30 08:49 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/036776.shtml)
+- 2026-06-30 09:03 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/06941874751.shtml)
+- 2026-06-30 08:55 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/747339.shtml)
+- 2026-06-30 08:56 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/211501.shtml)
+- 2026-06-30 09:03 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/16085897.shtml)
+- 2026-06-30 08:52 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/4745073.shtml)
+- 2026-06-30 08:50 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/861256354950.shtml)
+- 2026-06-30 08:54 - [日本队被绝杀后鞠躬致谢观众](https://www.blog.minike.top/Article/details/4456813.shtml)
+- 2026-06-30 09:03 - [德国淘汰](http://www.blog.minike.top/Article/details/193413752650.shtml)
+- 2026-06-30 09:06 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.kurohicncr.top/Article/details/9538456.shtml)
+- 2026-06-30 08:52 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.minike.top/Article/details/7604389.shtml)
+- 2026-06-30 09:17 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/7162998.shtml)

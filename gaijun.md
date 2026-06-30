@@ -1,43 +1,58 @@
-# 提升我国原始创新能力 进一步打牢科技强国建设根基——习近平总书记在加强基础研究座谈会上的重要讲话在广大科技教育工作者中引发热烈反响
+# 高盛“二把手”公开警示：通胀是当前经济头号风险
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月02日 13:47 来源：央视综合 责任编辑：【田博川】
+金十数据 高盛总裁直言通胀是他个人最担忧的问题，市场押注美联储年内加息的概率已过半。业内人士分析，AI相关投资削弱了高利率抑制需求的作用，导致通胀粘性进一步增强。 高盛总裁兼首席运营官约翰・沃尔德伦（John Waldron）周四在纽约伯恩斯坦战略决策会议上直言，通胀是当前经济“最大的单一风险因素”，也是他个人最担忧的问题。 沃尔德伦是仅次于高盛CEO大卫・所罗门（David
 
 ## 正文
 
-发布时间：2026年05月02日 13:47 来源：央视综合 责任编辑：【田博川】
+金十数据 高盛总裁直言通胀是他个人最担忧的问题，市场押注美联储年内加息的概率已过半。
+
+业内人士分析，AI相关投资削弱了高利率抑制需求的作用，导致通胀粘性进一步增强。
+
+高盛总裁兼首席运营官约翰・沃尔德伦（John Waldron）周四在纽约伯恩斯坦战略决策会议上直言，通胀是当前经济“最大的单一风险因素”，也是他个人最担忧的问题。
+
+沃尔德伦是仅次于高盛CEO大卫・所罗门（David Solomon）的“二把手”。
+
+他警告，若全球长期利率持续上行，将推高全社会资本成本、抑制消费支出，对经济形成广泛冲击。
+
+美国经济分析局（BEA）周四公布，美联储偏爱的通胀指标——4月核心PCE物价指数同比上涨3.8%，为2023年以来最高水平，远超美联储2%的目标。
+
+受此影响，债券市场再次发出警示：当前利率水平可能不足以压制通胀。
+
+据CME美联储观察数据，市场定价显示美联储今年加息概率已升至50.5%，首次超过维持利率不变的49%。
 
 ## 相关推荐
 
-- 2026-06-30 08:47 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 08:44 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 08:42 - [恋与深空](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 08:59 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 08:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 08:50 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 08:49 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 09:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 08:46 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 08:54 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 09:09 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 08:58 - [亚洲球队全部出局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 09:15 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 08:54 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 08:49 - [点球大战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 08:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 09:15 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 08:48 - [日本主帅：未能夺冠深感抱歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 08:56 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 09:15 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 09:00 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 09:14 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 09:11 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:11 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/615934017.shtml)
-- 2026-06-30 08:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/6054460445.shtml)
-- 2026-06-30 09:09 - [第3集丨“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/071918743358.shtml)
-- 2026-06-30 09:08 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/0473514726.shtml)
-- 2026-06-30 08:42 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/1405626.shtml)
-- 2026-06-30 09:05 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/1243952.shtml)
-- 2026-06-30 09:04 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/4509979591.shtml)
-- 2026-06-30 08:53 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/092204596.shtml)
-- 2026-06-30 08:57 - [美股收盘 热门中概股普涨](http://www.blog.kurohicncr.top/Article/details/440040567.shtml)
-- 2026-06-30 08:51 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/6440733.shtml)
-- 2026-06-30 09:05 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/929459.shtml)
-- 2026-06-30 08:59 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/62177074.shtml)
-- 2026-06-30 09:06 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/090056916.shtml)
-- 2026-06-30 08:42 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/0945762.shtml)
-- 2026-06-30 08:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/09075.shtml)
+- 2026-06-30 08:51 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/49256901443.shtml)
+- 2026-06-30 09:13 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/219132287.shtml)
+- 2026-06-30 08:55 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/3403977293.shtml)
+- 2026-06-30 09:05 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/3517464.shtml)
+- 2026-06-30 09:07 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/131310701718.shtml)
+- 2026-06-30 08:50 - [刘宇宁高情商化解谁站C位](https://www.blog.kurohicncr.top/Article/details/97433.shtml)
+- 2026-06-30 09:08 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/5608347.shtml)
+- 2026-06-30 08:56 - [田中碧失误](https://www.share.kurohicncr.top/Article/details/33039677.shtml)
+- 2026-06-30 08:59 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/274633541.shtml)
+- 2026-06-30 08:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/325009829127.shtml)
+- 2026-06-30 08:54 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/804463566657.shtml)
+- 2026-06-30 08:54 - [我觉得你是在无中生友](http://www.blog.kurohicncr.top/Article/details/366519.shtml)
+- 2026-06-30 09:06 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://www.share.kurohicncr.top/Article/details/548016.shtml)
+- 2026-06-30 09:09 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/211519336.shtml)
+- 2026-06-30 08:55 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/0243416814.shtml)

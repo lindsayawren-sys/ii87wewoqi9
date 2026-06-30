@@ -1,61 +1,56 @@
-# “95后”基金经理，闪亮登场：博道刘兆阳、摩根韩秀一、永赢孙铭婉、国泰彭悦、平安金溪寒、金鹰吴海峰等
+# 津港澳企业家合作交流座谈会在津举行 共话智能产业协同发展
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！随着公募行业快速发展，一批“95后”基金经理已经闪亮登场。 他们有的拥抱量化指数投资领域，深耕投资策略，以专业性和纪律性，为投资者打造具备长久生命力的投资工具。 有的从行业研究起步，在学习中持续进步，紧跟产业变化，不断拓展能力圈，对资产的风险收益特征建立认知，通过组合构建实现认知变现。 指数量化“新秀”迭起
+中新网天津5月29日电 题：津港澳企业家合作交流座谈会在津举行共话智能产业协同发展 中新网记者 孙玲玲 2026世界智能产业博览会期间，由天津市委统战部、市工商联共同举办的“智联津港澳共创新未来”——津港澳企业家合作交流座谈会于29日上午在天津举行。 来自三地的80余位企业家、专家学者代表齐聚一堂，围绕人工智能、企业出海等议题展开务实对话。如何发挥港澳“超级联系人”和“超级增值
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网天津5月29日电 题：津港澳企业家合作交流座谈会在津举行共话智能产业协同发展 中新网记者 孙玲玲 2026世界智能产业博览会期间，由天津市委统战部、市工商联共同举办的“智联津港澳共创新未来”——津港澳企业家合作交流座谈会于29日上午在天津举行。
 
-随着公募行业快速发展，一批“95后”基金经理已经闪亮登场。
+来自三地的80余位企业家、专家学者代表齐聚一堂，围绕人工智能、企业出海等议题展开务实对话。
 
-他们有的拥抱量化指数投资领域，深耕投资策略，以专业性和纪律性，为投资者打造具备长久生命力的投资工具。
+如何发挥港澳“超级联系人”和“超级增值人”的独特作用，助力天津企业链接全球资源、对标国际标准，成为与会者关注的焦点。
 
-有的从行业研究起步，在学习中持续进步，紧跟产业变化，不断拓展能力圈，对资产的风险收益特征建立认知，通过组合构建实现认知变现。
+港企代表：天津是难得的应用场景富矿 “这是我第4次带团来天津参加智博会。
 
-指数量化“新秀”迭起 近年来，国内指数和量化投资的兴起，吸引了一大批新生力量，“95后”指数量化基金经理已成为公募行业重要的新生派代表。
+”港区全国人大代表、香港人工智能资助计划主席、互联网专业协会会长冼汉迪在发言中说。
 
-博道基金量化投资部总经理助理、基金经理刘兆阳从清华大学硕士毕业后，成为博道基金量化团队的一员。
+他此次组织的香港考察团覆盖高校科研、产业园区、科创企业等多个领域。
 
-博道基金量化团队的运作机制备受刘兆阳认可：“团队整体采取分工协作、投研一体的模式，通过合理的考核机制和严格的研究目标，确保所有人员在研究方向上的产出竞争力。
+在他看来，香港近年大力投入科创，人工智能算力也在快速扩容，“但香港缺的是应用场景和产业纵深，而这恰恰是天津的强项”。
 
-这样既能充分激发团队成员积极性，鼓励大家在专业领域内不断深入拓展，又能将个人能力转化为团队的核心竞争力。
+冼汉迪表示，香港去年的融资规模位居全球前列，有能力为天津科技企业对接国际资本、拓展海外市场提供专业服务，“技术研发在天津，融资出海借道香港，这条路值得更多企业关注”。
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 09:05 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 09:03 - [收到补税提醒尽快办理 明起有滞纳金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 09:09 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 08:49 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 08:52 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 08:44 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 08:43 - [马航370搜寻最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 09:09 - [点球大战 残酷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-30 08:50 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 08:42 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 08:44 - [德国北部枪击事件致5死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 08:59 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 08:50 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 09:06 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 09:15 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 08:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 09:12 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 09:15 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 09:05 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 09:09 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 08:55 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 09:04 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 09:08 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 08:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.minike.top/Article/details/4329682.shtml)
-- 2026-06-30 08:48 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/3391982.shtml)
-- 2026-06-30 09:06 - [网红不能困在无底线逐利里](http://www.share.minike.top/Article/details/061493.shtml)
-- 2026-06-30 09:00 - [小娘惹](http://www.share.minike.top/Article/details/0472962914.shtml)
-- 2026-06-30 08:49 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/0865291.shtml)
-- 2026-06-30 09:00 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/26993.shtml)
-- 2026-06-30 09:07 - [人民锐评网红诋毁袁隆平造谣企业家](https://www.blog.kurohicncr.top/Article/details/084946981.shtml)
-- 2026-06-30 09:02 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/6301885444.shtml)
-- 2026-06-30 08:46 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/50461256279.shtml)
-- 2026-06-30 08:57 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/166532887.shtml)
-- 2026-06-30 08:47 - [时光音乐会](http://www.share.minike.top/Article/details/26766.shtml)
-- 2026-06-30 08:55 - [大蒜晒外面被路过女子连盆端走](http://www.blog.minike.top/Article/details/419054710383.shtml)
-- 2026-06-30 08:57 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/15948998432.shtml)
-- 2026-06-30 08:50 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/37532979.shtml)
-- 2026-06-30 08:57 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/65362361090.shtml)
+- 2026-06-30 08:48 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/184502133724.shtml)
+- 2026-06-30 08:49 - [德国巴拉圭进入点球大战](https://www.share.kurohicncr.top/Article/details/2508576.shtml)
+- 2026-06-30 08:48 - [现在叛逆期的孩子最怕的是什么？](http://www.blog.kurohicncr.top/Article/details/36292250.shtml)
+- 2026-06-30 09:13 - [王楚钦说配合稍微有些陌生感](https://www.share.minike.top/Article/details/446917441240.shtml)
+- 2026-06-30 09:09 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/0045781743.shtml)
+- 2026-06-30 09:06 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/31744275676.shtml)
+- 2026-06-30 08:48 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/66453576002.shtml)
+- 2026-06-30 09:07 - [iPhoneUltra黑色机模](http://www.blog.kurohicncr.top/Article/details/7722800.shtml)
+- 2026-06-30 09:16 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/2957232.shtml)
+- 2026-06-30 08:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/42788190.shtml)
+- 2026-06-30 09:10 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.minike.top/Article/details/9557690081.shtml)
+- 2026-06-30 08:48 - [日本16强魔咒](https://www.share.minike.top/Article/details/319355525.shtml)
+- 2026-06-30 09:13 - [勇士续约波尔津吉斯](http://www.blog.minike.top/Article/details/679385102.shtml)
+- 2026-06-30 09:13 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/398626.shtml)
+- 2026-06-30 09:00 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/68468721.shtml)

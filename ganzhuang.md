@@ -1,59 +1,58 @@
-# 欧洲央行管委Makhlouf：通胀上行风险加剧 经济面临“逆风”
+# 国家统计局：5月PMI为50.0%，比上月下降0.3个百分点
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-欧洲央行管理委员会成员Gabriel Makhlouf表示，周四对欧元区经济状况的初步评估，加上消费者和企业信心走弱，表明经济增长面临“短期逆风”。 这位爱尔兰央行行长周五在一篇博客文章中表示：“尽管最新信息大体上与我们此前对通胀前景的评估一致，但通胀的上行风险和经济增长的下行风险都已加剧。” Makhlouf表示，由于伊朗战争何时结束、霍尔木兹海峡何时重新开放都没有明确时间表
+国家统计局服务业调查中心 中国物流与采购联合会 一、中国制造业采购经理指数运行情况 5月份，制造业采购经理指数（PMI）为50.0%，比上月下降0.3个百分点，位于临界点。 从企业规模看，大型企业PMI为51.1%，比上月上升0.9个百分点，高于临界点；中、小型企业PMI分别为48.6%和48.5%，比上月下降1.9个和1.6个百分点，均低于临界点。 从分类指数看，构成制造业P
 
 ## 正文
 
-欧洲央行管理委员会成员Gabriel Makhlouf表示，周四对欧元区经济状况的初步评估，加上消费者和企业信心走弱，表明经济增长面临“短期逆风”。
+国家统计局服务业调查中心 中国物流与采购联合会 一、中国制造业采购经理指数运行情况 5月份，制造业采购经理指数（PMI）为50.0%，比上月下降0.3个百分点，位于临界点。
 
-这位爱尔兰央行行长周五在一篇博客文章中表示：“尽管最新信息大体上与我们此前对通胀前景的评估一致，但通胀的上行风险和经济增长的下行风险都已加剧。
+从企业规模看，大型企业PMI为51.1%，比上月上升0.9个百分点，高于临界点；中、小型企业PMI分别为48.6%和48.5%，比上月下降1.9个和1.6个百分点，均低于临界点。
 
-” Makhlouf表示，由于伊朗战争何时结束、霍尔木兹海峡何时重新开放都没有明确时间表，他担心能源价格在更长时间内维持高位的情景。
+从分类指数看，构成制造业PMI的5个分类指数中，生产指数高于临界点，新订单指数、原材料库存指数、从业人员指数和供应商配送时间指数均低于临界点。
 
-中东战争如今已进入第3个月，而周四公布的官方数据显示，第一季度经济增速放缓，而第一季度只涵盖了战事爆发后的第一个月。
+生产指数为51.2%，比上月下降0.3个百分点，仍高于临界点，表明制造业生产活动保持扩张。
 
-他的这番言论发表于欧洲央行行长克里斯蒂娜·拉加德前一天暗示将在下次会议上考虑加息之后，基本呼应了其他几位欧洲央行官员周五表达的担忧。
+新订单指数为49.9%，比上月下降0.7个百分点，表明制造业市场需求景气水平有所回落。
 
-德国央行行长Joachim Nagel表示，如果前景没有改善，利率可能需要上升。
+原材料库存指数为48.6%，比上月下降0.7个百分点，表明制造业主要原材料库存量下降。
 
-爱沙尼亚的Madis Muller也提到了这一点，而奥地利央行行长Martin Kocher则呼吁给更多时间评估经济面临的风险。
+从业人员指数为48.6%，比上月下降0.2个百分点，表明制造业企业用工景气水平有所回落。
 
-Makhlouf表示，当前局势让他想起新冠疫情以及俄乌冲突爆发之后“供应链压力的非线性传导”，这种情况可能会带来更持久的通胀。
+供应商配送时间指数为49.2%，比上月下降0.3个百分点，表明制造业原材料供应商交货时间较上月继续延长。
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 08:45 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 09:00 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 09:01 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 09:05 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 08:46 - [世界杯欧洲队7战南美仅1胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 08:57 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 08:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-30 08:42 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 08:54 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 09:10 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 09:07 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 08:59 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 09:08 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 09:16 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 08:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 09:06 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 09:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 08:48 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 09:14 - [库尼亚赛后伸五指嘲讽日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 09:16 - [妻子撞死家暴丈夫案二审案情反转](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 09:09 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 09:04 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 09:02 - [内马尔未登场 安切洛蒂赛后回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 09:07 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:03 - [输球后日本球迷被强行披上巴西国旗](https://www.share.kurohicncr.top/Article/details/70557552.shtml)
-- 2026-06-30 08:47 - [巴西vs日本](https://www.share.minike.top/Article/details/6817602.shtml)
-- 2026-06-30 08:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/896220830612.shtml)
-- 2026-06-30 09:07 - [韩国世界杯出局是主帅一个人的锅吗](http://www.share.minike.top/Article/details/4384016.shtml)
-- 2026-06-30 08:58 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/088757227216.shtml)
-- 2026-06-30 09:04 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/68291580.shtml)
-- 2026-06-30 09:02 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/01178137499.shtml)
-- 2026-06-30 09:10 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/7918175.shtml)
-- 2026-06-30 09:06 - [球评巴西绝杀逆转日本](http://www.blog.minike.top/Article/details/0973472903.shtml)
-- 2026-06-30 09:09 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/3154926.shtml)
-- 2026-06-30 08:55 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/722352.shtml)
-- 2026-06-30 08:56 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/408490553.shtml)
-- 2026-06-30 08:55 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/5838749936.shtml)
-- 2026-06-30 08:54 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/79960.shtml)
-- 2026-06-30 09:10 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/521799006.shtml)
+- 2026-06-30 09:09 - [高考结束了，你会让孩子在家玩手机吗？](http://www.blog.minike.top/Article/details/79309806.shtml)
+- 2026-06-30 08:59 - [郑钦文温网一轮游](https://www.blog.minike.top/Article/details/82292.shtml)
+- 2026-06-30 09:07 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/18415063.shtml)
+- 2026-06-30 08:51 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/3116749.shtml)
+- 2026-06-30 09:09 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/5080617333.shtml)
+- 2026-06-30 09:10 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/7198743014.shtml)
+- 2026-06-30 08:59 - [日本主帅：未能夺冠深感抱歉](https://www.share.kurohicncr.top/Article/details/366764598161.shtml)
+- 2026-06-30 08:53 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/154428.shtml)
+- 2026-06-30 09:02 - [扬名立万](https://www.share.minike.top/Article/details/4800678.shtml)
+- 2026-06-30 09:06 - [日本球员说被绝杀非常不甘心](https://www.blog.minike.top/Article/details/38012.shtml)
+- 2026-06-30 09:12 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/482130207148.shtml)
+- 2026-06-30 08:50 - [千与千寻](http://www.blog.minike.top/Article/details/057461382.shtml)
+- 2026-06-30 09:12 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/84104.shtml)
+- 2026-06-30 08:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/348423.shtml)
+- 2026-06-30 08:50 - [巴西vs日本](http://www.share.minike.top/Article/details/95550116346.shtml)

@@ -1,59 +1,59 @@
-# 揭秘美国民主党募款机构ActBlue的豪金做派与权力裂痕
+# 鹏博士（600804）股民索赔再向法院提交立案，倒计时不足2月
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-2024年美国民主党选举惨败，之后，ActBlue的首席执行官召集全体员工开展了为期四天的休整研讨活动。该平台曾为民主党在当年的竞选中筹集了40亿美元资金。 据知情人士透露，这位首席执行官开场讲话最先提到的话题之一，竟是她为此次活动专门运到旧金山的行头。知情人士称，员工们刚刚经历裁员和败选的打击，惊魂未定，听到这番言论只觉得格外刺耳。 ActBlue是民主党基础设施中不可或缺的
+2026年5月27日，上海久诚律师事务所股民索赔律师许峰代理的鹏博士（600804）虚假陈述引发的投资者索赔案再向法院提交一次立案。 2026年1月底，许峰律师代理的一位鹏博士投资者通过调解获赔到位，其他鹏博士投资者索赔案已向法院申请强制执行。（许峰律师专栏） 鹏博士投资者索赔案已有投资者胜诉判决，许峰律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托
 
 ## 正文
 
-2024年美国民主党选举惨败，之后，ActBlue的首席执行官召集全体员工开展了为期四天的休整研讨活动。
+2026年5月27日，上海久诚律师事务所股民索赔律师许峰代理的鹏博士（600804）虚假陈述引发的投资者索赔案再向法院提交一次立案。
 
-该平台曾为民主党在当年的竞选中筹集了40亿美元资金。
+2026年1月底，许峰律师代理的一位鹏博士投资者通过调解获赔到位，其他鹏博士投资者索赔案已向法院申请强制执行。
 
-据知情人士透露，这位首席执行官开场讲话最先提到的话题之一，竟是她为此次活动专门运到旧金山的行头。
+（许峰律师专栏） 鹏博士投资者索赔案已有投资者胜诉判决，许峰律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-知情人士称，员工们刚刚经历裁员和败选的打击，惊魂未定，听到这番言论只觉得格外刺耳。
+2024年8月16日晚，鹏博士公告收到证监会《行政处罚决定书》，经查明，当事人违法事实如下： 一、鹏博士未按规定披露关联交易。
 
-ActBlue是民主党基础设施中不可或缺的一环，如今却深陷争议；据熟悉该平台运营的知情人士透露，这在一定程度上要归咎于首席执行官蕾吉娜．华莱士-琼斯（Regina Wallace-Jones）的管理方式，她在支出和法律事务上的决策已引发民主党人和内部员工的担忧。
+二、鹏博士未按规定披露重大合同。
 
-知情人士称，出身科技行业高管的华莱士-琼斯，试图抛弃该机构原有的政治非营利组织运营模式，转而效仿硅谷公司的做法，通过收购初创企业来维持竞争力，并为高管提供种种优厚待遇。
+三、鹏博士2012年-2022年年报存在虚假记载 鹏博士2012年虚增利润42，456，137.95元，占当年利润总额比例为17.43%。
 
-知情人士称，她淡化了该组织律师在2024年就某些筹款做法发出的风险警告，同时在差旅和安保方面大幅增加开支。
+鹏博士2012年-2015年年报均虚增资产，2016年年报虚增资产162，000，000.00元、虚增利润162，000，000.00元，占当年利润总额比例为17.48%。
 
-知情人士表示，在去年2月的研讨活动期间，ActBlue在旧金山洲际酒店（Intercontinental San Francisco）预订了数百间客房，华莱士-琼斯免费入住了一套双层总统套房，在她的指示下，大批安保人员在酒店内严阵以待。
+鹏博士2016年-2019年年报均虚增资产。
 
 ## 相关推荐
 
-- 2026-06-30 08:55 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 09:06 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 08:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 08:57 - [内马尔安慰日本球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 09:01 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 08:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 09:11 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 09:07 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 09:05 - [锐评：网红不能困在无底线逐利里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 08:46 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 08:46 - [马耳他著名拱门坍塌致中国男子身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 08:55 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 08:50 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 08:55 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-30 09:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 09:02 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 09:06 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 09:11 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 08:52 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 09:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 09:04 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 09:07 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 08:48 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 08:51 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 09:10 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 08:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/2415192.shtml)
-- 2026-06-30 09:10 - [日耳曼拖拉机](http://www.blog.minike.top/Article/details/89149561.shtml)
-- 2026-06-30 08:54 - [美人鱼](http://www.share.minike.top/Article/details/12099.shtml)
-- 2026-06-30 09:10 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/293644918.shtml)
-- 2026-06-30 08:58 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/16639996854.shtml)
-- 2026-06-30 09:09 - [张雪的一句“是我们”引发岛内热议](https://www.share.minike.top/Article/details/59918046399.shtml)
-- 2026-06-30 08:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/38322071266.shtml)
-- 2026-06-30 09:07 - [巴拉圭点球大战淘汰德国进16强](http://www.share.minike.top/Article/details/1218105.shtml)
-- 2026-06-30 09:00 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/6027164459.shtml)
-- 2026-06-30 09:00 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/916270595952.shtml)
-- 2026-06-30 09:08 - [巴西绝杀日本](http://www.share.minike.top/Article/details/84142.shtml)
-- 2026-06-30 08:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/22697967.shtml)
-- 2026-06-30 09:04 - [日本博主：日本足球真的垃圾](http://www.blog.minike.top/Article/details/6079803.shtml)
-- 2026-06-30 08:55 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/8837639737.shtml)
-- 2026-06-30 08:43 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.minike.top/Article/details/7060843.shtml)
+- 2026-06-30 08:50 - [存储芯片龙头提示风险](http://www.share.kurohicncr.top/Article/details/167057223.shtml)
+- 2026-06-30 08:53 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/8381358816.shtml)
+- 2026-06-30 09:10 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/02600367.shtml)
+- 2026-06-30 09:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/671371.shtml)
+- 2026-06-30 08:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/4682496035.shtml)
+- 2026-06-30 09:12 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/07658657752.shtml)
+- 2026-06-30 09:00 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/883014987261.shtml)
+- 2026-06-30 08:56 - [内马尔安慰日本球员](https://www.blog.minike.top/Article/details/55533216.shtml)
+- 2026-06-30 09:10 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/817623.shtml)
+- 2026-06-30 09:14 - [大蒜晒外面被路过女子连盆端走](http://www.share.minike.top/Article/details/181576.shtml)
+- 2026-06-30 09:01 - [日本反击率先破门](https://www.share.minike.top/Article/details/599566.shtml)
+- 2026-06-30 08:53 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/616061.shtml)
+- 2026-06-30 09:01 - [泰山景区回应修建刀片刺绳隔离网](http://www.blog.minike.top/Article/details/47000489824.shtml)
+- 2026-06-30 09:04 - [第3集丨“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/380974.shtml)
+- 2026-06-30 08:49 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/22422828.shtml)

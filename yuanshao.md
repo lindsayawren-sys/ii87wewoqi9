@@ -1,60 +1,48 @@
-# 粤港湾控股早盘涨近8% 公司转型智算赛道去年扭亏为盈
+# 日方人士：更多人终于认识到高市政权的危险性
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-粤港湾控股（01396）再涨超7%，年初至今股价累涨1.3倍。截至发稿，股价上涨7.71%，现报11.31港元，成交额6037.13万港元。 去年10月，粤港湾控股在公告收购天顿数据之后，完成了从地产模式向稀缺资产型AI算力基础设施平台的实质性转型。公司净利润从2024财年巨亏约20.413亿元，一举逆转为2025财年归母净利润约7300万元。财报中显示，天顿数据在并表后短短两
+发布时间：2026年05月29日 07:59 来源：中国新闻网 纪念东京审判开庭80周年国际研讨会5月28日在上海举行。来华出席研讨会的日本“继承和发展村山谈话会”理事长藤田高景在接受中新社记者采访时说，由于高市早苗的缘故，日中关系已经达到非常恶劣的地步。 藤田高景注意到，在日本已经出现了保护“和平宪法”的行动，更多日本人也终于开始认识到高市政权的危险性，这是一件好事。(记者
 
 ## 正文
 
-粤港湾控股（01396）再涨超7%，年初至今股价累涨1.3倍。
+发布时间：2026年05月29日 07:59 来源：中国新闻网 纪念东京审判开庭80周年国际研讨会5月28日在上海举行。
 
-截至发稿，股价上涨7.71%，现报11.31港元，成交额6037.13万港元。
+来华出席研讨会的日本“继承和发展村山谈话会”理事长藤田高景在接受中新社记者采访时说，由于高市早苗的缘故，日中关系已经达到非常恶劣的地步。
 
-去年10月，粤港湾控股在公告收购天顿数据之后，完成了从地产模式向稀缺资产型AI算力基础设施平台的实质性转型。
+藤田高景注意到，在日本已经出现了保护“和平宪法”的行动，更多日本人也终于开始认识到高市政权的危险性，这是一件好事。
 
-公司净利润从2024财年巨亏约20.413亿元，一举逆转为2025财年归母净利润约7300万元。
-
-财报中显示，天顿数据在并表后短短两个多月内便贡献了约6.167亿元收入，占集团总收入的61.5%。
-
-国元国际认为，转型智算赛道后，公司将深度绑定AI产业的高增长红利，估值体系有望切换至“算力+科技”赛道的估值框架。
-
-参考当前智算行业的高景气度与稀缺性标的估值水平，粤港湾控股凭借天顿数据的万卡集群能力、头部客户资源，以及债转股后优化的财务结构，公司具备重估空间。
-
-责任编辑：卢昱君
+(记者 张素 周昕 制作 王宁） 责任编辑：【刘欢】
 
 ## 相关推荐
 
-- 2026-06-30 09:11 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 09:12 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 09:04 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 09:00 - [韩国道歉完日本道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 09:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 09:00 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 09:09 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 09:10 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 09:06 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 08:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 08:46 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 09:03 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 09:10 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 08:46 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 09:05 - [巴西足球能否再现昔日荣光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 09:08 - [委内瑞拉地震死亡人数升至1719人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 09:10 - [网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 08:59 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 09:01 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 09:01 - [德国 传控](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 08:52 - [高考结束了，你会让孩子在家玩手机吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 09:06 - [电影抓特务上映11天破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-30 08:54 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 09:05 - [警方介入洪明甫死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:58 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/154083.shtml)
-- 2026-06-30 09:03 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/0194827.shtml)
-- 2026-06-30 09:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/69358292841.shtml)
-- 2026-06-30 08:47 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/1263622.shtml)
-- 2026-06-30 08:48 - [日本遭读秒绝杀 森保一：我水平不够](https://www.share.minike.top/Article/details/100635454703.shtml)
-- 2026-06-30 09:00 - [网友写差评被店家“挂”门口避雷](http://www.share.kurohicncr.top/Article/details/37570065.shtml)
-- 2026-06-30 08:57 - [德国连续三届世界杯无缘16强](http://www.share.kurohicncr.top/Article/details/94560.shtml)
-- 2026-06-30 09:05 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/18015106.shtml)
-- 2026-06-30 08:44 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/72472306.shtml)
-- 2026-06-30 09:01 - [千香](https://www.share.kurohicncr.top/Article/details/84606.shtml)
-- 2026-06-30 09:04 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/2377933527.shtml)
-- 2026-06-30 09:06 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/656681742.shtml)
-- 2026-06-30 08:52 - [人类...完蛋了...](http://www.share.minike.top/Article/details/29607182.shtml)
-- 2026-06-30 08:57 - [郑钦文温网三连败西尼亚科娃](http://www.share.minike.top/Article/details/21516889134.shtml)
-- 2026-06-30 08:59 - [巴西在进攻三区完成210脚传球](https://www.share.kurohicncr.top/Article/details/63241593593.shtml)
+- 2026-06-30 09:06 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/539595442793.shtml)
+- 2026-06-30 09:04 - [房价什么时候能涨](http://www.share.minike.top/Article/details/1267410.shtml)
+- 2026-06-30 08:57 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/170840439799.shtml)
+- 2026-06-30 08:54 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](http://www.blog.minike.top/Article/details/3832646.shtml)
+- 2026-06-30 09:08 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/1085630.shtml)
+- 2026-06-30 08:58 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/897605038.shtml)
+- 2026-06-30 09:03 - [金鹰奖视后提名预测](http://www.share.minike.top/Article/details/67360625.shtml)
+- 2026-06-30 09:17 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/1454187.shtml)
+- 2026-06-30 08:55 - [黄晓明夸昆凌引杨颖对比](http://www.blog.kurohicncr.top/Article/details/567919526.shtml)
+- 2026-06-30 09:13 - [极限挑战第一季](https://www.share.minike.top/Article/details/9198912.shtml)
+- 2026-06-30 09:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/425001301628.shtml)
+- 2026-06-30 08:57 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/3028014.shtml)
+- 2026-06-30 08:49 - [金刚川](http://www.blog.kurohicncr.top/Article/details/85966469.shtml)
+- 2026-06-30 08:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/71364.shtml)
+- 2026-06-30 09:03 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/35559.shtml)

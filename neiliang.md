@@ -1,50 +1,61 @@
-# 截至2025年12月底中国共有共青团员7833.6万名
+# CD Projekt Q1净利润1.06亿兹罗提 《巫师3》销量突破6500万
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新社北京5月3日电 中国共产主义青年团中央委员会3日公布数据显示，截至2025年12月底，全国共有共青团员7833.6万名，共青团组织515.0万个，分别比2024年底净增301.8万名、75.3万个。2025年共发展团员913.7万名。 其中，团的地方委员会0.3万个，基层团(工)委19.9万个，团总支部13.9万个，团支部480.9万个。学校团组织235.5万个，团员41
+波兰游戏开发商CD Projekt集团公布了2026年第一季度财务业绩。在《赛博朋克2077》和《巫师3》强劲销售的推动下，公司营收实现同比增长，净利润超出市场预期。 财报显示，集团第一季度营收达1.911亿兹罗提，约合596万美元，同比增长6%。销售成本后毛利润为1.77亿兹罗提，销售及行政费用为8100万兹罗提。营业利润为9710万兹罗提，同比增长3.2%。净利润为1.06
 
 ## 正文
 
-中新社北京5月3日电 中国共产主义青年团中央委员会3日公布数据显示，截至2025年12月底，全国共有共青团员7833.6万名，共青团组织515.0万个，分别比2024年底净增301.8万名、75.3万个。
+波兰游戏开发商CD Projekt集团公布了2026年第一季度财务业绩。
 
-2025年共发展团员913.7万名。
+在《赛博朋克2077》和《巫师3》强劲销售的推动下，公司营收实现同比增长，净利润超出市场预期。
 
-其中，团的地方委员会0.3万个，基层团(工)委19.9万个，团总支部13.9万个，团支部480.9万个。
+财报显示，集团第一季度营收达1.911亿兹罗提，约合596万美元，同比增长6%。
 
-学校团组织235.5万个，团员4183.3万名；机关事业单位团组织34.7万个，团员379.8万名；国有和集体企业团组织27.1万个，团员281.8万名；城市街道、乡镇、社区、行政村团组织95.4万个，团员2391.7万名；新兴领域和其他领域团组织122.3万个，团员597.0万名。
+销售成本后毛利润为1.77亿兹罗提，销售及行政费用为8100万兹罗提。
 
-(完)
+营业利润为9710万兹罗提，同比增长3.2%。
+
+净利润为1.062亿兹罗提，约合净亏损0.02美元每股，超出市场预期的9490万兹罗提，净利润率达56%。
+
+不过与去年同期相比，净利润下降约4.5%。
+
+公司首席财务官Piotr Nielubowicz表示，第一季度实现稳健营收主要得益于《赛博朋克2077》和《巫师3》的强劲销售，以及两款游戏加入Xbox Game Pass Premium和Ultimate订阅服务目录。
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 08:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 09:05 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 09:01 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 08:59 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 09:01 - [日本队5进世界杯淘汰赛0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 08:44 - [房价什么时候能涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 09:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 08:43 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 09:11 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 09:03 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 08:57 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 08:55 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 09:16 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 08:52 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-30 08:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 09:13 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 09:05 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 08:58 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 08:48 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 08:59 - [日本主帅赛后回应淘汰出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 08:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 09:01 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 09:06 - [城市规划有可能成为「屎山代码」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 09:09 - [马宁怒怼巴拉圭教练组](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - [iPhoneUltra黑色机模](https://www.blog.kurohicncr.top/Article/details/39271378282.shtml)
-- 2026-06-30 08:45 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/10448698.shtml)
-- 2026-06-30 09:10 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/6109147324.shtml)
-- 2026-06-30 08:57 - [教育部披露：高考生篡改7名同学志愿](http://www.share.minike.top/Article/details/49088149.shtml)
-- 2026-06-30 09:03 - [板面：为什么那么多人爱吃？？！](http://www.blog.minike.top/Article/details/567497.shtml)
-- 2026-06-30 08:56 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/7915760326.shtml)
-- 2026-06-30 09:05 - [沙丘](https://www.blog.kurohicncr.top/Article/details/268757.shtml)
-- 2026-06-30 09:01 - [名记：灰熊将莫兰特交易至开拓者](https://www.blog.minike.top/Article/details/598744021.shtml)
-- 2026-06-30 09:02 - [王楚钦说配合稍微有些陌生感](http://www.blog.kurohicncr.top/Article/details/2553517567.shtml)
-- 2026-06-30 08:53 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/1207256708.shtml)
-- 2026-06-30 09:09 - [明星大侦探第四季](https://www.share.minike.top/Article/details/165367855.shtml)
-- 2026-06-30 08:56 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/793048528516.shtml)
-- 2026-06-30 08:46 - [日本将帅赛后采访纷纷哽咽落泪](http://www.blog.kurohicncr.top/Article/details/98561481010.shtml)
-- 2026-06-30 08:51 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/508437.shtml)
-- 2026-06-30 09:09 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/274181254270.shtml)
+- 2026-06-30 08:57 - [电影抓特务上映11天破亿](http://www.share.minike.top/Article/details/960445548.shtml)
+- 2026-06-30 09:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/94303009122.shtml)
+- 2026-06-30 08:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/8090429966.shtml)
+- 2026-06-30 09:06 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/316617.shtml)
+- 2026-06-30 09:14 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/3931487.shtml)
+- 2026-06-30 09:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/8184360154.shtml)
+- 2026-06-30 08:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/8851033.shtml)
+- 2026-06-30 09:14 - [电影抓特务上映11天破亿](http://www.share.minike.top/Article/details/04782833791.shtml)
+- 2026-06-30 09:09 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/549868.shtml)
+- 2026-06-30 09:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/888511810958.shtml)
+- 2026-06-30 09:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/04107939355.shtml)
+- 2026-06-30 08:54 - [世界杯名画巴拉圭钢铁防线](https://www.blog.minike.top/Article/details/567616517508.shtml)
+- 2026-06-30 09:11 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/9651856979.shtml)
+- 2026-06-30 08:55 - [索马里女大使：想和中国一起搞事业](https://www.blog.minike.top/Article/details/9850768.shtml)
+- 2026-06-30 09:03 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/4917968.shtml)

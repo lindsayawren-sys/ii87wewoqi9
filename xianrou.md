@@ -1,58 +1,54 @@
-# 人民日报评论员：坚持不懈，提升我国原始创新能力——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲话
+# 一习话丨科学家精神是宝贵的精神财富
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-新华社北京5月3日电 人民日报5月4日评论员文章：坚持不懈，提升我国原始创新能力 ——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲话 立足“十五五”这一夯实基础、全面发力的关键时期，如何全面加强基础研究、提升我国原始创新能力？习近平总书记在加强基础研究座谈会上作出全面部署，强调“一体推进教育科技人才发展”“加强对基础研究的支持保障”“深化基础研究国际交流合作”。 原始创新
+从精密仪器到高端装备，从基础材料到重大工程……新中国成立以来，一代代科技工作者砥砺深耕，在神州大地筑起一座座科技创新丰碑，淬炼出以“爱国、创新、求实、奉献、协同、育人”为核心的科学家精神。 “科学无国界，科学家有祖国。”习近平总书记深刻道出了科学家精神的核心底色。从李四光、钱学森、邓稼先等老一辈科学家，到黄大年、南仁东等一大批新中国成立后成长起来的杰出科学家，我国科技事业取得历
 
 ## 正文
 
-新华社北京5月3日电 人民日报5月4日评论员文章：坚持不懈，提升我国原始创新能力 ——论学习贯彻习近平总书记在加强基础研究座谈会上重要讲话 立足“十五五”这一夯实基础、全面发力的关键时期，如何全面加强基础研究、提升我国原始创新能力？
+从精密仪器到高端装备，从基础材料到重大工程……新中国成立以来，一代代科技工作者砥砺深耕，在神州大地筑起一座座科技创新丰碑，淬炼出以“爱国、创新、求实、奉献、协同、育人”为核心的科学家精神。
 
-习近平总书记在加强基础研究座谈会上作出全面部署，强调“一体推进教育科技人才发展”“加强对基础研究的支持保障”“深化基础研究国际交流合作”。
+“科学无国界，科学家有祖国。
 
-原始创新是“从0到1”的创新，是科技创新的“源头活水”。
+”习近平总书记深刻道出了科学家精神的核心底色。
 
-党的十八大以来，在以习近平同志为核心的党中央坚强领导下，我们顺应新一轮科技革命和产业变革大趋势，强化科学研究、技术开发原始创新导向，成功组织一批重大基础研究任务，在量子科技、材料科学、物质科学、生物科学、空间科学、人工智能等基础前沿方向产出一批重大原创成果。
+从李四光、钱学森、邓稼先等老一辈科学家，到黄大年、南仁东等一大批新中国成立后成长起来的杰出科学家，我国科技事业取得历史性成就，根源在于广大科技工作者的矢志拼搏，离不开科学家精神的赓续弘扬。
 
-我国基础研究和原始创新能力不断提升，正在从“点的突破”迈向“系统能力提升”。
+今年5月30日，我们迎来第十个全国科技工作者日。
 
-当前，世界已经进入大科学时代，科学研究向极宏观拓展、向极微观深入、向极端条件迈进、向极综合交叉发力。
+让我们继续传承好科学家精神，接续奋斗、勇毅前行，朝着建成科技强国的宏伟目标奋勇前进。
 
-应对国际科技竞争、实现高水平科技自立自强，推动构建新发展格局、实现高质量发展，迫切需要我们加强基础研究，从源头和底层解决关键技术问题。
-
-锚定2035年建成科技强国的战略目标，着力提升原始创新能力，才能支撑经济实力、科技实力、国防实力、综合国力整体跃升，才能以更多重大原始创新和关键核心技术突破为人类文明进步作出新的更大贡献。
+监制：张军 于锋 统筹：伍刚 王薇 策划制作：赵净 姜葳 AIGC技术支持：张曦 魏星宇 来源：央广网客户端 中国互联网发展基金会中国正能量网络传播专项基金支持
 
 ## 相关推荐
 
-- 2026-06-30 09:06 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 08:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 09:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 08:46 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 09:11 - [板面：为什么那么多人爱吃？？！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 08:52 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 09:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 08:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 09:01 - [男子醉酒溺水获救后同行人拒协助抬人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 08:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 08:43 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 08:58 - [iPhoneUltra黑色机模](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 09:01 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 08:59 - [被巴西绝杀后 日球员田中碧跪地痛哭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 09:13 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 08:58 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 09:09 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 08:56 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-30 08:57 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 08:59 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 08:49 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 09:05 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:11 - [德国巴拉圭进入点球大战](https://www.blog.kurohicncr.top/Article/details/994602800915.shtml)
-- 2026-06-30 08:52 - [吴易昺不敌德约科维奇 止步温网首轮](http://www.share.kurohicncr.top/Article/details/3001251786.shtml)
-- 2026-06-30 08:50 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/865479957.shtml)
-- 2026-06-30 08:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/8339375.shtml)
-- 2026-06-30 08:53 - [小娘惹](https://www.share.kurohicncr.top/Article/details/257433643063.shtml)
-- 2026-06-30 08:51 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/4654042539.shtml)
-- 2026-06-30 09:00 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/6739369632.shtml)
-- 2026-06-30 08:47 - [萨内 看笑了](https://www.share.minike.top/Article/details/67012147.shtml)
-- 2026-06-30 09:02 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/2204200.shtml)
-- 2026-06-30 08:43 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/5886546157.shtml)
-- 2026-06-30 08:43 - [《贺子珍》](http://www.blog.minike.top/Article/details/644795760682.shtml)
-- 2026-06-30 08:56 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.minike.top/Article/details/4509202.shtml)
-- 2026-06-30 08:55 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/992882.shtml)
-- 2026-06-30 08:53 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/100012143391.shtml)
-- 2026-06-30 09:08 - [索马里女大使：想和中国一起搞事业](https://www.blog.kurohicncr.top/Article/details/58396652007.shtml)
+- 2026-06-30 09:08 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/906608166.shtml)
+- 2026-06-30 09:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/5017938.shtml)
+- 2026-06-30 09:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/0659000.shtml)
+- 2026-06-30 09:13 - [德国连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/627074844.shtml)
+- 2026-06-30 09:13 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.minike.top/Article/details/909576293194.shtml)
+- 2026-06-30 09:10 - [日本16强魔咒](https://www.share.minike.top/Article/details/698981776842.shtml)
+- 2026-06-30 08:55 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/71645.shtml)
+- 2026-06-30 08:56 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/38599.shtml)
+- 2026-06-30 08:49 - [覃予萱晋级WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/58429458.shtml)
+- 2026-06-30 09:00 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/08867.shtml)
+- 2026-06-30 09:12 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/7686373.shtml)
+- 2026-06-30 09:07 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/623332632.shtml)
+- 2026-06-30 08:52 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/991387.shtml)
+- 2026-06-30 09:11 - [警方介入洪明甫死亡威胁](http://www.blog.minike.top/Article/details/685132869.shtml)
+- 2026-06-30 08:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/925553.shtml)

@@ -1,59 +1,61 @@
-# Meta屏蔽律师事务所广告引两党参议员质疑
+# 特朗普肖像纪念钞已设计完成 尚需国会“放行”
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-两位美国参议员周五致信Meta首席执行官马克·扎克伯格，批评该公司从Facebook和Instagram平台上移除律师广告的行为，称这些广告旨在为正在进行的社交媒体成瘾诉讼招募原告。 共和党参议员玛莎·布莱克本与民主党参议员艾米·克洛布彻在联名信中措辞严厉，指出Meta此举“无非是为了不惜一切代价维护其有害的商业模式”。 Meta近期在法庭上接连受挫。上月，洛杉矶陪审团裁定Me
+中新网5月29日电 据美联社报道，美国财政部长贝森特28日表示，美财政部已准备好印有美国总统特朗普肖像的250美元纪念钞设计方案，但是否批准发行该纪念钞将取决于国会的决定。他称：“我们必须做好准备”。 此前，《华盛顿邮报》报道说，四名现任及前任员工透露，特朗普政府官员一直向负责印制国家货币的机构施压，要求设计一款印有其肖像的250美元纸币。若此举成真，这将是150多年来首次有在
 
 ## 正文
 
-两位美国参议员周五致信Meta首席执行官马克·扎克伯格，批评该公司从Facebook和Instagram平台上移除律师广告的行为，称这些广告旨在为正在进行的社交媒体成瘾诉讼招募原告。
+中新网5月29日电 据美联社报道，美国财政部长贝森特28日表示，美财政部已准备好印有美国总统特朗普肖像的250美元纪念钞设计方案，但是否批准发行该纪念钞将取决于国会的决定。
 
-共和党参议员玛莎·布莱克本与民主党参议员艾米·克洛布彻在联名信中措辞严厉，指出Meta此举“无非是为了不惜一切代价维护其有害的商业模式”。
+他称：“我们必须做好准备”。
 
-Meta近期在法庭上接连受挫。
+此前，《华盛顿邮报》报道说，四名现任及前任员工透露，特朗普政府官员一直向负责印制国家货币的机构施压，要求设计一款印有其肖像的250美元纸币。
 
-上月，洛杉矶陪审团裁定Meta及谷歌需向一名因社交媒体成瘾而遭受心理伤害的年轻女性赔偿600万美元。
+若此举成真，这将是150多年来首次有在世人物出现在美国货币上。
 
-另一新墨西哥州案件陪审团判令Meta支付3.75亿美元。
+据这些员工透露，从去年开始，美国财政部司库布兰登·比奇及其高级顾问多次敦促印刷局的工作人员准备该纸币的样稿。
 
-数千起指控社交媒体平台设计成瘾并引发青少年心理健康危机的诉讼正悬而未决。
+这一举动引发了担忧，因为现行联邦法律仅允许已故人士出现在纸币上。
 
-Meta此前宣布将删除这些招募原告的广告，并明确表示：“我们不会允许出庭律师在起诉我们平台的同时，还利用我们的平台获利。
+报道还称，印刷局前局长帕特里夏·索利梅内及其他工作人员曾多次向布兰登·比奇解释，印制该钞票存在法律和程序障碍，且所需时间将比他们预想的要长数年。
 
-” 截至发稿，Meta未对参议员的信函置评。
+但索利梅内表示，她于4月27日被财政部管理层突然调离原职。
 
 ## 相关推荐
 
-- 2026-06-30 08:59 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 09:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 09:06 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 08:51 - [恋与深空](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 09:06 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 09:02 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-30 08:54 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 08:49 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 08:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 08:55 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 08:55 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 09:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 08:56 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 09:05 - [IGN评测电影版后室](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 08:52 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 08:59 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 09:15 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 08:54 - [大蒜晒外面被路过女子连盆端走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 09:13 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 09:02 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 09:02 - [快递到家不能这样拆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 08:57 - [齐思钧回复张月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 09:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 09:01 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 08:57 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 08:48 - [马宁怒怼巴拉圭教练组](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 08:55 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 09:04 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:42 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/536341162607.shtml)
-- 2026-06-30 09:08 - [董路：谁赢谁是“正路子”](https://www.share.minike.top/Article/details/08682957439.shtml)
-- 2026-06-30 08:47 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/102012553.shtml)
-- 2026-06-30 08:46 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/832957.shtml)
-- 2026-06-30 08:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/64229.shtml)
-- 2026-06-30 08:54 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/565266127118.shtml)
-- 2026-06-30 08:49 - [韩国道歉完日本道歉](https://www.share.minike.top/Article/details/717933510.shtml)
-- 2026-06-30 09:10 - [巴西在进攻三区完成210脚传球](https://www.share.kurohicncr.top/Article/details/75009371974.shtml)
-- 2026-06-30 09:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/0779681073.shtml)
-- 2026-06-30 08:49 - [日本队主帅道歉](http://www.share.kurohicncr.top/Article/details/53902149.shtml)
-- 2026-06-30 08:46 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/8572917483.shtml)
-- 2026-06-30 08:54 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/719400.shtml)
-- 2026-06-30 08:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/56980677746.shtml)
-- 2026-06-30 08:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/977674305.shtml)
-- 2026-06-30 09:01 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/402799378.shtml)
+- 2026-06-30 08:58 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/10020262.shtml)
+- 2026-06-30 09:14 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/109994224.shtml)
+- 2026-06-30 09:07 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/596544285578.shtml)
+- 2026-06-30 08:56 - [斛珠夫人](https://www.blog.minike.top/Article/details/81477.shtml)
+- 2026-06-30 09:10 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/907732047537.shtml)
+- 2026-06-30 08:55 - [收到补税提醒尽快办理 明起有滞纳金](https://www.share.kurohicncr.top/Article/details/4913134039.shtml)
+- 2026-06-30 09:13 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/660992.shtml)
+- 2026-06-30 09:10 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/8565788.shtml)
+- 2026-06-30 09:02 - [IGN评测电影版后室](http://www.blog.kurohicncr.top/Article/details/37668379726.shtml)
+- 2026-06-30 09:11 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/59464347.shtml)
+- 2026-06-30 09:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/498847.shtml)
+- 2026-06-30 09:00 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/7879030303.shtml)
+- 2026-06-30 08:56 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/2856811178.shtml)
+- 2026-06-30 09:01 - [4000美元是黄金新一轮下跌的开始吗](http://www.share.kurohicncr.top/Article/details/6466064.shtml)
+- 2026-06-30 08:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/20426206425.shtml)

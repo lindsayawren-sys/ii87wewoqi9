@@ -1,60 +1,53 @@
-# 前Meta FAIR团队研究总监田渊栋：龙虾存在一些安全性隐患，还有很多漏洞
+# 暂停收取摆渡车、电瓶车费用，四川省成立调查指导组督导稻城亚丁景区摆渡车问题整改
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。 前Meta FAIR团队研究总监田渊栋在演讲中对DeepSeek V4给予高度评价：“DeepSeek V4现在我也是用过了，我今天看过他们的文章，基本上开始用DeepSeek来做一些事情，我觉得V4跟V3差很远，有很大的突破，有很
+（来源：蓝鲸新闻） 据四川省文化和旅游厅消息，四川省文化和旅游厅、发展改革委、公安厅、交通运输厅、市场监管局、林业和草原局等有关部门已组成省级调查指导组，要求甘孜藏族自治州人民政府督促稻城亚丁景区暂停收取摆渡车、电瓶车费用，同时如常提供优质服务，迅速启动调查及后续相关整改工作。 近日，稻城亚丁景区摆渡车收费不合理、省道设卡等问题引发社会各界广泛关注。 甘孜州政府将严格按照省级调
 
 ## 正文
 
-专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。
+（来源：蓝鲸新闻） 据四川省文化和旅游厅消息，四川省文化和旅游厅、发展改革委、公安厅、交通运输厅、市场监管局、林业和草原局等有关部门已组成省级调查指导组，要求甘孜藏族自治州人民政府督促稻城亚丁景区暂停收取摆渡车、电瓶车费用，同时如常提供优质服务，迅速启动调查及后续相关整改工作。
 
-前Meta FAIR团队研究总监田渊栋在演讲中对DeepSeek V4给予高度评价：“DeepSeek V4现在我也是用过了，我今天看过他们的文章，基本上开始用DeepSeek来做一些事情，我觉得V4跟V3差很远，有很大的突破，有很多有意思的结果。
+近日，稻城亚丁景区摆渡车收费不合理、省道设卡等问题引发社会各界广泛关注。
 
-” 他进一步介绍，DeepSeek V4已能满足部分实际需求：“你用V4，再加上一些现在开源的工具，应该可以做一些简单的任务了，基本上很多简单的代码任务V4是可以完成的，而且完成得还不错。
+甘孜州政府将严格按照省级调查指导组的要求，针对文化和旅游部提出的整改意见，及社会关注的主要问题，逐项核查、逐条整改，主动接受社会公众和媒体监督，切实维护四川旅游市场秩序。
 
-” 田渊栋指出：“其实很多基础的代码任务并不需要一个非常强的模型，这个模型足够好，可以解决我想要的问题，其实就已经很不错了，就像平时在学习的时候并不需要一个爱因斯坦来教你，你需要一个比较厉害的老师能够把任务完成其实也就可以了，所以我觉得V4一定程度上达到这个目标。
-
-” 谈及DeepSeek V4对行业的影响，田渊栋表示：“V4是免费的，首先它的API很便宜，远远便宜于现在的OpenAI和Anthropic的价格。
-
-”他认为，这将推动技术平权：“如果V4很厉害的话，或者说开源模型能很快追上这种任务，其实可以用现在的一些开源模型来代替闭源解决方案，这样的话大家可能会更倾向于用开源和私有的模型去做他们想做的事情，技术就会非常快地平权化。
-
-大家只需要一个够用的，而不是需要最强的模型来做这个事情，整个生态应该会有一些比较有意思的变化。
-
-” 关于大模型的护城河，田渊栋给出了明确答案：“在这种情况下，算力、数据、人才，应该说最重要的还是数据，特别是特殊领域的数据，其实是比较困难获取。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-30 08:57 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-30 08:54 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 09:00 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 08:44 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 08:42 - [如果有二次元高中是什么样子的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 09:10 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 09:04 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 08:54 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 08:43 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 09:01 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 08:52 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 09:10 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 09:03 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 09:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 09:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 08:55 - [网友吃半根变苦黄瓜后恶心呕吐，确诊葫芦素中毒致肝衰竭，黄瓜变苦真的会产生毒素吗？背后有什么科学依据吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 08:51 - [电影抓特务上映11天破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 08:57 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 08:48 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 09:12 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 09:10 - [杨紫学位证上就是杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-30 09:01 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 09:08 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 08:57 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 09:13 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 09:11 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 08:59 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 09:04 - [日本主帅：未能夺冠深感抱歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 08:51 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/22885.shtml)
-- 2026-06-30 09:08 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/003394412.shtml)
-- 2026-06-30 09:10 - [全球芯片巨头史诗级扩产](https://www.share.minike.top/Article/details/191814377434.shtml)
-- 2026-06-30 08:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/833934797644.shtml)
-- 2026-06-30 08:45 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/955165.shtml)
-- 2026-06-30 08:54 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/13173697578.shtml)
-- 2026-06-30 08:57 - [网友写差评被店家“挂”门口避雷](http://www.share.minike.top/Article/details/493025579.shtml)
-- 2026-06-30 08:46 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/53387949928.shtml)
-- 2026-06-30 09:03 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/629645460044.shtml)
-- 2026-06-30 08:58 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/600091.shtml)
-- 2026-06-30 08:55 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/396141499995.shtml)
-- 2026-06-30 09:07 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/1646774962.shtml)
-- 2026-06-30 09:05 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/506552236188.shtml)
-- 2026-06-30 08:53 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/87339828075.shtml)
-- 2026-06-30 09:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/170359.shtml)
+- 2026-06-30 08:51 - [马宁怒怼巴拉圭教练组](http://www.blog.kurohicncr.top/Article/details/2212225.shtml)
+- 2026-06-30 08:59 - [球评巴西绝杀逆转日本](https://www.blog.kurohicncr.top/Article/details/0720930325.shtml)
+- 2026-06-30 09:01 - [吴启华卖肖像权拍AI电影](http://www.blog.minike.top/Article/details/427024143.shtml)
+- 2026-06-30 09:16 - [《名肘探科比》：科比大战裂口女](http://www.share.kurohicncr.top/Article/details/066899491513.shtml)
+- 2026-06-30 08:55 - [扫黑风暴](https://www.blog.minike.top/Article/details/377905529995.shtml)
+- 2026-06-30 08:57 - [张月收到黄灿灿辣货两眼发光](http://www.share.minike.top/Article/details/1939816689.shtml)
+- 2026-06-30 09:04 - [锐评T1战胜KC](http://www.blog.minike.top/Article/details/595141806.shtml)
+- 2026-06-30 08:48 - [一见倾心](http://www.share.kurohicncr.top/Article/details/0932302.shtml)
+- 2026-06-30 08:58 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/72148967.shtml)
+- 2026-06-30 08:59 - [日本球迷输球后集体捡垃圾](https://www.blog.minike.top/Article/details/497808683.shtml)
+- 2026-06-30 08:54 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/916870409.shtml)
+- 2026-06-30 09:00 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/850292781.shtml)
+- 2026-06-30 09:15 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/021371.shtml)
+- 2026-06-30 09:14 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/771992408756.shtml)
+- 2026-06-30 09:13 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/16212.shtml)

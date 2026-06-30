@@ -1,56 +1,57 @@
-# 全美自动驾驶出租车行业迎来爆发式增长
+# 2026电影总票房破155亿！暑期档超50部影片定档
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-谷歌旗下 Waymo、特斯拉及其他五家无人驾驶出租车企业，正争相在美国数十座城市落地运营服务 内容速览 自动驾驶出租车正在美国各大城市快速扩张；摩根士丹利预估，三年内全美半数人口将可使用自动驾驶网约车服务。 历经近十年的热度炒作、行业遇冷再到再度回暖，自动驾驶出租车如今开始在美国越来越多的城市上路运营。 目前，Waymo、特斯拉、Zoox 以及一众知名度较低的无人驾驶企业，已在
+截至目前 2026年度电影总票房 已突破155亿元 其中，影片《给阿嬷的情书》票房已超12.70亿元，跻身年度票房第四 并宣布延长上映至6月30日 2026年暑期档也即将开启 目前已有50余部影片锁定暑期档 涵盖历史、科幻、青春、动画等多元类型 国产片方面 影片供给丰富、佳作云集 既有历史史诗、国漫巨制 温情喜剧等多种题材 也有青春情感表达与视听想象力探索 市场期待持续升温 《
 
 ## 正文
 
-谷歌旗下 Waymo、特斯拉及其他五家无人驾驶出租车企业，正争相在美国数十座城市落地运营服务 内容速览 自动驾驶出租车正在美国各大城市快速扩张；摩根士丹利预估，三年内全美半数人口将可使用自动驾驶网约车服务。
+截至目前 2026年度电影总票房 已突破155亿元 其中，影片《给阿嬷的情书》票房已超12.70亿元，跻身年度票房第四 并宣布延长上映至6月30日 2026年暑期档也即将开启 目前已有50余部影片锁定暑期档 涵盖历史、科幻、青春、动画等多元类型 国产片方面 影片供给丰富、佳作云集 既有历史史诗、国漫巨制 温情喜剧等多种题材 也有青春情感表达与视听想象力探索 市场期待持续升温 《中国动画100年》 上映时间：6月1日 纪录电影《中国动画100年》聚焦中国动画百年发展历程，通过经典作品与珍贵影像资料，全景式呈现中国动画从探索起步到成就斐然的发展轨迹，带领观众重温几代人的童年记忆，感受中国动画的光影魅力。
 
-历经近十年的热度炒作、行业遇冷再到再度回暖，自动驾驶出租车如今开始在美国越来越多的城市上路运营。
+《澎湖海战》 上映时间：7月25日 电影《澎湖海战》讲述了1683年康熙命施琅率福建水师，统一台湾的故事，再现了中国历史上那段“孤悬必归、分疆必合”的壮阔史诗。
 
-目前，Waymo、特斯拉、Zoox 以及一众知名度较低的无人驾驶企业，已在加州、得克萨斯州及多个其他州的街头投入自动驾驶车辆运行。
+影片由郑保瑞执导、杜家毅监制，王学圻、杜江、易烊千玺、侯雯元、罗一舟、耿乐等主演。
 
-2010 年代行业热潮催生了数十家备受追捧的初创企业，纷纷宣称将颠覆私人购车模式。
+在呈现激烈海战奇观的同时，影片也承载着两岸同根同源、万众盼归的情感期待。
 
-但自动驾驶技术研发成本高昂、复杂城区路况的自动驾驶技术难题、以及严苛的监管环境，导致大量初创公司倒闭。
+《四渡》 上映时间：6月26日 今年是红军长征胜利90周年，重大革命历史题材电影《四渡》以红军长征中具有决定性战略意义的四渡赤水战役为核心，再现中央红军在敌军重兵围堵之下，运用高超战略智慧以少胜多、扭转战局的军事奇迹。
 
-多起重大安全事故，也让无人驾驶车辆的安全性受到愈发严格的审视。
+影片由徐展雄执导，刘烨、王雷、于适、王志飞、王耀庆等主演。
 
-摩根士丹利预测，未来三年内，约半数美国民众将能够使用自动驾驶出租车服务。
+《爱是愤怒》 上映时间：6月19日 电影《爱是愤怒》以小城青年的爱情为切口，讲述一对平凡恋人在现实压力与命运考验面前，相互扶持、共同成长的故事。
 
-机构估算，美国自动驾驶出行订单将迎来快速增长：2025 年约 1500 万单，今年将增至约 3600 万单；到 2030 年，出行规模预计将接近7.5 亿单。
+影片由朴松日执导，里则林编剧，王安宇、王玉雯领衔主演。
 
 ## 相关推荐
 
-- 2026-06-30 09:04 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 09:05 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 08:45 - [为什么小组赛出局会让韩国人破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 09:00 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 08:46 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 09:07 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 09:08 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 08:53 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-30 08:46 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 08:46 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 09:04 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 08:56 - [董路：谁赢谁是“正路子”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 08:49 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 09:13 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-30 08:56 - [恋与深空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 08:57 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 09:14 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 09:09 - [德国队回应爆冷淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 08:51 - [全新问界M9现身美国街头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 09:01 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 09:01 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:59 - [杨紫肖战余生请多指教拍立得](https://www.blog.kurohicncr.top/Article/details/03913082252.shtml)
-- 2026-06-30 09:10 - [Melo向柳智敏张元英道歉](https://www.share.kurohicncr.top/Article/details/67900427.shtml)
-- 2026-06-30 09:06 - [日本主帅赛后回应淘汰出局](https://www.blog.kurohicncr.top/Article/details/19648478.shtml)
-- 2026-06-30 09:08 - [曝灰熊将莫兰特交易至开拓者](https://www.share.minike.top/Article/details/387324664.shtml)
-- 2026-06-30 08:57 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/35083734.shtml)
-- 2026-06-30 08:45 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.kurohicncr.top/Article/details/25762589104.shtml)
-- 2026-06-30 08:55 - [杨紫学位证上就是杨紫](http://www.blog.minike.top/Article/details/803337331969.shtml)
-- 2026-06-30 08:54 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/80733873443.shtml)
-- 2026-06-30 08:47 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/965341908025.shtml)
-- 2026-06-30 08:44 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/993888.shtml)
-- 2026-06-30 09:01 - [千与千寻](http://www.share.minike.top/Article/details/513737492065.shtml)
-- 2026-06-30 08:47 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/30861.shtml)
-- 2026-06-30 09:11 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.minike.top/Article/details/1200457.shtml)
-- 2026-06-30 08:46 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/8834307910.shtml)
-- 2026-06-30 09:10 - [为什么纣王似乎对周文王的扩张完全无动于衷？](http://www.blog.minike.top/Article/details/359600781298.shtml)
+- 2026-06-30 09:12 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/995644541.shtml)
+- 2026-06-30 09:08 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/230585620595.shtml)
+- 2026-06-30 09:05 - [球评巴西绝杀逆转日本](http://www.share.minike.top/Article/details/3320143.shtml)
+- 2026-06-30 09:01 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/683097832.shtml)
+- 2026-06-30 08:52 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/05991.shtml)
+- 2026-06-30 08:52 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/630724021505.shtml)
+- 2026-06-30 08:55 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/273700.shtml)
+- 2026-06-30 09:09 - [一生一世](http://www.share.minike.top/Article/details/503738.shtml)
+- 2026-06-30 09:06 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/477170.shtml)
+- 2026-06-30 09:15 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/1346606827.shtml)
+- 2026-06-30 08:52 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/894646046532.shtml)
+- 2026-06-30 09:11 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/392302022779.shtml)
+- 2026-06-30 09:08 - [内马尔未登场 安切洛蒂赛后回应](https://www.share.minike.top/Article/details/05168.shtml)
+- 2026-06-30 08:48 - [张月收到黄灿灿辣货两眼发光](http://www.share.kurohicncr.top/Article/details/045530.shtml)
+- 2026-06-30 09:00 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/59652.shtml)

@@ -1,58 +1,60 @@
-# 华尔街科技股评级分化：Jefferies下调微软Meta，Wedbush大幅上调AMD目标价
+# 中金：科技虽高，消费更弱，周五的轮动不应看作风格的逆转，更多是资金的行为
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-周一，华尔街多家机构对科技巨头调整了评级与目标价，其中杰富瑞对微软和Meta的态度转为谨慎，而Wedbush则显著上调了AMD的目标价，显示出分析师对AI赛道投资回报预期的精细分化。 Jefferies下调微软目标价 根据多家财经媒体报道，杰富瑞将微软的目标价从675美元下调至575美元，下调幅度约15%。尽管下调了目标价，Jefferies并未改变对微软基本面的长期看法，此次
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周动态：科技虽高，消费更弱 来源：Kevin策略研究 1️⃣外资：主动外资流出港股1.1亿美元（vs． 上周流出2.1亿），流入A股276万美元（vs． 上周流出0.6亿）。 被动外资流出港股5.1亿美元（vs． 上周流入18.2亿），流出A股9.0亿美元（vs． 上周流入14.2亿）。 专注新兴市场和中
 
 ## 正文
 
-周一，华尔街多家机构对科技巨头调整了评级与目标价，其中杰富瑞对微软和Meta的态度转为谨慎，而Wedbush则显著上调了AMD的目标价，显示出分析师对AI赛道投资回报预期的精细分化。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-Jefferies下调微软目标价 根据多家财经媒体报道，杰富瑞将微软的目标价从675美元下调至575美元，下调幅度约15%。
+本周动态：科技虽高，消费更弱 来源：Kevin策略研究 1️⃣外资：主动外资流出港股1.1亿美元（vs． 上周流出2.1亿），流入A股276万美元（vs． 上周流出0.6亿）。
 
-尽管下调了目标价，Jefferies并未改变对微软基本面的长期看法，此次调整更多反映了对近期盈利增长节奏和特定业务部门压力的审慎评估。
+被动外资流出港股5.1亿美元（vs． 上周流入18.2亿），流出A股9.0亿美元（vs． 上周流入14.2亿）。
 
-Meta遭双重打击：目标价下调与评级调降 社交媒体巨头Meta同样遭遇来自杰富瑞的目标价下调，从1000美元降至825美元。
+专注新兴市场和中国的主动基金转为流入，被动基金则转为流出。
 
-更值得注意的是，摩根大通此前已将其评级从“增持”下调至“持有”。
+配置比例上，截至4月底，主动外资对中国配置比例下滑0.26ppt至6.31%，低配程度从3月的-0.70收窄至-0.54ppt。
 
-这一系列动作背后，是市场对Meta激进的AI资本支出的担忧——该公司计划追加100亿美元用于AI基础设施扩张，但相较于谷歌和亚马逊，其AI变现路径存在不确定性，短期内可能对自由现金流造成压力。
+2️⃣南向：周一休市，周二周三流出，之后转为流入，总流入8.1亿港元（vs． 上周流出135亿），日均流入2‬亿（vs． 上周日均流出27‬‬亿）。
 
-Wedbush将AMD目标价上调至400美元 与上述科技巨头的谨慎基调形成鲜明对比，Wedbush分析师Matt Bryson将AMD的目标价从290美元大幅上调至400美元，上调幅度达38%，同时维持“跑赢大盘”评级。
+流入最多为中芯和泡泡玛特，流出最多为阿里和盈富基金 。
 
-这一调整发生在AMD即将于5月5日盘后发布一季度财报前夕，市场预计其Q1营收约98.8亿美元，同比增长约30%。
+🏵️过去一周依然围绕伊朗局势与AI两条主线交易。
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [美股深夜大反弹 特斯拉飙涨8%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 09:05 - [韩国世界杯出局是主帅一个人的锅吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 09:05 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 08:56 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 08:48 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 08:46 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 09:06 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 08:49 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 08:43 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 09:10 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 08:49 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 08:42 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 09:07 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 08:50 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 09:06 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 08:59 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 09:12 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 08:53 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 09:01 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 09:07 - [德国淘汰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-30 08:55 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 08:53 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 09:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 09:09 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 09:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 09:12 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:09 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/1584091.shtml)
-- 2026-06-30 09:10 - [一生一世](http://www.blog.kurohicncr.top/Article/details/048970982491.shtml)
-- 2026-06-30 09:02 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/397872049269.shtml)
-- 2026-06-30 09:04 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/76364154498.shtml)
-- 2026-06-30 08:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/1539706.shtml)
-- 2026-06-30 08:51 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/413834.shtml)
-- 2026-06-30 08:48 - [输球后日本球迷被强行披上巴西国旗](https://www.share.kurohicncr.top/Article/details/237356313.shtml)
-- 2026-06-30 09:07 - [巴西在进攻三区完成210脚传球](http://www.share.minike.top/Article/details/52954892.shtml)
-- 2026-06-30 08:46 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/15875111908.shtml)
-- 2026-06-30 08:46 - [我和我的家乡](http://www.share.minike.top/Article/details/130674.shtml)
-- 2026-06-30 09:11 - [被巴西绝杀后 日球员田中碧跪地痛哭](http://www.share.kurohicncr.top/Article/details/41839.shtml)
-- 2026-06-30 09:03 - [日本将帅赛后采访纷纷哽咽落泪](https://www.blog.kurohicncr.top/Article/details/483556272.shtml)
-- 2026-06-30 08:59 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/621351.shtml)
-- 2026-06-30 08:51 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/947292.shtml)
-- 2026-06-30 08:46 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/605636276346.shtml)
+- 2026-06-30 08:49 - [勇士续约波尔津吉斯](http://www.share.kurohicncr.top/Article/details/02026.shtml)
+- 2026-06-30 09:09 - [日本主帅赛后回应淘汰出局](http://www.blog.minike.top/Article/details/3716081454.shtml)
+- 2026-06-30 09:16 - [日本16强魔咒](https://www.share.minike.top/Article/details/129677351.shtml)
+- 2026-06-30 08:51 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/557854.shtml)
+- 2026-06-30 09:09 - [男子造谣东鹏老板不喝自家饮料被拘](https://www.blog.kurohicncr.top/Article/details/8663172587.shtml)
+- 2026-06-30 09:12 - [沙丘](http://www.share.kurohicncr.top/Article/details/03377297.shtml)
+- 2026-06-30 08:53 - [网红不能困在无底线逐利里](http://www.share.minike.top/Article/details/5073504.shtml)
+- 2026-06-30 09:09 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/73892.shtml)
+- 2026-06-30 09:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/792984519.shtml)
+- 2026-06-30 08:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/4096283308.shtml)
+- 2026-06-30 08:52 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/8015458.shtml)
+- 2026-06-30 08:59 - [巴拉圭门将](http://www.blog.kurohicncr.top/Article/details/117882923.shtml)
+- 2026-06-30 08:52 - [点球大战 残酷](https://www.blog.kurohicncr.top/Article/details/54794.shtml)
+- 2026-06-30 09:08 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/141796241.shtml)
+- 2026-06-30 09:13 - [德国队回应爆冷淘汰](http://www.share.minike.top/Article/details/938885.shtml)

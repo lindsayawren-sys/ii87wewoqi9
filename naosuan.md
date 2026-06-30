@@ -1,57 +1,58 @@
-# 第139届广交会期间广州白云机场口岸出入境人员超114万人次
+# 韩国公布加强私营部门网络安全措施
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新社广州5月5日电 (记者 方伟彬)记者5日从广州白云出入境边防检查站(下称“白云边检站”)获悉，中国内地“五一”假期最后一天恰逢第139届中国进出口商品交易会(广交会)闭幕，本届广交会期间(4月15日至5月5日)，截至5月5日零时，白云机场口岸共保障出入境人员超114万人次，同比增长14.5%。其中，外籍商贸客商成为口岸客流增长核心主力，口岸入出境外国人超54万人次，同比增
+韩国政府周五宣布了一系列旨在加强私营部门网络安全响应体系的措施。 韩国科技信息通信部表示，该计划是在第九届科技部长会议上公布的。人工智能（AI）领域的快速发展极大地加速了软件漏洞的发现和利用，而这又极大地促进了此类漏洞的传播。 根据该计划，韩国政府将在国家安全厅下设立一套应急系统，利用人工智能技术检测软件漏洞、修复漏洞并联合应对网络安全事件。 此外，政府还将在韩国互联网安全局（
 
 ## 正文
 
-中新社广州5月5日电 (记者 方伟彬)记者5日从广州白云出入境边防检查站(下称“白云边检站”)获悉，中国内地“五一”假期最后一天恰逢第139届中国进出口商品交易会(广交会)闭幕，本届广交会期间(4月15日至5月5日)，截至5月5日零时，白云机场口岸共保障出入境人员超114万人次，同比增长14.5%。
+韩国政府周五宣布了一系列旨在加强私营部门网络安全响应体系的措施。
 
-其中，外籍商贸客商成为口岸客流增长核心主力，口岸入出境外国人超54万人次，同比增长20.8%，刷新广交会同期口岸客流历史纪录。
+韩国科技信息通信部表示，该计划是在第九届科技部长会议上公布的。
 
-本届广交会期间，白云机场口岸查验持停留期在10日以上签证、临时入境许可入境的外国人占入境外国人总量近50%。
+人工智能（AI）领域的快速发展极大地加速了软件漏洞的发现和利用，而这又极大地促进了此类漏洞的传播。
 
-据白云边检站介绍，本届广交会期间，白云机场口岸各类免签入境外国人同比激增56%，达12万人次，便捷高效的入境政策，大幅简化跨境商务出行流程，降低往来成本，助力全球采购商、参展商高效赴华洽谈合作，为提升广交会经贸成效提供有力支撑。
+根据该计划，韩国政府将在国家安全厅下设立一套应急系统，利用人工智能技术检测软件漏洞、修复漏洞并联合应对网络安全事件。
 
-据白云边检站统计，近期口岸入境外国人来源地也更趋多元。
+此外，政府还将在韩国互联网安全局（KISA）下设立一个漏洞管理中心，负责漏洞的检测和修复工作。
 
-本届广交会期间，白云机场口岸入境外国人来源覆盖全球191个国家和地区，除马来西亚、韩国等传统主要客源国外，澳大利亚、印度尼西亚首次进入客流来源国前十位，俄罗斯、英国、加拿大籍人员增长显著，分别增长59%、16%、40%。
+在私营部门，政府将监测约1200家关键行业（包括金融和医疗领域）主要企业的网络安全准备情况。
 
-国际航空运力持续扩容，为口岸客流增长提供了坚实保障。
+对于规模较小的企业，政府计划提供技术支持，例如网络工具，以帮助其提升网络安全能力。
 
-4月以来，白云机场持续完善国际航线网络，每周国际客运航班量同比增长10.1%，进一步便捷客商来华。
+政府还计划扩大与大型科技公司的合作，包括近期与OpenAI的合作，以及与友好国家相关机构在数字防御响应和信息共享方面的合作。
 
 ## 相关推荐
 
-- 2026-06-30 09:04 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 08:56 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 08:51 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 08:53 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 09:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 09:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 08:55 - [球评巴西绝杀逆转日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 09:01 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 09:03 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 09:05 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 09:01 - [Melo向柳智敏张元英道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 09:00 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 09:00 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 08:51 - [诺伊尔尽力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 09:16 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 08:56 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 08:55 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 09:03 - [杨紫学位证上就是杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 09:13 - [媒体：手机测评该挤挤水分了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 08:56 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-30 08:57 - [日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 08:49 - [武磊：巴西队赢的并不轻松](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 08:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:54 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/188087617144.shtml)
-- 2026-06-30 08:59 - [韩国世界杯出局是主帅一个人的锅吗](https://www.share.kurohicncr.top/Article/details/723910.shtml)
-- 2026-06-30 08:50 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/372404.shtml)
-- 2026-06-30 08:47 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/51947753213.shtml)
-- 2026-06-30 09:05 - [为什么纣王似乎对周文王的扩张完全无动于衷？](https://www.share.kurohicncr.top/Article/details/68017.shtml)
-- 2026-06-30 08:44 - [iPhone18e曝光](https://www.share.kurohicncr.top/Article/details/97892297.shtml)
-- 2026-06-30 09:07 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/16402053.shtml)
-- 2026-06-30 09:09 - [这一刀 会很帅](https://www.share.minike.top/Article/details/11763.shtml)
-- 2026-06-30 08:50 - [4000美元是黄金新一轮下跌的开始吗](https://www.share.kurohicncr.top/Article/details/311188398.shtml)
-- 2026-06-30 09:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/52531003902.shtml)
-- 2026-06-30 09:00 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/86258684148.shtml)
-- 2026-06-30 08:46 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.minike.top/Article/details/018540513077.shtml)
-- 2026-06-30 08:54 - [全球芯片巨头史诗级扩产](http://www.share.minike.top/Article/details/0597126.shtml)
-- 2026-06-30 09:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/287055173039.shtml)
-- 2026-06-30 09:03 - [张雪的一句“是我们”引发岛内热议](https://www.share.kurohicncr.top/Article/details/41278.shtml)
+- 2026-06-30 09:12 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/0534124.shtml)
+- 2026-06-30 09:03 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/90654562485.shtml)
+- 2026-06-30 09:10 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/48992902833.shtml)
+- 2026-06-30 09:07 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/610637.shtml)
+- 2026-06-30 09:10 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/770206.shtml)
+- 2026-06-30 09:00 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/8300606.shtml)
+- 2026-06-30 08:52 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://www.share.kurohicncr.top/Article/details/6819571.shtml)
+- 2026-06-30 09:05 - [人民锐评网红诋毁袁隆平造谣企业家](http://www.share.kurohicncr.top/Article/details/673711595956.shtml)
+- 2026-06-30 09:09 - [乔家的儿女](http://www.blog.minike.top/Article/details/268784434.shtml)
+- 2026-06-30 08:49 - [德国队回应爆冷淘汰](https://www.share.minike.top/Article/details/90265.shtml)
+- 2026-06-30 09:01 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/92735.shtml)
+- 2026-06-30 09:02 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/68342597298.shtml)
+- 2026-06-30 09:04 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/8196260568.shtml)
+- 2026-06-30 09:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/77864.shtml)
+- 2026-06-30 08:52 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/46258438.shtml)

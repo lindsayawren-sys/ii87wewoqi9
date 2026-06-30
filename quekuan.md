@@ -1,52 +1,61 @@
-# 俄罗斯一住宅发生火灾 7人死亡
+# 64岁张玉卓，任中国工程院党组书记！曾掌舵中国神华、中国石化
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-当地时间5月2日凌晨，俄罗斯汉特-曼西自治区一住宅楼发生火灾，导致7人死亡。 汉特-曼西自治区行政长官鲁斯兰·库哈鲁克当天在社交媒体上表示，该自治区梅吉翁市一栋住宅楼内发生火灾，造成一家七口丧生，其中包括4名儿童。 库哈鲁克说，初步调查显示，火灾由违规使用电器引发。 (央视新闻客户端)
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！ 2026年5月29日下午，中央组织部有关负责同志出席中国工程院领导干部会议，宣布中央决定：张玉卓同志任中国工程院党组书记，免去李晓红同志的中国工程院党组书记职务。 此番调整之前，现年64岁的张玉卓任国务院国资委党委书记、主任。他是中共第十九届中央候补委员，二十届中央委员。 据官网介绍，中国工程院是中国工程
 
 ## 正文
 
-当地时间5月2日凌晨，俄罗斯汉特-曼西自治区一住宅楼发生火灾，导致7人死亡。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-汉特-曼西自治区行政长官鲁斯兰·库哈鲁克当天在社交媒体上表示，该自治区梅吉翁市一栋住宅楼内发生火灾，造成一家七口丧生，其中包括4名儿童。
+2026年5月29日下午，中央组织部有关负责同志出席中国工程院领导干部会议，宣布中央决定：张玉卓同志任中国工程院党组书记，免去李晓红同志的中国工程院党组书记职务。
 
-库哈鲁克说，初步调查显示，火灾由违规使用电器引发。
+此番调整之前，现年64岁的张玉卓任国务院国资委党委书记、主任。
 
-(央视新闻客户端)
+他是中共第十九届中央候补委员，二十届中央委员。
+
+据官网介绍，中国工程院是中国工程科学技术界的最高荣誉性、咨询性学术机构，由院士组成，致力于促进工程科学技术事业的发展。
+
+国务院国资委为国务院直属特设机构，根据国务院授权，依照《中华人民共和国公司法》等法律和行政法规履行出资人职责，监管中央所属企业（不含金融类企业）的国有资产，加强国有资产的管理工作。
+
+张玉卓，男，汉族，1962年1月生，研究生学历、工学博士学位，中国工程院院士，中共党员。
+
+中共第十九届中央候补委员，二十届中央委员。
 
 ## 相关推荐
 
-- 2026-06-30 09:05 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 08:59 - [iPhone18e曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 09:06 - [杨紫肖战余生请多指教拍立得](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 08:58 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-30 09:02 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 08:47 - [董路：谁赢谁是“正路子”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 08:51 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 08:56 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 08:56 - [日本小组第二出线，第一轮淘汰赛将挑战巴西，你认为日本赢球的概率有多大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 08:51 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 09:00 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 09:04 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 08:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 08:47 - [欧洲民众抢购空调降温](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 09:01 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 09:01 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 09:07 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 09:09 - [武磊：巴西队赢的并不轻松](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 09:12 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 09:17 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 09:17 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 09:03 - [德国队回应爆冷淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 09:15 - [巴拉圭率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 09:16 - [德国身价是巴拉圭6倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 09:13 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 08:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-30 09:05 - [人类...完蛋了...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 09:09 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 08:59 - [日本遭读秒绝杀 森保一：我水平不够](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/4445443130.shtml)
-- 2026-06-30 08:45 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/534231247347.shtml)
-- 2026-06-30 08:53 - [韩国世界杯出局是主帅一个人的锅吗](https://www.blog.kurohicncr.top/Article/details/338150504001.shtml)
-- 2026-06-30 08:55 - [三星投资计划](https://www.blog.minike.top/Article/details/363531.shtml)
-- 2026-06-30 08:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/80237123496.shtml)
-- 2026-06-30 09:05 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/96771970802.shtml)
-- 2026-06-30 08:56 - [委内瑞拉地震死亡人数升至1719人](http://www.share.minike.top/Article/details/770922.shtml)
-- 2026-06-30 08:59 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/897229201.shtml)
-- 2026-06-30 09:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/853230.shtml)
-- 2026-06-30 08:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/10223.shtml)
-- 2026-06-30 08:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/20811547.shtml)
-- 2026-06-30 08:55 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/7734456911.shtml)
-- 2026-06-30 08:51 - [沙丘](https://www.blog.minike.top/Article/details/38472.shtml)
-- 2026-06-30 08:48 - [韩国道歉完日本道歉](http://www.share.minike.top/Article/details/4893004.shtml)
-- 2026-06-30 09:11 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/09457487.shtml)
+- 2026-06-30 09:09 - [刘宇宁高情商化解谁站C位](http://www.share.minike.top/Article/details/729055.shtml)
+- 2026-06-30 08:50 - [荷兰VS摩洛哥](http://www.share.minike.top/Article/details/109108192.shtml)
+- 2026-06-30 08:59 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/66274464918.shtml)
+- 2026-06-30 08:49 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/808900.shtml)
+- 2026-06-30 08:51 - [现在叛逆期的孩子最怕的是什么？](http://www.share.minike.top/Article/details/02683386387.shtml)
+- 2026-06-30 09:07 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/8510449969.shtml)
+- 2026-06-30 09:05 - [起风了](http://www.blog.minike.top/Article/details/613458423.shtml)
+- 2026-06-30 08:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/526187.shtml)
+- 2026-06-30 09:01 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/838279361612.shtml)
+- 2026-06-30 09:05 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](http://www.share.kurohicncr.top/Article/details/11108374098.shtml)
+- 2026-06-30 09:11 - [诺伊尔尽力了](http://www.blog.kurohicncr.top/Article/details/12403.shtml)
+- 2026-06-30 08:53 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/639863817925.shtml)
+- 2026-06-30 08:56 - [欧洲装一台空调有多难](http://www.blog.kurohicncr.top/Article/details/61171160.shtml)
+- 2026-06-30 08:57 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/894572727.shtml)
+- 2026-06-30 09:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/08271725.shtml)

@@ -1,61 +1,57 @@
-# 俄专家：东京审判是建立战后世界秩序的重要一步
+# 印尼强化自然资源出口管控 6月起由指定国企统一出口
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-新华社莫斯科5月2日电(记者栾海)俄罗斯研究二战及日本问题的专家日前表示，80年前的东京审判昭示了日本军国主义犯下的滔天罪行，是建立战后世界秩序的重要一步。 俄罗斯科学院中国与现代亚洲研究所日本研究中心首席研究员德米特里·斯特列尔佐夫对新华社记者说，东京审判是重大事件，它揭露了二战期间日本军国主义犯下的滔天罪行，在一定程度上为遭受日本侵略的人民伸张了正义。远东国际军事法庭判处7
+中新社雅加达5月31日电 (记者 李志全)印度尼西亚政府进一步强化自然资源出口管控，从6月1日起，棕榈油、煤炭和铁合金三类战略性资源商品出口将统一通过政府指定国有企业进行管理。 印尼经济统筹部长艾尔朗加在5月31日举行的新闻发布会上表示，政府设立印尼达南塔拉资源公司作为战略性自然资源商品的唯一出口商，旨在通过“单一窗口”机制加强国家出口监管与治理。 根据规定，自2026年6月1
 
 ## 正文
 
-新华社莫斯科5月2日电(记者栾海)俄罗斯研究二战及日本问题的专家日前表示，80年前的东京审判昭示了日本军国主义犯下的滔天罪行，是建立战后世界秩序的重要一步。
+中新社雅加达5月31日电 (记者 李志全)印度尼西亚政府进一步强化自然资源出口管控，从6月1日起，棕榈油、煤炭和铁合金三类战略性资源商品出口将统一通过政府指定国有企业进行管理。
 
-俄罗斯科学院中国与现代亚洲研究所日本研究中心首席研究员德米特里·斯特列尔佐夫对新华社记者说，东京审判是重大事件，它揭露了二战期间日本军国主义犯下的滔天罪行，在一定程度上为遭受日本侵略的人民伸张了正义。
+印尼经济统筹部长艾尔朗加在5月31日举行的新闻发布会上表示，政府设立印尼达南塔拉资源公司作为战略性自然资源商品的唯一出口商，旨在通过“单一窗口”机制加强国家出口监管与治理。
 
-远东国际军事法庭判处7名甲级战犯绞刑，10多名甲级战犯无期徒刑，彰显了历史公正性。
+根据规定，自2026年6月1日起，首批纳入政策范围的棕榈油、煤炭及铁合金三类商品的出口须通过上述国企统一进行。
 
-战后国际秩序在很大程度上建立在这种历史公正性上，这稳固了战后世界秩序的道德和法律基础。
+该政策将设置至2026年12月31日的过渡期，并于2027年1月1日起全面实施。
 
-俄罗斯自然科学院院士阿纳托利·科什金接受新华社记者采访时说，东京审判的历史意义在于，它通过庭审向世人表明侵略和惨无人道的施暴者不会逍遥法外，因此东京审判是建立战后世界秩序的重要一步。
+艾尔朗加表示，新政策有望提升印尼自然资源出口数据的透明度与真实性，防止低报发票金额、转移定价以及出口外汇流失等问题。
 
-遗憾的是并非所有日本战犯都受到了应有惩罚，一些战犯由于美国包庇而逃脱了法律制裁。
+2025年，上述三类商品出口总额达661.3亿美元，占印尼全国出口总额的23.4%。
 
-科什金指出，东京审判与纽伦堡审判一样，被视为“人民的审判”。
+印尼总统普拉博沃日前宣布，为加强自然资源管理并优化国家税收，印尼将集中管理棕榈油、煤炭及铁合金等关键资源的出口，要求此类出口必须通过政府指定的国有企业进行。
 
-人们认为，对二战罪魁祸首进行判决是阻止法西斯主义、纳粹主义和军国主义死灰复燃的重要举措。
+这并非印尼首次对资源类产品实施出口管制。
 
 ## 相关推荐
 
-- 2026-06-30 08:48 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 08:54 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 08:42 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 08:46 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 09:00 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 08:47 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 09:10 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 09:01 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 09:02 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 09:02 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 08:46 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 08:53 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 08:55 - [德国 传控](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 08:57 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 08:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 08:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 08:58 - [陈幸同晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 08:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 09:00 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 08:55 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 09:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 09:04 - [德国罚丢3粒点球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 09:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 09:17 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 09:16 - [美股收盘 热门中概股普涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 08:54 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:03 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/043881362443.shtml)
-- 2026-06-30 08:58 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/9396867916.shtml)
-- 2026-06-30 08:44 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/1525992.shtml)
-- 2026-06-30 08:50 - [森保一致歉：世界第一目标没能实现](http://www.blog.minike.top/Article/details/325018425099.shtml)
-- 2026-06-30 08:42 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/842412368.shtml)
-- 2026-06-30 09:11 - [欧洲装一台空调有多难](https://www.blog.kurohicncr.top/Article/details/07397854.shtml)
-- 2026-06-30 08:43 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/65706994171.shtml)
-- 2026-06-30 09:03 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/435179997.shtml)
-- 2026-06-30 08:56 - [《共患难》](http://www.share.minike.top/Article/details/87670402518.shtml)
-- 2026-06-30 08:55 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/8419438.shtml)
-- 2026-06-30 08:52 - [黄晓明晒和周杰伦的合照](http://www.share.kurohicncr.top/Article/details/0447651.shtml)
-- 2026-06-30 08:55 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/1314909649.shtml)
-- 2026-06-30 08:57 - [世界杯名画巴拉圭钢铁防线](http://www.share.minike.top/Article/details/0468688.shtml)
-- 2026-06-30 09:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/31796.shtml)
-- 2026-06-30 08:49 - [委内瑞拉地震死亡人数升至1719人](http://www.blog.minike.top/Article/details/540298830505.shtml)
+- 2026-06-30 08:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/892597986.shtml)
+- 2026-06-30 08:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/032576.shtml)
+- 2026-06-30 08:52 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/360022.shtml)
+- 2026-06-30 08:50 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/39089081710.shtml)
+- 2026-06-30 08:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/8600586335.shtml)
+- 2026-06-30 09:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/7603240.shtml)
+- 2026-06-30 08:56 - [男子在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/308236558543.shtml)
+- 2026-06-30 08:52 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/12654540.shtml)
+- 2026-06-30 09:06 - [美股收盘 热门中概股普涨](http://www.blog.minike.top/Article/details/127917102.shtml)
+- 2026-06-30 08:48 - [发明linux、python、redis、nginx、sqlite的人算不算天才？](http://www.blog.kurohicncr.top/Article/details/84714716.shtml)
+- 2026-06-30 08:57 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/678453233.shtml)
+- 2026-06-30 09:00 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/561966193068.shtml)
+- 2026-06-30 09:03 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/948005027491.shtml)
+- 2026-06-30 08:54 - [沙丘](http://www.blog.kurohicncr.top/Article/details/8145431.shtml)
+- 2026-06-30 08:54 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/335065.shtml)

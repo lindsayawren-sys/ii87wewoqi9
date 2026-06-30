@@ -1,58 +1,61 @@
-# 福建省科技馆开展“科学护平安·安全嘉年华”科普活动
+# “红五月”稳了！上海房价涨幅全国最猛，二手房已三连涨，均价超10万楼盘热销，这波成交传递出一个重要信号
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新网福州5月4日电 (叶秋云)制作地震报警器、智能烟雾报警器，观看趣味科学表演、体验沉浸式4D电影……“五一”假期，福建省科技馆推出“科学护平安·安全嘉年华”系列科普活动，通过多元化互动体验，将安全科普知识融入假期生活，吸引众多市民、亲子家庭踊跃参与。 据介绍，此次科普活动为期5天，将防灾减灾、应急自救、公共安全等科普内容，转化为沉浸式、互动式、体验式科普项目，打造集知识性、
+来源：上观新闻 这个春天 上海及周边楼市真的“暖” 国家统计局数据显示，上海4月新房、二手房价格环比涨幅均居70城首位，成为本轮楼市复苏的“领头羊”。 与此同时，杭州、南京、苏州、合肥等城市的楼市也出现不同程度回暖。 新房量价齐升、高端项目升温 楼市“热”，成交规模是最具说服力的数据。 据克而瑞数据，4月上海、杭州、南京、苏州、合肥五城商品住宅整体成交面积199.35万平方米，
 
 ## 正文
 
-中新网福州5月4日电 (叶秋云)制作地震报警器、智能烟雾报警器，观看趣味科学表演、体验沉浸式4D电影……“五一”假期，福建省科技馆推出“科学护平安·安全嘉年华”系列科普活动，通过多元化互动体验，将安全科普知识融入假期生活，吸引众多市民、亲子家庭踊跃参与。
+来源：上观新闻 这个春天 上海及周边楼市真的“暖” 国家统计局数据显示，上海4月新房、二手房价格环比涨幅均居70城首位，成为本轮楼市复苏的“领头羊”。
 
-据介绍，此次科普活动为期5天，将防灾减灾、应急自救、公共安全等科普内容，转化为沉浸式、互动式、体验式科普项目，打造集知识性、趣味性、实用性于一体的科普盛宴，助力提升公众安全素养与应急避险能力。
+与此同时，杭州、南京、苏州、合肥等城市的楼市也出现不同程度回暖。
 
-在福建省科技馆二楼创客空间“小茉莉科学工坊”，“安全创想家”主题实践体验项目备受青睐。
+新房量价齐升、高端项目升温 楼市“热”，成交规模是最具说服力的数据。
 
-场馆精心设置地震报警器、智能烟雾报警器、应急手摇发电灯、自动感应灭火器、水位报警器等科技制作课程，让参与者在动手实践中学习安全应急原理。
+据克而瑞数据，4月上海、杭州、南京、苏州、合肥五城商品住宅整体成交面积199.35万平方米，环比增长10%。
 
-来自福州市象峰学校二部的六年级学生组团前来，在科技辅导员指导下，与家长协作拼装木制构件、组装电子配件，亲手完成微型地震报警器制作。
+其中杭州以61.99万平方米居首，上海以42.79万平方米次之。
 
-当震动触发装置，鸣笛声响起，抽象的防灾科学知识转化为直观的实践成果，孩子们在动手操作中加深了对地震预警原理的理解。
+五城成交面积环比全部实现正增长，合肥涨幅最高，达30.9%。
 
-科学表演现场同样精彩纷呈。
+其次是价格。
 
-在二楼报告厅，“挑战惊奇”“电流大冒险”两大科学表演轮番上演。
+国家统计局近期发布的4月70个大中城市房价数据显示，12个长三角城市，房价“四升二平六降”，上海、杭州、合肥还实现了同比上涨。
 
 ## 相关推荐
 
-- 2026-06-30 09:03 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 08:54 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 08:49 - [齐思钧回复张月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 09:04 - [泰山景区建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 09:00 - [巴拉圭门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 08:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 09:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 08:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 09:10 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 08:59 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 09:02 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 08:56 - [内马尔未登场 安切洛蒂赛后回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 09:01 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-30 09:03 - [哈弗茨头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 08:49 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 08:51 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 08:52 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 08:58 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 09:04 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 09:17 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 08:59 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 09:00 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 08:58 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 09:06 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-30 08:52 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 08:54 - [郑钦文温网三连败西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 08:48 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:50 - [收到补税提醒尽快办理 明起有滞纳金](http://www.blog.kurohicncr.top/Article/details/73068.shtml)
-- 2026-06-30 08:45 - [亚洲球队全部出局](https://www.share.kurohicncr.top/Article/details/371470664.shtml)
-- 2026-06-30 09:06 - [吴易昺不敌德约科维奇 止步温网首轮](https://www.blog.minike.top/Article/details/328225857343.shtml)
-- 2026-06-30 08:45 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/629328.shtml)
-- 2026-06-30 08:51 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/58834.shtml)
-- 2026-06-30 08:44 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.share.kurohicncr.top/Article/details/64433.shtml)
-- 2026-06-30 08:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/42512.shtml)
-- 2026-06-30 08:59 - [啊啊啊](http://www.share.minike.top/Article/details/7481513.shtml)
-- 2026-06-30 09:02 - [输球后日本球迷被强行披上巴西国旗](https://www.share.kurohicncr.top/Article/details/782142933.shtml)
-- 2026-06-30 09:08 - [日本球迷输球后集体捡垃圾](http://www.share.kurohicncr.top/Article/details/36733669061.shtml)
-- 2026-06-30 08:42 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.share.kurohicncr.top/Article/details/20689.shtml)
-- 2026-06-30 08:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/5415077.shtml)
-- 2026-06-30 08:51 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/2130596.shtml)
-- 2026-06-30 09:06 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/983703.shtml)
-- 2026-06-30 08:48 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/3955319740.shtml)
+- 2026-06-30 08:59 - [欧洲装一台空调有多难](http://www.blog.minike.top/Article/details/435478306816.shtml)
+- 2026-06-30 09:15 - [沙丘](https://www.share.minike.top/Article/details/359133836836.shtml)
+- 2026-06-30 09:08 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/9899169.shtml)
+- 2026-06-30 08:55 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/80235.shtml)
+- 2026-06-30 08:51 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/136111211.shtml)
+- 2026-06-30 09:09 - [为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？](http://www.blog.kurohicncr.top/Article/details/280876974.shtml)
+- 2026-06-30 08:48 - [明星大侦探第四季](http://www.share.minike.top/Article/details/0819210776.shtml)
+- 2026-06-30 09:14 - [杨紫大银幕成绩单如何](https://www.share.kurohicncr.top/Article/details/988934245313.shtml)
+- 2026-06-30 08:53 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/522650240.shtml)
+- 2026-06-30 09:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/580440909.shtml)
+- 2026-06-30 09:15 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/30670.shtml)
+- 2026-06-30 08:51 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/5082228.shtml)
+- 2026-06-30 09:02 - [穆祉丞回应获年度人气艺人](http://www.share.minike.top/Article/details/03169109.shtml)
+- 2026-06-30 08:49 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/651721.shtml)
+- 2026-06-30 08:51 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/410125.shtml)

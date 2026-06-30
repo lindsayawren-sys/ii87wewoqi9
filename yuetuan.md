@@ -1,61 +1,57 @@
-# 阿联酋发出导弹威胁警报 美伊停火依然脆弱
+# 汽车之家-S午后涨超7% 全面推进一站式交易服务平台转型
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-阿拉伯联合酋长国周一发布导弹威胁警报，这是美国和伊朗之间的停火约一个月前生效以来首次发布此类警报，凸显出旨在结束这场已造成数千人死亡并扰乱全球能源供应的战争的外交努力十分脆弱。 警报发布数小时前，阿联酋国有的阿布扎比国家石油公司拥有的一艘油轮在霍尔木兹海峡外的另一起事件中遭到伊朗无人机击中。战争于2月底爆发前，全球约五分之一的石油和液化天然气经由霍尔木兹海峡运输。目前尚不清楚这
+汽车之家-S（02518）午后涨超7%，截至发稿，股价上涨7.36%，现报33.86港元。 5月28日晚，汽车之家披露2026年第一季度未经审计财务业绩。财报显示，公司第一季度总营收为10.5亿元人民币。此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日
 
 ## 正文
 
-阿拉伯联合酋长国周一发布导弹威胁警报，这是美国和伊朗之间的停火约一个月前生效以来首次发布此类警报，凸显出旨在结束这场已造成数千人死亡并扰乱全球能源供应的战争的外交努力十分脆弱。
+汽车之家-S（02518）午后涨超7%，截至发稿，股价上涨7.36%，现报33.86港元。
 
-警报发布数小时前，阿联酋国有的阿布扎比国家石油公司拥有的一艘油轮在霍尔木兹海峡外的另一起事件中遭到伊朗无人机击中。
+5月28日晚，汽车之家披露2026年第一季度未经审计财务业绩。
 
-战争于2月底爆发前，全球约五分之一的石油和液化天然气经由霍尔木兹海峡运输。
+财报显示，公司第一季度总营收为10.5亿元人民币。
 
-目前尚不清楚这一警报是由瞄准阿联酋的抛射物触发，还是与霍尔木兹海峡局势升级有关。
+此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日休市后登记在册的美国存托股及普通股持有人，分红总金额约为人民币5亿元。
 
-此次袭击发生前，美国总统唐纳德·特朗普周日宣布了恢复这一战略水道通行、并帮助受困船只驶出波斯湾的计划。
+值得一提的是，汽车之家全面推进一站式交易服务平台转型，业务边界从传统信息服务，拓展为“内容+交易+服务”一体化综合平台。
 
-该行动定于周一开始，美军承诺提供支持，包括动用导弹驱逐舰、飞机和无人机。
+另外，近期品牌焕新发布会顺利举办，全新LOGO与升级后的APP正式亮相，平台进一步聚焦用户场景与购车全链路服务，精准匹配市场消费需求。
 
-美军称，到目前为止已有两艘悬挂美国国旗的商船通过该海峡，而伊朗表示，如果美军进入霍尔木兹海峡，将袭击美军。
+此次升级不仅实现用户体验的全面革新，也是平台价值从“信息中介”向“服务基础设施”的历史性跨越。
 
-受中东紧张局势再度升温的迹象影响，油价上涨，国际基准的布伦特原油上涨2.5%，报每桶略低于111美元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 09:08 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 09:05 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 09:11 - [德国4比5巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 08:51 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 09:11 - [张月收到黄灿灿辣货两眼发光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 08:42 - [吴易昺不敌德约科维奇 止步温网首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 09:06 - [男子在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 09:04 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-30 08:54 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 08:42 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 08:53 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 08:56 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 08:53 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 09:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 08:44 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 08:56 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 09:07 - [日本主帅：未能夺冠深感抱歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 09:00 - [德国淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 08:48 - [德国4比5巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 08:54 - [王濛回复黄灿灿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 08:59 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 09:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 09:00 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 08:53 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 09:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 08:59 - [名记：灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:47 - [董卿父亲在报纸上发文悼念亡妻](http://www.blog.minike.top/Article/details/6734850518.shtml)
-- 2026-06-30 09:06 - [库尼亚赛后伸五指嘲讽日本](https://www.blog.minike.top/Article/details/80337961832.shtml)
-- 2026-06-30 08:53 - [起风了](http://www.share.minike.top/Article/details/021451387773.shtml)
-- 2026-06-30 09:01 - [泰山景区建135公里刀片刺绳隔离网](http://www.share.kurohicncr.top/Article/details/486385748605.shtml)
-- 2026-06-30 09:01 - [德国身价是巴拉圭6倍](http://www.blog.kurohicncr.top/Article/details/41824677027.shtml)
-- 2026-06-30 08:45 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/29116285829.shtml)
-- 2026-06-30 09:04 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/71762843964.shtml)
-- 2026-06-30 08:54 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/48172491.shtml)
-- 2026-06-30 08:42 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/089542.shtml)
-- 2026-06-30 08:58 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/1412020.shtml)
-- 2026-06-30 08:43 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/97245963880.shtml)
-- 2026-06-30 08:51 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/7768378264.shtml)
-- 2026-06-30 08:58 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/463371498902.shtml)
-- 2026-06-30 09:00 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/980908117509.shtml)
-- 2026-06-30 09:07 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/899750633.shtml)
+- 2026-06-30 08:51 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/769198249976.shtml)
+- 2026-06-30 09:16 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/24865.shtml)
+- 2026-06-30 09:09 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/1061611650.shtml)
+- 2026-06-30 09:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/954857276216.shtml)
+- 2026-06-30 09:05 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/6849550663.shtml)
+- 2026-06-30 08:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/761951.shtml)
+- 2026-06-30 09:00 - [巴西vs日本](http://www.blog.minike.top/Article/details/44181.shtml)
+- 2026-06-30 09:05 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/30931190.shtml)
+- 2026-06-30 09:06 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/588311.shtml)
+- 2026-06-30 09:17 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/95775.shtml)
+- 2026-06-30 09:02 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/981476582982.shtml)
+- 2026-06-30 09:16 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/04797359.shtml)
+- 2026-06-30 09:09 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/57729.shtml)
+- 2026-06-30 08:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/8541078956.shtml)
+- 2026-06-30 09:04 - [日本进球](http://www.blog.kurohicncr.top/Article/details/451011.shtml)

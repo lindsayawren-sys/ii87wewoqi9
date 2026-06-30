@@ -1,57 +1,57 @@
-# 老把头节赓续非遗文脉 吉林抚松构筑世界级人参产业枢纽
+# 000636、002552，紧急澄清！股价已翻倍
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新网吉林抚松5月2日电 (高龙安 李彦国)鞭炮齐鸣、敬献贡品，参把头高声诵读祈福祭文，祭拜山神老把头，祈求参业兴旺、国泰民安。 5月2日，农历三月十六，吉林省白山市抚松县举办2026长白山老把头节非遗传承活动。当日，长白山老把头文化展览馆正式开馆，现场同步举行“非遗焕新季”商品市集与非遗成果展。 老把头节是抚松独具特色的民俗文化盛事。相传古时孙良千里赴长白山寻参，临终前在石壁
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！紧急提示风险。 风华高科（000636）5月31日晚间公告，公司股票于2026年5月28日、2026年5月29日连续2个交易日收盘价格涨幅偏离值累计超过20%。根据《深圳证券交易所交易规则》的有关规定，属于股票交易异常波动情形。 公告指出，截至2026年5月29日，公司股票收盘价为53.03元/股，滚动市盈
 
 ## 正文
 
-中新网吉林抚松5月2日电 (高龙安 李彦国)鞭炮齐鸣、敬献贡品，参把头高声诵读祈福祭文，祭拜山神老把头，祈求参业兴旺、国泰民安。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-5月2日，农历三月十六，吉林省白山市抚松县举办2026长白山老把头节非遗传承活动。
+紧急提示风险。
 
-当日，长白山老把头文化展览馆正式开馆，现场同步举行“非遗焕新季”商品市集与非遗成果展。
+风华高科（000636）5月31日晚间公告，公司股票于2026年5月28日、2026年5月29日连续2个交易日收盘价格涨幅偏离值累计超过20%。
 
-老把头节是抚松独具特色的民俗文化盛事。
+根据《深圳证券交易所交易规则》的有关规定，属于股票交易异常波动情形。
 
-相传古时孙良千里赴长白山寻参，临终前在石壁留诗：“再有入山迷路者，我当做为引路神。
+公告指出，截至2026年5月29日，公司股票收盘价为53.03元/股，滚动市盈率为199.66倍，公司所处行业（申万三级被动元件）平均市盈率为77.89倍，公司滚动市盈率指标远超行业平均水平。
 
-”后人尊他为“老把头”。
+公司2026年5月股价累计涨幅为111.36%，存在市场情绪过热及非理性炒作情形，可能存在较大回调风险。
 
-据1930年版《抚松县志》记载：“三月十六，系老把头之生日，现在放山人均祀之。
+值得一提的是，风华高科关注到近期有媒体提及公司“针对代理商0402、0603芯片电阻、MLCC全线暂停接单”，经核查，以上信息不属实，为做好部分数字系统升级及产品结构调整，公司执行部分产品暂缓接单，截至公告日，公司已恢复接单。
 
-是日，家家沽酒市肉，献于老把头之庙前。
+此外，有媒体提及公司为“国内唯一通过英伟达全系列MLCC认证的企业”，经核查，以上信息不属实，截至公告日，英伟达未对公司开展任何产品认证。
 
 ## 相关推荐
 
-- 2026-06-30 09:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-30 08:46 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 08:58 - [点球淘汰德国 巴拉圭首都陷入疯狂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 08:49 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-30 08:46 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 08:43 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-30 09:03 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 08:56 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 08:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 09:10 - [日本队被绝杀后鞠躬致谢观众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 09:01 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 08:51 - [日本球迷输球后集体捡垃圾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 09:14 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 09:12 - [网友写差评被店家“挂”门口避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 08:49 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 09:09 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 08:52 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 09:15 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 08:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 09:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 09:08 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 09:06 - [恋与深空](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/642372.shtml)
-- 2026-06-30 09:02 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/23277110225.shtml)
-- 2026-06-30 08:43 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/955789337.shtml)
-- 2026-06-30 08:58 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/052815.shtml)
-- 2026-06-30 09:01 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.minike.top/Article/details/318159.shtml)
-- 2026-06-30 08:48 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/2059607.shtml)
-- 2026-06-30 09:11 - [巴拉圭点球大战淘汰德国进16强](https://www.blog.kurohicncr.top/Article/details/99458474.shtml)
-- 2026-06-30 08:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/660731.shtml)
-- 2026-06-30 08:51 - [武磊：巴西队赢的并不轻松](http://www.share.kurohicncr.top/Article/details/3975717482.shtml)
-- 2026-06-30 08:53 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/667573.shtml)
-- 2026-06-30 09:11 - [德国进球被吹](http://www.share.kurohicncr.top/Article/details/7441041099.shtml)
-- 2026-06-30 08:44 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/05514373323.shtml)
-- 2026-06-30 09:01 - [女心理师](http://www.blog.kurohicncr.top/Article/details/938546.shtml)
-- 2026-06-30 09:07 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/8979603.shtml)
-- 2026-06-30 08:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/0513293571.shtml)
+- 2026-06-30 08:59 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.blog.minike.top/Article/details/66706330593.shtml)
+- 2026-06-30 08:53 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/4837185693.shtml)
+- 2026-06-30 09:09 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/874314.shtml)
+- 2026-06-30 09:04 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/52458721.shtml)
+- 2026-06-30 09:11 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/6789526513.shtml)
+- 2026-06-30 08:56 - [低智商犯罪三江口团建来了](http://www.share.kurohicncr.top/Article/details/350647286273.shtml)
+- 2026-06-30 08:56 - [杨紫肖战余生请多指教拍立得](https://www.share.minike.top/Article/details/88501232.shtml)
+- 2026-06-30 09:17 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.blog.minike.top/Article/details/571278.shtml)
+- 2026-06-30 09:06 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/9540367574.shtml)
+- 2026-06-30 08:52 - [董路：谁赢谁是“正路子”](https://www.share.minike.top/Article/details/997225743.shtml)
+- 2026-06-30 09:10 - [陈幸同晋级WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/43831748051.shtml)
+- 2026-06-30 08:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/385364.shtml)
+- 2026-06-30 09:14 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/8738449.shtml)
+- 2026-06-30 09:06 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.minike.top/Article/details/007038897827.shtml)
+- 2026-06-30 09:09 - [德国4比5巴拉圭](http://www.blog.kurohicncr.top/Article/details/74152003.shtml)

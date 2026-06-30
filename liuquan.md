@@ -1,61 +1,60 @@
-# 沈晓明毛伟明赴浏阳市指挥调度烟花厂爆炸事故救援工作
+# 第23届香格里拉对话会将在新加坡举行 各方聚焦安全议题
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-沈晓明毛伟明赴浏阳市指挥调度烟花厂爆炸事故救援工作 全力以赴开展抢险救援 切实维护人民群众生命财产安全 5月4日下午，浏阳市华盛烟花制造燃放有限公司车间发生爆炸事故。事故发生后，省委书记沈晓明第一时间作出批示，要求切实做好搜救、伤员救治、善后处理等工作。省委副书记、省长毛伟明迅速赶赴现场指挥救援。5月5日，沈晓明赶赴浏阳救援处置现场，看望慰问受伤人员和救援一线工作人员，强调要认
+第23届香格里拉对话会29日起至31日在新加坡举行，开幕式将于29日晚举行。来自全球40多个国家和地区的国防部长、高级军事官员、安全专家和学者，将围绕亚太安全局势等议题展开讨论。在中东局势持续紧张、全球供应链与能源安全风险上升背景下，本届对话会受到国际社会高度关注。总台记者 刘畅：我现在是在新加坡香格里拉酒店，第23届香格里拉对话会将在这里召开。此次对话会将举行六场全体会议、两
 
 ## 正文
 
-沈晓明毛伟明赴浏阳市指挥调度烟花厂爆炸事故救援工作 全力以赴开展抢险救援 切实维护人民群众生命财产安全 5月4日下午，浏阳市华盛烟花制造燃放有限公司车间发生爆炸事故。
+第23届香格里拉对话会29日起至31日在新加坡举行，开幕式将于29日晚举行。
 
-事故发生后，省委书记沈晓明第一时间作出批示，要求切实做好搜救、伤员救治、善后处理等工作。
+来自全球40多个国家和地区的国防部长、高级军事官员、安全专家和学者，将围绕亚太安全局势等议题展开讨论。
 
-省委副书记、省长毛伟明迅速赶赴现场指挥救援。
+在中东局势持续紧张、全球供应链与能源安全风险上升背景下，本届对话会受到国际社会高度关注。
 
-5月5日，沈晓明赶赴浏阳救援处置现场，看望慰问受伤人员和救援一线工作人员，强调要认真学习贯彻习近平总书记重要指示精神，落实好李强、蔡奇等中央领导批示要求，坚持人民至上、生命至上，全力以赴开展抢险救援，举一反三抓好全省各领域安全生产工作，切实维护人民群众生命财产安全和社会大局稳定。
+总台记者 刘畅：我现在是在新加坡香格里拉酒店，第23届香格里拉对话会将在这里召开。
 
-在浏阳市中医医院，沈晓明看望慰问受伤人员，详细了解伤员救治情况。
+此次对话会将举行六场全体会议、两场部长级圆桌会议、三场特别会议和一场特别演讲。
 
-他说，这次事故给群众生命财产造成重大损失，教训极其深刻，令人非常痛心。
+与会代表将就亚洲不断变化的战略格局、应对跨区域安全威胁、加强亚洲海上安全等议题展开讨论。
 
-希望大家安心养伤，积极配合治疗，争取早日康复。
+新加坡国立大学治理与永续发展战略研究所所长 卢耀群：我认为，在香格里拉对话会讨论的众多全球议题中，最突出的议题之一就是亚洲安全。
 
-在听取医疗救治情况汇报后，沈晓明向所有参与事故救治的医务人员表示感谢。
+重要的是各国领导人以及军方高层，以一种相互尊重的方式齐聚一堂，非常坦诚地讨论亚洲的重要性、区域主义以及能够惠及所有人民和所有经济体的全球主义。
 
 ## 相关推荐
 
-- 2026-06-30 09:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 09:09 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 08:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 09:07 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 08:58 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 08:46 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 09:04 - [日本队主帅道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 08:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 09:03 - [iPhone18e曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 09:05 - [追梦拒绝2770万美元球员选项](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 08:45 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 08:50 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 08:59 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 09:07 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 09:04 - [恋与深空](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 09:14 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 09:12 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 08:54 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 09:02 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 08:49 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 09:01 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 08:53 - [人民锐评：网红不能困在无底线逐利里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 09:05 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 08:48 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 08:52 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 08:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 09:09 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 09:14 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 08:58 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:02 - [日本 高位逼抢](https://www.share.minike.top/Article/details/23607.shtml)
-- 2026-06-30 08:45 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/9404885991.shtml)
-- 2026-06-30 09:03 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/45684576.shtml)
-- 2026-06-30 09:00 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/53452326724.shtml)
-- 2026-06-30 08:47 - [王楚钦孙颖莎vs皮斯特耶库库洛娃](http://www.share.minike.top/Article/details/25366893.shtml)
-- 2026-06-30 08:43 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/00072.shtml)
-- 2026-06-30 09:11 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/074916082210.shtml)
-- 2026-06-30 08:48 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/92154215.shtml)
-- 2026-06-30 08:42 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/515088806.shtml)
-- 2026-06-30 08:57 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/7004473.shtml)
-- 2026-06-30 09:05 - [人民锐评网红诋毁袁隆平造谣企业家](http://www.blog.minike.top/Article/details/7501154.shtml)
-- 2026-06-30 08:58 - [如果有二次元高中是什么样子的？](http://www.share.kurohicncr.top/Article/details/66957.shtml)
-- 2026-06-30 08:46 - [王楚钦说配合稍微有些陌生感](https://www.blog.minike.top/Article/details/967112066947.shtml)
-- 2026-06-30 08:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/458083659.shtml)
-- 2026-06-30 08:47 - [世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/320114888030.shtml)
+- 2026-06-30 09:01 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/56208.shtml)
+- 2026-06-30 08:54 - [内马尔替补](http://www.blog.minike.top/Article/details/6482030093.shtml)
+- 2026-06-30 08:58 - [德国连续三届世界杯无缘16强](http://www.blog.kurohicncr.top/Article/details/774671.shtml)
+- 2026-06-30 09:14 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/222630.shtml)
+- 2026-06-30 08:50 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/32116785.shtml)
+- 2026-06-30 09:04 - [郑钦文温网三连败西尼亚科娃](https://www.blog.minike.top/Article/details/554478691.shtml)
+- 2026-06-30 09:11 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/36930.shtml)
+- 2026-06-30 09:14 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/2905952.shtml)
+- 2026-06-30 08:59 - [郑钦文温网三连败西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/702985284.shtml)
+- 2026-06-30 09:04 - [为什么很多企业推行“扁平化管理”后，效率反而下降了？](https://www.share.minike.top/Article/details/75934894842.shtml)
+- 2026-06-30 09:12 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/7788197.shtml)
+- 2026-06-30 08:53 - [德国罚丢3粒点球](https://www.blog.minike.top/Article/details/625038.shtml)
+- 2026-06-30 09:17 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/5596721.shtml)
+- 2026-06-30 08:53 - [《名肘探科比》：科比大战裂口女](https://www.blog.kurohicncr.top/Article/details/76296863.shtml)
+- 2026-06-30 08:55 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/1340048556.shtml)

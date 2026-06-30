@@ -1,58 +1,53 @@
-# 检方发布白宫记协晚宴枪手“踩点”及“闯卡”视频
+# 从广彩、港彩到香港文创：看百年瓷厂如何焕发新生
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-美国哥伦比亚特区联邦地区检察官珍尼娜·皮罗周四发布了一段长约6分钟的监控录像，展示了白宫记者协会晚宴枪击案嫌疑人科尔·艾伦在事发前一天的“踩点”行为和事发当晚冲击安检的经过。 录像显示，4月24日晚，艾伦在华盛顿希尔顿酒店走廊来回走动、左顾右盼，短暂进入健身房“踩点”。次日，他持霰弹枪快速冲过安检关卡，特勤人员随即拔枪追击。皮罗表示，录像证明艾伦向一名特勤局特工开枪，且“没有证
+发布时间：2026年05月29日 16:03 来源：中国新闻网 在香港九龙湾的一间小小的厂房里，座落着有着98年历史的粤东磁厂。从来自广东的广彩，到具有香港特色的港彩，再到如今在新一代传承人的努力下，成为一种融合香港文化符号的文创产品，粤东磁厂见证了香港彩瓷业近一个世纪的发展与变迁。它是如何传承创新，焕发新生的？一起听一听粤东磁厂第三代、第四代传承人——曹志雄、曹嘉彦父女俩是怎
 
 ## 正文
 
-美国哥伦比亚特区联邦地区检察官珍尼娜·皮罗周四发布了一段长约6分钟的监控录像，展示了白宫记者协会晚宴枪击案嫌疑人科尔·艾伦在事发前一天的“踩点”行为和事发当晚冲击安检的经过。
+发布时间：2026年05月29日 16:03 来源：中国新闻网 在香港九龙湾的一间小小的厂房里，座落着有着98年历史的粤东磁厂。
 
-录像显示，4月24日晚，艾伦在华盛顿希尔顿酒店走廊来回走动、左顾右盼，短暂进入健身房“踩点”。
+从来自广东的广彩，到具有香港特色的港彩，再到如今在新一代传承人的努力下，成为一种融合香港文化符号的文创产品，粤东磁厂见证了香港彩瓷业近一个世纪的发展与变迁。
 
-次日，他持霰弹枪快速冲过安检关卡，特勤人员随即拔枪追击。
+它是如何传承创新，焕发新生的？
 
-皮罗表示，录像证明艾伦向一名特勤局特工开枪，且“没有证据表明该特工系被友军火力击中”。
+一起听一听粤东磁厂第三代、第四代传承人——曹志雄、曹嘉彦父女俩是怎么说的。
 
-该枪击事件发生于4月25日晚，导致一名特勤局特工受伤（因穿防弹背心幸免更严重后果），特朗普总统及其他高官被紧急疏散。
-
-艾伦面临企图刺杀总统、在暴力犯罪中使用枪支等指控。
-
-在30日的听证会上，艾伦同意继续被监禁候审，但未提出抗辩。
-
-法官宣布预审定于5月11日举行。
+(记者 温孟馨） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [巴拉圭点球大战淘汰德国进16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 08:59 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 09:07 - [金鹰奖视后提名预测](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 08:57 - [网红峡谷5人溺亡 有人提醒会下雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 09:09 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 08:46 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 08:44 - [巴西绝杀日本：漫画般结局换了主角](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 08:53 - [日本主帅赛后回应淘汰出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 08:51 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 08:54 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 09:05 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 08:45 - [泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 09:06 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 08:49 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 09:15 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 09:15 - [巴西足球能否再现昔日荣光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 09:17 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 08:59 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 08:56 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 09:09 - [日本球迷输球后集体捡垃圾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 09:10 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 09:11 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-30 08:55 - [锐评T1战胜KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 09:02 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 09:01 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/381721.shtml)
-- 2026-06-30 08:48 - [黄晓明夸昆凌引杨颖对比](https://www.blog.kurohicncr.top/Article/details/339347093.shtml)
-- 2026-06-30 08:57 - [如果有二次元高中是什么样子的？](http://www.blog.minike.top/Article/details/36120600243.shtml)
-- 2026-06-30 09:05 - [网红不能困在无底线逐利里](https://www.blog.minike.top/Article/details/031193.shtml)
-- 2026-06-30 08:47 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/4660093850.shtml)
-- 2026-06-30 09:03 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/827638.shtml)
-- 2026-06-30 08:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/764224.shtml)
-- 2026-06-30 08:53 - [速度与激情9](http://www.share.minike.top/Article/details/28086071648.shtml)
-- 2026-06-30 09:08 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/02785545456.shtml)
-- 2026-06-30 08:53 - [“以前别人可怜你，因为你穷。现在别人恨你，因为你有钱。十个有钱人，九个都招人讨厌”漫谈《发达秘笈/发财秘笈》](https://www.blog.minike.top/Article/details/18518089261.shtml)
-- 2026-06-30 08:59 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/56325.shtml)
-- 2026-06-30 08:47 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/156474.shtml)
-- 2026-06-30 08:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/479239475.shtml)
-- 2026-06-30 08:45 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/24263707.shtml)
-- 2026-06-30 08:58 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/720692659298.shtml)
+- 2026-06-30 09:01 - [曝老詹对自由市场态度与以往截然不同](https://www.share.kurohicncr.top/Article/details/92407.shtml)
+- 2026-06-30 08:59 - [网红不能困在无底线逐利里](https://www.blog.kurohicncr.top/Article/details/70277042.shtml)
+- 2026-06-30 08:59 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/85627121.shtml)
+- 2026-06-30 08:53 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/301862491.shtml)
+- 2026-06-30 08:50 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/34314062674.shtml)
+- 2026-06-30 08:53 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/7443354.shtml)
+- 2026-06-30 09:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/11278403996.shtml)
+- 2026-06-30 08:54 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/144334.shtml)
+- 2026-06-30 09:01 - [如果有二次元高中是什么样子的？](http://www.blog.kurohicncr.top/Article/details/344166487515.shtml)
+- 2026-06-30 09:04 - [郑钦文温网一轮游](http://www.share.minike.top/Article/details/28440.shtml)
+- 2026-06-30 08:51 - [峡谷事故团队组队时有人提醒会下雨](http://www.blog.minike.top/Article/details/8231591297.shtml)
+- 2026-06-30 09:15 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/8866396.shtml)
+- 2026-06-30 09:00 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/18759917304.shtml)
+- 2026-06-30 08:52 - [日本主帅：未能夺冠深感抱歉](http://www.blog.kurohicncr.top/Article/details/836553823861.shtml)
+- 2026-06-30 09:06 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/758860783.shtml)

@@ -1,61 +1,58 @@
-# 持续抓下去，不断抓出新成效——与会代表谈贯彻落实加强基础研究座谈会精神
+# 玉健健康IPO：第一大客户竟是海外贸易商收入占比超65% 大客户集中并非行业惯例
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-基础研究是整个科学体系的源头，是所有技术问题的总机关。党的十八大以来，以习近平同志为核心的党中央高度重视基础研究，通过优化科研布局、加大投入保障、创新体制机制等，推动我国基础研究水平显著提升。 当前，新一轮科技革命和产业变革加速突破，全球科技竞争更加聚焦基础前沿领域，原创性颠覆性创新的重要性日益凸显。4月30日，习近平总书记出席加强基础研究座谈会并发表重要讲话指出：“我们要抓住
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 5月28日，北交所官网披露了宁波玉健健康科技股份有限公司（下称“玉健健康”）回复交易所的问询函公告。 据招股书及问询函回复公告，玉健健康十分依赖海外收入，对第一大客户InovoBiologic Inc．的销售收入占比高达65%，原则上构成对第一大客户
 
 ## 正文
 
-基础研究是整个科学体系的源头，是所有技术问题的总机关。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-党的十八大以来，以习近平同志为核心的党中央高度重视基础研究，通过优化科研布局、加大投入保障、创新体制机制等，推动我国基础研究水平显著提升。
+出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 5月28日，北交所官网披露了宁波玉健健康科技股份有限公司（下称“玉健健康”）回复交易所的问询函公告。
 
-当前，新一轮科技革命和产业变革加速突破，全球科技竞争更加聚焦基础前沿领域，原创性颠覆性创新的重要性日益凸显。
+据招股书及问询函回复公告，玉健健康十分依赖海外收入，对第一大客户InovoBiologic Inc．的销售收入占比高达65%，原则上构成对第一大客户的重大依赖。
 
-4月30日，习近平总书记出席加强基础研究座谈会并发表重要讲话指出：“我们要抓住机遇、应对挑战，切实把基础研究工作摆上重要日程，持续抓下去，不断抓出新成效。
+但有意思的是，第一大客户竟然是海外的一家贸易商，并非终端客户。
 
-” 会后，部分与会代表接受了本报记者采访。
+此外，InovoBiologic Inc对玉健健康的采购占比也大幅提升，双方存在“相互绑定”的特征。
 
-大家表示，习近平总书记的重要讲话为加强基础研究指明了前进方向、提供了根本遵循，要深入学习领会习近平总书记重要讲话精神，增强紧迫感、责任感、使命感，以更大力度、更实举措加强基础研究。
+此外，玉健健康对第一大客户、前五大客户的集中度明显高于同行可比公司，但公司及保荐机构却称“剔除 InovoBiologic Inc．后，基本符合行业特征”。
 
-“总书记的重要讲话，强调了基础研究的重要性，并为进一步加强基础研究工作作出了长远布局。
+问题是，玉健健康最大问题就是对第一大客户的依赖，如果剔除后对比，论证是否符合行业惯例的意义也不大。
 
-”中国科学院物理研究所所长、中国科学院院士方忠说，作为一名长期从事物质科学基础研究的科技工作者，深感责任重大。
+玉健健康对第一大客户的重大依赖以及显著高于同行可比公司的大客户集中度，关乎公司是否符合上市条件。
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [2026年WTT美国大满贯，国乒自带球桌是真实的吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 08:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 08:55 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 08:52 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 09:06 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 08:47 - [网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 08:52 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 08:52 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 09:07 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-30 09:04 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 08:48 - [王楚钦说配合稍微有些陌生感](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 09:01 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 09:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 08:44 - [曝老詹对自由市场态度与以往截然不同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 08:57 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 09:07 - [点球大战 残酷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 08:51 - [锐评：网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 09:00 - [输球后日本球迷被强行披上巴西国旗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 08:54 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 09:12 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 09:06 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 08:49 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 09:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 09:04 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 09:12 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 09:08 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 09:00 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:45 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/6488308.shtml)
-- 2026-06-30 09:02 - [内马尔安慰日本球员](https://www.share.minike.top/Article/details/466354.shtml)
-- 2026-06-30 08:42 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/70154.shtml)
-- 2026-06-30 09:00 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/397627317044.shtml)
-- 2026-06-30 08:48 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/26136637155.shtml)
-- 2026-06-30 08:48 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.kurohicncr.top/Article/details/88806637.shtml)
-- 2026-06-30 08:42 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/4169595.shtml)
-- 2026-06-30 08:50 - [疯了！！詹姆斯加盟勇士组4巨头？！超详细分析老詹的下家选择！](https://www.share.minike.top/Article/details/52177745245.shtml)
-- 2026-06-30 08:43 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/09317.shtml)
-- 2026-06-30 09:01 - [荷兰vs摩洛哥](http://www.share.minike.top/Article/details/655630.shtml)
-- 2026-06-30 08:51 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/76897673516.shtml)
-- 2026-06-30 09:04 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/70552291.shtml)
-- 2026-06-30 08:52 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/8182320.shtml)
-- 2026-06-30 09:00 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/5407379.shtml)
-- 2026-06-30 08:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/66783.shtml)
+- 2026-06-30 09:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/295156146.shtml)
+- 2026-06-30 09:06 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/00622.shtml)
+- 2026-06-30 08:59 - [请回答王牌2019](http://www.share.minike.top/Article/details/16763282183.shtml)
+- 2026-06-30 09:16 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/74022131433.shtml)
+- 2026-06-30 08:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/207249.shtml)
+- 2026-06-30 08:52 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/3163201245.shtml)
+- 2026-06-30 08:56 - [曝iPhone18Pro机密文件现身暗网](https://www.blog.minike.top/Article/details/982742.shtml)
+- 2026-06-30 08:56 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/64698433745.shtml)
+- 2026-06-30 09:06 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/961327498.shtml)
+- 2026-06-30 09:10 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/7818827670.shtml)
+- 2026-06-30 09:04 - [德国进球被吹](https://www.blog.kurohicncr.top/Article/details/9747558.shtml)
+- 2026-06-30 09:05 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/716612470899.shtml)
+- 2026-06-30 09:09 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/659828079.shtml)
+- 2026-06-30 08:51 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/4075672.shtml)
+- 2026-06-30 09:00 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/3330867.shtml)

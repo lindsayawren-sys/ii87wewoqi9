@@ -1,61 +1,49 @@
-# 外交部发言人就东京审判开庭80周年答记者问
+# 【百万庄小课堂】“高枕”真能“无忧”？专家提醒长期高枕可能损伤脑血管
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-外交部发言人就东京审判开庭80周年答记者问，具体内容如下。 问：今天是远东国际军事法庭（东京审判）开庭80周年纪念日。近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。请问中方对此有何评论？ 答：1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。这场历史性审判汇聚11国司法力量，以海量铁证和严
+发布时间：2026年05月31日 15:20 来源：中国新闻网 睡眠时间充足，晨起却常感颈部酸痛、头晕手麻，很多人将其归咎于过度疲劳或床垫不适，却忽视了“罪魁祸首”可能是枕头。常言道“高枕无忧”，但专家提醒，长期睡高枕不仅无法“无忧”，反而极易诱发颈椎及心脑血管相关疾病。 何美锟 四川成都报道 责任编辑：【叶攀】
 
 ## 正文
 
-外交部发言人就东京审判开庭80周年答记者问，具体内容如下。
+发布时间：2026年05月31日 15:20 来源：中国新闻网 睡眠时间充足，晨起却常感颈部酸痛、头晕手麻，很多人将其归咎于过度疲劳或床垫不适，却忽视了“罪魁祸首”可能是枕头。
 
-问：今天是远东国际军事法庭（东京审判）开庭80周年纪念日。
+常言道“高枕无忧”，但专家提醒，长期睡高枕不仅无法“无忧”，反而极易诱发颈椎及心脑血管相关疾病。
 
-近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。
-
-请问中方对此有何评论？
-
-答：1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。
-
-这场历史性审判汇聚11国司法力量，以海量铁证和严谨法理，判定日本军国主义发动侵略战争、严重违反国际法，揭露日本侵略者在亚洲多国犯下的累累罪行，判处东条英机等25名甲级战犯绞刑、徒刑，驳斥所谓“胜利者审判”“自卫战争”“事后立法”等谬论。
-
-东京审判是《开罗宣言》《波茨坦公告》规定的实施，反映战胜国与受害者集体意志，践行《联合国宪章》的宗旨与原则，捍卫了二战胜利成果。
-
-接受东京审判判决是战后日本回归国际社会的前提。
+何美锟 四川成都报道 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-30 08:44 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 08:54 - [女子遭下药退赔偿拟追刑责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 08:51 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 08:45 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 08:47 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 08:49 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 08:50 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 08:42 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 08:47 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 08:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 09:01 - [4000美元是黄金新一轮下跌的开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 08:51 - [德国队连续三届世界杯无缘16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 08:47 - [【涤墨作战7人870】望：我从地狱杀回来了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 08:50 - [日本主帅赛后回应淘汰出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 08:45 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 09:17 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 08:49 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 08:48 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 09:06 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 09:08 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 08:50 - [莫兰特转投开拓者效力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 08:49 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 08:51 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 09:07 - [日本主帅赛后回应淘汰出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 09:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 08:55 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 08:52 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 09:07 - [自然光｜papi酱&窦文涛：驴与跑步机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:56 - [女子遭下药退赔偿拟追刑责](https://www.share.minike.top/Article/details/834887415612.shtml)
-- 2026-06-30 08:45 - [女子遭下药退赔偿拟追刑责](http://www.blog.kurohicncr.top/Article/details/97732.shtml)
-- 2026-06-30 08:57 - [世界杯：荷兰vs摩洛哥](https://www.blog.kurohicncr.top/Article/details/16822286318.shtml)
-- 2026-06-30 09:11 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/224459.shtml)
-- 2026-06-30 09:10 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/036107541205.shtml)
-- 2026-06-30 08:52 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/17687.shtml)
-- 2026-06-30 08:43 - [日本球迷输球后集体捡垃圾](https://www.blog.minike.top/Article/details/2339890286.shtml)
-- 2026-06-30 09:10 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/67700.shtml)
-- 2026-06-30 08:54 - [巴拉圭率先破门](http://www.share.kurohicncr.top/Article/details/692565044041.shtml)
-- 2026-06-30 08:45 - [男子造谣东鹏老板不喝自家饮料被拘](http://www.blog.minike.top/Article/details/065875.shtml)
-- 2026-06-30 08:46 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/88233272940.shtml)
-- 2026-06-30 09:11 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/332301240102.shtml)
-- 2026-06-30 09:05 - [日本球迷被强行披上巴西国旗](http://www.share.minike.top/Article/details/635895457455.shtml)
-- 2026-06-30 08:58 - [峡谷事故团队组队时有人提醒会下雨](http://www.share.kurohicncr.top/Article/details/04798.shtml)
-- 2026-06-30 08:44 - [莫兰特转投开拓者效力](http://www.share.kurohicncr.top/Article/details/2940357200.shtml)
+- 2026-06-30 09:09 - [警方介入洪明甫死亡威胁](https://www.blog.minike.top/Article/details/808014831164.shtml)
+- 2026-06-30 09:14 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/35364555.shtml)
+- 2026-06-30 09:12 - [金牌调解](http://www.blog.minike.top/Article/details/42173443.shtml)
+- 2026-06-30 08:58 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/067898.shtml)
+- 2026-06-30 09:01 - [教育部披露：高考生篡改7名同学志愿](https://www.blog.minike.top/Article/details/992856880.shtml)
+- 2026-06-30 09:06 - [人民锐评网红诋毁袁隆平造谣企业家](http://www.share.kurohicncr.top/Article/details/961440526.shtml)
+- 2026-06-30 08:57 - [爱很美味](https://www.share.kurohicncr.top/Article/details/91708280.shtml)
+- 2026-06-30 09:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/82181383556.shtml)
+- 2026-06-30 09:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/3617612887.shtml)
+- 2026-06-30 09:17 - [天道](https://www.share.kurohicncr.top/Article/details/4806842789.shtml)
+- 2026-06-30 08:56 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/655553.shtml)
+- 2026-06-30 08:49 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/83439195969.shtml)
+- 2026-06-30 08:50 - [急先锋](https://www.share.kurohicncr.top/Article/details/94046049.shtml)
+- 2026-06-30 09:05 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/80094545.shtml)
+- 2026-06-30 08:55 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/147115.shtml)

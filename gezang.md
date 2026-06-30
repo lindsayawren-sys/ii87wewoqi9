@@ -1,56 +1,57 @@
-# 乌梁素海“五一”见闻：湖清鸟归游人至 7船日入4万元
+# 中新社采访团赴菲律宾开展“福建漳州月港海丝寻迹”主题采访活动圆满结束
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新网巴彦淖尔5月4日电 题：乌梁素海“五一”见闻：湖清鸟归游人至 7船日入4万元 中新网记者 张林虎 “五一”假期，内蒙古自治区巴彦淖尔市乌拉特前旗的乌梁素海湖面上，游船穿梭如织，停车场一位难求。操着各地口音的游客，在这片被称为“塞外明珠”的水域流连忘返。 “昨天客流量比去年同期增长18%，营业额增长44%。截至5月3日下午，我们的营业额已达去年同期的93%，今年的总收入肯定
+中新网马尼拉5月31日电 (记者 张金川 张兴龙)5月29日，中国新闻社采访团赴菲律宾开展“福建漳州月港海丝寻迹”主题采访暨海外华文媒体交流活动圆满结束。 此次活动由中国新闻社福建分社、福建省漳州市人民政府新闻办公室共同主办，中国新闻社漳州支社承办，采访团深入走访、交流，通过海外华文媒体平台传播月港文化。 漳州是一座拥有1300多年历史的国家历史文化名城，是“海上丝绸之路”重要
 
 ## 正文
 
-中新网巴彦淖尔5月4日电 题：乌梁素海“五一”见闻：湖清鸟归游人至 7船日入4万元 中新网记者 张林虎 “五一”假期，内蒙古自治区巴彦淖尔市乌拉特前旗的乌梁素海湖面上，游船穿梭如织，停车场一位难求。
+中新网马尼拉5月31日电 (记者 张金川 张兴龙)5月29日，中国新闻社采访团赴菲律宾开展“福建漳州月港海丝寻迹”主题采访暨海外华文媒体交流活动圆满结束。
 
-操着各地口音的游客，在这片被称为“塞外明珠”的水域流连忘返。
+此次活动由中国新闻社福建分社、福建省漳州市人民政府新闻办公室共同主办，中国新闻社漳州支社承办，采访团深入走访、交流，通过海外华文媒体平台传播月港文化。
 
-“昨天客流量比去年同期增长18%，营业额增长44%。
+漳州是一座拥有1300多年历史的国家历史文化名城，是“海上丝绸之路”重要节点城市，早在500多年前，漳州先辈就漂洋过海到菲律宾马尼拉经商贸易，拉开了漳州和菲律宾经贸合作的序幕。
 
-截至5月3日下午，我们的营业额已达去年同期的93%，今年的总收入肯定会超过去年。
+中新社此次组织采访团赴菲律宾开展深入采访，旨在进一步挖掘漳州月港作为明代中后期中国海上丝绸之路重要港口，以及“马尼拉大帆船贸易”重要起点所蕴含的世界性历史价值，进一步加强面向菲律宾及海外的传播，积极讲好漳州月港故事。
 
-”乌梁素海生态旅游景区执行总经理聂鹏看着实时数据，满心欢喜。
+活动期间，主办方举办“福建漳州月港海丝寻迹主题采访暨海外华文媒体交流活动”启动仪式和“田园都市文化名城——人这一辈子一定要去一趟漳州”主题图片展。
 
-乌梁素海是黄河流域最大的淡水湖，也是地球同一纬度最大的湿地。
+采访团还前往菲律宾《世界日报》《商报》和菲中电视台、华语社区等华文媒体座谈，深化与华文媒体的交流合作以及探讨漳州月港国际传播等内容。
 
-前些年，因过度开垦和污水排放，乌梁素海生态一度恶化。
+漳州是中国著名侨乡，是闽南文化重要发祥地，海内外漳州人共同的精神原乡。
 
-随着山水林田湖草沙一体化治理工程推进，乌梁素海水质从劣Ⅴ类提升到整体Ⅴ类、局部Ⅳ类，湖区面积稳定在293平方公里，每年有60多万只鸟类在此栖息繁衍。
+中新社采访团还前往菲律宾漳州总商会、菲律宾漳厦龙同海总会、菲律宾漳浦新民同乡会等华社机构采访中菲经贸创新发展示范园区建设进展，以及“海外漳州人”在菲律宾拼搏创业的故事，感受中菲经贸与人文交流的活力。
 
 ## 相关推荐
 
-- 2026-06-30 08:58 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 08:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 09:10 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 09:05 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 09:09 - [莫兰特被交易到开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 08:58 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 08:51 - [Melo向柳智敏张元英道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 09:06 - [我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-30 09:01 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 08:48 - [德国队回应爆冷淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 08:51 - [巴拉圭率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 09:08 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 09:00 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 09:06 - [德国爆冷点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 08:53 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 08:59 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 08:51 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-30 09:17 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 08:54 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 09:10 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 09:13 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 09:05 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/265423646.shtml)
-- 2026-06-30 08:59 - [日本球迷输球后集体捡垃圾](http://www.blog.kurohicncr.top/Article/details/54532.shtml)
-- 2026-06-30 08:52 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/315763487210.shtml)
-- 2026-06-30 08:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/80885573.shtml)
-- 2026-06-30 08:58 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/343408212226.shtml)
-- 2026-06-30 09:01 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/60493296.shtml)
-- 2026-06-30 08:59 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/071456.shtml)
-- 2026-06-30 08:50 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/52753939968.shtml)
-- 2026-06-30 08:49 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/2143518337.shtml)
-- 2026-06-30 09:10 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/0161139058.shtml)
-- 2026-06-30 08:51 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/6987556283.shtml)
-- 2026-06-30 08:52 - [全新问界M9现身美国街头](http://www.share.kurohicncr.top/Article/details/1695991.shtml)
-- 2026-06-30 08:53 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/879794871.shtml)
-- 2026-06-30 09:00 - [世界杯小组赛I组，法国4比1挪威，登贝莱半场帽子戏法，哈兰德姆巴佩王不见王，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/28434090198.shtml)
-- 2026-06-30 08:45 - [《共患难》](http://www.share.minike.top/Article/details/554928284.shtml)
+- 2026-06-30 09:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/1551948377.shtml)
+- 2026-06-30 09:16 - [泰山景区建135公里刀片刺绳隔离网](https://www.blog.minike.top/Article/details/967313326.shtml)
+- 2026-06-30 08:59 - [球评巴西绝杀逆转日本](https://www.share.kurohicncr.top/Article/details/33362.shtml)
+- 2026-06-30 09:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/4641338.shtml)
+- 2026-06-30 09:02 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/72577054.shtml)
+- 2026-06-30 09:03 - [德国连续三届世界杯无缘16强](https://www.blog.minike.top/Article/details/1407111.shtml)
+- 2026-06-30 08:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/504439998.shtml)
+- 2026-06-30 09:05 - [韩国道歉完日本道歉](https://www.share.minike.top/Article/details/670402078586.shtml)
+- 2026-06-30 08:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/78033835844.shtml)
+- 2026-06-30 08:51 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/23483.shtml)
+- 2026-06-30 09:12 - [孙兴慜道歉](https://www.share.minike.top/Article/details/536684.shtml)
+- 2026-06-30 09:04 - [郑钦文 四年一轮游](https://www.share.minike.top/Article/details/79384609127.shtml)
+- 2026-06-30 08:58 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/714420.shtml)
+- 2026-06-30 09:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/391118.shtml)
+- 2026-06-30 08:52 - [低智商犯罪三江口团建来了](https://www.blog.kurohicncr.top/Article/details/00416.shtml)

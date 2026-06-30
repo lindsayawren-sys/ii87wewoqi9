@@ -1,59 +1,61 @@
-# 罢工风险开始给三星公司近期前景蒙上阴影
+# 今年前4个月 河源市玩具出口额达5.4亿元
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-三星电子（Samsung Electronics）仍在乘着AI浪潮，但显然正在失去相对于SK海力士（SK Hynix）的优势，而花旗认为，随着劳资紧张局势开始积聚，三星的处境可能将更加艰难。 周一，该股确实一度上涨4.8%，创下历史新高，但与SK海力士12%的涨幅相比仍然显得温和。花旗分析师Peter Lee并未放弃长期看好的逻辑，维持了“买入”评级，但他将目标价从32万韩元下
+中新网河源5月29日电 (张璐 郑莉)据广州海关所属河源海关(简称“河源海关”)29日消息，据统计，今年前4个月，河源市玩具出口额达5.4亿元(人民币，下同)，同比增长2.3%。 据悉，玩具产业是广东河源的优势产业，目前河源市内有11家加工贸易玩具企业，主要出口塑胶玩偶、锌合金玩具车、塑胶益智玩具等产品，颇受日本、韩国等国家消费者的青睐。 近日，源力玩具(河源)有限公司车间里一
 
 ## 正文
 
-三星电子（Samsung Electronics）仍在乘着AI浪潮，但显然正在失去相对于SK海力士（SK Hynix）的优势，而花旗认为，随着劳资紧张局势开始积聚，三星的处境可能将更加艰难。
+中新网河源5月29日电 (张璐 郑莉)据广州海关所属河源海关(简称“河源海关”)29日消息，据统计，今年前4个月，河源市玩具出口额达5.4亿元(人民币，下同)，同比增长2.3%。
 
-周一，该股确实一度上涨4.8%，创下历史新高，但与SK海力士12%的涨幅相比仍然显得温和。
+据悉，玩具产业是广东河源的优势产业，目前河源市内有11家加工贸易玩具企业，主要出口塑胶玩偶、锌合金玩具车、塑胶益智玩具等产品，颇受日本、韩国等国家消费者的青睐。
 
-花旗分析师Peter Lee并未放弃长期看好的逻辑，维持了“买入”评级，但他将目标价从32万韩元下调6.3%至30万韩元，这反映出日益增长的近期担忧。
+近日，源力玩具(河源)有限公司车间里一派繁忙景象，工人们正马不停蹄地将一件件精美的玩偶等玩具进行打包、封装，厂区装卸台边的大卡车蓄势待发。
 
-目前的问题在于劳工风险。
+经河源海关关员检验合格后，这批货值超110万元的玩具通过海运的方式出口至澳大利亚、东亚等地。
 
-工会可能在5月21日至6月7日期间举行罢工，在利润率已受到密切关注之际，这将推高成本。
+“玩具出口到不同国家和地区，有着不同的技术规范、产品认证和准入条件，河源海关‘送政策上门’，及时讲解国外相关法规政策和相关准入要求，积极引导我们充分运用RCEP和现有自贸协定减税安排，对于我们开拓海外市场有很大的帮助。
 
-花旗特别关注绩效奖金和更广泛的人工支出，警告称如果紧张局势升级，这些因素可能会侵蚀利润。
+”该公司报关负责人温润华说道。
 
-因此，该行将今年和明年的营业利润预期分别下调了10%和11%。
+据悉，近年来，河源海关以技术帮扶为核心，构建“预警—应对—提升”全链条服务体系，助力企业提升技术性贸易措施应对能力，推动提升企业综合竞争力，为企业抢占国外市场提供了强有力的支持。
 
-长期来看，存储芯片周期仍然强劲，预计到2027年短缺将进一步加剧，但近期走势可能坎坷不平。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 08:56 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 08:50 - [曝iPhone18Pro机密文件现身暗网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 08:44 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 08:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 09:02 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 08:55 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 08:49 - [金鹰奖视后提名预测](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 08:49 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 09:05 - [日本将帅赛后采访纷纷哽咽落泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 08:54 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 09:06 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 09:02 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 08:42 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 09:02 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-30 08:58 - [全球芯片巨头史诗级扩产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 09:09 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 09:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 08:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 09:15 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 08:55 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 08:51 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 08:57 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 08:49 - [峡谷事故团队组队时有人提醒会下雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 09:11 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 09:10 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 08:48 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 09:15 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 09:17 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:44 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/0772872.shtml)
-- 2026-06-30 08:51 - [杨紫学位证上就是杨紫](https://www.share.kurohicncr.top/Article/details/82295899.shtml)
-- 2026-06-30 09:11 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/938988762.shtml)
-- 2026-06-30 08:58 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/227273.shtml)
-- 2026-06-30 08:50 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/989790700.shtml)
-- 2026-06-30 09:11 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/182181104.shtml)
-- 2026-06-30 08:42 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/2332775429.shtml)
-- 2026-06-30 08:46 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/47090.shtml)
-- 2026-06-30 08:57 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/77061175.shtml)
-- 2026-06-30 08:47 - [网瘾賊大的阿嬷](https://www.blog.minike.top/Article/details/17357946.shtml)
-- 2026-06-30 08:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/7117857.shtml)
-- 2026-06-30 09:09 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/37605.shtml)
-- 2026-06-30 08:59 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/4905410223.shtml)
-- 2026-06-30 09:08 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/5316418284.shtml)
-- 2026-06-30 09:05 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/743958.shtml)
+- 2026-06-30 08:56 - [三星投资计划](http://www.blog.kurohicncr.top/Article/details/5085991.shtml)
+- 2026-06-30 09:03 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/2566944.shtml)
+- 2026-06-30 08:58 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/6399959.shtml)
+- 2026-06-30 09:11 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/294723.shtml)
+- 2026-06-30 08:59 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/3668933475.shtml)
+- 2026-06-30 08:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/00907616.shtml)
+- 2026-06-30 09:05 - [流金岁月](https://www.share.kurohicncr.top/Article/details/54458427254.shtml)
+- 2026-06-30 09:01 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://www.blog.kurohicncr.top/Article/details/3475794.shtml)
+- 2026-06-30 09:06 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/055742131784.shtml)
+- 2026-06-30 09:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/52102.shtml)
+- 2026-06-30 09:13 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/837387836791.shtml)
+- 2026-06-30 08:56 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/773778.shtml)
+- 2026-06-30 09:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/08425.shtml)
+- 2026-06-30 08:51 - [德国队连续三届世界杯无缘16强](https://www.share.minike.top/Article/details/2548677057.shtml)
+- 2026-06-30 09:17 - [第一次对自信的力量有了实感](http://www.share.kurohicncr.top/Article/details/99721.shtml)

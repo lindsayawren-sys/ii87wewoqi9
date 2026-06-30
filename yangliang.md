@@ -1,54 +1,61 @@
-# 一季度末股东户数下降公司排行：16家公司降逾40%
+# 聚焦基层治理产业升级 德国青年长沙探寻乡村发展路径
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！人民财讯5月4日电，根据统计，剔除2026年上市的次新股后，截至2026年一季度末，与2025年末相比，有16家A股上市公司股东户数降幅超过40%，其中，富临精工、誉帆科技降幅超过50%。富临精工为创业板公司，公司主要业务为汽车发动机零部件、新能源汽车智能电控和新能源锂电正极材料的研发、生产和销售。 行业分
+中新网长沙5月31日电(付敬懿)“我对望城乡村发展的印象很好，在茶企买茶还有折扣。”德国左翼党青年代表团团长萨拉·布雷默(Sarah Bremer)表示，望城在乡村振兴、基层治理、产业升级等方面取得的实践与成效，让她对中国乡村基层发展有了更深刻的感受。 5月30日至31日，德国左翼党青年代表团一行到访湖南长沙市，实地考察乡村基层治理、产业融合、人才引进及特色智慧农业等推进乡村振
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网长沙5月31日电(付敬懿)“我对望城乡村发展的印象很好，在茶企买茶还有折扣。
 
-人民财讯5月4日电，根据统计，剔除2026年上市的次新股后，截至2026年一季度末，与2025年末相比，有16家A股上市公司股东户数降幅超过40%，其中，富临精工、誉帆科技降幅超过50%。
+”德国左翼党青年代表团团长萨拉·布雷默(Sarah Bremer)表示，望城在乡村振兴、基层治理、产业升级等方面取得的实践与成效，让她对中国乡村基层发展有了更深刻的感受。
 
-富临精工为创业板公司，公司主要业务为汽车发动机零部件、新能源汽车智能电控和新能源锂电正极材料的研发、生产和销售。
+5月30日至31日，德国左翼党青年代表团一行到访湖南长沙市，实地考察乡村基层治理、产业融合、人才引进及特色智慧农业等推进乡村振兴的有效做法和实践经验，在科技变革和产业升级的浪潮中探寻乡村振兴的典型样本。
 
-行业分布方面，按申万一级行业分类，这16家公司中，3家为机械设备行业，3家为轻工制造行业，另外，汽车、商业贸易均有两家。
+坐落于万亩堤垸团山湖垸内的望城区团山湖村，是雷锋同志基层工作生涯的起点，被誉为“雷锋精神发源地”。
 
-股价方面，今年以来，富临精工涨68%，扬子新材涨50%。
+团山湖村把雷锋精神根植于经济发展、乡风文明、基层治理等方方面面，蝶变成生态秀美、文明和谐、产业兴旺的全国文明村镇。
+
+“我们是在传承他的脚印，更是在延续他服务人民、扎根基层的精神力量。
+
+”团山湖村党支部书记程府迎向德国青年代表团介绍道，雷锋自觉参与公益服务的做法让越来越多的国家所认同，团山湖村以志愿精神促进邻里互助、增强村民凝聚力，用实实在在的服务赢得民心、润物无声地提升乡风文明。
+
+乡村要振兴，关键是产业要振兴。
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 08:58 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 08:52 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 09:01 - [四川凉山落石砸毁车辆 3人遇难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 08:53 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 09:06 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 08:43 - [黄晓明晒和周杰伦的合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 08:52 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-30 09:04 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 08:48 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 08:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 09:04 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 08:56 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 08:50 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 08:58 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 09:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 09:03 - [德国队回应爆冷淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 09:10 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 08:48 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 09:16 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-30 09:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 09:03 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 08:59 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 09:15 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 09:12 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 08:58 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 08:48 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 09:15 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 08:54 - [郑钦文温网一轮游](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:53 - [四川凉山落石砸毁车辆 3人遇难](http://www.blog.kurohicncr.top/Article/details/252604.shtml)
-- 2026-06-30 09:00 - [为什么小组赛出局会让韩国人破防](http://www.share.kurohicncr.top/Article/details/723476.shtml)
-- 2026-06-30 08:51 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/6068447.shtml)
-- 2026-06-30 08:43 - [男子醉酒溺水获救后同行人拒协助抬人](http://www.blog.minike.top/Article/details/30113659.shtml)
-- 2026-06-30 09:04 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/735035200.shtml)
-- 2026-06-30 08:44 - [第一次对自信的力量有了实感](http://www.blog.minike.top/Article/details/49981.shtml)
-- 2026-06-30 08:45 - [巴西vs日本](https://www.blog.minike.top/Article/details/32461.shtml)
-- 2026-06-30 08:53 - [追梦拒绝2770万美元球员选项](https://www.blog.minike.top/Article/details/13174361.shtml)
-- 2026-06-30 09:00 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/159477.shtml)
-- 2026-06-30 08:55 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/07144584977.shtml)
-- 2026-06-30 08:52 - [陈幸同晋级WTT美国大满贯女单32强](http://www.share.minike.top/Article/details/079190775449.shtml)
-- 2026-06-30 08:51 - [网瘾賊大的阿嬷](https://www.share.kurohicncr.top/Article/details/693928385.shtml)
-- 2026-06-30 08:58 - [人类...完蛋了...](https://www.share.minike.top/Article/details/422238121976.shtml)
-- 2026-06-30 08:47 - [为什么纣王似乎对周文王的扩张完全无动于衷？](http://www.blog.minike.top/Article/details/149182778732.shtml)
-- 2026-06-30 09:05 - [警方介入洪明甫死亡威胁](http://www.share.kurohicncr.top/Article/details/91812.shtml)
+- 2026-06-30 08:53 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/05197.shtml)
+- 2026-06-30 08:56 - [女子遭下药退赔偿拟追刑责](http://www.share.minike.top/Article/details/0565942.shtml)
+- 2026-06-30 09:05 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/6091391450.shtml)
+- 2026-06-30 09:01 - [媒体：手机测评该挤挤水分了](http://www.share.kurohicncr.top/Article/details/41967079.shtml)
+- 2026-06-30 09:08 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/06144.shtml)
+- 2026-06-30 09:17 - [收到补税提醒尽快办理 明起有滞纳金](http://www.blog.kurohicncr.top/Article/details/721616715672.shtml)
+- 2026-06-30 09:08 - [日本球员说被绝杀非常不甘心](http://www.share.kurohicncr.top/Article/details/77589.shtml)
+- 2026-06-30 08:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/81203.shtml)
+- 2026-06-30 09:10 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/5595496.shtml)
+- 2026-06-30 09:16 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/683457640404.shtml)
+- 2026-06-30 08:56 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/78279526.shtml)
+- 2026-06-30 08:59 - [日本队主帅道歉](https://www.share.minike.top/Article/details/220541.shtml)
+- 2026-06-30 08:59 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/85613156781.shtml)
+- 2026-06-30 08:54 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/6251034.shtml)
+- 2026-06-30 09:07 - [德国巴拉圭进入点球大战](https://www.share.kurohicncr.top/Article/details/84441441.shtml)

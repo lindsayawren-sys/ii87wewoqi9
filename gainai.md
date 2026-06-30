@@ -1,49 +1,60 @@
-# 伊媒：伊朗已为霍尔木兹海峡的各种情况做好准备
+# 2026年西藏自治区“六一”少儿文艺晚会在拉萨市举行
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-新华社德黑兰5月4日电 据伊朗塔斯尼姆通讯社4日援引知情人士的话报道，伊朗已为霍尔木兹海峡的各种情况做好准备。“除了向美国舰艇开火外，伊朗还准备了其他方案，必要时将采取行动。”责任编辑：赵思远
+中新网拉萨5月31日电(拉巴卓玛)5月30日晚，“童心筑梦十五五·雪域欢歌庆六一”2026年西藏自治区“六一”少儿文艺晚会在拉萨市群众文化体育中心举行。来自西藏自治区的少年儿童代表、少先队辅导员代表和优秀青年代表等1000余人现场观看演出。 此次晚会以铸牢中华民族共同体意识为主线，分“童心筑梦新征程”“籽籽连心民族情”“薪火相传守家园”“心向未来谱新篇”四个篇章，集中展现爱国主
 
 ## 正文
 
-新华社德黑兰5月4日电 据伊朗塔斯尼姆通讯社4日援引知情人士的话报道，伊朗已为霍尔木兹海峡的各种情况做好准备。
+中新网拉萨5月31日电(拉巴卓玛)5月30日晚，“童心筑梦十五五·雪域欢歌庆六一”2026年西藏自治区“六一”少儿文艺晚会在拉萨市群众文化体育中心举行。
 
-“除了向美国舰艇开火外，伊朗还准备了其他方案，必要时将采取行动。
+来自西藏自治区的少年儿童代表、少先队辅导员代表和优秀青年代表等1000余人现场观看演出。
 
-”责任编辑：赵思远
+此次晚会以铸牢中华民族共同体意识为主线，分“童心筑梦新征程”“籽籽连心民族情”“薪火相传守家园”“心向未来谱新篇”四个篇章，集中展现爱国主义、民族团结、国防教育、非遗传承和灾后重建暖心故事等内容。
+
+开场舞《雪域童心庆开局》融合潮流、体育和科技元素，展现新时代西藏少年儿童自信开朗的精神面貌。
+
+曾受地震影响的日喀则市定日县盆吉乡小学的学生带来千年非遗甲谐舞，山南市贡嘎县杰德秀镇小学表演丰收舞，讲述了震后重建家园、幸福安居的故事。
+
+京藏少年通过云端结对互动、共话成长。
+
+拉萨市实验小学一年级学生扎西顿珠表示，定日县小伙伴带来的非遗舞蹈、戍边叔叔的故事和京藏少年的友谊，让他感受到民族团结的温暖，更懂得幸福生活来之不易。
+
+指导老师卓玛说，这场晚会是最好的“六一”礼物，也是最生动的思政课。
 
 ## 相关推荐
 
-- 2026-06-30 08:49 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 09:11 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 09:09 - [荷兰VS摩洛哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 08:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 08:52 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 09:05 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 08:48 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 09:11 - [媒体：手机测评该挤挤水分了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 09:10 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 08:42 - [巴拉圭门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 09:09 - [男子造谣东鹏老板不喝自家饮料被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 09:01 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 08:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 09:07 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 08:51 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 08:55 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 08:59 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 09:08 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 09:01 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 09:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 09:08 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 09:06 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 09:16 - [古代出远门真实标配到底是刀、剑、还是棍，为什么武侠片中清一色都是剑?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 09:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 09:06 - [日本队5进世界杯淘汰赛0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 09:11 - [萨内 看笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 08:54 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:50 - [王楚钦孙颖莎晋级混双八强](https://www.blog.minike.top/Article/details/2888319.shtml)
-- 2026-06-30 08:45 - [日本队被绝杀后鞠躬致谢观众](https://www.blog.kurohicncr.top/Article/details/20001876.shtml)
-- 2026-06-30 09:07 - [田中碧失误](https://www.blog.kurohicncr.top/Article/details/61725.shtml)
-- 2026-06-30 09:05 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/39499.shtml)
-- 2026-06-30 09:00 - [网红不能困在无底线逐利里](http://www.blog.minike.top/Article/details/4039359.shtml)
-- 2026-06-30 08:45 - [网红不能困在无底线逐利里](http://www.blog.kurohicncr.top/Article/details/01486.shtml)
-- 2026-06-30 09:10 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/21721473.shtml)
-- 2026-06-30 08:53 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/68193374.shtml)
-- 2026-06-30 09:05 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/311199283922.shtml)
-- 2026-06-30 09:10 - [曝iPhone18Pro机密文件现身暗网](https://www.share.minike.top/Article/details/674104848.shtml)
-- 2026-06-30 09:09 - [Melo向柳智敏张元英道歉](http://www.blog.minike.top/Article/details/781346.shtml)
-- 2026-06-30 08:47 - [锐评T1战胜KC](http://www.share.kurohicncr.top/Article/details/800374.shtml)
-- 2026-06-30 08:50 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/00125584.shtml)
-- 2026-06-30 08:53 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/10811295547.shtml)
-- 2026-06-30 08:58 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/99226222691.shtml)
+- 2026-06-30 08:59 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/2665278.shtml)
+- 2026-06-30 09:15 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/3835836237.shtml)
+- 2026-06-30 09:17 - [一见倾心](https://www.share.kurohicncr.top/Article/details/644202388.shtml)
+- 2026-06-30 08:57 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/409864003149.shtml)
+- 2026-06-30 08:49 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/571603.shtml)
+- 2026-06-30 08:58 - [高考结束了，你会让孩子在家玩手机吗？](https://www.blog.kurohicncr.top/Article/details/2604354237.shtml)
+- 2026-06-30 09:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/43565670.shtml)
+- 2026-06-30 09:07 - [马宁怒怼巴拉圭教练组](https://www.blog.kurohicncr.top/Article/details/5436407.shtml)
+- 2026-06-30 09:16 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/21826096950.shtml)
+- 2026-06-30 09:10 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/54809916723.shtml)
+- 2026-06-30 08:58 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/148332.shtml)
+- 2026-06-30 09:01 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/313298409.shtml)
+- 2026-06-30 08:56 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/7306374231.shtml)
+- 2026-06-30 09:02 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/59242.shtml)
+- 2026-06-30 09:15 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/0510435042.shtml)

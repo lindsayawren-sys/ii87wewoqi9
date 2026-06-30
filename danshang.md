@@ -1,60 +1,61 @@
-# 楚超武汉主场迎首胜 足球串起荆楚文旅盛宴
+# 年初爆火的德邦稳盈基金经理离任了
 
-> 更新时间：2026-06-30 09:12:02 UTC+8
+> 更新时间：2026-06-30 09:18:02 UTC+8
 
 ## 摘要
 
-中新网武汉5月4日电 (张芹 胡传林)位于武汉市东西湖区的五环体育中心4日下午人声鼎沸，2万多名球迷从各地赶赴赛场。当天，2026年湖北省城市足球联赛(以下简称“楚超”)第三轮比赛中，武汉华工科技队坐镇主场，以3:0战胜咸宁外星人队，斩获主场首胜。 作为楚超焦点之战，该场比赛备受球迷期待。首轮1万张门票20分钟火速售罄，二次开票再度上演“秒空”名场面。当日看台上，加油呐喊声不绝
+来源：投基摸狗 发公告了，大家应该看到了。 去年年底和今年年初的网红基金，德邦稳盈，单押某个特定行业，所以当时业绩又很突出，叠加找了无证大V违规带货，引发部分基民申购，一度传言“单日申购百亿”，引发舆情和监管介入。 从一季报看这个基金应该是亏了几十亿。 现在看基金经理离任了，之前突然增聘基金经理就有苗头。 当然，找无证大V违规带货，确实和基金经理无关，总不能是基金经理找的无证大
 
 ## 正文
 
-中新网武汉5月4日电 (张芹 胡传林)位于武汉市东西湖区的五环体育中心4日下午人声鼎沸，2万多名球迷从各地赶赴赛场。
+来源：投基摸狗 发公告了，大家应该看到了。
 
-当天，2026年湖北省城市足球联赛(以下简称“楚超”)第三轮比赛中，武汉华工科技队坐镇主场，以3:0战胜咸宁外星人队，斩获主场首胜。
+去年年底和今年年初的网红基金，德邦稳盈，单押某个特定行业，所以当时业绩又很突出，叠加找了无证大V违规带货，引发部分基民申购，一度传言“单日申购百亿”，引发舆情和监管介入。
 
-作为楚超焦点之战，该场比赛备受球迷期待。
+从一季报看这个基金应该是亏了几十亿。
 
-首轮1万张门票20分钟火速售罄，二次开票再度上演“秒空”名场面。
+现在看基金经理离任了，之前突然增聘基金经理就有苗头。
 
-当日看台上，加油呐喊声不绝于耳。
+当然，找无证大V违规带货，确实和基金经理无关，总不能是基金经理找的无证大V带货吧。
 
-赛场外，武汉小龙虾、本土精酿与咸宁桂花糕、青砖茶齐聚。
+不过吧，基金经理几个月以后就离职，确实能引发外界联想。
 
-全市开放的14个“第二现场”，设置高清大屏实时转播赛事。
+我就不多说了，大家周末愉快。
 
-火爆的武汉主场，也是楚超热度的缩影。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-30 08:53 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 08:59 - [中国「避暑神器」美的 PortaSplit 空调有什么特别？为什么能在欧洲卖爆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 08:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 08:56 - [世界杯巴拉圭点球淘汰德国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 09:08 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 08:47 - [张雪的一句“是我们”引发岛内热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 09:00 - [网红不能困在无底线逐利里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 08:54 - [孙颖莎王楚钦晋级8强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 09:06 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 09:02 - [现在叛逆期的孩子最怕的是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 08:42 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 08:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 08:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 08:44 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 08:56 - [大蒜晒外面被路过女子连盆端走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 09:04 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 09:11 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 09:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 09:01 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 09:15 - [萨内 看笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 08:59 - [爆冷出局！德国点球大战不敌巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 09:00 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-30 09:06 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 09:02 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 09:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 09:02 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 09:04 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 08:57 - [王楚钦孙颖莎晋级混双八强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 08:53 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 08:43 - [“荒唐”背后的韩国足球](http://www.share.kurohicncr.top/Article/details/552233846.shtml)
-- 2026-06-30 08:43 - [小娘惹](https://www.share.minike.top/Article/details/2228195728.shtml)
-- 2026-06-30 08:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/364003.shtml)
-- 2026-06-30 08:55 - [巴西在进攻三区完成210脚传球](http://www.share.minike.top/Article/details/06922431.shtml)
-- 2026-06-30 08:58 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/01785784.shtml)
-- 2026-06-30 08:59 - [德国罚丢3粒点球](http://www.blog.minike.top/Article/details/69488995597.shtml)
-- 2026-06-30 08:55 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/71505485.shtml)
-- 2026-06-30 09:02 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/15149.shtml)
-- 2026-06-30 08:43 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/53930.shtml)
-- 2026-06-30 08:54 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/2929339.shtml)
-- 2026-06-30 08:58 - [网友写差评被店家“挂”门口避雷](http://www.share.minike.top/Article/details/6860661.shtml)
-- 2026-06-30 08:59 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/1577559.shtml)
-- 2026-06-30 08:51 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/5043249.shtml)
-- 2026-06-30 09:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/06243793826.shtml)
-- 2026-06-30 09:03 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/001009986.shtml)
+- 2026-06-30 09:17 - [现在叛逆期的孩子最怕的是什么？](https://www.blog.minike.top/Article/details/35778.shtml)
+- 2026-06-30 09:12 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/230447.shtml)
+- 2026-06-30 09:09 - [自然光｜papi酱&窦文涛：驴与跑步机](https://www.share.minike.top/Article/details/302094459372.shtml)
+- 2026-06-30 09:07 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/77406.shtml)
+- 2026-06-30 09:09 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/09701697637.shtml)
+- 2026-06-30 09:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/97221504228.shtml)
+- 2026-06-30 09:16 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/728079.shtml)
+- 2026-06-30 08:48 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/21299564654.shtml)
+- 2026-06-30 09:04 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/7269695708.shtml)
+- 2026-06-30 09:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/004481400.shtml)
+- 2026-06-30 09:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/67239.shtml)
+- 2026-06-30 08:54 - [球评巴西绝杀逆转日本](https://www.share.minike.top/Article/details/1989691.shtml)
+- 2026-06-30 09:07 - [穆祉丞回应获年度人气艺人](https://www.blog.minike.top/Article/details/630786225191.shtml)
+- 2026-06-30 09:03 - [日本主帅赛后回应淘汰出局](https://www.share.minike.top/Article/details/38498288954.shtml)
+- 2026-06-30 08:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/42177648.shtml)
