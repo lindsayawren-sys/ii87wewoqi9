@@ -1,44 +1,43 @@
-<h1>A股“股王”激战！近1个月来频繁易主</h1><br>
+<h1>“大地情深”全国优秀群众文艺作品示范性展演在浙举办</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:30:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:36:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>21世纪经济报道记者 刘夏菲 5月18日，A股“股王”再易主。截至当日收盘，联讯仪器（688808.SH）涨近15%，报1344.99元/股，登顶A股“股王”。 值得注意的是，联讯仪器在4月24日登陆科创板，上市仅仅14个交易日。该股发行价为81.88元/股，上市首日以799元/股收盘，涨幅高达875.83%。上市第5个交易日（4月30日），联讯仪器即跻身“千元股”之列。 国泰</p><br>
+<p>中新网丽水5月30日电(曹丹)5月29日晚，“大地情深”全国优秀群众文艺作品示范性展演在浙江丽水举行。来自全国各地的群众文艺工作者、优秀群众文艺团队代表及当地观众近千人齐聚一堂。 展演以“扎根乡土、讴歌生活、传递温情”为主线，分三个篇章呈现了音乐、舞蹈、戏剧、曲艺、广场舞、合唱等多元形式，集中展示了近年来全国群众文艺创作的优秀成果。所有节目坚持“从生活中来，到群众中去”的创作导</p><br>
 <h2>正文</h2><br>
-<p>21世纪经济报道记者 刘夏菲 5月18日，A股“股王”再易主。</p><br>
-<p>截至当日收盘，联讯仪器（688808.SH）涨近15%，报1344.99元/股，登顶A股“股王”。</p><br>
-<p>值得注意的是，联讯仪器在4月24日登陆科创板，上市仅仅14个交易日。</p><br>
-<p>该股发行价为81.88元/股，上市首日以799元/股收盘，涨幅高达875.83%。</p><br>
-<p>上市第5个交易日（4月30日），联讯仪器即跻身“千元股”之列。</p><br>
-<p>国泰海通证券计算机首席分析师杨林团队认为，联讯仪器是国内高端光通信及半导体测试仪器龙头，业绩处于高速增长期；但需注意光通信需求不及预期、竞争加剧影响利润等风险。</p><br>
-<p>事实上，自4月17日以来，A股“股王”已多次易主。</p><br>
-<p>4月17日，光芯片龙头源杰科技（688498.SH）以1445元/股的收盘价首次超越贵州茅台（600519.SH）登顶，此后便与贵州茅台展开了多轮拉锯。</p><br>
+<p>中新网丽水5月30日电(曹丹)5月29日晚，“大地情深”全国优秀群众文艺作品示范性展演在浙江丽水举行。</p><br>
+<p>来自全国各地的群众文艺工作者、优秀群众文艺团队代表及当地观众近千人齐聚一堂。</p><br>
+<p>展演以“扎根乡土、讴歌生活、传递温情”为主线，分三个篇章呈现了音乐、舞蹈、戏剧、曲艺、广场舞、合唱等多元形式，集中展示了近年来全国群众文艺创作的优秀成果。</p><br>
+<p>所有节目坚持“从生活中来，到群众中去”的创作导向，生动体现了新时代群众文艺扎根生活、服务人民的鲜明特质。</p><br>
+<p>来自全国各地的优秀节目轮番登场。</p><br>
+<p>贵州群舞《画里乡田》以浓烈的农民画风格演绎田间劳作，重庆表演唱《高粱秆儿节节甜》唱出丰收喜悦，河南坠子《赶书会》将马街书会七百年的热闹浓缩于舞台。</p><br>
+<p>山东音乐剧小品《白鲸之舞》聚焦家庭教育痛点，上海口琴重奏《爱上这座城》用爵士和声演绎江南民歌。</p><br>
+<p>浙江选送的作品同样精彩纷呈。</p><br>
 <h2>相关推荐</h2><br>
-<h3>为什么蔬菜里并不含有三大供能物质，但却倡导人们多吃蔬菜？</h3><br><p>更新时间：2026-06-30 10:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md</p><br>
-<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>世界杯名画巴拉圭钢铁防线</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
-<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 10:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
-<h3>黄金</h3><br><p>更新时间：2026-06-30 10:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md</p><br>
-<h3>孙颖莎一锤定音的正手</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
-<h3>领克900大型SUV值得购买吗?</h3><br><p>更新时间：2026-06-30 10:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
-<h3>念相思开机</h3><br><p>更新时间：2026-06-30 10:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
-<h3>苗族银饰</h3><br><p>更新时间：2026-06-30 10:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
-<h3>球评巴西绝杀逆转日本</h3><br><p>更新时间：2026-06-30 10:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md</p><br>
+<h3>名记：灰熊将莫兰特交易至开拓者</h3><br><p>更新时间：2026-06-30 10:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md</p><br>
+<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>爆冷出局！德国点球大战不敌巴拉圭</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md</p><br>
+<h3>德国队回应爆冷淘汰</h3><br><p>更新时间：2026-06-30 10:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
+<h3>诺伊尔尽力了</h3><br><p>更新时间：2026-06-30 10:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md</p><br>
+<h3>如何把斧兵改造成精英怪？提高攻速移速！！！</h3><br><p>更新时间：2026-06-30 10:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
+<h3>《名肘探科比》：科比大战裂口女</h3><br><p>更新时间：2026-06-30 10:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
+<h3>点球淘汰德国 巴拉圭首都陷入疯狂</h3><br><p>更新时间：2026-06-30 10:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md</p><br>
+<h3>美股深夜大反弹 特斯拉飙涨8%</h3><br><p>更新时间：2026-06-30 10:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
+<h3>李在明90度鞠躬感谢韩国两大财阀</h3><br><p>更新时间：2026-06-30 10:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 10:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
-<h3>如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
-<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 10:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md</p><br>
-<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>
-<h3>送你一朵小红花</h3><br><p>更新时间：2026-06-30 10:00<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
-<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 10:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
-<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
-<h3>人可以极简主义到什么程度？</h3><br><p>更新时间：2026-06-30 10:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
-<h3>杨紫和张一山毕业采访也太搞笑了</h3><br><p>更新时间：2026-06-30 10:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
-<h3>我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
-<h3>孙兴慜发长文致歉</h3><br><p>更新时间：2026-06-30 10:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
-<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 10:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md</p><br>
-<h3>【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
+<h3>莫兰特转投开拓者效力</h3><br><p>更新时间：2026-06-30 10:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md</p><br>
+<h3>没牌照样管 马宁多次提醒主裁判出牌</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>如何看待恋与深空对 731 等三大争议的回应？能挽回口碑吗？</h3><br><p>更新时间：2026-06-30 10:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>美股收盘 热门中概股普涨</h3><br><p>更新时间：2026-06-30 10:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md</p><br>
+<h3>这种关系可能正在悄悄“催老”你</h3><br><p>更新时间：2026-06-30 10:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md</p><br>
+<h3>"超算小姐，这一次，我一定要带你出去..."</h3><br><p>更新时间：2026-06-30 10:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>宜宾地震食客避难后折返 无人逃单</h3><br><p>更新时间：2026-06-30 10:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 10:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md</p><br>
+<h3>勇敢的心第二部</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md</p><br>
+<h3>领克07GT搭载超跑同源MRC悬架</h3><br><p>更新时间：2026-06-30 10:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md</p><br>
+<h3>人大博士肄业宅家六年靠父母供养，曾确诊焦虑症，为什么会出现这种情况？反映了哪些问题？</h3><br><p>更新时间：2026-06-30 10:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md</p><br>
+<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 10:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
+<h3>锐评：网红不能困在无底线逐利里</h3><br><p>更新时间：2026-06-30 10:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md</p><br>
+<h3>全网说丑的玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 10:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md</p><br>

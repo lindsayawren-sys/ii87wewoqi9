@@ -1,41 +1,45 @@
-<h1>辽宁锦州市民宗局集中开展民族团结进步促进法学习宣传</h1><br>
+<h1>马来西亚：欢迎中国剧组赴马拍摄 深化影视联合制作</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:30:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:36:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>锦州市民宗局集中开展民族团结进步促进法学习宣传 2026年5月15日是辽宁省第二十个政务公开日，锦州市民宗局紧扣“深化政策公开，优化营商环境，赋能高质量发展”活动主题，以宣传贯彻《中华人民共和国民族团结进步促进法》为重点，集中开展学习宣传，持续提高民族法律法规知晓度。 活动当天，市民宗局制作了民族团结进步促进法宣传展板和宣传日记本，在市政府广场向群众免费发放民族团结进步促进法宣</p><br>
+<p>中新网吉隆坡5月29日电 (记者 刘育英)马来西亚通信部副部长张念群29日在吉隆坡表示，创意经济已成为拉动马来西亚经济发展的重要支柱。马方正出台多项优惠政策，积极吸引包括中国在内的各国影视团队前来拍摄，并推进双边影视联合制作。 张念群是在当日上午在吉隆坡举办的2026江苏国际服务贸易展览会(马来西亚)开幕礼上做上述表示的。张念群表示，中国影视作品近年来在马来西亚受到欢迎。动画电</p><br>
 <h2>正文</h2><br>
-<p>锦州市民宗局集中开展民族团结进步促进法学习宣传 2026年5月15日是辽宁省第二十个政务公开日，锦州市民宗局紧扣“深化政策公开，优化营商环境，赋能高质量发展”活动主题，以宣传贯彻《中华人民共和国民族团结进步促进法》为重点，集中开展学习宣传，持续提高民族法律法规知晓度。</p><br>
-<p>活动当天，市民宗局制作了民族团结进步促进法宣传展板和宣传日记本，在市政府广场向群众免费发放民族团结进步促进法宣传册和《中国公民民族成份登记管理办法》等宣传资料200余份，宣传民族团结进步促进法的立法意义、主要内容以及中国公民民族成份登记管理相关政策，现场解答了群众咨询的问题。</p><br>
-<p>一段时间以来，市民宗局突出铸牢中华民族共同体意识主线，通过“锦州民族宗教”公众号推送我市各界学习宣传贯彻民族团结进步促进法心得体会文章，转载国家、省级政务新媒体文章、图解，采取多种方式广泛宣传民族团结进步促进法。</p><br>
-<p>通过集中学习宣传活动的开展，进一步提高了干部职工的服务意识、责任意识，大家切实感受到，做好新时代党的民族工作不仅体现在日常工作中，更加体现在作风转变中、服务群众中、依法行政中，要用实际行动树立和践行正确政绩观，切实转作风树新风促发展，不断提高各族群众的满意度和幸福感，为锦州加快建设区域中心城市作出积极贡献。</p><br>
-<p>来源：“锦州民族宗教”微信公众号</p><br>
+<p>中新网吉隆坡5月29日电 (记者 刘育英)马来西亚通信部副部长张念群29日在吉隆坡表示，创意经济已成为拉动马来西亚经济发展的重要支柱。</p><br>
+<p>马方正出台多项优惠政策，积极吸引包括中国在内的各国影视团队前来拍摄，并推进双边影视联合制作。</p><br>
+<p>张念群是在当日上午在吉隆坡举办的2026江苏国际服务贸易展览会(马来西亚)开幕礼上做上述表示的。</p><br>
+<p>张念群表示，中国影视作品近年来在马来西亚受到欢迎。</p><br>
+<p>动画电影《哪吒》此前在当地引发观影热潮。</p><br>
+<p>谈及即将上映的《给阿嬷的情书》，她笑称：“等电影登陆马来西亚院线，我也会和朋友一起去看。</p><br>
+<p>” 她介绍，现阶段已有多家中国影视团队在马来西亚开展拍摄工作，期待未来中马两国携手打造更多深度影视合作项目。</p><br>
+<p>马来西亚通信部下属电影发展局(FINAS)持续搭建行业交流平台，促进各国影视从业者沟通互鉴。</p><br>
 <h2>相关推荐</h2><br>
-<h3>存储芯片龙头提示风险</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md</p><br>
-<h3>81岁老人被男子买光菜回家车祸去世</h3><br><p>更新时间：2026-06-30 10:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
-<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 10:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md</p><br>
-<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>德国 传控</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
-<h3>拆解FIFA和世界杯的暗面</h3><br><p>更新时间：2026-06-30 10:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md</p><br>
-<h3>天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md</p><br>
-<h3>「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
-<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>老外对中国cosplay竟这样评价…</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md</p><br>
-<h3>董卿母亲癌症去世</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md</p><br>
+<h3>女子称香奈儿发黄没有奢牌体验</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md</p><br>
+<h3>我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......</h3><br><p>更新时间：2026-06-30 10:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md</p><br>
+<h3>⚡逼尔摩斯教你玩球⚡</h3><br><p>更新时间：2026-06-30 10:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md</p><br>
+<h3>巴拉圭全国放假庆祝晋级16强</h3><br><p>更新时间：2026-06-30 10:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md</p><br>
+<h3>找到了10年前跪舔b站的视频</h3><br><p>更新时间：2026-06-30 10:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md</p><br>
+<h3>欧洲装一台空调有多难</h3><br><p>更新时间：2026-06-30 10:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>你人生中最艰难的时候是怎么熬过来的？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md</p><br>
+<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 10:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md</p><br>
+<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒搭手</h3><br><p>更新时间：2026-06-30 10:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
+<h3>手底下人带不动怎么办？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md</p><br>
+<h3>女子连盆端走路边晾晒的大蒜</h3><br><p>更新时间：2026-06-30 10:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>郑钦文温网三连败西尼亚科娃</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md</p><br>
-<h3>哈弗茨崩溃道歉：我们踢得太差了</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md</p><br>
-<h3>2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？</h3><br><p>更新时间：2026-06-30 10:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md</p><br>
-<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md</p><br>
-<h3>一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md</p><br>
-<h3>欧盟分楼层开空调惹争议</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md</p><br>
-<h3>妻子撞死家暴丈夫案二审案情反转</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md</p><br>
-<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
-<h3>黄金</h3><br><p>更新时间：2026-06-30 10:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md</p><br>
-<h3>补时绝杀 巴西2-1淘汰日本</h3><br><p>更新时间：2026-06-30 10:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
-<h3>四川高县5.5级地震最新情况</h3><br><p>更新时间：2026-06-30 10:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md</p><br>
-<h3>iPhone18e曝光</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
-<h3>世界杯淘汰赛 1/16 决赛，德国点球大战 4-5 遭巴拉圭淘汰，如何评价本场比赛？</h3><br><p>更新时间：2026-06-30 10:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md</p><br>
-<h3>韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？</h3><br><p>更新时间：2026-06-30 10:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
-<h3>第一炉香</h3><br><p>更新时间：2026-06-30 10:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md</p><br>
+<h3>梅德韦杰夫：俄最严峻的是人口问题</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>索马里女大使：想和中国一起搞事业</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md</p><br>
+<h3>张月没加到的微信黄灿灿加到了</h3><br><p>更新时间：2026-06-30 10:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md</p><br>
+<h3>周生如故</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md</p><br>
+<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 10:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md</p><br>
+<h3>贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md</p><br>
+<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 10:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md</p><br>
+<h3>第一次对自信的力量有了实感</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>为什么很多企业推行“扁平化管理”后，效率反而下降了？</h3><br><p>更新时间：2026-06-30 10:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md</p><br>
+<h3>“黄岩岛自家院子紧张个啥”</h3><br><p>更新时间：2026-06-30 10:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md</p><br>
+<h3>空调在印度成为奢侈品</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md</p><br>
+<h3>女子遭家暴逃跑致丈夫身亡二审细节</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
+<h3>高质量发展看新疆</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
+<h3>法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？</h3><br><p>更新时间：2026-06-30 10:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
+<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 10:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>

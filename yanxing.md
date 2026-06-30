@@ -1,43 +1,44 @@
-<h1>河南现有博物馆已达411家 年接待观众超9700万人次</h1><br>
+<h1>共话数智体育发展 第三届陕西省体育科学大会在西安举办</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:30:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:36:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>中新网郑州5月18日电 (记者 韩章云)5月18日，2026年“国际博物馆日”河南主会场活动在郑州博物馆启动。记者从现场获悉，截至2025年，河南各类博物馆数量已达411家，全年举办展览近2000个，接待观众超9700万人次。 河南是中华文明的重要发祥地，历史悠久、文化厚重，是文物大省、考古大省。近年来，河南博物馆事业快速发展，一座座博物馆建成开放，成为备受民众喜爱的文化地标。</p><br>
+<p>中新网西安5月31日电(张一辰 李一璠)由陕西省体育科学学会主办的第三届陕西省体育科学大会暨第五届陕西省体育科学论文报告会30日在西北工业大学举行，来自全国各地的1000余名参与者齐聚古城西安，携手共绘体育数字化、智能化发展蓝图。本次大会以“数智体育 创享未来”为主题。西北工业大学党委常委、副校长张富利表示，高校体育是深化体教融合、落实立德树人的重要阵地，本次大会聚焦数字技术与</p><br>
 <h2>正文</h2><br>
-<p>中新网郑州5月18日电 (记者 韩章云)5月18日，2026年“国际博物馆日”河南主会场活动在郑州博物馆启动。</p><br>
-<p>记者从现场获悉，截至2025年，河南各类博物馆数量已达411家，全年举办展览近2000个，接待观众超9700万人次。</p><br>
-<p>河南是中华文明的重要发祥地，历史悠久、文化厚重，是文物大省、考古大省。</p><br>
-<p>近年来，河南博物馆事业快速发展，一座座博物馆建成开放，成为备受民众喜爱的文化地标。</p><br>
-<p>节假日里，为满足观众的参观需求，越来越多的博物馆延时闭馆，与观众双向奔赴。</p><br>
-<p>“今年‘国际博物馆日’主题为‘博物馆：联结世界的桥梁’，精准阐释了博物馆守护文明根脉，沟通古今中外，促进交流互鉴，服务社会大众的时代价值。</p><br>
-<p>”河南省文物局局长任伟表示，河南文物博物馆工作立足实证中华民族的“根与魂”这一历史定位，扎实推进藏品规范管理、精品展览打造、数字化建设、社会教育拓展、馆际交流合作等重点工作，全省博物馆数量稳步增长、体系不断完善、服务持续提升。</p><br>
-<p>“2025年全省各类博物馆数量达到411家，举办展览近2000个，接待观众9700多万人次。</p><br>
+<p>中新网西安5月31日电(张一辰 李一璠)由陕西省体育科学学会主办的第三届陕西省体育科学大会暨第五届陕西省体育科学论文报告会30日在西北工业大学举行，来自全国各地的1000余名参与者齐聚古城西安，携手共绘体育数字化、智能化发展蓝图。</p><br>
+<p>本次大会以“数智体育 创享未来”为主题。</p><br>
+<p>西北工业大学党委常委、副校长张富利表示，高校体育是深化体教融合、落实立德树人的重要阵地，本次大会聚焦数字技术与体育科研融合创新，共探发展新路，聚力为体育强国、健康中国建设添智赋能。</p><br>
+<p>陕西省体育局党组成员、副局长李长军表示，体育科研工作者要坚持守正创新、深耕研究领域，借力数字科技激活发展动能，同时加强多方协同合作，推动科研成果落地惠民，以体育科技创新助力陕西体育高质量发展。</p><br>
+<p>大会主题报告环节特邀西北工业大学卢乾波教授、国家体育总局体育科学研究所陈小平教授、西北工业大学商澎教授等专家，围绕数智体育前沿趋势、技术应用、产业发展等内容展开深度分享。</p><br>
+<p>记者关注到，大会论文征集覆盖面广、成果丰硕，累计收到投稿2190篇，1846篇论文入围，最终评选出获奖论文1534篇，其中专题报告1033篇，墙报交流501篇。</p><br>
+<p>大会围绕竞技体育、高校体育、中小学体育、群众体育、体育综合五大方向，共设置28个专题交流会场；专题交流作者登台汇报，分享最新研究成果。</p><br>
+<p>大会还专门设置墙报展示区，分区展示获奖墙报稿件，供参会人员随时观摩学习、互动交流。</p><br>
 <h2>相关推荐</h2><br>
-<h3>杨紫肖战余生请多指教拍立得</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md</p><br>
-<h3>刘宇宁是去进货了吗</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
-<h3>美股</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md</p><br>
-<h3>王曼昱被突如其来的话筒逗笑了</h3><br><p>更新时间：2026-06-30 10:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md</p><br>
-<h3>消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>2021江苏卫视跨年演唱会</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md</p><br>
-<h3>租房时你会更看重「住得舒服」，还是「每天通勤更方便」？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md</p><br>
-<h3>湖北云南的这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
-<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 10:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md</p><br>
-<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 10:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md</p><br>
+<h3>咕嘎万能小摊1：沉浸式制作惠灵顿牛排</h3><br><p>更新时间：2026-06-30 10:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md</p><br>
+<h3>这一刀 会很帅</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md</p><br>
+<h3>87克大金链到老庙黄金维修少了11克</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
+<h3>蔚来回应高压水枪洗车掉漆</h3><br><p>更新时间：2026-06-30 10:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md</p><br>
+<h3>蜘蛛侠:平行宇宙</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
+<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
+<h3>王楚钦说配合稍微有些陌生感</h3><br><p>更新时间：2026-06-30 10:35<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md</p><br>
+<h3>女子连盆端走路边晾晒的大蒜</h3><br><p>更新时间：2026-06-30 10:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md</p><br>
+<h3>hanser X 赖美云《室内系的Track Maker》</h3><br><p>更新时间：2026-06-30 10:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md</p><br>
+<h3>为什么纣王似乎对周文王的扩张完全无动于衷？</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md</p><br>
+<h3>世界杯名画巴拉圭钢铁防线</h3><br><p>更新时间：2026-06-30 10:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 10:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md</p><br>
-<h3>周生如故</h3><br><p>更新时间：2026-06-30 10:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md</p><br>
-<h3>教育部披露：高考生篡改7名同学志愿</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
-<h3>杨紫大银幕成绩单</h3><br><p>更新时间：2026-06-30 10:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
-<h3>阿娇瘦了10斤</h3><br><p>更新时间：2026-06-30 10:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
-<h3>吴易昺不敌德约科维奇 止步温网首轮</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>如果有二次元高中是什么样子的？</h3><br><p>更新时间：2026-06-30 10:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md</p><br>
-<h3>如何评价杨紫白玉兰获奖</h3><br><p>更新时间：2026-06-30 10:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md</p><br>
-<h3>“黄岩岛自家院子紧张个啥”</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md</p><br>
-<h3>解放军黄岩岛战备警巡 驱离菲方飞机</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md</p><br>
-<h3>日本遭读秒绝杀 森保一：我水平不够</h3><br><p>更新时间：2026-06-30 10:05<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md</p><br>
-<h3>木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？</h3><br><p>更新时间：2026-06-30 10:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md</p><br>
-<h3>歌剧老师锐评歌手第6期</h3><br><p>更新时间：2026-06-30 10:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md</p><br>
-<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 10:12<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md</p><br>
-<h3>发明linux、python、redis、nginx、sqlite的人算不算天才？</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md</p><br>
+<h3>全网说丑的格力玫瑰空调卖了5万台</h3><br><p>更新时间：2026-06-30 10:06<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md</p><br>
+<h3>男子P图现任妻子照片冒充前妻</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md</p><br>
+<h3>马耳他著名拱门坍塌致中国男子身亡</h3><br><p>更新时间：2026-06-30 10:32<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md</p><br>
+<h3>7月1日起 一批新规即将落地</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md</p><br>
+<h3>这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆</h3><br><p>更新时间：2026-06-30 10:33<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>男子醉酒溺水获救后同行人拒协助抬人</h3><br><p>更新时间：2026-06-30 10:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md</p><br>
+<h3>“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 10:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md</p><br>
+<h3>古代时期普通老百姓能喝上酒吗？</h3><br><p>更新时间：2026-06-30 10:09<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md</p><br>
+<h3>重庆多家酒店实行24小时退房制</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md</p><br>
+<h3>明星大侦探第四季</h3><br><p>更新时间：2026-06-30 10:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>巴拉圭全国放假庆祝晋级16强</h3><br><p>更新时间：2026-06-30 10:14<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
+<h3>我是一只猫妖，无意掉入老虎窝，躲进虎穴冒充虎崽，结果被宠成真小老虎</h3><br><p>更新时间：2026-06-30 10:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md</p><br>
+<h3>已经看完《三国第一部：争洛阳》的人，如何评价这部电影？</h3><br><p>更新时间：2026-06-30 10:34<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md</p><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 10:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md</p><br>
+<h3>如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md</p><br>

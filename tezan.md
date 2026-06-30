@@ -1,44 +1,46 @@
-<h1>豹8豹5闪充版首搭首发比亚迪云辇-P Ultra</h1><br>
+<h1>云南昆明：欢乐足球过“六一”</h1><br>
 
-<p><strong>更新时间：2026-06-30 10:30:02 UTC+8</strong></p><br>
+<p><strong>更新时间：2026-06-30 10:36:02 UTC+8</strong></p><br>
 
 <h2>摘要</h2><br>
-<p>近日，方程豹豹8闪充版、豹5云辇闪充版正式上市，首搭首发比亚迪云辇-P Ultra，全球首款“全场景智能液压车身控制系统”，开创新能源高端越野全新品类，加大硬派越野市场布局。 豹8闪充版售价41.98万元(限时下定惊喜价40.98万元)，有五座版和七座版可选，加8000元可选六座版；选装上有三个可选，分别是21英寸轮毂、拖车装置，以及五座版只需加16968元便可选装灵鸢·比亚迪</p><br>
+<p>日本在野党批高市政府推动修宪扩军：背离民众真实诉求除了《给阿嬷的情书》，这些涉侨电影也值得一看！质量差、退费难、价格高......租赁手机小心暗藏玄机日本启动第20次核污染水排海 排放量约7800吨领取失业保险金期间，城乡居民医疗保险受影响吗？人社部回应“鞠萍姐姐”正式退休，网友：我的童年毕业了带娃出行怎么购票乘车？攻略来了！让别国文物回家，西方博物馆们敢回答这个问题吗？ 这些</p><br>
 <h2>正文</h2><br>
-<p>近日，方程豹豹8闪充版、豹5云辇闪充版正式上市，首搭首发比亚迪云辇-P Ultra，全球首款“全场景智能液压车身控制系统”，开创新能源高端越野全新品类，加大硬派越野市场布局。</p><br>
-<p>豹8闪充版售价41.98万元(限时下定惊喜价40.98万元)，有五座版和七座版可选，加8000元可选六座版；选装上有三个可选，分别是21英寸轮毂、拖车装置，以及五座版只需加16968元便可选装灵鸢·比亚迪智能车载无人机系统。</p><br>
-<p>豹5售价25.98万元起，其中核心发布的豹5云辇闪充版售价30.58万元(限时下定惊喜价29.98万元)，标配天神之眼B-智能辅助驾驶系统；选装上，可选20英寸轮毂、拖车装置及前桥电子差速锁，以及只需加16968元便可选装灵鸢·比亚迪智能车载无人机系统；此外，本次豹5还加推了210KM天神Max版，标配天神之眼C-智能辅助驾驶系统(可选装天神之眼B)，售价25.98万元(限时下定惊喜价25.38万元)。</p><br>
-<p>作为高端越野旗舰车型，豹8豹5闪充版搭载比亚迪云辇-P Ultra、比亚迪第二代刀片电池及闪充技术、DMO+电驱越野开创平台、高阶智能辅助驾驶系统等四大顶级科技，其中全新云辇-P Ultra全场景智能液压车身控制系统实现“五大全球之首”，“六大行业之最”，让豹8豹5闪充版构建硬派越野“过得去”、“扛得住”、“坐得稳”三大核心价值，为用户带来3分钟换胎、3轮可行驶、4轮皆可提的极致用车体验。</p><br>
-<p>豹8豹5闪充版首搭首发云辇-P Ultra 豹8豹5闪充版首搭首发比亚迪云辇-P Ultra，是全球首款全场景智能液压车身控制系统，为用户带来“过得去”、“扛得住”、“坐得稳”三大核心价值。</p><br>
-<p>“过得去”方面，云辇-P Ultra实现了全工况提轮应用、全场景高度调节、全地形姿态适应三大能力，不仅带来全球首创的腾空换胎、提轮脱困、三足鼎行、超强举升等功能，为用户带来3分钟换胎、3轮可行驶、4轮皆可提的全新体验；更是达成六大行业之最：行业最大提轮高度300mm；行业最大单次提轮可工作时长超24小时；行业最大举升载荷9吨；行业最大可举升坡度45度；行业最大车身高度调节行程200毫米；行业最大循迹指数673。</p><br>
-<p>“扛得住”方面，云辇-P Ultra提升了耐冷、耐热、耐腐、超高扛跌落、自散热等能力，具备超强环境适应性、超强抗冲击、超强散热能力三大特点，让车辆可靠性再进阶。</p><br>
-<p>“坐得稳”方面，云辇-P Ultra的阻尼带宽、刚度带宽大幅提升，主动预瞄提前识路，有效过滤颠簸，还凭借防晕车模式显著改善加减速、俯仰和车辆晃动，让车辆舒适度再提升。</p><br>
+<p>日本在野党批高市政府推动修宪扩军：背离民众真实诉求除了《给阿嬷的情书》，这些涉侨电影也值得一看！</p><br>
+<p>质量差、退费难、价格高......租赁手机小心暗藏玄机日本启动第20次核污染水排海 排放量约7800吨领取失业保险金期间，城乡居民医疗保险受影响吗？</p><br>
+<p>人社部回应“鞠萍姐姐”正式退休，网友：我的童年毕业了带娃出行怎么购票乘车？</p><br>
+<p>攻略来了！</p><br>
+<p>让别国文物回家，西方博物馆们敢回答这个问题吗？</p><br>
+<p>这些不起眼的习惯 可能让你的血脂“直线上升”中东战火纷飞，这些孩子没有儿童节事关幼儿园食品安全！</p><br>
+<p>新规6月1日起施行大巴黎卫冕！</p><br>
+<p>阿森纳点球惜败，队史仍缺欧冠冠军外资加仓中国，对中国市场投下信任票灵隐寺，你变了！</p><br>
 <h2>相关推荐</h2><br>
-<h3>只有诺伊尔可以昂首走出球场</h3><br><p>更新时间：2026-06-30 10:27<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md</p><br>
-<h3>日本球员说被绝杀非常不甘心</h3><br><p>更新时间：2026-06-30 10:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
-<h3>三星投资计划</h3><br><p>更新时间：2026-06-30 10:04<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md</p><br>
-<h3>如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？</h3><br><p>更新时间：2026-06-30 10:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md</p><br>
-<h3>好像看到了人类带孩子崩溃的样子</h3><br><p>更新时间：2026-06-30 10:24<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md</p><br>
-<h3>乔家的儿女</h3><br><p>更新时间：2026-06-30 10:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
-<h3>高质量发展看新疆</h3><br><p>更新时间：2026-06-30 10:03<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md</p><br>
-<h3>奔跑吧·黄河篇第二季</h3><br><p>更新时间：2026-06-30 10:02<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
-<h3>极端热浪席卷欧洲多国，热一热百姓让领导先凉快？</h3><br><p>更新时间：2026-06-30 10:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md</p><br>
-<h3>巴西2-1绝杀日本</h3><br><p>更新时间：2026-06-30 10:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md</p><br>
-<h3>德国主帅称无法理解加时进球被吹</h3><br><p>更新时间：2026-06-30 10:01<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md</p><br>
+<h3>巴黎罕见高温 有人为争空调打起来</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
+<h3>欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md</p><br>
+<h3>马宁怒怼巴拉圭教练组</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md</p><br>
+<h3>湖北云南这些涉汛信息都是假的</h3><br><p>更新时间：2026-06-30 10:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>韩国世界杯出局是主帅一个人的锅吗</h3><br><p>更新时间：2026-06-30 10:21<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md</p><br>
+<h3>沙丘</h3><br><p>更新时间：2026-06-30 10:17<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md</p><br>
+<h3>德国连续三届世界杯无缘16强</h3><br><p>更新时间：2026-06-30 10:08<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md</p><br>
+<h3>全球芯片巨头史诗级扩产</h3><br><p>更新时间：2026-06-30 10:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md</p><br>
+<h3>我把队友的7连跪剪成了艺术</h3><br><p>更新时间：2026-06-30 10:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md</p><br>
+<h3>尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md</p><br>
+<h3>千万不要随便扣肚脐</h3><br><p>更新时间：2026-06-30 10:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md</p><br>
+<h3>陆家嘴独居女生vlog火了</h3><br><p>更新时间：2026-06-30 10:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md</p><br>
+<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 10:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md</p><br>
 
 <h2>延伸阅读</h2><br>
-<h3>“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】</h3><br><p>更新时间：2026-06-30 10:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md</p><br>
-<h3>你的妻子大喷菇—《植物娘大战僵尸》特别篇</h3><br><p>更新时间：2026-06-30 10:23<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md</p><br>
-<h3>巴西球迷赛后给日本球迷披上巴西国旗</h3><br><p>更新时间：2026-06-30 10:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md</p><br>
-<h3>网友写差评被店家“挂”门口避雷</h3><br><p>更新时间：2026-06-30 10:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
-<h3>王菲谢霆锋十指紧扣好甜</h3><br><p>更新时间：2026-06-30 10:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md</p><br>
-<h3>卖菜老人获博主帮助后遇车祸去世</h3><br><p>更新时间：2026-06-30 10:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md</p><br>
-<h3>日本球迷输球后集体捡垃圾</h3><br><p>更新时间：2026-06-30 10:29<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md</p><br>
-<h3>吴建豪再婚妻子身份公布</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md</p><br>
-<h3>刘宇宁高情商化解谁站C位</h3><br><p>更新时间：2026-06-30 10:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md</p><br>
-<h3>第3集丨“柠檬茶能换怀表？”</h3><br><p>更新时间：2026-06-30 10:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md</p><br>
-<h3>四川高县5.5级地震最新情况</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md</p><br>
-<h3>日本将帅赛后采访纷纷哽咽落泪</h3><br><p>更新时间：2026-06-30 10:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md</p><br>
-<h3>如何看待德国队连续三届世界杯稳定 32 强？</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md</p><br>
-<h3>天道</h3><br><p>更新时间：2026-06-30 10:13<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md</p><br>
-<h3>杨紫被质疑未使用原名</h3><br><p>更新时间：2026-06-30 10:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md</p><br>
+<h3>高考结束，该不该外出打工体验？</h3><br><p>更新时间：2026-06-30 10:22<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md</p><br>
+<h3>Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？</h3><br><p>更新时间：2026-06-30 10:25<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md</p><br>
+<h3>为什么小组赛出局会让韩国人破防</h3><br><p>更新时间：2026-06-30 10:19<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md</p><br>
+<h3>中国新一轮出口管制直指日本命脉</h3><br><p>更新时间：2026-06-30 10:15<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md</p><br>
+<h3>德国 传控</h3><br><p>更新时间：2026-06-30 10:18<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md</p><br>
+<h3>德国4比5巴拉圭</h3><br><p>更新时间：2026-06-30 10:20<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md</p><br>
+<h3>啊啊啊</h3><br><p>更新时间：2026-06-30 10:28<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md</p><br>
+<h3>“黄岩岛自家院子紧张个啥”</h3><br><p>更新时间：2026-06-30 10:26<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md</p><br>
+<h3>人类...完蛋了...</h3><br><p>更新时间：2026-06-30 10:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md</p><br>
+<h3>浪姐成团夜爆笑吐槽</h3><br><p>更新时间：2026-06-30 10:07<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md</p><br>
+<h3>日本主帅赛后回应淘汰出局</h3><br><p>更新时间：2026-06-30 10:16<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md</p><br>
+<h3>陈幸同晋级WTT美国大满贯女单32强</h3><br><p>更新时间：2026-06-30 10:30<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md</p><br>
+<h3>荷兰VS摩洛哥</h3><br><p>更新时间：2026-06-30 10:10<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md</p><br>
+<h3>【涤墨作战7人870】望：我从地狱杀回来了！</h3><br><p>更新时间：2026-06-30 10:11<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md</p><br>
+<h3>4000美元是黄金新一轮下跌的开始吗</h3><br><p>更新时间：2026-06-30 10:31<br><br> | 来源:https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md</p><br>
